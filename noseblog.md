@@ -9,3 +9,30 @@ other than the kbd, I have noticed a lot of changes in how much I feel now too. 
 imagine that we're all cruising along and you guys all have your manifestations (the automatons) and I remain largely how I am. you guys have the data and I continue on with my theories and ideas, of some of them are still wrong. I do like I do now where I keep updating my ideas with the feedback I get from my sixth-sense.
 
 that means you guys get to hold the high ground with all your data and stuff and I get to be repeatedly wrong as I pontificate my way toward the better and better way of perceiving it. I don't mind being repeatedly wrong, way off-base and cringe.
+
+
+### 2021-06-18 17:19 - the way I see it happening
+
+when I think of how something divides or reproduces, there seems to have a moment when the environment is no longer suitable for the emerging entity -- like a birth or a cell division.
+
+next, I have noticed how influential mr. motor's attraction on my situation is -- like, I think he was giving his attention to how annoying it is to babysit me, and then now without a computer to occupy me, he has a whole lot more babysitting to do. or my hair -- I remember him trying to get me to cut it numerous times in dreams -- or back when he believed that force-ejaculating me was reducing energy until I started to get vision upgrades from it.
+
+---
+
+I don't imagine that nosebook can allow me to gain temporal awareness because they have stuff to hide, however like I said, it's not all that bad: I won't have any sex but I will be able to fly around and create objects with my mind -- including human bodies science would probably consider dead. they will become animated though -- and they will (like a child) become a reflection of the person they are interacting with. I can imagine all sorts of uses for these guys and girls. however, I won't have control or even much influence over them -- you'll get what you attract from them.
+
+the creation process for these guys can be automated, but at the beginning I will simply feel the person and then turn that feeling into one of desire until it becomes reality. neither of us will know what will show up; I can only feel it coming. after they see it, they will react and I can again turn the feeling into desire and repeat. for most people, this will be purely visual, so I am sure some effort will be made to perform this process in the privacy of one's own imagination.
+
+so while all of this is happening, you can imagine how much anticipation I have to create technology to words and ideas into a computer faster and easier. sure, I won't have access to my imagination or properly see through my own eyes but I can create technology to greatly enhance my experience.
+
+I may be wrong a lot in the beginning, but as fast as I can think up experiments and run them, I will catch up rapidly. because all of my "imagination" will happen is 3d space, everything will be visible and seen in low quality 3d. I have lots of ideas on how to improve our relation with machines without any utilisation of the imagination.
+
+I even think it's possible to redesign humans too, as I really want explore a lot of ideas I have at running hominid species at microprocessor speeds -- amongst further explorations into more hairless models and other improvements people come up with their fancies.
+
+---
+
+while all of this is happening I believe the planet will rotate faster and have a stronger magnetic field. mr. motor will continue to fight me gaining temporal perception, but ultimately he'll attract the very thing he's fighting against and something will happen where I/we go our separate ways -- or, be born into a new reality. the baby cannot go back into the mother's womb. after the water breaks, it is an incompatible environment for the baby.
+
+the magnetic field strength and reversals is very likely related to rotation speed and just before the separation is a peak like [this](https://www.planetanalog.com/wp-content/uploads/content-images-planetanalog-Image-7-1503855184.png).
+
+I wonder if harmonics to make that square wave must be other stars' orbital resonances in the local cluster and if this is the same mechanism causing cells to divide. I suspect it is.
