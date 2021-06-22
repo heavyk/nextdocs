@@ -36,3 +36,9 @@ while all of this is happening I believe the planet will rotate faster and have 
 the magnetic field strength and reversals is very likely related to rotation speed and just before the separation is a peak like [this](https://www.planetanalog.com/wp-content/uploads/content-images-planetanalog-Image-7-1503855184.png).
 
 I wonder if harmonics to make that square wave must be other stars' orbital resonances in the local cluster and if this is the same mechanism causing cells to divide. I suspect it is.
+
+### 2021-06-22 11:50 - learning the atreus
+
+the white layout really opened my mind with having more keys to press so the atreus is a little bit different in that it has less keys and forces me to type more properly with both hands on the keyboard. I feel like it is a step in the right direction though. I really mostly just need practise.
+
+the wierdest thing about the atreus is that there isn't any buttons next to my pinky fingers. I also keep noticing that I want to press the corresponding key with my opposite hand as if my muscle memory wore mirrored or something. very strange.
