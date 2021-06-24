@@ -42,3 +42,13 @@ I wonder if harmonics to make that square wave must be other stars' orbital reso
 the white layout really opened my mind with having more keys to press so the atreus is a little bit different in that it has less keys and forces me to type more properly with both hands on the keyboard. I feel like it is a step in the right direction though. I really mostly just need practise.
 
 the wierdest thing about the atreus is that there isn't any buttons next to my pinky fingers. I also keep noticing that I want to press the corresponding key with my opposite hand as if my muscle memory wore mirrored or something. very strange.
+
+### 2021-06-24 02 02:49 - some thinking on resistance
+
+I was having a monologue on how time worked again and I thought to type it instead because I want the practise. I got to the part where I talked about where reality reflects what we feel and believe and that dreams are the best example of this.
+
+in a dream, if I try to resist the reality, then it gets worse. however, if I just allow what I want to experience, then it just shows up. it doesn't matter how much resistance there is to that all around, it will still appear. it would be like the plastic insulator trying to block the current in the copper -- what I mean is this: if this reality is nothing more than an elaborate dream that we all believe/feel is/as real -- so like atoms are manifesting and stuff... then the one with the least resistance is always more effective at manifesting reality than everyone else is.
+
+the other day I was talking with mom about lowering resistance is short of like lowering one's sail. I like the analogy still quite a lot if one perceives the wind as other people's beliefs -- they're not influencing me very much anymore. that doesn't mean I can do anything I want to just yet either -- I still need to have my own resistance/beliefs to propel me forward though.
+
+more soon...
