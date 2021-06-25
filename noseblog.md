@@ -90,5 +90,26 @@ I think we're going to continue on learning to "not need things to be a certain 
 
 I have much more to say about this, however this is good for now.
 
-
 [1]: the firmware has support for sequences but there is no easy interface to make new ones. so like it's already supported in the firmware but there is no way to use it without writing c++ code.
+
+### 2021-06-25 13:34 - doing things mr. motor's way
+
+a long time ago I used to try and fight mr. motor and try to do things the way I want them to be done, however that falls right into the catergory of "needing things to be a certain way so that I can feel good."
+
+I also had a dream last night where they told me that tesla's vision wasn't even that good (compared to who's?) and that he had gave technology capable of going back and reordering events in time -- which is all well and good, but I'm not talking about changing thme past -- but instead changing how you *feel* about the past so you can create what you want now.
+
+I just think that is a much more effective way of going toward wanted.
+
+I mentioned that I believe that the computer coffee incident had some tampering in it, however it *was* attraacted so therefore it is in the direction of wanted -- I just have to figure out how to perceive it. I'm sorta surprised it took me that long to figure it out but the key was the "not needing things to be different so that I can feel good" bit.
+
+---
+
+as such I have determined that likely the way I will be going is the way mr. motor wants me to do. I think what he does is tell everyone what he thinks they want to hear (so like getting your guys hopes up about things) and then actively workinyg to sabotage it. I have found that mr. motor can only tell me what he doesn't want me to do -- never what *to* do. that means I get to make up what I do do.
+
+so, imagine for a moment (as an example) that he told me not to use my computer -- and so instead I find myself on this one instead learning a new keyboard. it's not a big deal if every time he wants me to do something different, I find something different to do.
+
+if I feel dissatisfaction then I move toward more dissatisfying things. so, like imagine for a moment that I had the ability to go back and modify the past. I would only be doing it because I am dissatisfied with it, and so therefore even though I modified the past to get rid of something unwanted I am still attracting more things that will increase my dissatisfaction and ultimately need to go back and be fixed because they are dissatisfying to me.
+
+therefore it dsoesn't matter what mr. motor doesn't want me to do -- even if he is changing the conditions, I am still moving in the direction of the way I feel, not the present conditions.
+
+a few entries ago I supposed that the peak before the reversal could come from orbital  harmonics, but it's likely temporal -- hence the reason for this decision.
