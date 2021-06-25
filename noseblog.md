@@ -63,3 +63,32 @@ I figure that there are two major categories in which almost all emotional disco
 these can be overcome quite easily with practise, and real
 
 [jaron interrupted me so I never finished this idea]
+
+### 2021-06-24 22:44 - what do I want to create?
+
+mom asked me about this the other day and also I had a weird interaction when I had a weird dream this afternoon -- the basic idea is that they have to allow me to "get connected" -- which sounds like hogwash to me. there's no wat they're just going to "let it happen" after all of this time of fighting against it.
+
+the thing that has been on my mind a lot is actually this keyboard. I have never had good muscle memory or to perform any movement rhythmically with any precision. this keybosard has an arduino inside of it and can be reprogrammed to produce entire sequences[^1]. in fact, the coolest thing about it is that when I think of a new thing I can reprogram the keyboard right when I think about it.
+
+I can quickly see how with a little bit of practise, I can get up to typing fast again and even begin to start to automate entire tasks on the computer. my progress is very rapid.
+
+the thing is I just don't want to do the girls thing at all. I don't have any desire to do anything like that and I really want to just continue on the way I am going. I know that eventually I will find a way to manifest the way I feel in reality with ease too, so there is nothing to worry about at all. I will eventually get there.
+
+there's another cool thing about this is that the program uses layers -- yet I would have set it up as sequences. I can see the advantages to both so after I get a little faster I want to work on my own version of it which kind of mixes both ideas.
+
+even for things like custom macros and configurations for pro DOTA players is an option. ever since I had that arguement with greg about elon's mars journey where I made the realisation that there is an upper echalon that doesn't want to allow any tesla technology or anyone to use the physical simulation capability of the imagination -- that has made me really want to find a way to completely bypass the imagination entirely. I know there is a whole set of technologies that are possible using "random" and the temperance of one's emotions.
+
+it may sound weird to say this but it is the precursor to the mastery of time and space in a sort of ironic way: when I need something to be a certain way so that I can feel the way I want to, that is dissatisfaction with my present position in time. that dissatisfaction prevents me from actually moving to the point in time where those conditions are how I want them to be. if I can feel how I want to, then I can manifest what I feel in 3d space.
+
+in the eazrly stages of this manifesting things emotionally, I want to find ways to control computers with sequences. this keyboard allowed me to sort of flip the idea around and allow me to begin to work on the sequences by making them on the keyboard with muscle-memory and then when I have an adequate way to input code into the computer, I can begin to actually write code to detect the signals on the camera and stuff with ease.
+
+one of the biggest hurdles for me writing code is the input of code. I have found keyboards and editors to be largely difficult to use. I just don't think like a keyboard does. keyboards require precision and I am not very precise. we meet in the middle with sequences because if I make a mistake, I can just loop around and go again. also, my mistakes often times inspire me to try out new things.
+
+---
+
+I think we're going to continue on learning to "not need things to be a certain way so that I can feel good" while we gain power over time and space.
+
+I have much more to say about this, however this is good for now.
+
+
+[1]: the firmware has support for sequences but there is no easy interface to make new ones. so like it's already supported in the firmware but there is no way to use it without writing c++ code.
