@@ -52,3 +52,14 @@ in a dream, if I try to resist the reality, then it gets worse. however, if I ju
 the other day I was talking with mom about lowering resistance is short of like lowering one's sail. I like the analogy still quite a lot if one perceives the wind as other people's beliefs -- they're not influencing me very much anymore. that doesn't mean I can do anything I want to just yet either -- I still need to have my own resistance/beliefs to propel me forward though.
 
 more soon...
+
+### 2021-06-24 14:02 - mastering space and time
+
+I figure that there are two major categories in which almost all emotional discomfort falls into:
+
+1. things or people (conditions) which I need to be different so that I can feel the way I want to (temporal discomfort)
+2. caring too much about what others think about me or the manifestation (spatial discomfort)
+
+these can be overcome quite easily with practise, and real
+
+[jaron interrupted me so I never finished this idea]
