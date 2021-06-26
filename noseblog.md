@@ -113,3 +113,25 @@ if I feel dissatisfaction then I move toward more dissatisfying things. so, like
 therefore it dsoesn't matter what mr. motor doesn't want me to do -- even if he is changing the conditions, I am still moving in the direction of the way I feel, not the present conditions.
 
 a few entries ago I supposed that the peak before the reversal could come from orbital  harmonics, but it's likely temporal -- hence the reason for this decision.
+
+### 2021-06-26 11:25 - becoming the bard-guy
+
+up until the last effort with amoriona, I was perceived as the victim, however since I have been the one actively blocking "the manifestation", I appear less to be the victim of nosebook's efforts to keep me from it.
+
+in some ways, this is creating a situation where nosebook appears to be the good-guys -- which I don't think they want that.
+
+the reality of the situation is that there really arenn't any good or bad guys. nosebook can't allow me to get connected and I don't want to be involved with anyone while I'm out of alignment. neither of us want to budge on the issue and I think it's fine. I'm sortc of hoping they really can keep me away from my alignment forever -- but I find this very hard to believe. every time I go out to watch stars, the have a meltdown and I keep getting further vision upgrades -- sometimes without even looking at the star even.
+
+I have said many times that vision upgrades are a prdoduct of releasing resistance (allowance of more energy). often times that allowance of more energy happens after I appear to reject "the manifestation" (of the girls) -- and this happens because Ihave found a way to feel good about my situation dispite the circumstances.
+
+that is "not needing things to be different so that I can feel good" -- or, temporal mastery.
+
+---
+
+so just to be clear, nosebook can't allow me to be in alignment in this physical body, and I don't want to be having sex while not in alignment.
+
+I don't really find this to be a problem, as I have learned to not need the conditions to be a certain way for me to feel good. I guess it's sort of like how I would imagine prison would feel like: I'm sort of stuck there and fighting the conditions only makes it worse, so why not just settle in and enjoy myself?
+
+it isn't necessary to have good condsitions to feel good; kids do it all the time.
+
+this point in time allows me to try outmy capacity to not care what others think of me or the manifestation -- spatial mastery, while you guys get to try out your temporal mastery of not needing thingconditions to be different so that you can feel good.
