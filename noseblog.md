@@ -135,3 +135,37 @@ I don't really find this to be a problem, as I have learned to not need the cond
 it isn't necessary to have good condsitions to feel good; kids do it all the time.
 
 this point in time allows me to try outmy capacity to not care what others think of me or the manifestation -- spatial mastery, while you guys get to try out your temporal mastery of not needing thingconditions to be different so that you can feel good.
+
+### 2021-06-26 15:35 - it's never going to happen.
+
+I was thinking about this preblem from nosebook's perspective and the reason they don't want me to be the bad-guy is because then they will have to be the good-guy and they don't think they can do anything right and good-guys do things the right way.
+
+porobably the reason that's a problem is because the good-guy wouldn't keep someone from their alignment. I don't understand this because this falls right into the category of caring too much about what other people think.
+
+I enjoy the constant poking fun at mitch mconnel on SNL saying thing like, "mitch mcconnel seen here [...]" because the joke is these politicians don't care about things that humans care about. they are so out of touch with reality that they derive pleasure from things that normal people would find horrific.
+
+if I want nosebook to continue to try and hold me away from my alignment for as long as they can and they neither can allow it, then everything is fine. the only thing is they are worried too much about what people will think of them. nosebook has to go mitch mcconnel on this one and stop worrying about the appearance of things.
+
+---
+
+the next thing that I identified as a difficult spot for nosebook on this issue is that they don't know what to do to actually keep me held back and I think this is another of those "the problem is the solution" sorts of things. women are extremenly proficient at maintaining reality the way they believe it to be. men do too, but it's that stability of their expectations which make their reality current so difficult to "buck" for us.
+
+if a set of events could discourage them so much that no longer are now expecting that it will never happen, then their belief would ensure that nosebook would be able to hold me because their own belief that, "it'll never happen" will continue to manifest as reality.
+
+---
+
+finally, the last thing here that I think is a hangup here is that nosebook wants me to have a very finite manifestation. for me, it needs to be either all of them (I found my alignment) or none. I'm not going to just go for some while out of alignment.
+
+this I believe will be the eventual split that I've been talking about. some will experience a reality where I never find my alignment and some will.
+
+that split may be quite far away though. I figure that instead of trying to twist someone's arm to change their mind who has no intention of changing -- instead, let's just settle into the idea that it's not happening anytime soon.
+
+I say this because if nosebook keeps trying to play both sides of the fence, they won't be able to hold me. if they waznt to keep their secrets and everything going, I don't think they can keep trying to "keep hope alive". just let people bail out on the manifestation and hate me for not wanting a manifestation in a disconnected state.
+
+---
+
+when I'm by myself and doing my own thing, I'm feeling like I keep improving. when I'm with others I feel like there is a greater thing happening. other people's expectations continue to confine me to the manifestation of their belief, so as I learn to care less and less of what other people expect of my reality, I will be able to gain full power of my spatial world.
+
+or I could continue to not need things to be different while not being around people I get power over my temporal reality. probably for nosebook, it'll be easier if I'm not around people. around people I will cause problems, I'm sure.
+
+either way, I'll get there eventually. no need to rush anything.
