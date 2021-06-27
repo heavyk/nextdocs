@@ -169,3 +169,24 @@ when I'm by myself and doing my own thing, I'm feeling like I keep improving. wh
 or I could continue to not need things to be different while not being around people I get power over my temporal reality. probably for nosebook, it'll be easier if I'm not around people. around people I will cause problems, I'm sure.
 
 either way, I'll get there eventually. no need to rush anything.
+
+### 2021-06-27 09:37 - why all or nothing?
+
+from my perspective, it's nothing until it's all -- which is when I find my alignment. obviously this is incompatible with nosebook so that's just the way it has to be.
+
+I woke up this morning with a dream about a turtle that looked like aurora. the impression that I had which I wanted to tell her is that breaking out of her own shell is so that she gains strength.
+
+that seemed very relevant to this conversation because I don't think it's a good idea to try and break somenone's shell and save them from their own birthing/strengthing process.
+
+I find it very important for me to find my own way in things. one of the best tthings mom did for me when I was younger and finding my own way is to just know that I will find my own way. this is the role of the shaman in the psychedellic journey.
+
+---
+
+
+the way I see it, we're going to continue on as we are until I find my alignment. I hmave thougnt about why I have never had sex when I was sober, and I think it just creates too big of an impact. what I mean by that is that while I'm in this body (meaning that my perspective is that I still believe that this body is "me"), then we simply will not have any manifestations of sex.
+
+I believe that there is a point where one reaches too high of an energy level when sex where two things still touch stops being possible. what I mean is I am much more than this body. ok, it's easier to see that perhaps you are not concerned with the way your cells mate and do not desire to reproduce like they do -- and imagine you could do that if you wanted to -- you would be imbuing the new cell with the consciousness of a human. besides the vibrational incompatibility, the amount of energy transferred is a few orders of magnitude too great for the cell to contain.
+
+the only way I think I can reproduce is to be very out of alignment (or like super intoxicated) or to divide my energy amongst many bodies. like I said, this is aparently not possible to allow. nosebook also needs a way to hold me back too, so the idea that I came up with is to just get everyone to believe that it'll never happen and their belief will keep me away from getting connected.
+
+seems good to me and the reason why I'm all for it is because she needs to learn to break out of her own shell to get her own strength. the manifestation will be so much better when they're all capable of attracting what they want. A LOT BETTER. there's no concern for age either because you can be whatever you feel yourself to be. also, from the perspective of someone who is growing, more age feels like a really good thing. remember when you were a child and you couldn't wait until you were older and could do all the fun things that big people can do?
