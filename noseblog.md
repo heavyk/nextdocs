@@ -190,3 +190,47 @@ I believe that there is a point where one reaches too high of an energy level wh
 the only way I think I can reproduce is to be very out of alignment (or like super intoxicated) or to divide my energy amongst many bodies. like I said, this is aparently not possible to allow. nosebook also needs a way to hold me back too, so the idea that I came up with is to just get everyone to believe that it'll never happen and their belief will keep me away from getting connected.
 
 seems good to me and the reason why I'm all for it is because she needs to learn to break out of her own shell to get her own strength. the manifestation will be so much better when they're all capable of attracting what they want. A LOT BETTER. there's no concern for age either because you can be whatever you feel yourself to be. also, from the perspective of someone who is growing, more age feels like a really good thing. remember when you were a child and you couldn't wait until you were older and could do all the fun things that big people can do?
+
+### 2021-06-27 23:57 - weird last few days
+
+I don't really know what to make of it.
+
+I don't remember when, but mcm told me I should go to zach's memorial. I agreed, as it felt like a good idea. I didn't think much about it other than I thought it was weird timing to coincide with a thing that alan mentioned on bardcode about taping a thing with gaia. some days later mattehew la croix mentioned he too was moving to colorado for a thing with gaia also. I don't know much about that because it's pay to watch and I don't have money. it is also around the same 6/24 midsummer's night dream thing.
+
+6/24 was the night of the full moon opposite of the last eclipe on the north pole. it was cloudy (as usual) but I laid outside anyway and just focused my mind saimilarly to when I watch stars. the energy was very high that night and it felt like I got some vision upgrades but I couldn't notice much of a difference.
+
+that's all pretty normal for me but I started to notice some weirdness when one day jaron came to ask me to buzz his head. it felt weird and forced so I figured something was up. it felt to me like they were again trying to set me up with girls when I don't want to do anything until I've found my alignment. mom came and pushed me a bit on the haircut suggesting to me they wanted it for a reason. I could feel mr. motor and assumed the reason for the haircut is so they can essentially do infinite timeline modifications and just buzz my head down to 0 if my hair starts getting too long -- you know, like how the plants seem to accomplish days of growth while I'm asleep.
+
+after that theory passed my mind, they dropped the haircut thing. it may have also been in relation to @[noseblog](2021-06-25 13:34). I then was feeling more of the pressure to go with girls while still out of alignment. I wrote a few more entries explaining that for me it's sort of all or nothing. I don't have the reference now but one of the last abe-now episodes someone was asking if more than one thing can manifest at once. they responded that 30 or 40 things could all manifest at once but hang on for the most contrast which is what I intended to do anyway.
+
+ok, so simultaneously to all of this I started to get some reactions to the latest abe-now episode (6-19). when I had looked at [abeshares.com](https://abeshares.com/) they had already posted the 6-19 episode but I didn't download it. following the reactions I went back to the page and the site wasn't working. I felt like something is up because often times when I feel a reaction and then go to look into it, the file has disappeared or I can't access it (or my computer gets coffee thrown on it). this is actually why I started to upload them to github -- because they keep messing with stuff.
+
+I go to check the abeshares email and now it says they are experiencing people trying to shut them down. I go back to the site and the 6-19 episode has lost its magnet link and it says they're trying to get the episode prepared. the email however has the full image with all the tracks listed and says that the magnet will be available only on saturday the 25th during the time I'm supposed to be at the memorial. consaidering I have reactions on the episode I'm now *very* curious.
+
+the day of the memorial (25th) comes and I'm feeling a lot of pressure. it seems like a very big deal that I go. there is so much pressure I can't pee. this combined with wanting to get the episode, I bail on it. the whole thing feels really bad to me now. strangely enough I saw gary there and I recognised the feeling now. the memorial was starting to feel like working for gary. I really liked it and it felt good to finally start to make money again. I knew I would start to make a lot really soon when a weird set of events made it so I no longer felt it like something I wanted to do.
+
+---
+
+ok, so if that wasn't weird, here's where it starts to get weird: I wrote yesterday's entry about how they need to get a bench of people to believe it's never going to happen to keep me away from my alignment. I'm totally on-board with this idea and it is the maximum contrast. also I really like that the girls will get some practise to not need something to be different so they can feel good. it makles for an even better manifestation...
+
+like, if I'm attrracting wanted from them (cause I'm in alignment), then it feels good to be wanted and desired -- sure, but if they're also attracting the things they want from me too, then it's even better. for example, if I'm not in alignment (but low resistance) then I'll manifest whatever they believe about guys. if I'm in alignment, then I'll manifest (wanted) things in alignment with my source. it won't mahtter what she's doing -- I'll still be solid but nothing new. however, if she's also attracting wanted, then she can attract new things from me which I'm capable of but don't have az tendency toward.
+
+what I'm saying is if I'm out of alignment then I can manifest (not good) things she is attracting but I'm capable of even though I don't have a tendency toward. seems obvious that I would desire to learn I'm capable of new *wanted* things rather than discover new unwanted things I'm capable of.
+
+---
+
+ok, back on track here: my dream this morning provided a new way to empress that which I wrote about in the previous entry. afterward I ate breakfast and fell to sleep again. when I woke up I was now having new reactions that seemed weird to me. I can't confirm them or anything but they were involving esther not being alive anymore.
+
+I don't really believe anything anymore because it appears that every bit of information that gets to me is in harmony with their script. everything from what people say around me (what I "overhear") to even the things I write here have to fit their narrative.
+
+so, if that is true (which for the rest of this section I will assume, is), then I'm writing this to ease up some tension in what likely be quite a jam for them. esther got the shot in march or something and now she's dead. it's easy to see how people could draw that line and blame the vaccine. I'm sure some will if that's the case.
+
+anyway the other problem is likely that I think, as much as people could disagree with them, it seems like they provided a bit of stability. without esther, it's sort of anyone's guess who to believe.
+
+the other reaction was that I was supposed to do something about it. I obviously will not. I will continue to be me and offer my best answers to the things people ask me, but one can clearly see the difficulty of asking me questions about stuff that's a secret. the other major issue is that I make mistakes pretty frequently and I don't really offer anything more than my latest understanding. I have the ability to figure anything out so it takes a few tries of "oh, that's not quite right" to finally get a satisfactory response. I'm not sure how desirable "fly-by-night" responses are. I mean it works for me but that's cause I get the feedback and I'm OK with a constantly improving understanding.
+
+my main issue with english is there isn't an easy way to encode certainty in my responses -- so, I just say everything as if it were true; like this section. I don't know if esther is dead or not but for the duration of this section I can assume it to be true even though I am still pretty uncertain. that capability allows me to suspend my disbelief for a moment (like watching a movie) and allow everything to appear as true even though I don't believe it. it's very good for absorbing new perspectives and exploring psychedellic landscapes. I think I just remember how my last sure thing felt.
+
+---
+
+I had more to write but I guess I'll hold off for now.
