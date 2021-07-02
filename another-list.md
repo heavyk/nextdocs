@@ -13,3 +13,6 @@ woman with black hair in movie mom was watching (6-30)
 at the store on (6-30)
 - a girl in the checkout line
 - a girl wearing pink
+
+on jaron's facebook today (7-02) there were two girls. one was katie's daughter and another I didn't see the name
+random profile I had open on my old compter of a girl with (I think) depeche mode live sets
