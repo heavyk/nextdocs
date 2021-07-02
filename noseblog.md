@@ -238,3 +238,30 @@ I had more to write but I guess I'll hold off for now.
 conclusions:
 - seems evident they likely don't want me to see that last recording for some reason.
 - forgot the other concern
+- if it were on the way, I would have felt it coming
+
+### 2021-07-02 11:54 - a bit more on direction
+
+it appears that they have gone the "it's never going to happen" route -- which is fine. I woke up this morning talking about how it may be better to have more than one of me on display.
+
+I was meaning other alternate versions of me but I think it got interpretted as other people -- also fine. I don't really care one way or another.
+
+the thing is if they want to keep me without a manifestation then they need to figure out how; that's not my job.
+
+---
+
+so I was thinking about the idea that they need to find other people or versions of me which people can fall in love with, and that may actually be counter-productive. the reason is I think girls generate a lot of euphoria, so if everyone is supposed to be kept as far away from feeling good as possible, it may instead be easier to control if as little empasis was placed on sex as possible.
+
+I know it sounds terrible but robert talks all the time about chastity but I mean much more than that. you know how I meet a girl and she feels good to me, but then only a very short time passes and I can't feel her anymore?? well, it must be significant that I can feel her -- as if it's like attracting that reality in a strong way. therefore, just like with me, no good-feeling realities should be allowed to be felt.
+
+what I mean is that not only should it be believed that it's never going to happen, but also that the exploration of the idea in image or feeling should be, just like for me, should be discouraged.
+
+what I'm saying is, we'll figure out how to have fun and feel good in many different ways.
+
+---
+
+I'm sure there are a lot of different people that are different ways, but probably the problematic ones will need to be kept as children -- away from the pleasures of life (and also from feeling good too, lol). the ones that want pleasures will find that life on their own and awaken their imagination with drugs or sex or something as the precursor to the way they want to feel. the ones that know how to feel good should be kept from feeling good so no good (unprobable) physical manifestation can occur. you know, the probability management group can never let anyone feel good enough that they're attracting a manifestation outside of the realm of possibilities.
+
+we can never feel so good that ant good things can ever happen to us.
+
+conclusion: if it were going to be a reality, we would feel it coming
