@@ -234,3 +234,7 @@ my main issue with english is there isn't an easy way to encode certainty in my 
 ---
 
 I had more to write but I guess I'll hold off for now.
+
+conclusions:
+- seems evident they likely don't want me to see that last recording for some reason.
+- forgot the other concern
