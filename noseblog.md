@@ -265,3 +265,23 @@ I'm sure there are a lot of different people that are different ways, but probab
 we can never feel so good that ant good things can ever happen to us.
 
 conclusion: if it were going to be a reality, we would feel it coming
+
+### 2021-07-03 04:50 - feelings of dissatisfaction
+
+I realised tonight when I my brain started to talk about a subject. it felt like I was getting a lot of reactions on what I thought about korolova vs. miss monique, and I hadn't really come to any conclusions. even though they're playing similar music, they feel very different to me -- like night and day perhaps. I was thinking about it and I knew I was probably going to say something I will regret or want to say better in the future, but I don't really care. I'll just shoot my foot off just fine because I don't care much what people think anymore.
+
+I realised then that the feeling was very similar to when I worked for tuenti the second time. my heart wasn't really in the project anymore. I was just scraping by doing the minimal that luke wanted me to do.
+
+I didn't care so much I would push the limits seening how drunk or stoned I could show up to work. I really didn't care at all. when I finally was fired and I could go back to doing what I wanted to do, I was relieved.
+
+---
+
+the other thing it feels like is sometime a while ago trump stopped caring about the presidential image and started to just say and do ridiculous stuff without much concern for how people would react to it. it sorta feels like that a bit as well.
+
+in both examples, there is a definite sense of dissatisfaction. I don't really want to do this, and no matter what I do nosebook is just going to do whatever they want. the stuff I do now I'm really only doing for the way it feels to me. it feels like I'm just following some script at this point. I'm not really doing what I want to be doing, so the script elements that I'm performing I'm just doing them kind of mechanically now.
+
+maybe I am nick bottom and we're just putting on a bad play at this point -- who knows.
+
+---
+
+what I do know though is that it is dissatisfaction and that is not what I intend. I suppose that is the reason that I'm writing this: to find a way to improve upon that dissatisfaction. I don't really have many ideas coming to mind now, so I guess this is good.
