@@ -285,3 +285,46 @@ maybe I am nick bottom and we're just putting on a bad play at this point -- who
 ---
 
 what I do know though is that it is dissatisfaction and that is not what I intend. I suppose that is the reason that I'm writing this: to find a way to improve upon that dissatisfaction. I don't really have many ideas coming to mind now, so I guess this is good.
+
+### 2021-07-03 13:06 - what do I mean by script?
+
+when I say script I am referring to timeline edits. a good example of this was yesterday when I wanted to explain why I thought that thad was pulling some pretty attractive guys.
+
+I don't really think much about what I'm saying or its implications -- I just translate the concept into words. yesterday I was going to launch off into a full discussion on the prostate/uturus and how I think it transmits feelings, which is why I said it was going to be gross. I then had a flurry of thoughts and feelings go through my head and I ended up saying something not gross at all. I can't honestly remember what I said now and for me the feeling is somewhat similar to how it feels when I translate my source.
+
+in a lot of ways it is very similar because it is the path of least resistance. I don't even fight it anymore but it kind of makes for some funny moments.
+
+another example of this was when I was trying to figure out the next champion I wanted to purchase on runestrike. I couldn't decide so I "decided" to flip a coin for it and it came up with the amazon woman wearing the most clothes. I didn't know it at the time but her lvl 4 hero power is pretty OP if I can maintain board control and so while less glamourous, she did turn out to be a really good choice.
+
+---
+
+from my perspevctive, I don't experience the timeline edits directly -- just notice the evidences of them (like my coffee computer and having to start over). each timeline edit does manipulate the way the present events play out, but they don't reduce but instead add considerably to the energy.
+
+so while, for example, I identified some dissatisfaction last time, I was always resonant with it, just I wouldn't have experienced it if I had of had better conditions. they may win the short game modifying the conditions, they can't do anything to modify my overall perception of things.
+
+they have to continue to modify conditions and events so that they have things running the way they want them to go.
+
+I likened this situation to my second time working for tuenti because it is similar. a thing was built but there was an incompatibility between how they wanted to run things and how I wanted to do things. I have no problem just walking away from it all and letting them do what they want.
+
+I certainly didn't build the network but I was likely a major contributing factor to its success. I don't know if I was "invaluable" or not. I don't really wanna go too far with that analogy -- but it's time for them to run things the way they want to.
+
+---
+
+the way they run things is entirely up to them. a good analogy of this is I was only using PHP as a starting-point. I was intending to have the site running on D. that never happened because I left before that. the timeline tech that they have is very efficient and creates weird artifacts like the conversation with thad. the timeline tech I want to make is based on conceptual/emotional interactions and integrates with "source" better. however it is ahead of its time because it requires the operator to know what they want feels like. obviously these guys only are reacting to and editing the things they don't want. I liken this superior timeline tech to be the D version, but they're going to make the PHP work because they can't find any coders that can write D. it is easy however to find PHP programmers. there are lots of those.
+
+I had to come back to work for tuenti so that I could have my visa but I hated it. of all things, I was building out the infrastructure to run pre-roll video ads before youtube videos playing inside of tuenti (you can imagine how undesirable this is). it was pure misery and I *had* to do it all their way too. no thanks. that event would have been the equivalent of whatever was going to happen at zach's memorial, I would imagine.
+
+I know a lot more now than I did then so this is easy to navigate. they may be able to manipulate conditions and stuff but I will still have power over how I feel and their edits are only adding more energy, not less.
+
+I will continue to find ways to feel better and better so evntually I'll stazrt having all sorts of cool capabilities. however because I will likely not find my alignment anytime soon, don't expect any sex from me.
+
+seeing how their efforts only add more and more energy, when I do find my alignment I don't know what will happen but I doubt I will remain physical. the image that comes to mind is that square wave made of odd-harmonic sine waves. I am convinced those waves are temporal cycles that have been crechendoing over the years coming te a climax here soon.
+
+going back to the "gods of eden" analogy, imagine the custodians have gone back and manipulated the conditions of the past into the present to ensure no climax (humanity finding its alignment) will ever come, their job is to exert opposite influence to flatten the curve out as much as possible. the effect it will produce is the same as those odd-harmic sine waves: there will be a huge peak before the wave begins to return to its source.
+
+to make an analogy, imagine you're at home for 12ky and then you travel to your vacation in a short 30 year time and then stay there for another 12ky. let's say this happens because normally you would be endlessly go back and fourth between the two, but the ones running the show do not find any joy in the journey and don't want to be forever traveling. they want binary status and prefer the stability of being in the same place and not losing their power. they have to ensure it stays as long as possible so they modify the curve to be as flat as possible.
+
+eventually the whole thing falls apart because DC current isn't possible with
+only AC signal sources.
+
+this is what I mean when I say it can't go on "forever" -- even though I want to try, knowing it's physically impossible: the best that can be done is a long-period square wave.
