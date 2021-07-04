@@ -330,3 +330,31 @@ eventually the whole thing falls apart because DC current isn't possible with
 only AC signal sources.
 
 this is what I mean when I say it can't go on "forever" -- even though I want to try, knowing it's physically impossible: the best that can be done is a long-period square wave.
+
+### 2021-07-03 20:03 - the real objective of passing
+
+I kinda gave another wrong impression with my description of using D vs PHP, and that is not even really a thing. front-end machines are easily scalable. if you need more, they can be added without much of a loss in efficiency. the real difficulty is actually in effective  storage and query of data -- and running the front-end machines with D doesn't improve this problem.
+
+this is ultimately (I think) why google and facebook are doing so well. that infrastructure is written in C++ and is a whole different issue.
+
+for the same reason I think that even though I do beleive that my timeline technology of going toward a future based on feeling, it's clear that there is a massive problem which is not being addressed, and that is no existing human laguage in existence right now is capable of actually communicating a feeling effectively. so, even if we had the technology, we wouldn't be able to even describe where we're going.
+
+---
+
+so I think the challenge for me is to figure out an adequate way to begin expressing complex conceptual/emotional constructs in a way which doesn't involve DMT or any other woo-woo (not accepted by science) medium. it has to only use physical matter (things we can use our senses to perceive them) and not emotion itself.
+
+why? I suppose it's a fun challenge for me because imagine from nosebook's perspective: if there's no way to experience it physically, it isn't real. the major caveat is, if you can communicate the idea with something physical, it becomes real enough. this is why we can carry on endlessly about black-holes and dark matter without anyone ever having experienced either of them outside of a psychedellic setting.
+
+---
+
+like I mentioned to thad, I think that the new commodity that will be sold (you can think of it as the new pharmaceuticals industry) is actually the physical sensation that certain emotions can bring (or, like in my case their removal). their capacity to remove physical sensations of how I feel is the same capacity to add them into the nervous system.
+
+so like ever notice how when you do a line of coke when you don't feel good, there's that looming presence of the thing that is going wrong. I noticed this really quickly with coke and found that my programming tasks did not go away when I did a line -- they just felt better. the times that I didn't go to program while on coke, I found that the anxiety of my programming tasks increased, so I found it quite fun to program and do coke at the same time. as such, I *hated* to party and drink with coke cause it made my feeling of unproductivity worse. MDMA has the opposite effect: instead my problems felt *better* not worse the next day.
+
+well, the same thing is going to begin happening to more and more where they feel physically much different than they do emotionally. the major issue is there is no way to express the difference between how one feels emotionally vs. psysically. the same is true between the concept as an ideal and the concept as a reality. I really want to find a way to express this to others or at least interact with my computer in a way which allows for this.
+
+interesting idea kenny :) we'll see what comes of it...
+
+---
+
+the one thing I do know is that I am really getting better and better at feeling the way I want to and there's nothing they can do to stop that. I'll keep getting more and more power over how my physicality. soon...
