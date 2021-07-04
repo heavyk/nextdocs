@@ -16,3 +16,7 @@ at the store on (6-30)
 
 on jaron's facebook today (7-02) there were two girls. one was katie's daughter and another I didn't see the name
 random profile I had open on my old compter of a girl with (I think) depeche mode live sets
+
+today (7-03) on facebook:
+- girl in rainbow tutu
+- family picture with the girl in blue top-right and other girl bottom-left
