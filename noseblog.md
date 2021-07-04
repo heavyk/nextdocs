@@ -358,3 +358,43 @@ interesting idea kenny :) we'll see what comes of it...
 ---
 
 the one thing I do know is that I am really getting better and better at feeling the way I want to and there's nothing they can do to stop that. I'll keep getting more and more power over how my physicality. soon...
+
+### 2021-07-04 02:58 - the real reason I think my data is gone
+
+it feels evident to me that the reason my comcputer crashed is because there was something I wrote which they didn't want others to read. I presented the idea to mom tonight.
+
+sometimes it's good to just conjure a feeling. I really don't care so much about my data as I always discover it better the second time anyway. the thing that annoys me is hmow much configuration and fiddling has to be done to get setup. mom kept kinda that I should be pissed off about my data so I kinda leaned into her cues a bit and conjured the feeling of being pissed off. it's still weird for me to behave like an actor and conjure a feeling I want to feel, but I'm better at it than I thought. I even got the cue to ignore her mention of becky and how it was raining hard in the springs -- presumably as a weather manifestation of what I wrote earlier about how zach's memorial felt to me like the second time I had to work at tuenti. yep, it sucks there's no open dialog about anything anymore.
+
+anyway, I'm glad I leaned into the feeling because I went off on the tangent of how my computer was removed because of something I wrote. I got a little reaction on that but not much. it wasn't until I mentioned that there were all sorts of things I was organising that I felt a reaction.
+
+later just now while watching stars I investigated further and realised another event as well with similar feeling. I watched the latest veritasium video and a smarter every day video on carbourators. I really enjoyed those videos. I also was very impressed with [xyla](https://www.youtube.com/channel/UCEn3fRj2e0mpqYsijxnzayg)'s contribution to the thing. I walked away feeling quite good about her. later though I noticed she didn't feel so good anymore. didn't think much about it because that's kinda normal.
+
+I also noticed the same feeling that I felt when I wrote down a few science video ideas that came becaue steve mould posted a video asking for suggestions to his 1M subs celebration video. this feeling was similar to the way I felt after thinking about novel science explanations for derek's competition.
+
+while watching stars I started to see clearly that there is a very considerable effort to keep me away from science stuff and what happened right before my coffee "accident" was I started to get quite an intuition for some things science related and that needed to be stopped.
+
+I think this all has to do with me wanting to discover how how electricity and chemistry *really* works.
+
+---
+
+so, I decided that I don't really mind. involving myself in science is *not* the path of least resistance for me. I just don't care anymore. I love that you guys are figuring it out, and all the best but I think I'll stay out of this one... cept for continuing to write down science conundrums as they come to me.
+
+---
+
+in a larger picture, if I can feel good about something and then shortly thereafter I no longer feel physically good about it, this means there is a lot of physical feeling manipulation going on. I don't know hmow much to trust physical sensation I used to associate with emotion anymore. just cause something feels physically good, doesn't mean that it's actually me going toward wanted (which is what feeling good is), but could instead be an electrical signal in my nervous system emulating the sensation of going toward something wanted.
+
+a good example of this is they don't want me working on so many things at this point, they clearly want me distracted by girls and not involving myself in science. I don't want to be distracted by girls, so I'll just skip the science bit. no big deal. so from my perspective, I just find a way to feel the way I want to feel no matter the physical conditions.
+
+I will begin to take the path of least resistance from now on. learning how to separate these two is very useful. I can be physically frustrated or annoyed, yet still feel emotionally quite good about things.
+
+I'm just an actor from now on. it's fun learning how to play your game. I'm gonna do it better :)
+
+
+from now on:
+GCF = good emotional/conceptual feeling
+GPF = good physical feeling
+
+BCF = good emotional/conceptual feeling
+BPF = good physical feeling
+
+easier that way.
