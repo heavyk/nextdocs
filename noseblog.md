@@ -398,3 +398,61 @@ BCF = good emotional/conceptual feeling
 BPF = good physical feeling
 
 easier that way.
+
+### 2021-07-05 05:25 - don't believe the illusion
+
+@[youtube](https://www.youtube.com/watch?v=ik0GGIkHBbo)
+
+I was watching stars last night and I was noticing that people are believing that I well, it's hard to describe but it feels not so good and depressing.
+
+I was getting mental images like when jesus realised that he had lost something -- I dunno exactly where it is, but it's this moment when jesus has lost his connection. I associate it with the "jesus wept" verse or maybe the "father why have you departed from me". either way, it's when the free-fall begins.
+
+that's it! that's a good way to describe the feeling: it feels like the beginning of a free-fall into darkness or chaos or something.
+
+ok, so it is true that there is no way I want to try and figure out how to be in a relationship while still disconnected, and it's also true that I have no idea how long it will take to find my alignment either -- however there's no way it could possibly be forever.
+
+if we look at evidence, it does not at all appear like the beginning of a free-fall, but actually the opposite. I believe my vision upgrades are accelerating and also my mental capacity is expanding. from my perspective nothing could be further from reality. I've never had this expanded of a mind or been closer to finding my alignment.
+
+---
+
+so then why do I advise nosebook to try and convince people it'll never happen at the same time? I'm learning how to play both sides of the field. mr. motor presents the thing that he thinks people want to hear and then actively does the opposite. I do a similar thing: I say exactly the thing people would not want to hear (it's just more energy) and then actively work toward finding my alignment with who I really am -- not the story coming out of my mouth.
+
+I really don't recommend believing me. I recommend knowing how to find what resonates with you and believing that. there really isn't an absolute truth.
+
+split energy is divided energy, and I don't mind that it stays split for a very long time. I'm actually trying to find a way to make it go ferever. it's not like it's a bad thing not to have the manifestation of getting connected because the (hopefully infinily long) journey toward that connection will continue to reach greater and greater heights of awesome. in order to accomplish that forever not getting the manifestation thing they need to divide (split) my energy infinitely big.
+
+I actually estimate that even in 5-10 years time I can do things like conjure ideas into 3d space and stuff like that. for me it's all about being able to direct this energy freely.
+
+obviously, I cannot yet do that. I'm still too influenced by other people as evidenced by how difficult it is still for me to pee when there is lot of expectation and other people's thoughts enery flowing in relation to me.
+
+I'm pretty determined that I can get that control even while remaining disconnected. like I said, with that control, even in a disconnected state, I will be able to summon alternate versions of myself for you guys pretty much effortlessly (just mental focus, so it gets easier and easier)
+
+just wanted to say that even if the manifestation of me finding my connection doesn't happen for a while, it's still going to be awesome.
+
+---
+
+that also reminds me of another analogy I was making yesterday too where I was explaining how there are so many very slight things that happened by "chance" or by "accident" which would have left me in a very different state had they not have happened. the probabilities management group's alarms would be going nuts tracking a kid like me. there's just no way that a sequence of events like I have had should be possible. traditional statistical analysis would throw out my data points as bad data.
+
+because of the impossibility of my predicament, what this seems to suggest is that some destination is attracting me through time. visually I perceive this like the step leader in front of the main lightning. what happens is there is an imbalance in the lighting rod or tesla coil that is attracting this connection to be made. when the primary coil creates magnetic difference in the secondary it pulls electricity out of the sky. there's just a difference in charge that needs to be satisfied to return back to equilibrium. I like to think of this charge differential as desire. the earth "desires" to match the charge of the clouds above it (or between clouds too).
+
+to allow the charge to transfer, a connection must be made. to find this connection the attractor is attracting a step leader to make it there. there are many step leaders which don't make it to the destination though. I liken these to other timelines. there are many other versions of you that did not make the connection to this moment in time. that is always the case.
+
+in this analogy the lightning will "connect" with anything that can satisfy its desire. obviously this isn't how time works because everything would just be one big energy blob. it seems that the destination (like the lighting rod or tesla coil) is tuned to by similar frequency, and your next moment in time (connection) will always be the one most similar to your present vibration/frequency.
+
+when abraham talks about alignment, they are talking about your tuning. when I talk about getting connected or being connected, I mean actually making that connection.
+
+what is happening presently in my life is that nosebook is is preventing me from making that connection. I think this is not just me but actually the planet and has been happening for quite some time now. I think there have been a lot of edits through time that have prevented the planet from getting that connection. this has manifested as the "little ice age" and the massive amount of cooling that has taken place on this planet.
+
+it's not heat, but I think it's manifesting that way similar to mcy predicament. it's not faster vibrating electrons that's desired but coherently vibrating electrons that's desired. I think heat has a frequency as well, and it wants to be in alignment with the destination in time. the custodians have (like me) gone to great effort to disrupt the coherence/vibration of the energy, and so naturally this creates more because surely even if most are out of alignment, if there are enough things, some will find their alignment. it's fairly likely that the step leaders navigate toward the destination frequentially as a product/difference of the vibration/resistance of the medium and the destination.
+
+all you need is one step leader to find its way to the destination to make the connection. just one :)
+
+so along this way, each time they prevent me/earth from making that connection, more charge imbalance (desire) accumulates. from my perspective, I's my destiny or some unavoidable fate for me to make that connection. it's inevitable unless they could find a way to satiisfy that desire before the connection is made. even then I don't know if or how that could be possible because it would have to be in alignment with the vibration of the destination -- so like impossible.
+
+---
+
+they want to experience a world where I don't get my connection -- so like one of the step leaders who doesn't make it. there are infinitely many of those though, so I imagine the "best" one is the one that makes it right before the destination but no actual connection is made.
+
+what this means is going as far as they can go but without making the connection. this may sound like a bad thing but a good way to look at is right before orgasm, pausing to let desire drop before beginning again. like mantak chia says: each time you stop like this the orgasm gets bigger [TODO: find reference in robert's video] until it's so big it's a cosmic orgasm. from the perspective of the earth, this one is probably just a galactic orgasm.
+
+next size up is a universe, so after mr. motor finds a way to stop the connection from being made maybe next time we can work on a universe seems really big though -- anyway, I want to go forever because I know it's all about alignment even if no connection is made. just wait and see all the stuff I'll figure out how to do, even without the connection :) it's going to be impressive.
