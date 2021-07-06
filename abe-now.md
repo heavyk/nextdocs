@@ -95,3 +95,39 @@ man I dislike that expression. when somenone is annoying, the last thing I want 
 yeah right. for me, I think a good first step is to find a way to put up with his antics until he no longer bothers me. then once he's finally tolerable -- meaning his antics no longer bother me, then I can start to notice his positive aspects naturally.
 
 some people, I found I have to just let them be ridiculous. they can sense when I'm trying too hard to make the situation something other than it is and actually derive a bit of pleasure out of watching me waste my time.
+
+### 2021-07-05 14:32 - (2021-04-10 p1)
+
+#### (13:26) - make more decisions every day
+
+some part of this resonates with me. their answer of saying that the continued expression of their desire into physical is the best way to consciously make the connection of knowing one's alignment or allowance of the stream (of well-being).
+
+one of the things I definitely do less of in my present circumstance is making less decisions. I talked in a previous entry about how I was following some sort of abstract script sorta ad-libing the whole way, so I know that if they could have it their way, I wouldn't have to make any decisions at all ever again and just follow their script.
+
+it's sort of logical I suppose but I'm realising that every time a new decision is made it is capable for more energy to be allowed and also that each time it's possible to *feel* the calibration of the allowance of that energy created from the decision.
+
+### (21:21) - tuning to the emotions of others
+
+what they are talking about is what I'm talking about so much too. they're talking about tuning to someone else's frequency and accomplishing a similar frequency as them. this is step 3. you can tune to the frequency of your source and allow that energy to flow or you can tune to the frequency of someone (or something) else and allow that energy to flow. when that energy flowing doesn't feel good then you're either now in step 1 again or you're in step 5 and that energy no longer bothers you or feels bad.
+
+as an example, I tune to mr. motor all the time. he used to really bother me, but now I can tune to him (really almost any bad-feeling thing) now and still find a way to feel good. there are still some examples where I can feel anger and depression when I tune to him, and that's a good thing because I am a master of perception now and can perceive virtually anything now in a way which resonates with my source.
+
+all I'm saying is it's possible to find a way to feel the way your source about anyone. this is optimal because then you don't have to hide from bad-feeling things.
+
+[edit: listened a little further and it sounds like she figured that out too.. nice!]
+
+#### (34:40) - cascade of vibration
+
+I'm listening to a song called "it's what we expected" and they're talking about how even esther's alignment when she booked the fligt greatly influenced the conditions of that flight -- solidifying the point they're making about how your alignment trumps the driver of the vehicle's alignment. however, as they're talking, I have this image in my head about how the emotional vibration (expectation) put into anything produces a cascade of events in harmony with the sum of those vibrations.
+
+my emperience with sound, has taught me that adding more low vibration (bass) instruments, just makes that frequency range sound muddy. no matter hmow muddy the low vibration is, the high vibration sound will still carry over the top (strum the guitar then flip it upside down and strum with the opposite hand for a good illustration of this) and doesn't get interfere with the lower vibrations [something like that. prolly not the best description. maybe there's a better way to illustrate this concept].
+
+what I mean is, imagine you have booked a plane flight and you're playing a high note. other people (pilots, flight attendents, etc), and conditions like weather, timing, which have a similar pitch will meet you on the flight. there could be a while symphony of bass guitars on the flight as well, but they can't drown out the high pitched note no matter how hard they play their instruments. I'm referring to live. digital recordings do not have a dynamic range and experience clipping so a loud bass can drown out a high pitched instrument.
+
+so, I liked how this picture was illustrating what they are saying. if you're in alignment with your source (high frequency), it doesn't matter how many obnoxious bass guitar players playing, you will still find things resonant with your high pitch.
+
+#### (39:30) - have as little split energy as possible
+
+I had an interesting reaction on this one because in the last entry @[noseblog](2021-07-05 05:25) I wrote about how I'm learning to play both sides of the field at the same time. I'm not splitting my energy but actually doubling it. both sides of the field are maximum wanted (what I'm actively tuning to) and maximum unwanted wich is just the 180(degrees) out of phase version of max wanted. if you add them together you would get no movement which is what split energy is -- going opposite directions at the same time.
+
+I'm doubling the energy because of my utilisation of perception. both max wanted and max unwanted contain both max unwanted *and* max wanted at the same time; they're just 180(degrees) out of phase from each other. I get to choose which part of the wave I look at. if I look at 0 to 90 on both they exactly cancel each other out but if I find the wanted aspect of both, then I'm looking at 0 to 90 on the first and 180 to 270 on the second. split energy is peception not conditions.
