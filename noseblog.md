@@ -502,3 +502,35 @@ the other thing is, I just don't really care. I'll save this discussion for anot
 I have found that my entire life has taught me *not* to care. the minute I start to care, things start to fall apart for me. I know this isn't other people's experience and I admire their desire to have things just the way they want them (aka product team), however for me this quicky turns into me needing something or someone else to be different so I can feel good and that's when it starts to fall apart for me.
 
 I have found that when I don't care what others are doing and I just feel a way, then people come to me with ideas that reflect the way I feel. therefore it's best for me to just feel good and then the whole projuct reflects that. I set the tone with my expectation and the cascade of events must follow that.
+
+### 2021-07-06 15:16 - just let me be wrong
+
+I was getting some reactions about the last entry about how some of my ideas may be wrong. I don't care. the minute I get better data, I update. it's not a big deal for me to be wrong. in fact so many of the discoveries that I value came from mistakes or huge blunders. I'm much more the edison than the tesla. I prefer to make mistakes.
+
+there are so many advantages to being able to rapidly update and improve on things. I think that people may think that I'm advocating for a facebook-like performance: move fast and break things. it's not like that. if I assume that nothing I say is 100% right, then each time, I'm just finding a more improved way to translate the idea into reality.
+
+I really like the serpent bros concept of printing your own certificate of ignorance. every time I know a little more, the world opens up a bit bigger and it becomes aparent there's always more to know. I guess a few hundred years ago someone could maybe know more than half of all of the human knowledge-base. today, this is impossible and makes it very aparent that there is always more to learn and new ways to see the same things (aka you were "wrong"). therefore I don't pretend to even try to be right. it's just my best guess.
+
+---
+
+one good thing that may come from m ebeing wrong so much is that perhaps there will be new ways to express uncertainty. when thinking I must assume the thing is right to be able to make any progress on the idea.
+
+take for example the latest veritasium video, the guy there was wrong, but it was really more like our understanding of the concept was incomplete and he was just the guy pushing for a better understanding of the idea. by being wrong, he opened up better explanations of the thing and enabled further expansion of scientific understanding with derek's competition. I'm that guy all the time. I don't mind being wrong because it always illuminates the idea and makes it more visible.
+
+I can only imagine hmow much nosebook has learned trying to piece together what I'm really saying back when I used the previous (more imprecise) keyboard. my writing was a mess. it's not like this is ultra clean, but certainly it has to be a lot better.
+
+---
+
+the last thing I want to mention is that I find it good for me to struggle. if you look at me with physical eyes, you may notice that I'm pretty bad at almost everything physical. learning to type like this is one of the hardest things ever. I never really realised how much I used my alignment to compensate for how bad I am at so many things.
+
+I don't know how to program very well. I just know how to find what I'm looking for and that seems to work. I constantly fail and then find the next way. it's more like trial and error. I don't think that edison really understood electricity. tesla clearly did.
+
+as an example of this, I was watching this one guy play kingdom rush and he has a lot of the hp of the enemies and wave quantities memorised. he clearly knows the game really well. I am the opposite. I have done quite a few challenges and fumbled my way through them not exploiting the mechanics -- just sort of being guided (or perhaps learning through trial and error) the way to be able to do it. I don't *understand* the game nearly as well as he does. this is the same for everything I do.
+
+I don't really get science like other people do. I just have a very good intuition and can sorta follow my desire toward the answer. following that desire is almost always doing things the wrong way -- cause always out of unwanted is just as much (or more) wanted. I exploit that. that's what I understand -- not programming or electricity or science.
+
+---
+
+that capacity is cultivated with emotional sensitivity. I can often times tell when something is off and I can also feel where to begin looking for the solution too. that's why I often say, "I know it's wrong but just go with it because it's gonna lead toward wanted"
+
+if it feels like the right way, it is the right way even if it's "wrong".
