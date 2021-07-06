@@ -456,3 +456,49 @@ they want to experience a world where I don't get my connection -- so like one o
 what this means is going as far as they can go but without making the connection. this may sound like a bad thing but a good way to look at is right before orgasm, pausing to let desire drop before beginning again. like mantak chia says: each time you stop like this the orgasm gets bigger [TODO: find reference in robert's video] until it's so big it's a cosmic orgasm. from the perspective of the earth, this one is probably just a galactic orgasm.
 
 next size up is a universe, so after mr. motor finds a way to stop the connection from being made maybe next time we can work on a universe seems really big though -- anyway, I want to go forever because I know it's all about alignment even if no connection is made. just wait and see all the stuff I'll figure out how to do, even without the connection :) it's going to be impressive.
+
+### 2021-07-06 12:37 - not caring, relationships, and the bigger picture
+
+yesterday I was writing in @[abe-now](2021-04-10 p1 34:40) about expectation and how it creates a cascade of events harmonic with your vibration (emotion). this expectation seems to make a very dramatic difference to the conditions. as an example, this last saturday was a very different one energetically to the previous ones. it seemed that people's expectation to hear something wanted had a dramatic effect on everything from the climate to my mental state. the air was cleaned and the stars shined brighter (when I could see them). it seems to be a thing because I even noticed a similar effect this 4th of july. just people's expectation to have a good time made things more energetic.
+
+I wanted to mention this idea to thad when we were talking about why he pulls hot guys, and everyone has this capability, but the ability to project this feeling based on expectation is somethting that has a strong effect on reality. this is why I said if they want to keep my from getting connected, it's good to have a lot of people with strong transmitters of expectation to be expecting that it'll never happen.
+
+now, later on I started to talk about split energy: @[abe-now](2021-04-10 p1 39:30) and how it's really double the energy just 180(degrees) out of phase so it's going nowhere. however with a slight adjustment to perception, that doubling of energy can be realised.
+
+the next thing that I was noticing is some reactions around the ramtha character. I don't think he's a hoax and I tend to believe that he did accomplish what he said he did, and that was the last huge spike before the reversal.
+
+essentially he was doing what I was talking about with doubling the energy by perceiving the wanted part -- cept he was doing it on the battlefield. I think that event is the same one that plato talks about with the athenians crushming the corrupted atlantians. he must have killed so many people that day -- and you know how when someone makes their transition there is a huge amount of energy released into the atmosphere (like the energy I felt on saturdays). combine that with the massive amount of unwanted the atlantians were feeling as they were watching their whole army get decimated.
+
+that amcount of rising unwanted is also the same amount of wanted (just perceived from a different perspective), and I believe that ramtha used that energy to consciously make his transition into non-physical.
+
+if you listen to his stuff, he mentions tesla quite a lot. it seems that he must have had the ability to interact with tesla (he was probably one of the people that tesla said he would interact with when traveling around in his imagination). theerefore, I must conclude that I am on my way to doing the same thing that ramtha did.
+
+I think that energy will continue to rise further and further. some will perceive its unwanted aspect and others the wanted aspect -- but continue to rise nonetheless. I'll continue to convert this unwanted into wanted and then consciously make my transition back into non-physical. this is likely the event that I was talking about where the step leader gets very very close to the destination but then fizzles out (or makes the transition) right before reaching the destination.
+
+---
+
+going back to ramtha, what happened is the atlantians were watching the battlefield (they could move their consciousness around in space freely) and paying close attention to the conditions. they cared very much about seeing these perceived conditions fall so easily to one (in alignment) man's hand. they really *cared* about this and all of the pride and identity they had wrapped up in these conditions fell to pieces, destroyed by the athenians.
+
+I wanted to start to talk about not caring, but it seems I want to instead speculate on things a bit. I believe this ramtha event I describe happened about 6kya and at that time north was south and south was north. the earth literally was upside down. I have postulated that flipping the earth over is a solution for the reversal. the tidal effects would be much less and not be nearly as catastrophic.
+
+there is also an interesting thing that has been happening with nosebook fighting against me working on anything science related. I wonder if this is connected.
+
+so let's just connect the dots on what I just said here: the atlantians (nosebook) wanted to subdue the world, but then an event happens where the athenians managed to crush the atlantians on the battlefield (science). this was made possible (I believe) mostly because of the efforts of a guy (ramtha) who made his transition in the process.
+
+if the battlefield is science, then it's really easy to do all of this stuff. I thin it's pretty easy to find a way to come up with our own version of nosebook and a whole lot of other things too. I don't see why we couldn't do that. who knows.
+
+---
+
+the other thing is that the atlantians wanted to have the whole world under their control. however, if we find a way to flip the planet over, there won't be much of a cataclysm, but most crushing for them is the realisation that they don't control the rotation/orientation of the planet anymore.
+
+don't get me wrong: nosebook won't cease to exist -- and I think they'll continue to be quite profitable selling their services to people. they'll remain the "bad-guys" that mr. motor wants so badly. I think they're the new drug-dealers of the future -- being a way for people to purchase the way they want to feel (amongst other services).
+
+I have no idea how to get there and I don't really want to try and make any efforts to get there either. if it's going to happen, it'll happen naturally. anyway I don't really see myself as the guy leading the charge or something very masculine like that. I actually see myself more as like a cheerleader in the background. I prefer that role anyway, as I really would prefer that you guys figure it out. I have lots of good ideas and they're all free (they always will be), but the real thing is the implementation. bringing those ideas into reality and getting them sold to people is the hard part. as you know I struggle with sales and implementation, so I feel quite good not having to do either.
+
+---
+
+the other thing is, I just don't really care. I'll save this discussion for another time but I don't need these conditions to feel good. I am finding my way to feel good just fine.
+
+I have found that my entire life has taught me *not* to care. the minute I start to care, things start to fall apart for me. I know this isn't other people's experience and I admire their desire to have things just the way they want them (aka product team), however for me this quicky turns into me needing something or someone else to be different so I can feel good and that's when it starts to fall apart for me.
+
+I have found that when I don't care what others are doing and I just feel a way, then people come to me with ideas that reflect the way I feel. therefore it's best for me to just feel good and then the whole projuct reflects that. I set the tone with my expectation and the cascade of events must follow that.
