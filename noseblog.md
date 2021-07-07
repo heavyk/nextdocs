@@ -547,13 +547,13 @@ interestingly enough the reaction that I had to that was sorta like "huh?" more 
 
 ---
 
-fast-forward to today when I wrote that saturday's energy felt very different to me. I took this as evidence that abraham is gone, which is why I made that assumption last night in the monologue. for me, if they were still here, I would have felt the energy on saturday strongly like I have for the last 5 years or so. clearly something else is different.
+fast-forward to today when I wrote that saturday's energy felt very different to me. I took this as evidence that abraham is gone, which is why I made that assumption last night in the monologue. for me, if they were still here, I would have felt the energy on saturday similarly to how I have for the last 5 years or so. clearly something else is different.
 
-instead I felt quite a strong energy the following day on sunday the 4th of july. I have felt strong energy on sundays a few times so I didn't think much of it. also sunday's energy felt more like the energy that I felt on new-years 2020 (1.5 years ago. last year wasn't as much). anyway, I figured sunday's energy was just festive energy.
+instead I felt quite a strong energy the following day on sunday the 4th of july. I have felt strong energy on sundays a few times so I didn't think much of it. also sunday's energy felt more like the energy that I felt on new-years 2020 (1.5 years ago. last year not so much). anyway, I figured sunday's energy was just festive energy.
 
 ---
 
-another interesting thing to note is when I woke up this morning I was reminded of the one time that I didn't believe abraham when they told the writer that she should absolutely let the guy be the reason for her alignment. I found it really hard to believe that they would say that. I sorta left the subject because there were weird reactions. since however I have been paying a lot more attention to what they're saying but other than that one, I haven't noticed any glaring flaws. I'm leaving this one open. I just don't know right now.
+another interesting thing to note is when I woke up this morning I was reminded of the one time that I didn't believe abraham when they told the writer that she should absolutely let the guy be the reason for her alignment. I found it really hard to believe that they would say that. I sorta left the subject because there were weird reactions. since however, I've been paying a lot more attention to what they're saying -- however other than that one, I haven't noticed any glaring flaws. I'm leaving this one open. I just don't know right now.
 
 however it was weird timing because it means someone is thinking about me questioning the validity of abraham's message -- which only makes sense it's a thing.
 
@@ -573,7 +573,8 @@ there are a few possible explanations here which could be happening:
 
 1. they are reusing some material of some older sessions which I haven't seen/heard. I haven't heard all of the abe catalogue so they could have rewritten a few workshops I haven't heard to fit the new format and then used CG or an actor to make the image. obviously if I could figure out how to decode the lightshow in the background into an image (an idea I got on new-years 2021) then it would we interesting to see if the new broadcasts have a similar thing.
 
-2. the same way they're using my capability to make alternate versions of me, they could potentially figure out how to make anything of any shape or size -- so an abraham-like "Hew". this would be the best version as it would behave similar to the alternate versions of me reflevctive of how I percenive the abraham concept.
+2. the same way they're using my capability to make alternate versions of me, they could potentially figure out how to make anything of any shape or size -- so an abraham-like "Hew". this would be the best version as it would behave as a reflection of how I perceive the abraham concept. I think I get their message pretty well, so it would be pretty good
+  - alternately, it could be just another version of me doing what esther does + some CG to make me look like esther. I know I could do what esther does pretty easily
 
 3. there are numerous conspiracy theories of the govenrnment using "clones". an actor would provide the movement.
 
@@ -592,6 +593,8 @@ let's assume that is the case, that means the Hew would behave like my concept o
 that was an event prior to 6-19 though so I dunno. I'm just going to keep seeing how things develop.
 
 other than the edits, their information should be pretty good -- a mix of my concept of them (I'd say likely pretty pure) and whatever emotional energy of the actor/operators combined. it still would be source, but translated with a coloured lens and some filters. so kinda like the bible or something: good information but with the important concepts obfuscated.
+
+it's important to feel as good as possible to get the best recption so if the a
 
 things to look out for will be:
 - giving power to things outside of you (anti self-empowerment).
