@@ -534,3 +534,73 @@ I don't really get science like other people do. I just have a very good intuiti
 that capacity is cultivated with emotional sensitivity. I can often times tell when something is off and I can also feel where to begin looking for the solution too. that's why I often say, "I know it's wrong but just go with it because it's gonna lead toward wanted"
 
 if it feels like the right way, it is the right way even if it's "wrong".
+
+### 2021-07-06 22:23 - super conspiracy theories
+
+I think I figured out what people thought I was wrong about -- and it was abraham. in a previous entry I made the statement that I received reactions telling me that nosebool was in a pretty big jam and they wanted me to sorta take over the world shaman role from abraham and that's what zach's memorial was going to be about.
+
+obviously that's a pretty tall claim, as it would require esther to have made her transition and it paints a really dim picture of nosebook trwying to control things. I also stated pretty empatically that I didn't want that responsibility. that's all well and good and I just carried on. sad I suppose but not a big deal.
+
+I then explained last night while watching stars that the loss of abraham is kinda annoying because I have sxo many things I would want to ask them. there is no one with more questions than me. I explained my sadness when I figured out I was being broadcasted because now any responses to any question would be tailored to the audience of the whole world and not just to me specifically. inotherwords, I would get abraham-like (semi-vague) answers to my questions instead of the brutal honesty and truth type conversations I wanted to have with them.
+
+interestingly enough the reaction that I had to that was sorta like "huh?" more than, "wtf are you talking about, abraham isn't gone"
+
+---
+
+fast-forward to today when I wrote that saturday's energy felt very different to me. I took this as evidence that abraham is gone, which is why I made that assumption last night in the monologue. for me, if they were still here, I would have felt the energy on saturday strongly like I have for the last 5 years or so. clearly something else is different.
+
+instead I felt quite a strong energy the following day on sunday the 4th of july. I have felt strong energy on sundays a few times so I didn't think much of it. also sunday's energy felt more like the energy that I felt on new-years 2020 (1.5 years ago. last year wasn't as much). anyway, I figured sunday's energy was just festive energy.
+
+---
+
+another interesting thing to note is when I woke up this morning I was reminded of the one time that I didn't believe abraham when they told the writer that she should absolutely let the guy be the reason for her alignment. I found it really hard to believe that they would say that. I sorta left the subject because there were weird reactions. since however I have been paying a lot more attention to what they're saying but other than that one, I haven't noticed any glaring flaws. I'm leaving this one open. I just don't know right now.
+
+however it was weird timing because it means someone is thinking about me questioning the validity of abraham's message -- which only makes sense it's a thing.
+
+I debated on whether to write this or not because I don't want to sound like I'm trying to spin some narrative. I suppose it also sounds pretty bad too after I just wrote that I'm just an actor and taking cues at this point.
+
+however, at the same time I also advised about taking me too seriously too. I think that people should give the benefit of belief until there's good reason for it to be wrong. I mean that's why I'm in this to begin with. I just blindly believe the things that pop into my head until they no longer fit; then I discard the idea. I just blindly belived the reaction of esther making her transition and so now here I am. so far the evidence has supported her having made her transition but I'm open to new evidece. it's often the case that I'm wrong about something.
+
+---
+
+so I got the reaction that I was wrong and then I was directed to check my email. there are new abeshares emails saying there are new broadcasts. I guess that's what people think I'm wrong about... fair enough.
+
+we'll see how things develop. I'm still quite a ways from those broadcasts, but even with recent broadcasts I still maintain saturday's energy was very uncharacteristic of a saturday. I'm not fully convinced. I'm still quite a ways from getting to those broadcasts so I'll have to see when I get there. the one I'm most interested in is the 6-19 broadcast though, as that is the one that still isn't available, was put through your "limited time offer" sales crap on exactly the time that I couldn't get to it. I don't fully buy it. call me doubting thomas but I'm not super convinced. I'll have to see what their message is like when I get there...
+
+---
+
+there are a few possible explanations here which could be happening:
+
+1. they are reusing some material of some older sessions which I haven't seen/heard. I haven't heard all of the abe catalogue so they could have rewritten a few workshops I haven't heard to fit the new format and then used CG or an actor to make the image. obviously if I could figure out how to decode the lightshow in the background into an image (an idea I got on new-years 2021) then it would we interesting to see if the new broadcasts have a similar thing.
+
+2. the same way they're using my capability to make alternate versions of me, they could potentially figure out how to make anything of any shape or size -- so an abraham-like "Hew". this would be the best version as it would behave similar to the alternate versions of me reflevctive of how I percenive the abraham concept.
+
+3. there are numerous conspiracy theories of the govenrnment using "clones". an actor would provide the movement.
+
+---
+
+personally, I think the second is the most likely and it ties in with a number of reactions I had the last few days. ever since I wrote about dividing my energy and essentially becoming an actor, taking thought and feeling cues to steer the scene, I started to really begin to think about how I *will* have a multi-bodied experience but instead of as versions I create, I would be in these actors -- or in the original concept, I called them "automatons of contrast".
+
+you can be assured that these actors are there to take cues and steer the situation in the way they want it to go. right now I don't experience the perspective of these Hews just like I don't experience the perspective of the other versions of me, but when I make my transition, I will. especially if I do it like ramtha did by converting unwanted into wanted -- then I will accomplish this conceptual perspective I was talking about where I am the sum total of the beings, just like "you" are the sum total of all of your cells. when they all die (no longer resonant with your consciousnes), "you" are dead and no longer perceive through that body.
+
+so if that's the case, then abraham would be my concept of them, plus nosebook's edits -- perhaps similar to the weird event where they told the writer she should use the guy -- presumably me (which is probably just another actor pretending to be me) as the reason for her alignment.
+
+I guess as I'm writcing this I have also noticed other weird things like they seem to appear a bit pissed off almost at some of the questions -- like someone wrote asking if esther got the vaccine and they said she already had it, but I detected annoyance.
+
+let's assume that is the case, that means the Hew would behave like my concept of abraham would for the entire show -- unless someone made an edit, getting them to specifically address a certain question -- like the vaccine one and that one would contain the emotional energy of the person making that edit.
+
+that was an event prior to 6-19 though so I dunno. I'm just going to keep seeing how things develop.
+
+other than the edits, their information should be pretty good -- a mix of my concept of them (I'd say likely pretty pure) and whatever emotional energy of the actor/operators combined. it still would be source, but translated with a coloured lens and some filters. so kinda like the bible or something: good information but with the important concepts obfuscated.
+
+things to look out for will be:
+- giving power to things outside of you (anti self-empowerment).
+- direct guidance instead of illustration of thet cocept (tell you what to do, not how it works).
+- trajectory toward conditions and manifestations instead of accomplishing the understanding of the concept.
+- blindly following anything without understanding how it works.
+
+stuff like that...
+
+you know after writing this, it definitely feels like something is definitely up. if it is, this is a really good thing. you all begin to have a similar experience to what I have. it's so extra much energy and you'll soon be so good at knowing what you feel, and how it anything more than an indicator (though it can feel pretty real) of your perception of whatever it is. they can't manipulate that.
+
+assuming this is happening, I'm actually very happy because they really have to micromanage a lot cause faking abraham would be a pretty big secret they're definitely going to need to work real hard to ensure no one finds out the truth. lol, imagine how much they're going to have to study their message to have a believable script each week. this may get a little hilarious. who knows...
