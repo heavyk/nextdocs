@@ -22,3 +22,8 @@ today (7-03) on facebook:
 - family picture with the girl in blue top-right and other girl bottom-left
 [xyla](https://www.youtube.com/channel/UCEn3fRj2e0mpqYsijxnzayg)
 sorenson from pueblo chieftain (7-03) with the pride flag controvacy
+
+dangers of victorian house wiring documentary host
+wednesday (07-07):
+- the girl on jaron's facebook when I went out to watch stars
+- ana's granddaughters in that photo she showed me
