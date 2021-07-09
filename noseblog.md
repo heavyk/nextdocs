@@ -625,3 +625,53 @@ it kinda gives them a bit of an out too. I was reminded of the undercover kylo S
 I really don't see it as a bad thing. I was trying to figure out what the reaction was in the 6-19 episode was that they would want to keep hidden. my present theory is that something very uncharacteristic of abraham was said and a bunch of people noticed it. dunno.
 
 personally I like this version of abraham a lot better because it actually inspires even more thought and analysis into what they're saying. I think it's a good thing.
+
+### 2021-07-09 01:06 - reactions and stuff
+
+last-night/yesterday had a pretty weird turn of events happen in it. I had a number of reactions to things that I didn't feel like previously I would have gotten reactions to. the first was a comment I made on a tony heller video saying that I felt it was a bit unfair to call it the biden administration when he's clearly not running the show. I thought about it later and thought that it may be similar to saying something like bart simpson's political agenda: bart isn't real he says what the writers put in his mouth.
+
+the next reaction I had was to a comment I made about chris farley likely having coke having something to do with his death. I said that along with a number of other rather offensive things that day and didn't really get much of a reaction to those things. that was before zach's memorial though.
+
+along with other reactions, the sense I get is that before nosebook was manipulating my image so that people percceived even the offensive things as being not so bad or something. however, I don't believe they are going out of their way to smoothe things over anymore now. the other thing is that is if the perception has started to stick that it's never going to happen, the "forgiveness" could be less -- as in people were willing to let things slide or put up with some of my offensive qualities as long as they're getting something in return.
+
+this tends to suggest to me that nosebook promised people something they never intended to follow through on. what I think it could be is that nosebook claimed that somehow me having sex was going to reward the world with my visual capabilities. obviously nosebook does not want people to have my visual capabilities. I believe they're selling it, making that their cash cow. there's no way they would give that away for free. that was likely just a ruse to try and get me captured into the influence of a bunch of girls they believed they could influence easily to steer me away from things like science and tech.
+
+this would explain why (from my perspective), it appeared like they were constantly setting up these events only to (at the same time) be actively working to sabotage them. this is your basic "occupy wall-street" formula. they satiate the people then sabotage the events until the furvour dies out.
+
+---
+
+those were the reactions that I was having yesterday but there. I wrote the esther / abraham being a sort of actor as the lite version because I have noticed that they seem to have figured out how to give people these queues as well. what I don't know is how many of the people I interact with are actors.
+
+the reason why I say this is because if I were nosebook, from my perspective, it would be way too big of a risk for me to have ordinary people around me. if I were them, I would be doing everything I would to get everything around me under control and monetised. the people, the places I go to (harbor, etc.) all of it needs to have product placement and all of the people under control. as an example, the new girl said something about a cold beverage and a stinging in her throat. I wasn't paying attention to what she was saying and thought she was talking about vodka. she was talking about coca-cola. later matthew wanted to be sure I had I coca-cola before I left.
+
+so I have the product placement, the directed conversations, etc. they feel the same as the product placement here at home and the contrived conversations I have with mom and everything. I used to fight it, but now I just take the cues and follow along: notice how I responded to the coca-cola offering by saying it's "refreshing"? notice how much better I'm getting at this acting thing.. hehe pretty impressive how fast of a learner I am, huh?
+
+this *must* mean that I am living in a fully constructed reality with everyone around me conforming to the script.
+
+---
+
+I don't really mind that it's that way because I can finally begin to relax. I basically have no control so I just do as I feel now. I also feel much less weight about having to worry about the whole girls thing too. what this means is that they are absolutely certain that they don't want any girls things happening. I mentioned that the prostate/uterus can emit a feeling. if a girl gets around me and is too attractive, that feeling will begin to attract a reality they don't have control of. therefore, my current theory of what they have to do if anyone poses a threat to their control over my situation must be separated from this reality.
+
+I imagine that they would be placed in an anternate reality designed to have a manifestation with an actor pretending to be me. I honestly doubt it would be another version of me because that poses a similar risk to this one if I get connected there either. then, the attractive person here they had to netralise would also have to be replaced with an actor too. I find it most likely those actors are just other versions of me taking the shape of the target -- similar to what I think happened to esther.
+
+I can't really confirm this at all as it feels like all these weird things are happening. it could have a much more simple explanation to it. however, at this point, especially with the shift in reactions and also with the cues, it's pretty obvious that something is *definitely* up -- though I'm not sure exactly what yet.
+
+---
+
+extrapolating this idea out a bit, there are some interesting "consequences" to this:
+
+1. if everyone with a strong reaction to me (cause I'm using both unwanted and wanted reactions to continue expanding) has to be neutralised, that means there are infinitely many timelines that I find my way (even with the actor) and all of these will be watching me here on this one. so eventually it will only be me, mr. motor and all of the other versions of me that mr. motor is using as actors. given enough time, it'll just be me and him here remaining. eventually I'll get it though and he'll have a whole planet of actors he can control. I liken this to the scene in the matrix when agent smith begins to take over everyone in the vicinity of neo wherever he goes.
+
+2a. there are not infinite nosebook actors so the worst will go first but over time less and less resistant actors will be available until there are finally no more humans on this planet capable of becoming an actor so he'll have to resort to separating out these attractive people with just alternate versions of myself.
+
+2b. each time that someone transfers their consciousness into one of the actors and becomes too attractive of me and is therefore a threat must be separated out (gets the manifestation). each time it'll be better and eventually really good.
+
+3. given enough time I will either find my connection or an unavoidable attraction with a girl will happen. he'll have to bail out eventually right before that happens. in that sense, there will be a "winner" 
+
+finally, let's put the speculation goggles on: I *really* don't know any of this for sure, but I imagine that at the end mr. motor will have a whole world full of actors and also of various boys -- the product of the actors and the girls manifestations. my current understanding of it is that all babies made will be boys (x3s) and so unless something is done, these boys when mating with the actors will just produce more x3 boys. I believe x4 girls will need to be artificially created. I suspect that the easilst way will be to hybridise 48 chromosome apes. until this is done, there will be a very definite male population advantage, essentially making the whole world population be x3 boys. I think this is exazctly the opposite of what hapened to the ancient atlantian gods (but they only produced daughters) and that was the real reason why enlil wanted enki to create a hybrid race which could produce male offspring (unfortunately this reduced their psychic abilities).
+
+it feels to me like circcumstances similar to this could be the conditions necessary to create the desire necessary to pull someone like me through here again. seems I show up as a product of desire. they need to get theirselves into another pretty big jam that they need another tech upgrade to keep their charade going. talk about a co-dependent dysfunctional relationship where I can solve the problems they refuse to find their alignment to solve on their own. or perhaps the better way to look at it is he's the fail-safe allowing me to get right up to the orgasm, but then pull out at the very last moment.
+
+something like that...
+
+dream
