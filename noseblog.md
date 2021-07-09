@@ -594,11 +594,11 @@ that was an event prior to 6-19 though so I dunno. I'm just going to keep seeing
 
 other than the edits, their information should be pretty good -- a mix of my concept of them (I'd say likely pretty pure) and whatever emotional energy of the actor/operators combined. it still would be source, but translated with a coloured lens and some filters. so kinda like the bible or something: good information but with the important concepts obfuscated.
 
-it's important to feel as good as possible to get the best recption so if the a
+it's important to feel as good as possible to get the best recption so if the actor/operator isn't on their best feeling, there may be some distortion in the translation of the concepts. whatever the resistance level doesn't matter as source will still wedge their message in the crack (between the edits).
 
 things to look out for will be:
 - giving power to things outside of you (anti self-empowerment).
-- direct guidance instead of illustration of thet cocept (tell you what to do, not how it works).
+- direct guidance instead of illustration of the cocept (tell you what to do, not how it works).
 - trajectory toward conditions and manifestations instead of accomplishing the understanding of the concept.
 - blindly following anything without understanding how it works.
 
@@ -607,3 +607,21 @@ stuff like that...
 you know after writing this, it definitely feels like something is definitely up. if it is, this is a really good thing. you all begin to have a similar experience to what I have. it's so extra much energy and you'll soon be so good at knowing what you feel, and how it anything more than an indicator (though it can feel pretty real) of your perception of whatever it is. they can't manipulate that.
 
 assuming this is happening, I'm actually very happy because they really have to micromanage a lot cause faking abraham would be a pretty big secret they're definitely going to need to work real hard to ensure no one finds out the truth. lol, imagine how much they're going to have to study their message to have a believable script each week. this may get a little hilarious. who knows...
+
+### 2021-07-07 14:09 - world wide abraham foundation
+
+@[youtube](https://www.youtube.com/watch?v=-ij3gRC5vJE)
+
+for this entry I am assuming the previous entry to have validity.
+
+if nosebook is running the wwaf, then it creates an interesting feedback loop. they can get real-time feedback to the message from people's reactions to it.
+
+it also has the interesting feature that it reminds me a lot of WWF when I was a kid. it was pretty common knowledge that it was all an act -- but it was still entertaining so people still watched it (even the ones that knew it was fake).
+
+it kinda gives them a bit of an out too. I was reminded of the undercover kylo SNL where he "reveals" to everyone that he's kylo but everyone already knew. today, if WWF were to make a public statement saying that it was all an act, I don't even know if major news outlets would give it more than a passing remark. it's longest segment would appear as a joke on SNL's weekend update -- nothing more.
+
+---
+
+I really don't see it as a bad thing. I was trying to figure out what the reaction was in the 6-19 episode was that they would want to keep hidden. my present theory is that something very uncharacteristic of abraham was said and a bunch of people noticed it. dunno.
+
+personally I like this version of abraham a lot better because it actually inspires even more thought and analysis into what they're saying. I think it's a good thing.
