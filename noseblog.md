@@ -674,4 +674,34 @@ it feels to me like circcumstances similar to this could be the conditions neces
 
 something like that...
 
-dream
+### 2021-07-09 18:18 - a few ways to look at it
+
+when I woke up this afternoon I noticed there were a fair number of reactions to the previous entry. alot of them were considering the sort ways that it would play out. to be honest, I hadn't really considered the idea much at all until yesterday but I'd like to run through some of the scenarios.
+
+most of the rest of the reactions were considering how I am possibly aware of the acting even if I never think about it. I think nosebook even tries to prevent me from thinking thoughts about it, so it's not really a surprise that I don't think about it. it's also pretty important that you are not this body. this body is just an automaton of "who you really are" -- and I mean that literally: "you" are not the body or the brain. our body is usually the closest algnment to ourselves, so we often mistake it for our identity. it's also more vivid than that conceptual form. I suppose I would be more present in my body here if I had stronger sensation here. nosebook can't allow that so it's easy to see why I'm beginning to slowly make my transition back into non-physical perception. obviously I have a long way to go before that happens.
+
+I think the sensational experience is actually designed to increase in vividness the more energy that someone allows, if the vividness didn't increase, nothing would hold you to the physical and you would make your transition (like enoch, moses, ramtha, etc.) into non-physical perception. it's also nice because as the whole world feels better, the whole experience reflects that and looks better too. it's quite nice.
+
+---
+
+following that mention of the sensational experience, the quote of there being two paths: one of lots of affection and the other of none. he choose the latter. the concept of lots of affection being a huge amount of sensation meaning that a lot of sensation is a lot of energy and therefore if it's a lot of energy then you can allow your transition into non-physical. therefore, I would change tesla's quote from affection to sensation.
+
+changing the word from affection to sensation allows us to understand jesus' experience a whole lot easier too pain is sensation and even in large amounts of pain it *is* just more energy and with strong focus, it is still possible to find one's alignment.
+
+ok so let's get into the situations here there are a few basic roles to look at:
+
+first there is a condition (such as a celestial alignment or a strong projector of feeling) which affects the way I feel physically. this physical manifestation of the way I feel (sensation) is one of the paths toward my connection.
+
+next, that condition must be neutralised. a combination of techniques are used I'm sure, but in the case that it's another person, the previous entries propose that these people are placed on their own timeline and thme version here is replaced by one of my Hews -- an actor influenced by mr. motor. the other timeline also gets another Hew as well which appears like me and is also likely influenced easily (they're both low resistance so now so like me they just follow the cues without much/any resistance). I find it likely that this alternate kenny has an operator.
+
+for simplicity I'll say there is a "girl" (the threat) which gets moved to another timeline and replaced by an "actor" on this one. kenny on the other timeline is also a Hew but with an "operator". the operators likely are mostly people who volunteer to play as me, but I can imagine that at some point there will no longer be enough vetted operators and other normal humans will need to be used, as I'm sure they'll be more resistant than a vanilla alternate me. so normal humans will likely need to be used as operators.
+
+on the alternate timelines, each of the operators will be taking the path of lots of affection and the operator will eventually find their alignment in my body and that experience. when they find their alignment, they'll gain the ability to perceive other timeline versions of theirselves and be able to choose to move their consciousness into another version of theirself and "fall" into that experience of strong sensation (pain, sex, etc).
+
+there are a number of ways that can play out but at the very minimum everyone who gains that perspective has the ability to tune into their "actor" here on this timeline and can again try to figure out how to get the manifestation they want. I'll consider that to be the "hardest" or likely their most out of alignment version of theirself with the strongest sensation.
+
+from a non-physical perspective (who you really are) there isn't a whole lot of sensation as things don't really "touch" there so basically *anything* is stronger sensation than that and someone desiring a manifestation will be drawn to sensation again. I contend that the only way to maintain one's non-physical perspective is to not need the manifestation. as long as someone wants the manifestation -- or, the sensation of the manifestation, they will constantly be attracted to whatever version of theirself has the strongest sensation.
+
+this is why I'm shooting for the "worst" manifestation. if I can feel good (in alignment with my source) even in the worst manifestation, then I no longer "need the manifestation" to feel good (find my alignment).
+
+the process of finding their alignment with sensation/affection will likely continue on for quite some time and each time they'll get better at finding their alignment too. for people who really like the manifestation, this is pretty awesome because they can just keep going from manifestation to manifestation. it's kind of the opposite of how we perceive normal relationships now. now you find someone then it declines into oblivion. this time you find the manifestation and it gets better and better. then, at the peak the beat drops and it starts all over again.
