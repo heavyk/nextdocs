@@ -705,3 +705,52 @@ from a non-physical perspective (who you really are) there isn't a whole lot of 
 this is why I'm shooting for the "worst" manifestation. if I can feel good (in alignment with my source) even in the worst manifestation, then I no longer "need the manifestation" to feel good (find my alignment).
 
 the process of finding their alignment with sensation/affection will likely continue on for quite some time and each time they'll get better at finding their alignment too. for people who really like the manifestation, this is pretty awesome because they can just keep going from manifestation to manifestation. it's kind of the opposite of how we perceive normal relationships now. now you find someone then it declines into oblivion. this time you find the manifestation and it gets better and better. then, at the peak the beat drops and it starts all over again.
+
+
+### 2021-07-10 14:32 - sensation and learning
+
+after writing yesterday's entry, it felt to me like the concept of reincarnation finally started to make sense. I also finally realised (and it seems a bit obvious now on hindsight) that one of the major defining attributes of me is that I can walk away really easy from a manifestation. I don't really have such a strong desire for sensation.
+
+I didn't really understand this until (as usual) derek posted another video exactly on the topic that would help me to see this.
+
+@[youtube](https://www.youtube.com/watch?v=rhgwIhB58PA)
+
+in the video he is talking about how no one is any particular learning style. I learn best (like he postulates) when I experience the same concept from many different angles: with words, a picture, and a feeling.
+
+I used to be able to feel what other people are saying directly, but this is telepathy and nosebook does not want me able to tune into others' experiences so most of that is shut down. people's words do not usually make an image appear in my mind -- and when it does, the image is so abstract that I doubt it has image-like qualities, feeling instead more like what a child experiences the world like before they gain language.
+
+I then realised that because people's ideas do not make it into my head, I have to produce them. I often times interrupt people or stop listening so that I can begin to actually feel what they last said and begin to construct a concept of what they're saying.
+
+what this means is that I have noticed that there are two main mediums for people to learn: vark/imagination and feeling/conceptual. obviously vark is producing a concept and a concept/feeling/emotion is producing vark. this is how my imagination works: strong feelings produce images, sound, and tactile sensations (dunno what the R is).
+
+---
+
+strangely enough I had a situation which produced this exact effect in me. yesterday I was reading the code of zig. I do this often to start to get a "feel" of the code. the better I feel like I know the code, the more effective I am at navigating it and comprehending it as a whole. I also "feel" the author as there is quite considerable mental energy that I can tune into when I read it[^1].
+
+as I was looking at the code, I just couldn't hook into the feeling of how it works. the whole code and the concept hme transmits in the video all feel really good to me and I feel the desire to understand it, but I'm really struggling with some simple things that are really obvious, I'm sure.
+
+this felt exactly like when I was a kid and I wanted to learn C++. I could copy/paste and move around other people's code but I couldn't figure out what there was sometimes a void in front of main and sometimes an int. I understood the return value type from a functions because I wrote functions to do small tasks, but not understanding what the the sometimes int return value on main really held me back from getting the whole picture. I then moved to assembly (SpAsm) and it started to make sense there. I just wrote 'ret' in the main function and it didn't matter what was in eax (I was writing windows gui programs not console programs). it never occured to me until much later when writing console programs for node what the return value actually meant.
+
+either way, I never felt like I really understood C++ and to this day struggle with it. it's really important that I *feel* like I know what I'm doing.
+
+I remember that some time later on in my life I had a brain haemorrhage and when that happened my feeling capability started to flow and I felt like I could understand the programs and I started to be able to program really effectively. prior to this I was very imaginary and visual but that was precisely what was preventing me from learning to program. there's nothing visual about programming for me. it's all these idea components which fit together in my mind and construct a mental "picture" of what is happening -- cept it's not a picture at all. it's a feeling.
+
+---
+
+related to this, there's another thing I noticed when I watched a mulaney interview and that he is very detail oriented. I used to be very much like that enumerating the events and their details to respond to an emotional question like "how was your night" or "how does this feel". the details mattered as a slight change in the detail could really change the feeling of the whole concept. I had to traverse the sequence of data points to get to the feeling.
+
+I was this way when I was a good programmer. when programming was difficult to wrap my head around, I was more like how I am now where I'm so abstract that I understand the concept, but I really have no idea of the implementation details.
+
+the way this all fits together, is previously I had to enumerate the data points (manifestation) to get the feeling, and now the data points (words, etc) distract me from the feeling. what I'm saying is, for me now the implementation doesn't matter. the feeling of it is good enough. I don't need to understand the manifestation to get the feeling. in that way, I wish I hadn't tried to look at the zig code because I like the way it feels even though the present manifestation of that feeling in code doesn't at all match (the zig idea feels really good but the code feels incomprehensible to me).
+
+I think if I were to have another brain haemorrhage again it would cause me to refocus a lot on the details again because I would have to observe the exact movements of my body and its interaction with the world instead of how I feel in my world. this refocus would slow me down a lot and likely permit me to return to programming again as I would be more sensation focused again.
+
+programming really is like the furthest out one can go in phsical expression before things start to get so abstract they're no longer physically identifyable. I really desire for some changes to the way that code is expressed similar to the ones I desire for changes in our language as well.
+
+quick tangent: I was thinking about how to integrate zig into serenity and it does all of the low level stuff really well, but it needs a more abstract layer on top of it which can express the concept of object heierarchy that serenity uses. a fairly large portion of serenity's code is just boilerplate to show the relationships between these objects. in zig's present state of a very low-level language it has all of the capability of expressing these objects and their relationships (structs, etc) but the boilerplate to do so would be even greater than C++. there needs to be a way of expressing these relationships in a way which produces all the boilerplate automatically allowing the programmer to just express the relationship and not get bogged down with the boilerplate. most of the rest of the logic would remain the same needing very little change as zig is essentially a C compliler already.
+
+I have no way at all to know how to implement something like this. I would also want the relationships and the navigation of this "code" to have an interface allowing for easy search and traversal of the objects. I dunno.. I'll keep thinking on it.
+
+sorry for the rambly entry today.. I think some of these concepts will form the basis for future discussions.
+
+[1]: this may have something to do with what happens when other people touch your code. it disrupts the mental energy of the code, often times trying to take the "feel" of that code in an entirely different direction. improvements don't seem to change the mental energy much. instead, it's the "this needs needs to be different" vibe I think that is so disruptive.
