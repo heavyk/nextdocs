@@ -754,3 +754,53 @@ I have no way at all to know how to implement something like this. I would also 
 sorry for the rambly entry today.. I think some of these concepts will form the basis for future discussions.
 
 [1]: this may have something to do with what happens when other people touch your code. it disrupts the mental energy of the code, often times trying to take the "feel" of that code in an entirely different direction. improvements don't seem to change the mental energy much. instead, it's the "this needs needs to be different" vibe I think that is so disruptive.
+
+
+### 2021-07-11 06:12 - sick plot twist
+
+these are the subjects for a future discussion I wanted to write but after star-watching, I want to write something different: 
+- the daughters of men 
+- guy in book of enoch which built weapons and makeup 
+- enmendurana 7th pre-deluvian king 
+- why do I tkink the earth fliped over? 
+- crop circles
+
+---
+
+in a previous entry I surmised that I believe that the new x3 models will only produce an x3 male as offspring. I don't really know all of the genetics and stuff about why that may be so, but from a marketing perspective, this is a sort of job security. I think the way that I appear here on earth is they get themselves into such a big jam that their survival is threatened and so someone like me shows up to bail them out.
+
+imagine the situation where it was the case that the planet *did* go up a power level and so therefore the humans did become superhumans. this would be certain disaster for mr. motor types, as under that higher energy all of their fear and bad-feeling would manifest into their reality pretty rapidly. they would either die or no longer function in a way which they could continue to propagate their genes. there would no longer be a suitable body for them to inhabit. inotherwords, they would go extinct.
+
+desire is desire though and if you have enough of it, it will produce a manifestation of what you want. I believe that I am the manifestation of their desire. they got theirselves into a pretty big jam and need a way out. we know that strong enough desire does produce a manifestation, but it's the alignment with that desire will determine how smoothe the manifestation goes. therefore, they are going to find a way to get what they want, just it'll feel pretty similar to the frequency they're at.
+
+I mentioned that I think in the past that I thought that the corrupt atlantian "gods" had a problem where they were only producing daughters. I have no way of knowing what the situation was but something terrible happened on mars (almost certainly attracted), but it seems they were either infertile or did not have enough variety in their genome -- but, for whatever reason, reproduction stopped and the martian gods no longer were dying out.
+
+I think they came to earth and tried to mix with the early human hominids, but their genetics must have rejected the y-chromosome and it seems to me that they were only producing daughters. I think it was then that the decision was made to create "man" -- the hybrid species that was capable of mating with the "gods" and producing male offspring. as the story goes, enlil wants them to be weak, subserviant, and have their mental capacities locked. I think the intention was that the way to unlock these mental capacities was supposed to be kept a secret and only the patriarchs would know how to access them. this must be the initiation with the pinecone depicted. either way, "man" was less mentally capable than the gods (by design) so it's no wonder that the offspring of these atlantian gods was also crippled in their capacities.
+
+I imagine that the original laws/rules for the atlantian kings were given so they would retain a pure bloodline. I think the bloodline thing is probably a thing that started back on mars and may have been the reason for their sterility, but that's beside the point. either way, they began to lose their mental capacities going down.
+
+imagine that you're one of these atlantian gods that does not want to ever give attention to wanted or to ever go extinct, he would have the ability to transfer his consciousness into a suitable body when he dies -- and assume that not always is he transferring his consciousness into one of his own kids' bodies -- still, over time, the quality of the body is going down. I don't know if it would even be possible to traladar into a baby because they're too high frequency. instead, a only a similarly resistant man could be selected. you could see how over time the quality would go down as things get worse and worse.
+
+he would continue to need a fresh new genetic code to inhabit that is capable of holding him. it needs to be resistant enough to receive his consciousness and also sweet enough to cancel out most of the resistant vibrations. my genetic code is perfect for that I have figured out how to transform nearly all resistant vibration received into neutral or good-feeling.
+
+as I mentioned, DNA (I believe) is an emotional state machine so my genetics would have a very strong propensity to find a way to feel good already without having to do any mental exercise. my DNA is perfect for him to transfer into.
+
+assume for a moment that he has/will do that -- so consider that mr. motor inhabits an x3 now. so, when I bring up the idea that an x3 mating with an x2 will always produce an x3 and never an x4, it doesn't take much time to realise that the x3 is kind of like a virus. there will be more and more boys that are producing more boys. the x2 girls will become only a select few (say 1% of the population) which will control and breed x1 boys to maintain their existance.
+
+obviusly this has the same problem of a reduced gene pool. eventually the girls will face the same problem of extinction if they can't broaden their x1 gene pool or find a way to make some x4 girls. I have no way of knowing what things will be like in the future so I can't speculate there too much to know if the x2 girls in power would willingly produce a superior model to their own allowing their subordinates (the x3 boys) to easily produce superior women to theirselves (x4s) -- but obviously at some point it will have to happen to prevent both of their extinctions.
+
+---
+
+interesting intro there, so here's the plot twist: I will eventually make my transition as well, which means I will too be inhabiting the x3 bodies. what if the whole point of this from the x3 perspective is to again not need the manifestation.
+
+I don't really know how to describe this feeling/reaction actually but it seems that there is a lot of fear around that. you could see it's manifestation in the matriarchy's desire not to have superior women around to rival their position of power. they would, like nosebook, try to ensure that no manifestation ever happens. this may mean that the next anouncer of the era will be an x2 female that is prevented from having the manifestation so long that she (like me) actually learns how to fill in her disabled half, effectively doubling herself, making herself an x4
+
+developing...
+
+---
+
+another thing I was thinking about last night is that I really don't want to do the list anymore. I just don't care and it feels like a lot of effort. I think that it may have something to do with some influences and its implications will likely be the subject of the next entry. I cannot describe how apathetic I am on this now. I just don't care.
+
+it's quite possible that the not caring is actually the precursor to actually getting connected though. it would mean that mr. motor would likely need to go semewhere other than the earth for fear of his feeling manifesting into reality with the higher energy. however I could imagine that mr. motor wouldn't allow that and may want to go his own way glad that I won't be transitioning into his x3 models. if that's the case, then I doubt he will want to do that anytime soon so probably we're going to continue to not need the manifestation a bit more.
+
+I'm sorta all or nothing on this and there is one advantage to this: if there are many versions of me which are x3 which are generated by me and have my energy in them, then that's probably where I'll make my transition into. obviously, we'll also make x4 models too which was the original plan. I don't know (actually doubt) that mr. motor may want some of those. I actually doubt it because they would be pretty intuitive. I think he would more likely make his transition into a computer before ever depending on a woman for his survival. it's easier to control a computer
