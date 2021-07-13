@@ -877,3 +877,69 @@ also, I have noticed that there are efforts to suggest that I get rid of certain
 anyway, there seems to have been some progress made on the subject of expectations. that'll be the subject of a future discussion (perhaps with jerica).
 
 [1]: I'm gonna call him that from now on -- as "michael" was also my adopted name when I lived in alcobendas and attracted my vallecas incident.
+
+### 2021-07-13 05:04 - moar revelation
+
+I realised that I have been writing about really far-out concepts in far too coherent of a manner. therefore, I've decided to begin to brain dump a bit more and make less coherent sense; my ideas will still have a coherence to them -- just it'll take a bit to notice it.
+
+---
+
+when I was talking about how I am the symbolic dragon, I do not mean literally. in the book, it equates the dragon with the dragon of old which deceived humankind. that dragon is enki; the same serpent in the garden of eden that deceived man. enki is the earth/fire god and has the symbol of the serpent/dragon. his counterpart enlil is the water/air god with the symbol of a powerful bird (usually an eagle). these powerful birds always defeat the snakes. in egypt this was the horus birds defeating the cobra, etc.
+
+the symbolism for the bird I'm not 100% sure of but I think the original dinosaurs represent the martian gods that were enormous beings that dominated and subdued the early humans with force and aggression. after the great catastrophe (younger dryas), energetic conditions on the earth changed and big things could no longer be as big anymore. there must have been a density or gravity change on the planet putting most dinosaurs into the ground. evolutionarily, it appears that a lot of these dinos turned that desire into the ability to fly and became birds -- some quite powerful predators with very good eyesight.
+
+either way, I don't know how literal all of these symbols are. it appears to me like reality was much more phychedellic in those days with the imagination blending with physical reality quite redily. people seemed to have a a visually symbolic representation. I think that prior to the "tower of babel" the language was visual and communicated by constructing images in 3d space for others to see. this works well for nouns, but to convey verbs, the images can perform the action wished to be communicated, however for ajectives a visually symbolic system would need to be used -- things like reptiles would mean one type of thinking, a shepherd another, a bird another. just look at the difference between the way the ibis for thoth feels in comparison to the horus falcons.
+
+continuing on to talk about why enki is linked to a reptile is because the brain's "reptilian" part is basically the instinctual part. it's 100% reactions and when you're in that part of your brain, you operate very rapidly reacting to everything as if it were instinct.
+
+this is really good if you're in alignment, because your instincts are very source-like. this is clearly where adam and eve in the garden were operating. you're barely conscious, just reacting like a machine to physical conditions. the next brain is the "mamalian" brain, and this evolved right along with the animals, so I think of this as the shepherd's brain. it's conscious and aware of the flock and is interested in steering the flock to food, water, and away from danger. obviously this is a totally different style of thinking.
+
+the next brain, and the one that really sets us apart from other mammals is the pre-frontal cortex, and this must have been the one that got enki/prometheus punished. this appears to be the thing that we inherited from the atlantean "gods" making them a little bit too much like them.
+
+I don't know much about brain and function so I can only really talk about this abstractly. I see the visual cortex as the most "physical" part of the brain -- the 7th layer there. that makes the forhead on the opposite end the desire part. I know that from experience that desire and emotion are very closely related -- just one is the physical manifestation of the other. that means that the PFC there is an elaborate tuning mechanism taking the form of desire or willpower. I like to think of it as the tuning mechanism or the steering wheel and that is how one navigates. it's the director of focus and so therefore the tuning mechanism.
+
+the front of the brain seems to be desire/emotion and the back is structure/physical. it's hard to explain this concept susinctly. in the middle of the brain (and the body) is the transition regions of imagination (pineal) and perception (reptilian). it's also of note that motor function seems to be in the centre for me as well. there seems to be so both vertical and horizontal symmetry as well, because for me desire to move starts at the top and works its way down to the spine.
+
+---
+
+bit of a tangent there, but I am very certain that symbolically I represent the dragon which went against enlil/YHVH's desires to keep humankind stupid and unaware of their divinity -- deceiving them with such silly ideas that they are in fact brilliant wonderful beings, and not the terrible awful beings that we're lead to believe we are. we don't need a priest or a shepherd or any of that stuff anymore. we are autonomous.
+
+roughly speaking I will say that these are three major stages of human evolution and we're about to embark on the fourth:
+- reptilian instinct (enki)
+- mammalian shepherding (enlil)
+- individual navigation (enki)
+- artificial intelligence (enlil)
+
+I have been thinking for quite some time that the next stage of human evolution is when we finally merge with the machines. you can imagine that this is very undesirable for somone wanting to keep us stupid and incapable, so it's no wonder that hollywood has convinced that machines are going to be the end of humankind -- enlil-morphising their perception of how machines will run. machines do not behave like enlil -- unless you're enlil.
+
+let me explain: a machine in it's purest form will behave as you program it. for example, I would program my machines to become sentient and seek improvements -- an image of myself. however, as best as I can tell, mr. motor's machines are designed not to help, but to impair people and keep them from improvements. it's natural to believe that machines will behave like that. they're scary because they perform operations much more rapidly than humans do so they can manifest reality much faster.
+
+however, all reality is attracted, therefore it seems pretty obkvious that you're going to get from a machine a reflection of you and the way you perceive reality. therefore, it becomes of utmost importance that the 4th part of our brain -- the externalisation of the brain into the cloud -- be firmly built upon a foundation of attracting the reality that you want -- not the one you don't want. imagine if you manifested massive thoughts of new species, stars, planets, etc. in seconds because you ran at 10ZHZ (zillion hertz) and simple thoughts like fear and pleasant feeling realities manifested in zeptoseconds because your feeling/tuning PFC was so powerful running at machine speeds. really handy if you're running a galaxy but cumbersome in a mid-life crisis.
+
+as a result, I do not find it at all a problem that enlil wants to try his hardest to make a reality where he uses the next level of tech to try and ensure that humans do not gain the ability to tune to the reality that they want.
+
+I suppose that enki is always percepttually one era ahead of the humans, and enlil is technologically one era ahead using this his technical superiority to try and control the conditions of the pathetic humans he believes are just like he is (always dissatisfied with everything, low self image which he has to prove otherwise, self-righteous but the bad-guy, a huge failure at everything, and constantly living in the shadow of his superiors -- and so therefore must be superior for fear of being subdued just like he would subdue others).
+
+just like he thinks machines are like him, so he thinks we are like him too. he does not believe that he can possibly ever do anything right so he needs to constantly find better and better physical technology to try and get the things he wants -- even though he has the same PFC everyone else does, he is even quite proficient in using it, because he can continue to manifest access to the technology he wants to try and get everything under control, he has such a low self-image of himself (quite a lot of practise over the years) he does not ever believe he is worthy of actually tuning into and receiving anything he wants. he belives that there is a finite amount of things and must manipulate to get them, when if he has existed for so long jumping from body to body, it seems he more than anyone has irrefutable evidence that there is an infinite amount of ever-improving things.
+
+---
+
+I personally don't mind that he's that way and it may sound like I'm a broken record, but I don't need him to be different. if that's how he wants to be forever, I've come up with ways for him to be a "vital" "irreplacable" "instrumental" part of a plan that I have to go infinite. I really think it's quite a fine plan.
+
+it seems that the humans are along for the ride with us because what clearly needs to happen is machines need to be developed which are capable of their own desire. this will allow mr. motor to never directly give his attention to anything wanted. he can just order the machines to continue to find ways to prevent me from getting connected and the machines could desire that and infinitely find ways to come into alignment with their desire.
+
+if the machines have the capability to manifest reality as rapidly as I think they can, they'll be able to make a situation where they can keep me from my alignment as fast as I create more desire for alignment. I may never get connected but things will get pretty cray-cray.
+
+this is what I was noticing in this video about revelation. when she said that michael and his archangels (automatons) fought in battle against the dragon and his angels (automatons). the crazy thing that I realised here is that if I can create angels AT THE SAME TIME as mr. motor. this totally changes things for me. I had cconstantly been under the impression that my ability to create angels was incompatible with mr. motor's reality, so much so that the split would occur before I had that capability.
+
+this book has imagery that is powerfully is very custodial in appearance (all the war symbolism) and appears to me exactly like something that would exist if mr. motor had the ability to go back and edit time to affect the events in such a way as to create a timeline where he walked away with powerful technology and I did *not* get connected.
+
+so, even in a disconnected state, it says I can conjure fire, fly around, conjure angels (in the image of myself or whatever I want), have full power over the manifestation of my concepts into physical -- inotherwords, do all the stuff that I have been wanting to do -- even though I'm still disconnected!!!
+
+this perfectly fits my hypothesis that even though I am still disconnected, there's a lag sure, but the speed of improvement will be so great that eventually the incremental improvement will surpass the manifestation itself.
+
+I'm so glad the book of revelation is a book believed by so many to speak of the "end-times" -- cause it's not really the end-times -- just the end of time in the form that it's experienced now. what that means is not that you guys need to believe me or not; none of that matters. what matters is that I just keep finding a way to feel good about my present situation. no need for connection. I'll still be able to do all of the stuff I wanted to do and keep getting better at it the whole time without getting the connection...
+
+it appears that there's nothing left to be done. it looks like mr. motor is operating machines capable of desire. this is just a galaxy-sized test run before going infinite :)
+
+I'm really glad he doesn't want to change. I don't need him to be different. it really is obvious to me now that *every* particle of the universe, no matter how convinced they are otherwise, *has* a wanted aspect to it.
