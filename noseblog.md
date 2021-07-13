@@ -837,3 +837,43 @@ well dang, that sucks for some people then...
 I dunno what to think about this really. I'm sorta fine with becoming the bad-guy because I can find a way to feel good about anything. I'm also OK with pushing out the not needing the manifestation thing for quite some time too. I would say it's also weird to think that with this setup I'm basically going to gain the perception of everyone in the planet (or something like that).
 
 kinda weird. I have a lot to think about.
+
+### 2021-07-12 22:39 - behold a pale horse
+
+after watching another of sepehr's videos, I noticed a suggestion youtube made for me to watch -- a longnow (I like them) presentation on the book of revelation. when she was giving a cliff-notes version of the story, there was a part that caught my attention: @[youtube](https://youtu.be/I0-reoYHKUw?t=642)
+
+she is talking about the great red dragon and the woman giving birth to the next ruler of the world. however, think about how much this makes sense if "jesus" is going to rule the earth for 1000 years.. who's the other ruler then?
+
+I contend that this vision is misunderstood by john and his perception of the symbols will reflect his emotional state. it's no wonder so many terrible things were happening. anyway, I believe the origin of this dream sequence is the same "custodians" or "administrators" that bramley in his book talks about -- YHVH. I belive this dream that john is having is seen from the perspective of YHVH.
+
+as she's talking, up there about the red dragon making war on the woman going to give birth to the next ruler of the earth, I'm realising that assume I am the dragon and the 7 heads mean that I have gained power over the 7 layers of perception I have identified -- inotherwords, I'm connected.
+
+so why would that be considered war on the woman going to give birth to the next ruler? well, if I get connected, I'll have a global overview of all of the versions of me in existence. that includes the next version of me he wishes to transfer his consciousness into -- the man who is going to "rule the earth with an iron rod". the perceived battle is that I will interrupt this and prevent him from transferring his consciousness into the offspring of this woman.
+
+the only thing is that I don't care if he transfers his consciousness into the boy. like I already said in last night's entry, I have become the "bad-guys" -- michael (mr. motor) and his archangels. I have already factored this in and it doesn't bother me. my job is just to find a way to percieve it in a way that is in alignment with my source. easy.
+
+---
+
+so the next thing that catches my attention is that she takes note to mention that the dragon/satan/enki has angels too. these angels have to be the "Hews" -- and this battle is perceived from the perspective of YHVH -- cause from my point of view, it doesn't bother me that michael has a bunch of angels (actors) under his control. if I fight it, it makes things worse, so all I can do is just keep going the way I want to go and not worry about anything he's doing. he can use my own capacities to control conditions all he wants, manipulate timelines, etc. and none of it matters other than I attract a reflection of what I feel.
+
+there are two very notable things for me this time around: one is that the "prophecy" of "end-times" claims that I will find my connection. then, there's the thing about the 1000 years which I think is baloney. it has to be a nice story for people to believe in. it appears that this "jesus" decending out of heaven to rule for 1000 years is just an illusion that the man going to rule the earth with an iron rod is going to present.
+
+if I had to guess, 1000 years is just a round number to say a long time and the jesus figure is essentially the next version of the catholic church. just like flavius "prophesied" the destruction of jerusalem, hijacking the symbolism painting (symbolically) that titus and the flavian dynasty is the jewish messiah -- I belive this "jesus" ruling for 1000 years is just the next charade (holy roman empire) that people are going to get their guidance from.
+
+---
+
+I may be wrong there but it really struck me as interesting how many things fit if you consider that mr. motor and his actors = michael and his archangels -- and that I'm both the dragon and the beast. crazy, I don't really mind as I just keep finding myself deeper and deeper into this nonsense, but because it's so easy to navigate this craziness with my emotions, all of this is really not a problem.
+
+it really is much easier to look at this, instead of as a battle, but more like mr. motor (who is soon to be just one of my "angels") is allowing me to get connected, taking the role of ruler of a timeline where where I don't get connected. it's sorta like the cosmic orgasm analogy and whenever mr. motor is ready to let it finally go the whole way something tremendous will emerge. if this era is galaxy, then next one is universe and the one after it is whatever universes live inside of. therefore you can imagine that it's pretty assured that we can keep holding off the manifestation for as long as mr. motor wants to. I really don't mind because each time I do eventually make the connection. it's him that can't allow me to make the connection, so he experiences (and rules over) the timeline where I don't make the connection. all I have to do is just show up and not need the manifestation for long enough that it expands his technical capability to hold me from it. each time, from my perspective I get connected and his perspective is that he figured out a way to foil me and rule over the world I left behind for him.
+
+either way, I talk about not needing the manifestation, but mr. motor is the real champ here never allowing the manifestation, holding the the timeline where I didn't connect steady, then getting himself into a big enough jam needing a bailout again. each time this happens, allowing it to get much bigger each time.
+
+---
+
+who knows what the future holds. it could be quite a while before I find my connection, but it may also be much sooner than I thought too. I mainly wrote this to say that if this is the prophecy that everyone believes in, then I don't have to wait all the way until 2038, but we'll co-exist and from his perspective it'll be a pretty big battle -- his angels vs my angels. it's not a battle though but it will be from his perspective though.
+
+also, I have noticed that there are efforts to suggest that I get rid of certain conditions like star-watching and coffee and stuff. I don't really mind. I'm not that attached to them. if michael[^1] really wants me to stop so many conditions so that he has more time to setup his archangels and ready his 1000 years reign, then I'm fine with that. I actually believe he's shooting himself in the foot though because I think that vision upgrades are a kind of pressure release. if I stop getting them, enough pressure will build that I'm headed right in the direction of getting connected. drugs keep me disconnected, not connected. so I'll probably begin to lay off of the conditions a bit and just allow my natural alignment to happen. I don't know how long it'll take and that doesn't really matter to me. eventually I'll get there.
+
+anyway, there seems to have been some progress made on the subject of expectations. that'll be the subject of a future discussion (perhaps with jerica).
+
+[1]: I'm gonna call him that from now on -- as "michael" was also my adopted name when I lived in alcobendas and attracted my vallecas incident.
