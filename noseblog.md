@@ -986,3 +986,56 @@ oops... I totally derailed my topic on how the superior brain tries to dominate 
 [1]: the other day I tried to do a few brilliant.org things but found it incredibly difficult. it was kind or remarable to me how bad I've become at those things now. I just don't see things in the normal linear way that most humans do now. trying to figure those things out felt very unnatural to me. the whole time I was wanting to write a quick program to just tell me the result. writing programs is still difficult enough that I didn't do it, but it is my goal to have a sort of universal calculator that I can manipulate conceptually.
 
 [2]: interestingly enough, there's a weird coincidence where the gleissberg cycle of the sun will peak in roughly 2046. 11 years before that is 2035. if we peace out at that time, the dramatic reduction in humans attracting combined with it being near to the beginning of the next solar cycle (~2041), there will be a dramatic decrease in solar activity. this would be the calm before the storm and will appear like a saviour has arrived. however, you can't give attention to unwanted and then not attract it. solar activity will rise again and LOA will increase its strength until it likely completely spirals out of control and the reversal happens.
+
+
+### 2021-07-14 1:50 - electron spin and planets
+
+watched these and had some notes
+
+@[youtube](https://www.youtube.com/watch?v=CYBqIRM8GiY)
+@[youtube](https://youtu.be/pWlk1gLkF2Y?t=569)
+
+it seems important that the 720 twist is always in reference to something else.
+
+also, of note in the pbs animation, the equitorial ribbons alternate going above and then below, almost as if the cube spends half of its time looking upward and half of its time looking downward.
+
+I have postulated that an electron behaves like a planet does and orbits around its star, the proton. the orbit of the electron would give that angular momentum like the bike wheel while the spin would give it an orientation.
+
+he mentioned that there are other particles that do not have the 720 spin but a 360 one. does this mean that they are not rotating and just orbiting?
+
+---
+
+it also seems relevant to the topic of the earth changing it's rotation after some period of ~12ky. in those visuals, the ribbons can be seen as our magnetic connection to the sun. therefore, if the sun (proton) flips upside down (or changes it's phase), could that also cause a flip?
+
+
+### 2021-07-15 23:11 - what the flip?
+
+one of the weird things I noticed is that I keep mentioning that I think a flip happened ~6kya. this seems to get a weird reaction. I think that some people disbelieve me in thinking that could have possibly happened, as there would be quite considerable evidence for it. I'm not so sure. because the rotation remains the same, I don't think that there would be such massive tidal forces as one may imagine. I can't give any good reason why I don't think it's as massive, but it feels to me more like one of those "barrel rolls" on a roller-coaster. just feels like stronger gravity for a while as the earth changes it's tilt. in my mind it just doesn't feel all that noticeable.
+
+the thing that was catching my attention is that the earth is rotating all the time, but we don't see that effect on the electron "spin" visualisation. if you look at the ribbons connecting to the equator, as the cube spins, then the first time around, the ribbon passes above the cube and then the second time, the ribbon passes below the cube. therefore, they explain, the cycle is actully two rotations long, not one.
+
+related to this, I was listening to the snake bros podcast (@[youtube](https://youtu.be/PikzXTHbVB4?t=1015)), and the article being read was about a study of the sun shows that the sun's cycle is actually a 22 year event spanning two traditional solar cycles. I think this is important because if you were to visualise the ribbon going above as the leading ... I dunno what what to call it, but on the magnetogram, the sunspots aternate having black leading and white leading. the origin cycle for the sun spot can be determined by looking at which is the configuration (for example this last may still featured a few spots from the last cycle: @[youtube](https://youtu.be/mI08aAnCD1o?t=142)). what this means to me is that the sun is "tethered" at the equator to something which causes an -- imagine a cube rotating inside of the sun where a full rotation happens every 11 years, and the full spin cycle happening every 22.
+
+therefore, what I think is happening is that the sun is also connected at the equator to something else making another rotation -- probably with a period of 12ky -- meaning, that the sun literally flips over every some period.
+
+---
+
+I don't really know what to make of the whole flipping vs. reversing directions thing. my present state of thinking is that both exist, and happen as a result of different things. I think the flipping happens as a result of our long-period orbit with another star (sirius). to test this hypothesis, this flip would happen at the furthest and cosest moments and this theory can be tested by looking at stable rotating comets/asteroids. after their close approach to the sun, they should flip over as they transition to moving away. I think our sun does this in orbit with the parent star.
+
+now, the second phenomena of the earth's rotation reversing, I think this has more to do with a temporal change. what I mean is, I believe that I think the conditions of the earth should cause earth's rotation to either speed up or slow down, depending if it's in more of a growth phase or dying phase. the more life on the planet that is growing and feeling good should cause the earth to rotate faster.
+
+I think animals play a large role in the balance of this energy. for them it's easy to allow that energy -- much easier than for most humans. without them, I think the planet's rotation would slow more and more over time. lately though, humans have been allowing a lot more energy (all flowing in the same direction) so the planet's rotation is speeding up. the magnetic field should increase in strength too.
+
+it's for this reason that I postuate that the "custodians" have manipulated time to try and keep the planet's energy levels (and therfore rotation) as constant as possible. I am a very good visual example of this, and all of their effort to keep my energy low is just causing them to have to work harder and harder to keep it from accelerating. eventually it becomes too difficult to keep it held back and it climbs rapidly. this is that peak right before the square wave swaps polarity.
+
+what I believe is happening is, if you imagine two currents going opposite directions -- like, a tug-of-war scenario. think of the x-axis as time and the y-axis as distance. it goes along pretty even for a while, but if one side is increasing it's power much faster than the other side, the whole thing will go the direction that side is pulling. evntually that side is pulling so hard, it finally releases and goes flying off. the picture of this happening in my mind are the various "condensation reactions" happening inside of the sun which are producing light. these elements are pulling so hard to release out into space, the reaction emits a good amount of light in the process.
+
+conceptually think of the earth's rotation as tug-of-war battle between two factions: because there are so many animals on the planet that are just allowing the well-being to flow to them and we'll this is CW rotation. animals don't need the conditions to be different to feel good. a lot of humans do though and we'll call this the CCW rotators. their energy is going in the opposite direction.
+
+right now, I estimate that the CW rotators are winning. they're like that element in the condensation reaction. for an example, see: @[youtube](https://youtu.be/0Lg5eR7T61A?t=2889). the activated silver cluster continues to increase in energy until finally it relases itself from the cluster, and the cluster relaxes and the activated silver flys off and emits a flash of light.
+
+the image in my mind is that that both the CCW and CW rotators are increasing their strength. when the CW rotators leave, the majority of the planet is now increasing the CCW rotation -- as if one side let's go of the rope. the earth's rotation will rapidly slow down and go all in the opposite direction. as it begins to rotate CCW, much destruction will happen and a lot of new life will spring up to accomodate the new opposite and quite uninhabited environment.
+
+one of the reactions just now alerted me to this pattern already happening. they notice that I resist something for quite some time and it builds up a lot of force -- and then I just drop it. the effect is a feeling of liberation for me. the whole thing is a runaway feedback loop, because they need some condition to feel good. I resist that condition for a while, then I realise that I don't need that condition to feel good, so I let go. then they pull harder at another thing and again I realise I don't need it to feel good, so I let go. the harder they try to keep me here, the more I have to let go to feel good.
+
+eventually I guess I'll let go completely, allowing everything to go the way they want it to go and a large amount of light will release in the process.
