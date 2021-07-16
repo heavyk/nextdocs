@@ -43,7 +43,7 @@ the white layout really opened my mind with having more keys to press so the atr
 
 the wierdest thing about the atreus is that there isn't any buttons next to my pinky fingers. I also keep noticing that I want to press the corresponding key with my opposite hand as if my muscle memory wore mirrored or something. very strange.
 
-### 2021-06-24 02 02:49 - some thinking on resistance
+### 2021-06-24 02:49 - some thinking on resistance
 
 I was having a monologue on how time worked again and I thought to type it instead because I want the practise. I got to the part where I talked about where reality reflects what we feel and believe and that dreams are the best example of this.
 
@@ -988,7 +988,7 @@ oops... I totally derailed my topic on how the superior brain tries to dominate 
 [2]: interestingly enough, there's a weird coincidence where the gleissberg cycle of the sun will peak in roughly 2046. 11 years before that is 2035. if we peace out at that time, the dramatic reduction in humans attracting combined with it being near to the beginning of the next solar cycle (~2041), there will be a dramatic decrease in solar activity. this would be the calm before the storm and will appear like a saviour has arrived. however, you can't give attention to unwanted and then not attract it. solar activity will rise again and LOA will increase its strength until it likely completely spirals out of control and the reversal happens.
 
 
-### 2021-07-14 1:50 - electron spin and planets
+### 2021-07-14 01:50 - electron spin and planets
 
 watched these and had some notes
 
@@ -1039,3 +1039,64 @@ the image in my mind is that that both the CCW and CW rotators are increasing th
 one of the reactions just now alerted me to this pattern already happening. they notice that I resist something for quite some time and it builds up a lot of force -- and then I just drop it. the effect is a feeling of liberation for me. the whole thing is a runaway feedback loop, because they need some condition to feel good. I resist that condition for a while, then I realise that I don't need that condition to feel good, so I let go. then they pull harder at another thing and again I realise I don't need it to feel good, so I let go. the harder they try to keep me here, the more I have to let go to feel good.
 
 eventually I guess I'll let go completely, allowing everything to go the way they want it to go and a large amount of light will release in the process.
+
+
+### 2021-07-16 04:19 - condensation reactions followup
+
+two of the reactions after the last entry were, "wait, just you?" -- no, I doubt it. I actually see this condensation reaction happening all the time and a very similar thing happens when you die, or make your transition into non-physical. a huge amount of energy is released. so, it's happening all over the planet. also, this isn't just a one-time event. it's happening zillions of times a second all over the surface of the sun. it's the most common occurance. that example uses a clump of silver, but dr. pm is saying that a similar thing is happening with hydrogen and other elements all over the surface of the sun. in that analogy, it would appear like countless atoms are making their transition into light every second and the byproduct of it is highly energised solar wind streaming off of the sun.
+
+I think the cells in our bodies do a similar thing -- a sort of reverse photosynthesis with the biproduct of CO2 -- and I think our bodies also emit an amount of light too. either way, it's happening all the time. when a person dies, the way I see it, they stop resisting the well-being flowing to them, and for whatever reason, their body cannot allow that much energy to flow through it anymore so the person's consciousness leaves the resistant physical bits behind and makes their transition back into non-physical.
+
+this is why I suppose that for those remaining here it will appear as if I die, yet from my perspective, it will appear like I am no longer held to the surface of the sun and I can be released to exist in the higher energy state now. obviously we're not on the sun so the solar wind example is terrible. I think it's actually a planet-wide occurance with everything being in an energy state which matches consciousness.
+
+when you die, your body is simply incapable of transforming your source signal into consciousness anymore. it's impossible to continue to perceive through it. that's it. it's like going into a tunnel while listening to the radio. it just isn't getting enough reception to get a good signal. well, the opposite can be true as well: you can find a way to feel so good and allow so much energy that you "die" because you are now receiving a signal too incemprehensible for your body to translate into consciousness.
+
+too much power or too little results in a transition into a new form of perception. however, the thing about it is if the transition is conscious or not. like for example, imagine that I have grown to be able to perceive reality from a perspnctive much larger than this body can allow. it's a bad example, but imagine that my consciousness is capable of now perceinving myself as a planet. none of the issues happening on the planet are any more relevant to me than the drama happening inside my body as my cells fight germs, bacteria, and viruses. I'm non concerned with way my cells are interacting with each other. etc.
+
+so, like for example imagine there were a bunch of alien species trying to manipulate and control different organisms on this planet. to me, perhaps this episode may appear no different than the common cold. it's extra-terrestrial bacteria trying to utilise the resources this body has to offer. just like I don't perceive the battle my body has every time someone sneezes on me, I remain focused in the macro perception. I perceive the body as a whole -- not the individual events or interactions.
+
+that's a bad example in that it's another physical perception. instead, imagine what it will be like when you make your transition into non-physical. all of the physical stuff falls away, so you see yourself much more abstractly -- so you can say, for example perceice your trajectory toward becoming a person which feels a way you want to feel. perhaps there are also other symbolic properties as well, like maybe you perceive one trajectory for yourself being the realisation of your own guidance, in opposition to the mainstream. perhaps you see it instead of in opposition to the mainstream, regarless of what the mainstream is.
+
+from a non-physical perspective, this quality does not have any defined reality associated with it, so in one implementation/timeline, perhaps you're like me and everyone is telling you one thing but you follow your own guidance no matter what. perhaps in another timeline, you could be more like mr. motor and even when the whole world wants you to be different than how you are, you decide to go the way you want to go -- even if it doesn't feel good. both of those are implementations of the abstract quality of going your own way regarless of the mainstream desire/expectation for you.
+
+I realise it's hard to imagine what perception would be like without the physical world opening various abstract reality possibilities, but instead it would be just the opposite: the abstract world is perceived and out of it are a multitude of physical implementations of it. there are so many ways to arrive to an abstract concept, one begins to pay a lot of attention to the abstract realisations which have few or extremely short physical paths to it's realisation.
+
+see how it's a whole new way of perceivcing reality? well, imagine if you could make that transition *consciously*...
+
+I propose that is exactly what is happening, and the conscious transition is the realisation that *all* conditions -- not just the picture in your head about how you think things are or should be going -- are all the product of the way perceive and feel about your *present* moment.
+
+that's it.
+
+---
+
+OK, so the next reaction that I had was is this the "rapture" -- and, I have no idea. I think the rapture is a concept presented by those remaining, to appear as if they are the "chosen ones". I have nothing to back up that claim, so don't take it seriously -- just it sounds more like propaganda trying to convinvce that they're the right/chosen ones.
+
+all of my life I've never gotten the rapture right. to this day, I can't figure out what exactly happens. when I was younger, mom read me a book called the "left behind" series and in the first book a bunch of people disappear and then the anti-christ shows up and a whole bunch of disasters happen as the world plunges into chaos. so it's like the good guys get raptured, and the story is of those "left behind". they have to endure a whole bunch of hardship before finally jesus shows up and saves them.
+
+if that's the case, most definitely not. I mean, in the sense of the world today, I would be considered the anti-christ because I want nothing to do with being anyone's saviour -- everyone can find their own way to tune into what they want. those needing a saviour are, IMO, not happy with their present conditions and need someone to save them from their conditions. dissatisfaction breeds more dissatisfaction and so only more dissatifying conditions will result. these are the people that need the conditions to be a way to feel the way they want -- I think CCW rotators. therefore, the likelihood that any saving or rapture will happen, I think is low.
+
+another way to look at the rapture could be the situation of the actors that I proposed. the people that find a way to align with what they want need to be separated from this timeline and replaced with actors -- automatons that are emotionally steered by mr. motor to avoid energy levels rising too much and allowing me to find my connection. so instead of all the rapture happening at once, instead, the rapture would be occurring any time that someone finds a way to allow a reality that is incompatible with this one.
+
+if I had to guess, *that* is what I would guess is the rapture.
+
+so let's just assume that is the rapture and anyone who finds their alignment to a reality incompatible with mr. motor's objective for this reality (that I don't find my connection), will be separated out from this one. that means that there are likely thousands or maybe even millions of alternate realities where I did make my connection and this earth exists in a much more energetic state (we'll call this 5D for simplicity).
+
+if you want to be raptured, you have to align with a reality that's heading toward 5D. those that don't align with that will find theirselves in a reality similar to their own perception of needing conditions to be a certain way to feel good.
+
+the way I see it happening, is in the tug-of-war, the power of conditions is muchr lower than the power of feelings. both will trying to tune to the reality that they want -- especially me. eventually, this body that amount of energy will become incomprehensible and I'll make my transition. I believe a lot of others will at the same time.
+
+the effort to turn in the CW direction will be much less and so I think that rapidly the earth's magnetic field and rotation will rapidly reverse to go the new direction of needing conditions to feel the way they want to.
+
+you guys don't need us. I belive this will result in humans finding tremendous capabiity in their ability to manipulate conditions. I think human bodies will all become designer and the trajectory is likely toward all new humans will being designed to have the physical capabilities desired by both the user of the body and the institution controlling how much capability approved/chosen people are allowed to have.
+
+this will produce huge advances in the understanding of DNA and the manipulation of conditions to produce the desired consciousness experience. technology will advance and eventually even the lowest levels of society will live in conditions far superior to those today.
+
+the human nervous system will be pretty well understood and the ability to physically feel the way that it is desired that one should feel (given the present conditions and reality tier the person is in, of course).
+
+they insist that they do things their way. they need conditions to be a way to feel the way they want to. so instead of learning how to tune to the way they want to feel, they insist on feeling the way they want to tune to. I'm not going to argue. I think it's a great idea it's going to produce a massive tecnological revolution. so many good things.
+
+---
+
+this is on the way *toward* sirius though, so things will continually be getting better and better. I think of this as like adolescence/college years for humankind (springtime). however, in about 6ky, the direction will reverse and the conditions will start to get worse -- so like the onset of middle age. enjoy the conditions whole they're there, right?
+
+once middle age hits, it'll be pretty important to find ways to preserve all of the understanding as we begin to descend back into less ideal conditions. it's probably a good idea to start worrying about that and have that planned for, from day one rebuilding after the reversal.
