@@ -1100,3 +1100,60 @@ they insist that they do things their way. they need conditions to be a way to f
 this is on the way *toward* sirius though, so things will continually be getting better and better. I think of this as like adolescence/college years for humankind (springtime). however, in about 6ky, the direction will reverse and the conditions will start to get worse -- so like the onset of middle age. enjoy the conditions whole they're there, right?
 
 once middle age hits, it'll be pretty important to find ways to preserve all of the understanding as we begin to descend back into less ideal conditions. it's probably a good idea to start worrying about that and have that planned for, from day one rebuilding after the reversal.
+
+
+### 2021-07-17 4:22 - accomplishing the condition
+
+I ended the last entry with a seemingly sarcastic comment about worrying about keeping the conditions that will be accomplished over the next 6ky -- but I wasn't as sarcastic as you have thought. I was actually being serious, looking from the other perspective.
+
+I thought about it in the shower, but then too when I was listening to manley give a lecture on albert pike's notes: @[youtube](https://www.youtube.com/watch?v=1Bs9QuAQJek). in it, he's talking about how there must be some sort of origin point for these major religions, which pre-dated the arrival and institution of the aryan religions as a sort of gate to the knowledge.
+
+there were two things that caught my attention, and one was the mention that these different religions acted as a kind of gate, guarding the fire, just like the 12 gates around the new jerusalem -- a sort of trial to ensure that the uninitiated/profane are not admitted into the sanctuary to experience this fire (btw, weird that this is the 1111th line in this document). you gatta earn it, I guess. this seems to suggest that the original concepts are being kept a secret and swapped out for broken diversions for the profane to waste their time pursuing -- and only those that are capable of seeing through the broken distraction are admitted to pass through the gate. these, it says, are the "chosen ones" that the saviour has written in the book to be allowed into the new jerusalem and saved.
+
+the other thing that he said which caught my attention was, that he believed that there was an "exact science of human salvation". this one really got me thinking. it's worth noting that he mentions that these great people that have passed through this earth had access to something -- a "wisdom reality" he calls it, but then later on defines it as fire -- the very same fire that these gates are only allowing those which have passed the trial of that gate to pass.
+
+---
+
+so here's the thing that I was thinking about with that: it seems to me that there are some "guardians" which know, at least in part, the scientific method by which to access this fire. they are supposedly ensuring that only valuable and quality people are allowed to pass, but I do not think this is the case at all.
+
+for example, I have learned how to access this fire -- and, with relative ease as well. however, I'm fairly convinced that only very select things that I write are actually making it out to people. I try and share the ways by which people can access this fire all the time, but I feel it's not what gets broadcast. it seems they're more concerned with people *not* knowing how to access this fire. the "trials" that they're talking about are not actually trials. they're just a nice way to describe an access control mechanism. I have certainly passed all of the character quqlity trials by now, but I don't think I've passed the "you need to keep everything a secret and deceive people to ensure we're the only ones able to access the fire" sort of thing.
+
+it appears that that (at least part of) this science of salvation *is* known, and it's these guardians that are actively preventing people from accessing it. it reminds me a lot of the present state of the scientific community. I think it's intentional actually that all scientific methods are actually conditional agreements that must be made.
+
+---
+
+this actually reminds me of another video I just watched with alan watts talking about the buddha's teachings: @[youtube](https://www.youtube.com/watch?v=1Bs9QuAQJek). in it he's talking about a lot of different forms of conduct by which someone should live, to reach the emotional state of nirvana. I find that to be a difficult thing to try and accomplish. perhaps it's possible, but it would require an extreme amount of very conditional living to get there.
+
+this is kind of like the "trials" that pike is talking about. they're designed to fail. you'll never pass them, because they were never ment to be passed. the conditions necessary to gain access to the fire is only allowed by those that have agreed to perpetuate the access control (power) structure.
+
+it's a giant shell game. I'm really off-topic, but this is relevant, I assure you.
+
+---
+
+it seems that even the structure of our reality is formed in a similar way. I mentioned in a previous entry the idea of needing the manifestation and being able to feel good about even the "worst" possible timeline reality of yourself...
+
+imagine for a moment tha you find a set of conditions to transcend this reality... say you get to 5D perception with sex or some other manifestation. you keep going using whatever condition that you have to further expand your perception...
+
+wait, I personally don't know if temporal (6D) and multi-bodied (7D) perception is possible -- though I'm realising they must be now otherwise michael wouldn't have so many angels to fight lucifer and his angels. I may need to rework the concept a little to explain... I want to explore it further and I may have actually wrote all of this so I would realise that michael must have some scientific way to manipulate 6-7D now... interesting... for now though, I'll assume this is not the case or the gate keepers are actively capping one's perception to 3-4D range.
+
+in order to expand one's perception, one must feel better. it's an emotional thing. however, it's well known that conditions can affect someone's emotions. it does necessary that it has an effect, and it's effect largely has to do with the structure or meaning you place on the conditions you're experiencing. for example, the very concept of a bunch of gatekeepers may make some people feel bad, believing the gatekeepers to be preventing one from experiencing their birthright -- the knowledge inside of them they were born with. these conditions make them feel bad. other conditions may make the same person feel good. therefore, they need certain conditions to feel good and expand their perception.
+
+let's say you find a way with conditions to feel so good you transcend this reality and consciously there was actually very little difference between how good you feel and how good non-physical feels, allowing you to cosciously make that transition. well, being someone that needs to feel some sensation, you will find yourself pulled right back into your most sensational timeline. every time that you make this transition you will just find yourself right back into the manifestation. this will continue forever.
+
+the only way out of the cycle will be able to feel the way you want to feel no matter the conditions. this means that you have to be capable of feeling good even in the timeline with the worst possible conditions. the better the baseline conditions of society, the easier this is to do. if you're born into a completely dysfunctional society, this will be far more difficult.
+
+---
+
+therefore, in that sense, conditions *do* matter. this is an important concept to consider because conditions determine the baseline difficulty of the "worst" timeline. the better the conditions on the planet are, the easier it is to accomplish this "consistency of consciousness" between lifetimes "a time when there was no death".
+
+you could imagine now that this sorta goes against the whole concept of the gatekeepers. they do not want the whole planet to have access to the conditions, but they're really only making it harder on theirselves too.
+
+I imagine they're probably scoffing at me saying, "no we have it all figured out: we can transfer our consciousnesses into other bodies." -- and that will work for as long as you're a member of the group and can trust everyone not to let you down. what if someone (or something) were to happen which prevented you from accessing those conditions? like, what if a badder bad-guy were to dethrone the baddest bad-guy? the minute you're no longer on the gatekeepers VIP list, then you have to, like everyone else, find a way to feel good about your worst timeline possible.
+
+---
+
+I find it very likely that such a group of badder bad-guys (or bad-girls) will exist one day, as it's my own goal to create such a thing to see if I can pass ultra hard-mode.
+
+what I'm saying is, I realised that the gatekeepers are, like me, creating their own difficult trials to pass to be able to access the fire again.
+
+it's with that, that I am confident that *all* humans -- even michael and his angels -- will (eventually) be able to access the fire no matter the conditions. who knows how long it'll take; it may actually take a few more iterations of us creating even more difficult challenges for ourselves but I'm up for it :) I'm sure he'll be able to keep thinking of more difficult challenges for me/us.
