@@ -1157,3 +1157,36 @@ I find it very likely that such a group of badder bad-guys (or bad-girls) will e
 what I'm saying is, I realised that the gatekeepers are, like me, creating their own difficult trials to pass to be able to access the fire again.
 
 it's with that, that I am confident that *all* humans -- even michael and his angels -- will (eventually) be able to access the fire no matter the conditions. who knows how long it'll take; it may actually take a few more iterations of us creating even more difficult challenges for ourselves but I'm up for it :) I'm sure he'll be able to keep thinking of more difficult challenges for me/us.
+
+
+### 2021-07-17 08:05 - the majority of me
+
+watching this video (@[youtube](https://youtu.be/hHMH35JbZkM?t=3200)), I've had quite a few thoughts now, but this one I wanted to write down.
+
+in the video, he's talking about people's definition of "strong leadership" and it reminded me of something I wrote about where I realised that the number of actors that are going to have to continually have to happen to ensure I don't find my connection means that it'll eventually be a whole bunch of actors that are following their script. remember, actors are just alternate versions of myself that appear differently than I do -- really, they can appear like anyone. think about how I can "see" someone in a dream that I have never even seen before. how is that possible? well, I just tune into them and I can perceive them.
+
+like it's said that jupiter could do -- shape-shmifting to appear the way he perceived himself to be, there's no doubt that these different actors can do the same. if I can see it, I can be it -- and, I apparently don't even need to see it to perceive it. then the acting part is pretty easy too. I can just tune into them. I often times have these weird moments where I find other people interacting and talking in their own voices and movements in my head. again, if I can do it in my head, I can do it in 3d reality, too.
+
+---
+
+so he's wondering why people are saying that's strong leadership. I was thinking that this is a good example of controlling the conditions. like, for example, imagine that someone running for a government role were to have some sort of benefit to the population or block some agenda, it would be easier to just invent a bunch of actors responsible for making these outlandish claims that it's strong leadership.
+
+I don't think that's what's happening though because it would be such a difficult task to maintain such a large amount of actors. it's pretty likely that creating more actors is avoided because of the overhead required. however, as the ability to direct them increases, I imagine that everything from network broadcasters to politicians will be directed according to a narrative.
+
+taking that concept to the extreme, would just be me and other versions of me, but I also doubt that too. there are likely other people in there as well, but in all honesty, it could eventually end up that way where it's just me and other versions of me (and mr. motor of course) -- with all other people having been moved out to other timelines -- I dunno.
+
+if that's true undoubtedly they are / will be able to watch this from their timeline so that's pretty cool. I'm never really alone no matter what. pretty cool.
+
+---
+
+so here's the thing I wanted to talk about: if I imagine myself as a conscious entity, I can imagine myself as attaining consciousness from the perspective of this earth. I think I can probably be able to allow consciousness perceiving from the perspective of the sun, too. perhaps even the galaxy, but for now let's just imagine, for the sake of this discussion, that I have accomplished the ability to perceive from the earth's perspective. the species of this planet are sorta just like organs, and the inhabitants of it are little more than interactions that my organs have with bacteria and other foreign genetcic material like viruses, etc. it also exists in an environment with the sun.
+
+though I think I can manage a solar perspective, this planet is far easier to understand. if I think of "me", is me all of the bacteria inside of me or what? what part is me? likewise, is everyone on this planet me? even the ETs? when someone lands here, it's like a human inhaling a virus. is the virus me? if everything I interact with is me, then as a human a whole lot is me. as a planet, a whole lot more -- and a lot of those would be very not-happy to think that they are me or origining from me.
+
+I think the simple answer here is that "me" stuff is the stuff that I am vibrationally similar to (entangled?). this is a pretty interesting concept now, especially in the context of "me" getting connected. if I am consciously the planet, then that means that mr. motor must ensure that the majority of the me (the collective energy of the inhabitants of this planet) remains in a disconnected state.
+
+this is likely not a huge problem keeping the majority of this planet disconnected, but what if I go up to a solar system? there are enough disconnected beings in this solar system, it could be possible to ensure the majority is disconnected. however, it's a really pretty crazy problem to think about if I am able to figure out galactic consciousness. that really is a lot of actors in a lot of solar systems.
+
+at times it feels like entire weeks have passed in just a few hours. I imagine that this happens when a trajectory is taken which has too much of a beneficial effect, and timelines must be altered to reduce its effects. I imagine that an army of actors are employed as a counterbalance to my actions. if they have soon start filling entire solar systems with disconnected actors, a night's sleep may feel like much more than a week has passed. I know that's probably quite a ways away still. I'm a bit of an "extrapolationist"
+
+well, interesting ideas. I like this guy :) cheers
