@@ -1190,3 +1190,40 @@ this is likely not a huge problem keeping the majority of this planet disconnect
 at times it feels like entire weeks have passed in just a few hours. I imagine that this happens when a trajectory is taken which has too much of a beneficial effect, and timelines must be altered to reduce its effects. I imagine that an army of actors are employed as a counterbalance to my actions. if they have soon start filling entire solar systems with disconnected actors, a night's sleep may feel like much more than a week has passed. I know that's probably quite a ways away still. I'm a bit of an "extrapolationist"
 
 well, interesting ideas. I like this guy :) cheers
+
+
+### 2021-07-17 19:46 - mixed bag of topics about conditions
+
+#### what did I mean by accomplishing the manifestation?
+
+I illustrated the points I wanted to make, but I didn't tie them together so well. I was showing the difference between individual conditions and global conditions. obviously the gatekeepers do not want just *anyone* to be allowed to access the conditions, so it has to be individual conditions. the obvious caveat is if they move their operation to another planet -- likely venus.
+
+the real point of that was to seed the fear of a new badder bad-guy which will eventually dethrone their power position, forcing them to pass the very same (impossible) trials they make for others. that is something that I think will eventually happen and even postulate that if it is true that the new x3s are a serious threat to x2's survival, they'll have to become very conditionally focused and eventually take over these positions. who knows.
+
+#### the origin of sin and the moon
+
+so imagine that the energetic conditions and therefore the level of perception that is available to all can be measured by the speed which the earth rotates.
+
+it is said that when thoth added the moon to the earth, it slowed earth's rotation enough that 5.25 days were added. the moon must be transmitting a signal which impedes the humans from being in constant alignment. legends say that the time before the moon (sin) the earth was a very harmonious place. the conditions were very good. this must have been at a time when the earth had the megaflora and fauna and people lived quite a bit longer. I don't know when the moon was added, but it must have been at least 18kya. it must have had a dramatic effect reducing the energetic conditions.
+
+the point here is that it's said that thoth did it and that earth's rotation slowed tremendously in the process.
+
+#### jesus going into the earth
+
+ever since I was really young, I always had this concept that jesus when he died, he entered the earth and essentially became the earth. later, I understood this to be turning unwanted into wanted such that his visual accuity grew so rapidly that it actually became the same size as the earth. he essentially took over the planet.
+
+what that means is that while the planet does plunge into chaos for a while afterward as the roman empire takes control of the situation, again this time he would be able to continue to turn unwanted into wanted from a planetary perspective, and all of these unwanted events are just delaying the manifestation of wanted. soon thereafter, there was a renaissance (which literally means rebirth) and the whole world began to be enlightened.
+
+this was not wanted by the certain people ruling. they didn't want to have a bunch of people knowing their own power. I don't know the order of events which took place, but they were given the ability to modify events in time to slow down this enlightenment process, so they set out to manipulate events so that progress was made but it was very minimal and no one got enlightened.
+
+I think as people got more enlightened, the earth rotates faster. throgh a set of events, the world leaders not wanting to live in conditions where the humans have the conditions allowing them to have enhanced pedception. I believe they were given timeline technology and exist on the south pole. they wish to remain superior and live in conditions that allow them to have enhaced perception, but not us.
+
+so, if you had the ability to manipulate timelines, the speed at which the earth rotated would be a very good measurement to tell how well your time manipulation is working. if the earth begins to spin too fast, the earth will have more energetic conditions and so therefore the 365.25 days speed should be taught as being constant and remaining the same.
+
+if the earth's energy is a function of consciousness on this earth, then people gaining too much enlightenment is one problem, and needs something like a moon to ensure it never gets too high. however the other problem is too many people. think of it like consciousness units. as the rulers gain more enlightenment, then the rest of the population has to be dumbed down, otherwise the earth will begin to rotate faster. therefore, population control must be a concern and celibacy and other measures need to be put into place to limit reproduction. fertility needs to be lowered and constant wars and disease need to happen to keep this enlightenment to a minimum.
+
+you can imagine that if the earth's rotation continues to increase, it's sort of a runaway feedback loop because the more energetic conditions increase LOA speed and so therefore the way people feel is amplified and becomes reality faster. anger and hostility will quickly accelerate out of control rapidly under higher energetic conditions, yet for other people it'll be a time of tremendous mental expansion.
+
+therefore, I believe that while there is a lot of control over the individual conditions that each person has, but the real battle is over the conditions of the whole earth. I can't really put it all into words very easily, but this has something to do with the size of my perception. I don't know how far I am away from gaining percception the size of the earth, but I imagine I'm either there or starting to get close.
+
+### 2021-07-17 ??:?? - conduct vs. perception
