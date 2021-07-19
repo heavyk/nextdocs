@@ -1226,4 +1226,59 @@ you can imagine that if the earth's rotation continues to increase, it's sort of
 
 therefore, I believe that while there is a lot of control over the individual conditions that each person has, but the real battle is over the conditions of the whole earth. I can't really put it all into words very easily, but this has something to do with the size of my perception. I don't know how far I am away from gaining percception the size of the earth, but I imagine I'm either there or starting to get close.
 
+### 2021-07-18 21:47 - biding my time
+
+it's been a month or so now since I cut my hair and I've really come a long way mentally in just that one month. when I first cut it, I felt such a contrast, almost as if all of the noise had become inaudible. evreything so much calmer and nicer. it's still a little more like that but much more noise has been added again. that's really no matter as I've really learned to work with it pretty well. in general I feel pretty good.
+
+in fact I'm beginnning to feel good enough to even begin to do things like programming again. even just a few weeks ago, I couldn't reason very intelligently about the physical implementation details of a program -- as if some mental barrier was separating the concept from the implementation. now, however, I seem to be able to see both a lot more clearer than usual. it may even be noticeable from my writing that I'm much more coherent now than I was before.
+
+there's also another very interesting shift that has taken place as well: I almost never feel girls now in a pleasurable way anymore. I can see them and stuff, but I just don't really feel much attraction from them anymore. as a result, I am much more interested in advancing ideas that I've wanted to work on for a while now.
+
+on the subject of girls, it used to be the case that it would feel bad if I *didn't* write them down, and so therefore to continue to feel good, I was pretty incentivised to write them down. now, it's sorta the opposite. I don't really feel much attraction or any good feelings anymore so there's not really any positive reason. however, the major change is that the idea of writing them down has begun to feel worse and worse to the point where I've been putting it off for so long now that I'm kinda fine just dropping it altogether.
+
+---
+
+what this tells me is that there is a lot of resistance around the subject, so as usual I just stay put while I don't know what to do. there seems to be resistance to me picking up programming again, but it's very easy for me to manage because it only has to do with my own perception. only I need to find a way to let/allow the programming feel compelling. it happens naturally. I don't have to do anything. even if they keep trying to make it feel bad, it'll just keep rising. I'm in no hurry to begin to program as it'll all just work out effortlessly when it starts to happen. I'm really not worried about trying to force myself to program.
+
+the worst thing I could possibly do is try and force myself to program or to try and turn it into something I need to or have to do. it's kinda like if I were to think of it like a girl. if I try to go right toward her as if she's the target, she'll run off -- the ever-fleeting desire. instead, I just want to be ready and in the right place and mindset for it to happen naturally. it's the same thing.
+
+remember, this time around, I'm not programming (or hunting the girl) so that I can feel good, but because I feel good and am mentally prepared, the programming (or girl) is more like hunting me instead. it wants to be the physical expression of my mental state -- not the reason for my mental state.
+
+in that sense I'm sort of just going with the flow. I find it very anti-explanatory to use girls as an example of this relationship, because my beginning to want to program is actually because programming is so much easier to worry about. I really only have to worry about me and my mental state, which is why I prefer it.
+
+---
+
+when it comes to other people, I'm finding that I really am wanting to be less and less around them -- or something. I don't know how to describe the change, but it's about like writing the girls, but the change has been happening over a longer period of time.
+
+like, for example I go to the harbor and I feel good about it and stuff at first but it has the same sort of effect that writing down the girls has. at first I liked it before and after -- minus silly things. then I liked it before, but then after it created such a large amount of not-good feeling, that I only really liked the before, and felt resistance to it after.
+
+now, for almost all things social I just don't feel like it's anything I want to be doing. I don't really want to see people. I don't really want to have mundane conversations and atuff. no part of being social appeals to me.
+
+---
+
+this is a very similar occurance to what happened to me when I first went to spain. I didn't really want to be around people. I hated being around people so much, the only thing that allowed me to be social was drugs and alcohol -- and even then, I was constantly running back to the office to create because I enjoyed being by myself in my head than in the discos or bars shouting and carrying on about meaninglessn nonsense.
+
+I figure that if I am going to go for as long as I can go without getting connected, then I want to make some changes to how I interact with my computer. I want to simplify this process of writing and eventually find a way to interact with the computer more conceptually.
+
+the opposite of concepts is a symbol and their sequential progression (like an alphabet and words). however, my symbols are not necessarily your symbols. we teach kids to get all on the same symbolic page as everyone elso who reads/knows that language -- and therefore facilitates communication.
+
+however, this was not always the case. there was a time when humans communicated visually. at that time the symbols used to describe things was limited. I actually think there is even more to this story, as before people communicated with images in 3d space, people communicated telepathically.
+
+in telepathic communication, the concept is transmitted and the person interprets the concept however they choose. if I transmit the idea of a beautiful house to somoone, they will see *their* version of what a beautiful house means to them. imagine you're talking about a person and you say they're a beautiful person, that gets interpretted as whatever. my version of beautiful is probably not the same as other's version of beautiful. therefore, there needed to be ways to describe these attributes in a more physical way. so, maybe you would say they're more of a falcon than a peacock to describe their behaviour rather than a very abstract concept of "beautiful".
+
+you can see how over time we have began to render concepts in more and more defined ways. the transition from telepathic to visual, is the same transition that I want to see happen between alphabetical (sequence of symbols) to this new thing.
+
+when the abstract symbols are understood, this is kind of like the telepathic or conceptual communication. however, later this abstract syntax tree can then be rendered into many different representations having more or less meaning to the viewer.
+
+@[youtube](https://www.youtube.com/watch?v=HeQX2HjkcNo)
+
+I've really been thinking about this video a lot, as in it, it describes a method by which all transformations can be represented as a unique form. in the context of computer science this is a sort of universal language that transcends implementation. those transformation hashes can then be rendered into any langage. that is the pure logic of the thing. later, depending on the architecture other features can be enabled, and I'm sure some additons would need to be made to simplify some things like branches and nesting and stuff.
+
+the idea is though that if you imagine that with a few more features, something like this could be a universal AST which later gets transformed uniquely to the programmer into a set of symbols which is unique to them. like, most basic things will have only slight variations (like some may use asterisk, dot, or 'x' for the symbol for multiplication), but then later much larger concepts of objects and their interactions will be reduced to symbols which can be interacted with in space -- and my symbols don't need to look like yours. obviously the most popular idioms will quickly spread as the language evolves -- but each person is allowed to represent those symbol sequences however they wish.
+
+as more new features are added to the architectures, new symbols will be added.
+
+it's sorta difficult to expliain this, but this is what I want to make. it's going to make writing these things a lot easier and faster, too. later, if I can find a way to connect that to an interface which can be controlled with feelings (most likely) or thoughts (less likely because nosebook wants to remain superior) -- that really would be the ultimate
+
+
 ### 2021-07-17 ??:?? - conduct vs. perception
