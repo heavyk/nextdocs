@@ -1313,6 +1313,46 @@ it is true that someone can prsent a good-feeling signal and that's fine to foll
 
 I think I too have a powerful transmission capability and when I smoke or feel good, I broadcast a strong signal that feels good. this then forces my environment to begin to conform witm how I feel. that's simply something they don't want. they don't really want me feeling especially bad either for the same reason. therefore, I think this is going to be an exercise in feeling good and not needing my environment around me to change, because I don't physically/conditionally feel especially good or bad. this is almost certainly the reason why they're steering me away from both sex and drugs.
 
-I don't really want to keep up an illusion for them. until I feel physically good and transmitting that, my environment won't reflect it. for now, I'll just be fine even though there's a big mess all around.
+I don't really want to keep up an illusion for them. the girls are all capable of finding ways to feel the way they want to feel. they're very industrious and I'm certain they're capable. until I feel physically good and transmitting that, my environment won't reflect it. for now, I'll just be fine even if there's a big mess all around.
+
+### 2021-07-19 02:48 - biding my time (part three)
+
+I noticed another curious interaction that happened. a few days ago -- maybe a week -- I was running around just doing stuff. strange things happened like I would all of a sudden want to go up to the kitchen when greg was going down, or I would impulsively say random things. it was as if I could hear their thoughts wondering wtf is wrong with me, and I would just respond by saying that I don't really think about anything that I'm doing anymore. I just sort of react to everything and flow in my environment. it was quite a fun feeling. it's nice not having to think; I just feel good here and then something pulls me somewhere else and I feel good there.
+
+I think those strange feelings I was feeling were essentially desire. remember, fear is essentially desire but in the opposite direction. it's still strong attraction, but of unwanted instead of wanted. what I think was happening is I was manifesting their "fears" (stuff they were concerned about) in near real-time.
+
+I believe this was undesirable for them, as I was no longer very physically focused in that mechanical and logical things proved very difficult for me at that time. I was beginning to become very abstract and starting to lose grip on phyical stuff. I think they decided to attempt to begin to concern my mind again with physical/mechanical things again.
+
+I believe it's for this reason that I've regained my desire to understand science and programming topics again. remember, right before the coffee accident, I was infatuated with steve mould's videos and really thinking a lot on the idea of atomic particles as a sort of star cluster formation. the coffee accident stunted progress on that dramatically. when that happened, I think they allowed me to stop being so physical and instead be more conceptual.
+
+I think -- cause I don't really remember -- that I had way less ability to visualise things during the conceptual time. yet now I often wake up in the morning with visuals. this makes me tend to think that the more abstract I get the less good I am at physical stuff (think less, worry about problems, etc) and also use my imagination less. however, the desire to refocus me more on the physical stuff has been the reason for me resurgance in interest to program.
+
+---
+
+there's another interaction here that I'm not sure of. a long time ago the more attraction I felt from girls, the more active my imagination was, with the worst being around the time of spain and early 2017 here. it's no surprise because the imagination (6) is fueled by sexual/creative energy. as they got that under control, I felt less and less sexual desire until it was literally only something that I could feel from someone else.
+
+however, this time when I became more physically focused, instead of feeling more sexual desire, I still feel very low amounts -- and continually decreasing. I still have not yet actually written any code, so you could say I've only liked how the idea feels. it is possible when I start to write code again, I'll feel a resurgance in that sexual/creative energy, but I'm not so sure. for some people this creative energy can only be expressed sexually. for me, however, I do not at all like to try and mix this energy with creativity. it could be perhaps a result of raquel never wanting me to program, but I think for me this energy is a lot of that conditional energy.
+
+when I'm creating something, I want it to be the way I want it to be. I have given consideration to the way I think it should turn out, and I want it to go a way. this is sorta exactly the opposite of how "love" or sex would express itself. they're too very different implementations for me of the same energy.
+
+I don't want to tell people what to do. in a creative situation though, it's different because during the brainstorming (conceptual) phase, I want people to express theirselves and I want to collaborate with them, but once I have the idea I have to make it. the programming is a lot of effort to make that idea come to life though -- probably why I'm constantly trying to find ways to make the brain-computer interface much more fluid. therefore, when I'm programming I have to be very rigid and demanding. these don't mix in my mind. if I'm proramming, in in the mode of needing things to be a way for me to feel good about them.
+
+I suppose there is a feeling of nurture that could exist, but for me this is more of a macro thing. I nurture and care very much for the project -- but again that has only caused harm for me. my life has taught me that I can't care too much and try to direct any of my creations too tightly.
+
+so, until there is a looser, more effortless and conceptual way to program, I will find myself constantly in the more rigid state of mind when I'm doing the mechanical effort.
+
+---
+
+what this essentially means is that if they want me to be easy to steer, then I need to be in abstract feeling mode, and they're just going to have to deal with me manifesting their fears/desires so rapidly because the physical implementation doesn't mean much to me. as I get further down this road getting any feeling to manifest more and more rapidly, I'm quickly becoming a conceptual creator and manifestor. they definitely don't want that, so probably not going to happen.
+
+therefore, they basically have no choice to keep me physically focused. I'll probably be pretty rigid on my quest to find ways to interface and create in the physical world more and more effortlessly. they probably have to try and ensure that none of these physical creations ever make me feel good, because of the reasons I mentioned in the last entry.
+
+---
+
+there's another part here which I left right below here: "conduct vs. perception" -- which is where I talk about how I think the buddha's "centre path" of using right conduct (thinking, living, etc) to get to nirvana (which is an emotional state of being) is, in my opinion, next to impossible -- and even if achieved, if any of the conditions shift, then nirvana slips away.
+
+the opposite to that is getting there perceptually and then letting the conditions reflect that internal nirvana. so even if I'm 100% reactions, my trajectory through time will manifest as a reflection of how I feel. obviously, if someone is controlling the conditions, that reflection could take more time to propagate, but if you're feeling anything (like nirvana) for ~60 seconds, then something which reflects that feeling *will* manifest.
+
+I'll come back to this.
 
 ### 2021-07-17 ??:?? - conduct vs. perception
