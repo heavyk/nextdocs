@@ -1281,4 +1281,38 @@ as more new features are added to the architectures, new symbols will be added.
 it's sorta difficult to expliain this, but this is what I want to make. it's going to make writing these things a lot easier and faster, too. later, if I can find a way to connect that to an interface which can be controlled with feelings (most likely) or thoughts (less likely because nosebook wants to remain superior) -- that really would be the ultimate
 
 
+### 2021-07-19 00:35 - biding my time (part two)
+
+it feels to me like nosebook doesn't want me to stop writing the girls down. the sense that I had is that they were scared of me letting enough accumulate and then writing them all down at once and they wouldn't be able to dampen the good-feeling it generates. I'm not concerned about that because I find it to be a bit silly in the first place.
+
+in short, it's a way to create positive expectation, which is sort of an illusion. what I mean by illusion is, a person can find a way to have positive expectation without the condition of writing things down. I get that it creates a lot of buzz and sales people love that when they're trying to sell a product. it's kinda cynical but I believe it was just a sales gimmick that nosebook was using to keep people occupied. now that everyone is in their system, it doesn't make any sense anymore to keep up the ruse. <--- that's my personal perspective, however like I mentioned in the beginning, I feel like they are wanting me to keep writing them down to keep up some sort of illusion.
+
+I'm not really about keeping up an illusion. this is kinda like when I was at tuenti and zaryn wanted me to stay around for morale boosting purposes, but when my heart is no longer in it, I don't really want to try and keep anything going.
+
+---
+
+one of the other reactions was considering how I mentioned that I didn't want to be around people and just wanted to create the website. I think they felt some sort of duty to try and integrate me into the social structure so they took me to marbella. I was pretty miserable and kept trying to program even when there were these austrailian girls over partying with us. I think they really believed that I needed to be coaxed into their world of cyclic misery enlessly searching for pleasure with no real direction of what they want to create. they just felt like they needed to create things, only to be able to purchase their pleasure. I didn't ever get the sense they derived any pleasure out of the creating process like I did, and were actually perhaps even a bit jealous.
+
+the reaction was to do something similar where they drop me into a situation difficult to get out of like the roadside puticlub. however, if we look at this as a cyclical set of events, this event already happened. this is what has been occurring since andrea thing started it all off. there were slght differences though.
+
+aftert the puticlub I retreated more and more into my own world, essentially only getting out when alcohol was involved. they would drag me around all over the place and stuff. I was pretty miserable after that and followed would be the peak of my needing the condition (usually substance) to feel the way I wanted to feel. I really did not like the idea of ever making someone else responsible for how I felt, so I tried to stay away from that as much as possible. I regretted ever having made raquel responsible for how I felt. that was a grave mistake. I imagine another world where I I hadn't decided to make things outside of myself responsible for how I felt. I imagine that things may have been easier when I finally met raquel if that hadn't have happend.
+
+that is how it happened though and I'm quite fortunate to have experienced that, as it taught me that I don't want to be depending on things outside of myself for how I feel... so while that may be an option for them to try, I don't really know how well it would work. the thing is I no longer need these things to feel good. I'm capable of feeling fine even when surrounded by a big mess.
+
+---
+
+I was talking with mom this morning on the subject of not noticing the big mess around me until I finally have some sort of condition that gets me to feel a lot better. when it's just my perception, I sorta acclimate to the mess and it stops bothering me. like mr. motor: he doesn't bother me anymore and even in a lot of cases I sorta don't even notice it. he has to keep finding more and more ways to try and irritate me to get my attention. so, in that sense, bring it on :) I don't mind that I'm getting better and better at not noticing the big mess around me. there's not a whole lot I can do to change it.
+
+there's this really weird thing I noticed about that -- which is why, when I'm able to find a way to feel good about anything, do I not fix any of the things? I think it has to do with the "not needing things to be different for me to feel good" perspective. why clean something that doesn't bother me?
+
+when someone is conditional, I noticed that they need their environment to reflect how they feel, or they need to modify their environment to improve how they feel. I noticed that when I was more conditional, I wanted others to feel like I did. this isn't the case anymore, as things could be going to hell all around me, and it just doesn't bother me. I don't need others to behave differently or do anything different. I just keep going the next way which interests me.
+
+it may also have to do with how I feel. when I feel really good, like let's say I just smoked a big joint, then I notice that the world around me *must* begin to reflect the way I feel. this is the same capacity that I have recognised that many attractive girls use to get their way (also gay men and many high-profile business/government officials). it's the uterus/prostate transmitter, and they simply broadcast a strong enough signal that it causes reality to conform to the way they feel/believe/expect things, and if you perceptually don't see through their ruse, you feel bad. the bad feeling is just letting you know that the present way of perceiving things (the way they're broadcasting) isn't going towards wanted (in the bigger picture).
+
+it is true that someone can prsent a good-feeling signal and that's fine to follow that. however, later imagine that the salesguy or attractive woman (or whatever) now presents a new idea and this one feels bad. just cause they previously made you feel good, doesn't mean you need to follow their perception toward something that feels bad. it only means your perception of it (often induced by their powerful signal) is disharmonic with something, and your inner being is perceiving the same thing differently.
+
+I think I too have a powerful transmission capability and when I smoke or feel good, I broadcast a strong signal that feels good. this then forces my environment to begin to conform witm how I feel. that's simply something they don't want. they don't really want me feeling especially bad either for the same reason. therefore, I think this is going to be an exercise in feeling good and not needing my environment around me to change, because I don't physically/conditionally feel especially good or bad. this is almost certainly the reason why they're steering me away from both sex and drugs.
+
+I don't really want to keep up an illusion for them. until I feel physically good and transmitting that, my environment won't reflect it. for now, I'll just be fine even though there's a big mess all around.
+
 ### 2021-07-17 ??:?? - conduct vs. perception
