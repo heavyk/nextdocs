@@ -1355,4 +1355,45 @@ the opposite to that is getting there perceptually and then letting the conditio
 
 I'll come back to this.
 
+
+### 2021-07-21 01:03 - actors and and attraction
+
+there were a number of different reactions to what I wrote and it seems nosebook has taken some action to try and prevent some things.
+
+first, I stated my reasons why I believe that the girls are quite capable and don't really need a list. they can (and will eventually) find a way to feel the way that they want to feel. I left off by stating how I believe the easiest way to do that is perceptually, as trying to get there with conduct or right thinking, living, etc. I find that to be very difficult. for me, this is next to impossible. I can't keep track of anything anymore, and trying to ensure that my behaviour is a certain way is simply too hard.
+
+my trajectory is instead in the opposite direction: I don't want to be thinking about anything. I want to just feel the way I want to feel and then reality just becomes this smoothe flow from thing to thing. I don't even really think about what I'm saying -- it just comes out. I imagine this feeling is about what it's like to be an actor, cept I'm not following a script -- instead, I'm just following my emotions. if the script calls for someone sad or manipulative I can be that way just for a moment, even though that is not how I really feel.
+
+there are some differences between me and a real actor though. I think they "get into character" and in a sense they become that character for a little while. they feel like the charactor does. I don't really feel the way I act. I'm constantly catching myself talking in a frustrated tone when I'm not at all frustrated. I'm just mimicing behaviour I saw elsewhere. a good example of this is when it comes to my rants about computer hardware and speed. I'm not really as frustrated about it as it may sound.
+
+like, for example, playing roguebook on this laptop is such a different experience, I don't know how I had the patience. I wouldn't have been able to play it if I was as frustrated as I made myself sound. I picked that behaviour up from others and was simply mimicing it. you will notice that I do this all over the place. like a child learning how to interface with the world, I'm just replicating the behaviour of people around me that I consider worthwhile. I would suppose that I even emulate mr. motor's behaviour to some degree as well. like I said, I'm very malleable and plastic, much like a child. this is how I would imagine the automatons are as well.
+
+in that sense I'm very similar to an actor. however, I am not this body. you have to know that about me by now. this gives the body a whole lot of freedom to behave and act (feel) ways that I don't actually feel. the bodies are just performing a reaction to the conditioning they've been given. they've been trained to respond to certain conditions in certain ways, talk to some people one way, others a different way etc.
+
+the bodies don't really "think" -- but instead they receive and act accordingly. the main stimulus they're responding to is feelings. so, like imagine that a person is fearing something or has a strong expectation that I (or one of the bodies) will behave in a certain way, then that's how they will behave. I have a concept in my mind of mom, and how she behaves, so that's what I get from her. so does jaron. he too get's a reflection of the way he perceives mom to be as a manifestation of the concept he has of her.
+
+---
+
+there has been considerable effort on my part to try and simplify these concepts into more tangible and quantifiable terms (syntax) which allows for much objuctive oriented direction of these concepts. the concept is simple: if you can feel the objective, then that has a resulting belief and expectation to it. therefore, it would be (and likely already is) possible to manipulate time and these automatons more objectively, deriving the concept. I'll skip the details, but you could imagine that these objectives are much more short-term things.
+
+this function is not at all too dissimilar to the way they attempt to "steer" the masses. they have an objective, and then things need to be done to accomplish that objective. it's quite similar to what I described as the difference between idea mode and implementation mode. in implementation mode, I need things to be the way I want them to be.
+
+this is an interesting topic with a lot of reactions to it. I used to be a "perfectionist" in the sense that I felt bad if things weren't the way I wanted them to be. I gave given that up though because I found it a bit counter productive. I found that I did my best implementation when I feel my best, and if I'm allowing certain implementation details to cause me to feel bad, it was counterproductive. I had to learn to "not care" as much about the implementation details and just let the way I feel drive the moment.
+
+for example, if I'm working with a programmer and they want to do things a way which I don't think is optimal, I just let them to it their way. we have a sub-optimal implementaion and it should be obvious. I don't want to tell them what to do, so eventually they begin to *want* to find a better version. I don't mind that there is sub-optimal code or implementations. it's stuff for the new guys to learn the system by improving some sub-optimal implementations. in all of the code that I've worked on, it's always a total mess. I just allow it to be that way, as that means it can be incrementally improved further and further. I don't try to pretend that the stuff in my code is ideal. this creates a desire for improvement rather than a decline into chaos.
+
+I'm probably a really bad example, but it is true that the code one writes very strongly reflects the person/organisation's communication structure. it's clear that my coding style directly reflects my lifestyle: it's a giant mess, but you can see sometimes subtle, and sometimes obvious, but continual improvement. I don't try and pretend that I have anything even remotely perfect. if I wanted it to be perfect, I would have to care about, and by caring about it, I'm now letting the implemention control how I feel -- rather than let the way I feel control the implementation.
+
+my way isn't obviously for everyone. it's just sort of what has come about as a result of my circumstances.
+
+---
+
+going back to the girls again, what I have noticed is that my life is sorta like that code there. it's a total mess but it's continually improving. I prefer this sort of gradual change. one of the reactions was wondering what would happen if the girls started to begin to feel the way they wanted to feel.
+
+I think it'll largely reflect what they're doing. like, if they're feeling really good and not needing the manifestation/conditions to feel the way they want to feel then their world will reflect the way that they feel. they'll be attracting things into their life which harmonise with how they feel. or, like me they've figured how to perceive everything as just being part of the process, and it's about the feeling not the conditions, then they'll find theirselves in a more of a 100% reaction mode, moving around their life going from thing to thing finding the way they feel in all of it. I actually think this is the natural state of little girls, which is why they're considered so "pure" and then "corrupted" by whatever gets them to stop being that way. actually, that's the clearest example of 5-2 vs 3-6 perception.
+
+so it really depends. however, from my point of view, I'm continuing on the way I'm going. it's true that the more they're attracting, the harder nosebook will have to work to keep us apart. I actually find it quite likely that nosebook now has to ensure that they too are kept away from finding their connection too.
+
+my mind is unusually foggy right now so I'm finding this part very difficult. I'll come back to it. there's something I want to say but I can't get to it. I probably need to star-watch or meditate to get it. so, until next time I just want to say that it'll all work out. however, if you're going the 3-6 (conditional) route, this is the nosebook stomping grounds and it'll be quite difficult. it's much easier to feel the way you want perceptually instead of conditionally. it requires a bit of not caring. I am certain that the girls *can* find a way to feel the way they want in spite of the conditions which nosebook will almost certainly try and keep under control. you can do it!
+
 ### 2021-07-17 ??:?? - conduct vs. perception
