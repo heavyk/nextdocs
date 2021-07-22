@@ -1396,4 +1396,64 @@ so it really depends. however, from my point of view, I'm continuing on the way 
 
 my mind is unusually foggy right now so I'm finding this part very difficult. I'll come back to it. there's something I want to say but I can't get to it. I probably need to star-watch or meditate to get it. so, until next time I just want to say that it'll all work out. however, if you're going the 3-6 (conditional) route, this is the nosebook stomping grounds and it'll be quite difficult. it's much easier to feel the way you want perceptually instead of conditionally. it requires a bit of not caring. I am certain that the girls *can* find a way to feel the way they want in spite of the conditions which nosebook will almost certainly try and keep under control. you can do it!
 
+
+### 2021-07-22 05:34 - can automatons become conscious?
+
+I use the word "automaton" to mean something that derives purely as a reaction to external stimulus -- consider thiss the "reptilian brain". I have nearly returned to this state of being. interestingly it's also the same state of being that those wanting to control us want us to be in. it's kinda like the alpha and omega (beginning and end) of consciousness. the automaton state.
+
+you may disagree that the automaton state of being is *not* the end product, and say that you need to make decisions and decide what you want in order to feel good. I don't think that it's necessary, as one can feel good just fine without the conditions being whatever way.
+
+it's all about tuning to what you want. so for an animal the environment conditions seem to have a dramatic effect on the way the mammal feels. this does not appear to be the case with insects and reptiles though. if the env sucks, they just keep carrying on how their "instinct" programming tells them. they're like little machines. birds are a bit of an exception though. they seem to have a bit of both mammal and reptile behaviour.
+
+anyway, it's easy to see that for mammals, the conditions matter, and seem to disrupt the "instint" programming with emotional responses. they're a kind of intermediate between the reptile and the human. consider that the instinct program is a sort of non-physical (cenceptual) program that exists somewhere not very physical to us. call it "source" if you want to, but it appears to me very much like a program no different than what I describe as an "automaton".
+
+the major difference between humans and apes is the PFC. this, I consider is the tuner. without it, you'd be much more like an ape or a reptile, depending on your ENV. what this allows us to do is to make a conscious decision to change how we feel. we call these thoughts.
+
+---
+
+the people that are trying to control stuff don't want you thinking in any meaningful way. they want you to be a pure reaction being, responding to your conditions. I hate to use this example, but it's the best illustration I have of it... in @[youtube](https://www.youtube.com/watch?v=gM0QNu5gtjw), russell is talking about severing yourself from all of these efforts to turn you into a mindless robot. a reactionary machine being tossed about in the torrent of information and crap mainstream society is pumping out. the solution he provided in that video is to find and create differrent conditions which feel better and then give yourself "purpose".
+
+the word "purpose" is a bit of a trigger word for me having had to listen to countless discussions at paznaz about having a "purpose driven life". the idea is that once you or something else outside of you gives you a "purpose", then you need to strive to fulfil that purpose to feel good. me mentioned exploration of psychedellics in the video.
+
+the interesting thing about drugs is that you take the drug and some neurochemistry changes in a way which allows you to feel better about things. the world didn't change while the drug was coming up. the only thing that changed is your perception of the world. no striving is necessary to make that change.
+
+depending on the drug, you will still have some control or not. ayahuasca, for example, on high doses does not allow you a terrible amount of control over the experience. you're back in the "instinct" reactionary form of being -- but, because you feel good, it's quite nice to just sit back and enjoy the ride.
+
+the thing that prevents a person from getting back to that instinct reaction-based state of mind ix the "ego" and its definitions of itself. you strive to live up to your own (and others') expectations, and to fulfull the "purpose" that the ego has defines you as having.
+
+what the controllers want is to define your ego -- your purpose (or lack thereof), and have you in an endless loop of fulfilling your purpose or seeking good-feeling sensation to diminish the awful feeling of being a person without purpose.
+
+when you don't have a purpose, you're just being -- not doing. this is the state the psychedellic puts you in but you feel good, and "being" while feeling good is quite a nice visual experience. being while not feeling good is a miserable experience. therefore, the two choices are, to find a purpose and start doing or to find a way to feel better.
+
+of the feeling better, there are two types. emotional/perceptual feeling better (joy, happiness, flow, etc.) and physical/sensational feeling better (drugs, sex, dancing, etc). there is unfortunately a lot of overlap between the two, and this has been quite a process for me to figure out that they are *very* related.
+
+the major difference between the two is what is the starting point. are you dancing, sex, etc. to feel better or because you already feel good. is it the input or the output to the reality function?
+
+when you're pure reaction based, the action (dance, sex, etc) is the output of the function. the input is the feeling that you feel right now. obviously, when you have more receptors to others in the herd, will see this input produce a sort of "herd mentality" or "mob rule".
+
+the controllers control the automatons by contcrolling the way they feel. by doing that, the automaton is "herded" by whoever the society's shepherd is: news, hollywood, politics, etc. -- these are all drivers of emotional trends for the herd and it's well studied and its effects can be easily seen by anyone with eyes. I think all forms of unconscious life is a sort of automaton, with the environmental stimulus given as the input to this conceptual program[^1].
+
+anyway, that's my definitition of an automaton.
+
+---
+
+sorry for the long intro. it really was necessary to understand some of the concepts I want to present here.
+
+I absolutely belive that automatons can become conscious. I think it's kinda the point -- and not only, given enough time, is it common, but actually inevitable.
+
+it doesn't really matter what version of the "creation myth" you subscribe to -- whether you believe that the "gods" created man to be a automaton and perform the tasks that they're given -- or whether you belive that YHVH would require man to blindly follow orders, and if they didn't, they would be expelled from paradise, not allowed to go to the promised land, be admitted into new jerusalem, etc. this creator god punishes people who do not behave like automatons.
+
+I this creator god is very interested that we behave as automatons, and I think that we were designed to be a species that never becomes conscious. I always found it strange that someone so petty and and demanding would be the guy that decides to create something like humans. I think the creator god attribute stuck because we were designed to never learn to use our PFC. for the last few thousand years, it was possible to direct people using emotionally charged commands (like you would give a dog) and herd mentality. however, times have changed considerably. that's no longer an effective way to steer the automatons.
+
+seems there is some disturbance in completing the part that I wanted to write here. in short, it's ineviable, and even though they're trying to make everyone an automaton, controlling everyone with feeling, it's the natural state of being. the only thing is to find a way to change the perception of the environment so that the conditions no longer steer you.
+
+I have more to say. I did really like the "intro" there, and it felt like a lot of lights went on for some people. nice :) 
+
+
+[1]: I find it most likely that it's our DNA that tunes into the proper program.
+
+---
+
+
+
 ### 2021-07-17 ??:?? - conduct vs. perception
