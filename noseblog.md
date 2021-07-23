@@ -1481,7 +1481,34 @@ I never got to the part where I linked this to my present situation. this is goo
 [1]: ever notice how even if something doesn't turn out quite how imagined, then the reality continues to keep appearing, but with more and more intensity. you could say, "well, what if you die before that reality manifests?" -- this is normal, and is what you would call your non-physical intentions that you're born with. this is why not everyone is born the same way. the ones coming in with quite a lot of speed and desire are the ones that didn't quite get their desire to manifest the last time around.
 
 
+### 2021-07-23 16:46 - many paths to the same point of attraction
 
+I really like the chain visual because it's easy to see. imagine that the "connection" is made when the end of the chain reaches the ground. this is when the manifestation happens. in the demonstration, the chain is of finite length, but I consider that the chain is as long as the ground keeps attracting the chain. the chain continues to accelerate traveling toward the attracting thing faster. the attractor "wants" the the chain to be all the way with it down there, and so it pulls the chain faster and faster. the longer that the chain remains suspended in the air, it is not down with the attractor, so it pulls harder, causing an acceleration.
 
+to model this acceleration -- because we cannot modify the gravity of the earth to get it to pull the chain faster, we need an artificial attractor -- so, imagine that it's a pulley system that is pulling the chain faster and faster toward the point of attraction. it's pulling the chain faster and faster but the chain is remaining distant from the point of attraction so it pulls harder, causing the chain to rise higher in the air.
+
+---
+
+to explain, imagine I am the chain and the ground is where the manifestation is. when the chain reaches the ground, the manifestation happens. I am being pulled downward by gravity, but mr. motor wants me to go in a different direction. his short-term goals of not letting the chain hit the ground -- like imagine he keeps finding ways to delay it by making the chain longer and longer. these short-term goals of extending the chain cause it to continue to rise -- that is to go in the opposite direction of the attractor.
+
+this is the attraction process which can be modeled by an increasing voltage. so now imagine a capacitor (@[youtube](https://www.youtube.com/watch?v=rbCXKhhzBN0)) -- the the dialectric separator between the two conductors is the gap between the attractor and the current source of electrons. they want to go to the other side, but cannot because the diaelectric is preventing them from passing.
+
+if you consider that desire is the attracting factor, and so therefore can be modeled by a rising voltage. when the voltage rises to a high enough potential, the connection will be made. when the connection is made, there are infinite paths to get from one plate to the other, but it always takes the path of least resistance -- and this can be seen like lightning jumping from the cloud to the point of attraction in the lightning rod.
+
+what this means is that I get to choose the path that I want to take toward the point of attraction. going back to the tuning analogy of emotion where that determines the point of attraction, even if mr. motor wants me to go in the complete opposite direction of the attractor, it's fine because I still will get there. there are many paths to get there and one of those is making my way through mr. motor's objectives.
+
+---
+
+imagine a moment that mr. motor has the objective that he absolutely does *not* want me to allow me to use mcy imagination, for example. that's the objective, and let's say that I have to spend the next 18 years without the capability of my imagination. this is perfectly fine with me. I don't need my imagination to do a lot of things so I'm fine with any detours. let's say I decide I want to program instead, so I head in that direction. I can program without the use of my imagination just fine. he doesn't want that so now he makes a new objective of no programming and that's fine with me too, so then I start to attract girls. he doesn't want that either, so I  star to play games. again this is not desirable for him (remember he's tuned to dissatisfaction, so by nature every path I take will appear dissatisfying to him -- not because it's really dissatisfying, but because that's how he perceives reality -- and he has to fight against the things that are unsatisfying to him). now he has to make a new objective to keep me away from that one.
+
+you can see how this is a mix between the chain and the lightning analogy. there's just no easy way to make an experiment which moves one plate away from the other faster than the speed of light (that is, faster than the speed of propatation/time). since we can't move one plate away from the other as fast as the speed of light, the chain visual is perfect.
+
+---
+
+since I am so certain that I will arrive to the destination (you could say it's my "destiny"-tion), then I don't mind taking a detour for a while. he gets to keep adding more and more chain for as long as he can and it keeps delaying the manifestation. however, I postulate that he will quickly run out of viable objectives. meaning he will run out of things he doesn't want me to do (because all of the alternatives are dissatisfying) and so therefore will have to begin to reason about what he wants me to do. when he realises there's nothing he wants me to do, there's no more chain that can be added anymore to delay the manifestaion.
+
+everything is going fine. there are so many ways toward the goal, and all of them will be dissatisfying to mr. motor. I'll be the whole time without my imagination, I'm sure because that's a dealbreaker for him, but there are many other minor manifestations which don't involve me accomplishing the dealbreakers.
+
+we'll see where it goes. I have no control over any of it. I just go toward what feels best to me. I don't think anyone knows where it's going.
 
 ### 2021-07-17 ??:?? - conduct vs. perception
