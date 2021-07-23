@@ -1449,10 +1449,38 @@ seems there is some disturbance in completing the part that I wanted to write he
 
 I have more to say. I did really like the "intro" there, and it felt like a lot of lights went on for some people. nice :) 
 
-
 [1]: I find it most likely that it's our DNA that tunes into the proper program.
 
+
+### 2021-07-23 05:21 - controlling the automaton
+
+I was thinking about the implementation details of how one would control an automaton, and it seems that a good example is myself in the present moment. I am implying that the mechanism to control an automaton is the same to control a society of mostly unconscious people (behaving like automatons) -- and that this same mechanism is the same way that time is navigated. looking from the controller's perspective, the steering of these automatons is just tuning into a different trajectory throgh time.
+
+I mentioned in the last entry that even though the system is objective based, it's still an emotional system. you tune to what the objective feels like. I don't know how exactly mr. motor's system works, but it's either symbolic or it takes the feeling signal that the person produces when they use their imagination (remember, this is the prostate/uterus) and then amplifies that signal to essentially navigate the controller through time toward what that objective feels like. I will assume a system similar to the one I described is being used. the important thing is that the controller isn't really controlling but instead emitting a signal and therefore attracting the moment in time most similar to how that feels.
+
 ---
+
+now, the part where I give the example of the present moment. imagine that the timeline we are experiencing right now is a refection of the objectives that mr. motor feels. you see, there is a gap between now and the moment when the objective you are navigating toward feels. inotherwords, it takes a bit of time for that feeling to become reality. think of this as the destination -- a sort of lightning rod which is attracting the controller toward.
+
+that destination is obviously a moving target, which is what we've called an "evolution of desire" -- nothing new there. the desire doesn't have to manifest the way that you think it does. in fact, there are an infinite number of paths toward that destination in time.
+
+I am certain that I too have one of those destinations -- and I'm certain that eventually I will make it there. there may be a number of evolutions of desire (EOD) that happen along the way toward that destination[^1], however it's impossible not to get there.
+
+so because I have this certain desination, I'm really not concerned with the details of what is happening in this present moment so much. you could say that I'm so certain of my destination that I find it perfectly OK if someone (like mr. motor) wants to temporarily redirect me away. remember the bezier curve analogy?
+
+well, interestingly enough I think it's all related to them momentum of a wave described in @[youtube](https://www.youtube.com/watch?v=hx2LEqTQT4E) -- as I've often times maintained that the "wave" is actual things moving -- like electrons or whatever so the things moving actually has a momentum to it and that velocity continues on for a while. nothing can accelerate instantaneously, so much like looking at a "square" wave on an ocilliscope, there is a peak before a rapid change in direction. same thing. in this example, it's opposite direction, so mr. motor's timeline would be the peak of beads coming off of the jar and my timeline is the force of gravity pulling the chain to the floor.
+
+---
+
+another funny coincidence of these videos is in steve's (we're on a first-name basis now) video, when the force acting to pull the timeline opposite to the attractive force of gravity is too great, the link can break. one thing that just came to mind is that perhaps, because a chain falls faster than gravity, this is a continued acceleration, and so therefore the force pushing against gravity will also continue to accelerate (increase) indefinitely.
+
+I postulate that an ideal infinitely long and infinitely strong chain would continue to accelerate indefinitely and therefore the force opposite to the attraction would also continue to increase causing the opposite peak to also continue to rise too -- until of course the force is so great the chain breaks -- but our ideal chain is infinitely strong so it would never do that.
+
+I never got to the part where I linked this to my present situation. this is good enough for now
+
+[1]: ever notice how even if something doesn't turn out quite how imagined, then the reality continues to keep appearing, but with more and more intensity. you could say, "well, what if you die before that reality manifests?" -- this is normal, and is what you would call your non-physical intentions that you're born with. this is why not everyone is born the same way. the ones coming in with quite a lot of speed and desire are the ones that didn't quite get their desire to manifest the last time around.
+
+
 
 
 
