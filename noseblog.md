@@ -1557,4 +1557,60 @@ this is why desire (1) based people are seen as both creative/nurturing (hathor/
 
 I don't care what other people do, and there are possibly another 100 hotfixes that can be made to quantum relativity to have it continue to "perfectly predict" observations and remain the "best description" of the way the universe works. I don't really mind any way that it goes. I have a massive creation that is attracting me toward itself in the future and there are literally infinite paths to the point of attraction and all of them are valid. we'll just have to see which way is the motor-way. 
 
+### 2021-07-27 07:20 - pluto's revelation
+
+on the 25th, I had an idea which felt particularly good to me. I kept getting told to write it down here, presmably so that nosebook could poop on it. I refused because I hadn't fully decoded it. I finally felt like I had a pretty good grasp on it so I wrote down these notes:
+
+- thinking about the challenge
+- mr. motor and reverse psychology
+- primary motivation of getting the automatons going
+- keeping to wait
+- pluto opposition
+- thinking about the venus idea
+- if I can make automatons, then I can make a system which would make inhabitants of this planet require to produce massive amounts of energy; it's a bit of a eugenics idea, I admit
+- similarities to the "icecarl" idea -- cept instead of a veil on this planet, they're on a different planet, venus.
+- reactions to the idea of them corrupting venus
+
+---
+
+it all started during pluto's opposition to mercury on the 25th. I had just been watching a bunch of videos on QED which I made mention of in @[noseblog](2021-07-25 06:18). I was feeling some resistance in response to that entry. I decided that maybe what I wanted to do was a competition. I'll keep working on my new version of electrodynamics using the idea of protons being the substance that stars are made of and electrons are like their planets. they do have real orbits, do also spin and do also flip as they pass to different energy states. the further away from the parent nucleus, it can survive without decaying back into a lower orbit, the more energetic the electron/muon is.
+
+I also belive that the particles we see are manifestations of a vibration and no anti-matter is needed, as it's just a destructive interference pattern which is "annihilating" the normal matter. I also postulate that this particle manifestation moment happens either on the zero or the peaks. doug's theory puts it at the zero, but he's not so sure. I agreed, but ever since I saw mhedi's lead weights moving, I'm beginning to think that it's actually the peaks where the "mould effect" (whiplash sorta thing) is the strongest. I dunno. it's something that I want to continue to investigate.
+
+I decided that the challenge would be to create wireless power transfer all over the planet. if QED can do it faster, then QED wins the competition and I'll concede that it's the best description that we have of the universe right now, and humans will have access to free unlimited power all over the planet.
+
+the reaction was an emphatic no, and there were a lot of other reactions in there about how if wirless power transfer were to be accomplished, it would require changing the electrical conditions of the planet, making LOA acting much faster, and the whole thing would start to spin out of control.
+
+I decided, "fine, then instead of creating a device which makes wirless power transfer possible, instead -- I'll make a pyramid or something that amplifies disharmonic energy, and instead of having power transfer, we'll make the world a very difficult place to live. gradually I would increase the energy output of it, and more and more you would need to become your own radiant source of energy. anger and hatred and all other manners of destructive emotion would rise and rise until the people resonant with that energy destroyed theirselves. I figure all sorts of conflict would begin to rise and the people that are capable of giving their attention to wanted -- that is, transforming that bad-feeling energy into something that feels good would all find theirselves feeling better and better even though the whole world is going to hell all around them.
+
+obviously if I'm able to manifest this kind of technology with my thoughts, then obviously I would be creating a lot of automatons for a lot of people to enjoy, as well. I've mentioned this numerous times so I don't need to repeat myself. many people will be pretty happy with that -- but really he/she is just a condition for a person to focus on and the bad-feeling energy would continue to rise, so eventually the person will need to find a way to transform their own energy.
+
+simultaneous to this, I was thinking of also creating technology capable of making venus habitable. CO2 is just O2 with a carbon. I notice that CO2 around me turns into O2 all the time, so I would just need to begin to transfer my source signal into the planet's environment, and it should start to fill with oxygen and the physical environment begin to reflect the feeling of the energy being put into it. I think in a very short time, especially if I'm manifesting things in real-time, that it'll be pretty easy to get venus into a habitable state.
+
+likely the opposite would happen here on earth where mr. motor's signal would be transferred into the centre modulation point of the earth. this should slow earth's rotation and decrease the magnetic field, but also cause the people of the earth (who are resonant with mr. motor's feelings) to begin to feel more and more like mr. motor. when he gets pissed off, the whole atmosphere will resonate with his anger and everyone will feel it. that solves explaining the increasing rotation speed of the planet with QED, as it'll no longer need to predict that effect.
+
+I imagined that things will continue to feel worse and worse for most people here on earth. it will basically force the people that want to feel good to either destroy theirselves, find a new point of attraction, or to find a way to venus. to solve that problem, I think the solution is for earth to move toward venus' orbit and get into an orbit with her.
+
+in fact, this would look exactly like pluto and charon. the people of venus would continually feel better and better conditions on the planet as we (mainly me, I guess) would continue to feel better and better all the time. sure, the conditions of earth would eventually feel like pure dissatisfaction, this doesn't feel to me to be a problem. right now, I feel mr. motor's dissatisfaction all the time and it simply doesn't bother me[^1]. 
+
+the signal of people of earth would get their feeling transferred into the centre modulation point of venus and so the environment would vibrate with the good-feeling  that we experience. this would essentially cancel out the bad-feeling that the people of venus are putting into the env, meaning that things would feel pretty normal. because each planet has a co-dependent relationship with the other, if they produce more bad-feeling, then we have an opportunity to improve it. likewise if we produce too much good-feeling, they have to find ways of becoming even more dissatisfied with their good-feeling env.
+
+it's a sort of balancing feedback loop. I know that mr. motor does not want to ever feel too good, because like that one abe-now question about being in love, the writer was unable to think his resistant thoughts because he felt too good. therefore, in that case, to get back to normal "think clearly", more dissatisfaction has to be produced. in the event that things get too satisfying, it's just as simple as personally negating that satisfying signal source.
+
+---
+
+this idea solves so many problems, I'm definitely not discounting the idea. it's 10 times better for the girls as there are so many different things that can be done once I get the automatons going. it also solves nosebook's problem of the earth spinning faster and things getting more energetic. if, this device were put into place now, then the earth would no longer spin faster and could even be caused to spin slower and weaken the magnetic field too (which, I do not think is decreasing.. it should be stronger since 2020 when rotation started to speed up).
+
+also, the natural eugenics of the idea means that those which either are unable to control their point of attraction and remain resonant with the rising bad-feeling energy will eventually destroy theirselves. obviously, those with access to nosebook's system and have the premium package (connected to how I feel) will be able to negate that rising energy. that solves the population problem for them too. eventually, when venus is ready for them, the chosen ones can leave this unsafe planet and begin their utopia.
+
+it also has a lot of advantages to me/us -- namely that they are a constant source of contrast and we're in a sort of co-dependent relationship too. they love codependent relationships, and as long as they can continually provide a stronger and stronger source of dissatisfaction, then that's all I need to keep making more.
+
+I actually think that this is just the beginning too, as I believe that it will produce so much excess energy, I'll need to offset the excess protrons being attracted into the sun itself. the sun would continue to grow more and more rapidly the faster that they find ways to be dissasified with their environment. I believe that it wouldn't take much effort to use this method to start a few stars too.
+
+like, for example, on the venus side of things, I can understand that mr. motor will not want to feel too good, so he will have to negate that energy, but not everyone on the planet is like mr. motor. some will enjoy the good-feeling conditions and enjoy their heart chakra open and all that other good-feeling stuff, so they likely won't negate the energy but will like it. it means they'll start to become very attractive as well, and that energy will likely need to be siphoned off into various suns, as well. you could see how both sides will be creating/attracting more and more energy and will need to turn these into suns. I feel like this is the beginning of a galaxy.
+
+so that's the idea in a nutshell. I think it solves a lot of problems, but I'm OK with another evolution of desire (as many as needed until the path becomes inevitable and there is no longer a choice that can be made).
+
+[1]: I'm actually getting so good at transforming it now, that I think I'm even beginning to derive a bit of pleaure out of his dissatisfaction. it's kinda like those people that can only enjoy other people's plight -- I actually think it's the same mental function, but I've repurposed it so that it can transform dissatisfaction into a feeling of pleasure.
+
 ### 2021-07-17 ??:?? - conduct vs. perception
