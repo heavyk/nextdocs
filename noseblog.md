@@ -1613,4 +1613,85 @@ so that's the idea in a nutshell. I think it solves a lot of problems, but I'm O
 
 [1]: I'm actually getting so good at transforming it now, that I think I'm even beginning to derive a bit of pleaure out of his dissatisfaction. it's kinda like those people that can only enjoy other people's plight -- I actually think it's the same mental function, but I've repurposed it so that it can transform dissatisfaction into a feeling of pleasure.
 
+
+### 2021-07-28 10:03 - responding to some ideas
+
+I think I'm just going to write about a bunch of things in no particular order here.
+
+---
+
+one of the reactions was around the subject of 1000 years thing. I don't think that was ever anything more than a marketing gimmick. I think from the time that set of images was passed into john's head, the 1000 years was just going to be an empty unfulfilled promise just like everything else. if I look at it, I think that was a plan they didn't feel they needed to keep as there was a coming cataclysm that would destroy most of the inhabitants of the world.
+
+however, I have been thinking about it the last few days and at the same time that it was designed to fail, people still believed in it -- and that may have made it a partial reality. there are other similarities to the book of revelation that seem to be coming into focus as well.
+
+the part about the "new earth" coming down from the sky would look exactly like that if we were to approach venus and get into orbit with her. the other thing I remembered is the "two witnesses" being theorised that they are symbolic of moses and elijah -- with this whole thing starting out as a sort of competition, cept instead of who's god is stronger -- but who's science can produce global wireless power transfer. then, though the bible does not say it, I think that there is ample evidence that moses figured out how to amplify a frequency in venus (likely his own consciousness), thereby attracting venus toward earth... and, this close approach made earth more energetic, and strong feelings of dissatisfaction and insecurity started to manifest as swarms of bugs, disease, and other annoying creatures.
+
+I have been paying attention to our new bug zapper and other strange manifestations, because it seems that the times that I would previously hear a strong roar of a motor, usually when I would go outside, and often times when I would decide to go inside too -- now, instead of hearing a motor road, insects seem to come out of nowhere.
+
+I also heard that in russia there have been tremendous swarms of insects (ladybugs, etc) seemingly appearing out of nowhere. for us, we had the moths and mosquitos showing up whenever energy was high. I postulate that these are manifestations of dissatisfaction and annoyance into reality. it seems that a device which can amplify conscious energy, like the ark of the covenant would produce an energetic enough atmosphere that "plagues" would manifest as a result to the emotion or feeling projected strongly. this focus is the same thing (I believe) that both moses and elijah used to create such "miracles". elijah used/transformed the negative disbelief of the competition into into desired fire to ignite something that seemed impossible to those observing. either way, the function is the same to amplify people's disbelief and turn it into belief as it is to focus energy into a planet and attract it.
+
+the dual attraction I think the reason why the idea will work. the earth will be caused to vibrate like mr. motor, and venus will be caused to vibrate like me, yet the inhabitants will vibrate similar to their environment but not exactly like it. that means the planets will attract each other but not collide because they are also quite different vibrations. while I am quite similar to mr. motor, at the same time, I'm pretty sure we're still very different.
+
+this does, in effect create a vibrational requirement that we have to be similar enough but also different enough to maintain equilibrium. I don't know how long I will live -- and I definitely don't know if it'll be 1000 years, but that equillibrium must be maintained after I die. I suppose that will be a bridge that can be crossed when we get there, as I'm certain there are likely infinite solutions to that -- obviously some which mr. motor will like more than others.
+
+---
+
+the other thing that begins to stand out here is that venus people will have lots of stuff to be doing to keep everything working. I'm certain that it will be a tremendous effort, which is what they're looking to do -- so everything is fine.
+
+what that sort of implies is that the earth people would essentially be responsible for feeling good and providing a sort of support for the try-hards over on venus. the better we feel, the better the environment is over on venus for them to do all of their hard work. it reminds me of where I am in the "it takes two" game. the book of love is teaching the feminine aspect that she is responsible to create the beneficial conditions necessary for the man to feel good about himself, find his passion, which leads to his *purpose* in life, which is to be productive: @[youtube](https://youtu.be/GKDt9jaxPMM?t=3448). kinda a funny coincidence there I guess..
+
+so, while it will be our job to primarily feel good, I think that what is kind of being said there is that a vibrational balance needs to be maintained. I have no idea how this will work out, but there will need to be developed new language to explain these dynamics. that's something that I never had really thought about because I just do it in my head -- but, for example: if we are feeling good, then there's a rate at which we're transforming some amount of dissatisfaction into something that feels good. what is that good-feeling and how many people on venus need to be dissatisfied with that feeling in order to maintain distance between the planets. it's going to be a constant balancing act and language and other technology will be needed to maintain the proper distance.
+
+---
+
+the other thing to consider was another reaction of how to keep us on earth and away from roaming around the solar system. well, it's all attraction based, so more interesting/attractive things need to be here, than the attraction to look elsewhere. this means that again there needs to be a balancing act that happens here. imagine they're pumping 100 units of dissatisfaction into this planet, and things just aren't ringing my bells, so what incentive do I have to transform all of that dissatisfaction into satisfaction? if we're in a conditional living, then I need to have better feeling conditions than the dissatisfaction. why wouldn't that dissatisfaction produce a desire in me to explore other parts of the solar system? all negative emotion is creating a desire to feel the satisfaction of that negative emotion, so it starts to get complicated.
+
+the short answer there is to split us into two major groups: the try-hards and the feel-goods. the try-hards have purpose and passion for the things they're accomlishing. they're nurturing the things, and the feel-goods essentially are improvement focused -- which then the try-hards are going to take the idea and implement it to keep us away from the good-feeling conditions. if we were to get the conditions, then we wouldn't need to transform the dissatisfaction to feel better, and we could just rely on the condition to feel better.
+
+you could also see the flip side too where from the try-hard side may get pretty bored of passion and purpose as a method to feel good, looking at us thinking that we don't have any of the conditions that they have, yet we clearly feel pretty good -- and so, some may want to cross over. that dissatisfaction may actually be encouraged as it will create a stronger signal of dissatisfaction to pump into the feel-goods. so no matter how much the try-hards want to feel good. they must be forced to continue to create more and more dissatisfaction and accept good-feeling conditions as the solution. conditions (money, etc) can't buy happiness. that only comes from your perception.
+
+lots of new language and concepts will be needed to identify and maintain this balance. a whole new emotional language will have to be created and the try-hards will be the designers of it. they definitely don't want us making it because it illustrates the strings they're pulling to play us like puppets.
+
+---
+
+this whole thing is wrapped in a co-dependent competition. the very origins of this are that way. I said the original idea saying that I would do the device to pump my signal into venus, and mr. motor's signal into the earth, thereby slowing the rotation of the earth. obviously, there's no way that that mr. motor wants me to be able to create objects with my mind. I have wondered why this may be and I think he feels I will topple his carefully crafted empire with superior conditions.
+
+what keeps happening is I keep finding a way to feel better and so because conditions should match the feeling, I keep attracting better and better conditions to match how I feel. he doesn't want me to have that, which is fine because I can still feel good without the manifestation of the conditions, so I keep going. I have supposed that the going infinite would be something similar to this, but for a very long time. it's basically for this reason that I'm pretty good just staying without conditions or the ability to control them. I really don't mind that I can't control the conditions.
+
+I'm OK with him taking the conditions that would manifest and then repurposing those conditions to try and control the conditions. it seems like all of this to keep me uninvolved -- you know, like anti-collaboration. 
+
+so what I don't get is why I need to be involved in any conditions at all. why can't I just keep doing me? why do I -- I'll come back to this in the future.
+
+---
+
+so the main part of this is that the whole reason why I've skipped anything to do with girls for a long time is because my main goal is to be able to manifest anything I can feel just by feeling it come into being. it's the same focus that I was talking about with moses and elijah. it doesn't matter if it's the belief or disbelief which make the energy, the focus is on what's wanted to attract the manifestation.
+
+parallel to this idea, I have kinda stopped writing down the girls because there are so many and their desire is enough that I'm just not interested in making a limited list of them and making the implication that certain ones are choosen ones while others are not. that's try-hard mentality where a limited set of conditions need to be decided upon and everyone needs to come into agreement that those conditions are the ones that everyone wants, which does allow the creation of large physical structures, but it also breeds dissatisfaction, because ultimately not everyone will be able to 100% agree on everything. this is in contrast to just feeling what you want and then attracting the things you want to work on -- when finally all of those "cooperative components" finally come together to create a sizeable manifestation.
+
+the automatons which I am looking to create will be a refection of the way you feel, and so therefore, would always fulfill your desire and belief about them. if you believe he'll be a troublemaker, then he'll manifest that, etc. therefore, by default they will allow for a new form of perception for people -- one of a "post-scarcity civilisation" @[youtube](https://youtu.be/5B0Sc52jLxg?t=197). this form of perception was invented by the united states. it supposes "need not want not" way of thinking, and so in order to get people to continue to purchase the abundance of goods able to be manufactured, people are taught to desire to purchase that surplus even though they don't actually *need* it.
+
+this is one form of post-scarcity economy. the one I envision is slightly different -- which was the one mentioned prior in the video when you can just have the things you want. imagine a whole lot of very attractive guys and girls running around that could not only manifest the things that people want (nearly) instantly, but were able to be exactly the person you wanted them to be, so long as you continued to focus on things as you wanted them to be. they would only be as good as your focus.
+
+therefore you are literally creating all of your own problems and solutions in real-time. this is what I want for people. I want them to be able to manifest anything they want to manifest, as it will quickly illustrate that conditions can produce physical pleasure, but not joy. not everyone will see this.
+
+meanwhile this is happening, mr. motor is supposed to be upping the dissatisfaction present on this earth. people will be able to have anything they want nearly instantly, but the feeling of dissatisfaction will be rising as well. those relying on conditions to feel satisfied will find that dissatisfaction unbearable. they'll need more and more ridiculous conditcions to feel good (kinda like morphine in a terminal patient) before finally giving up on life. the others will find a way to feel satisfied no matter the conditions. or, they will find a new place to go (venus). venus will feel like I do. many people already pay money to feel like that. I imagine that it will be a very cool thing to be living like that.
+
+the growing dissatisfaction here will become so strong, that it will very much separate the two types of people. certainly we'll have conditions, and the ability to do things like fly and stuff -- especially as we all get good at feeling the way we want to feel. but the dissatisfaction will be so great here, those conditions will *not* be the reason why we feel good. living here, it'll quickly be realised that conditions are nothing more than a reflection of your emotional state, and too much enjoyment of / satifaction from conditions will create a strong feeling of discomfort / dissatisfaction, which then will accelerate rapidly until you catch it and turn it around or manifest that dis-ease into reality and destroy yourself.
+
+here will be a pretty rapid manifestation area, and from the try-hard's perspective, they will all feel really good, it may be kind of fun for them to try earth's environment from time to time. it may even be considered like a vacation -- a way to reinvigorate the passion and be grateful for the conditions again. for us, we'll be pretty obviously not looking for the condition to feel the way we want to, because it will rapidly accelerate into a bad-feeling manifestation.
+
+---
+
+I don't know how it all works out, but from my perspective, it feels really like the right path forward to begin to slow down earth's rotation by increasing his feeling here on earth while at the same time readying venus for habitation by pumping my signal into there.
+
+I don't have a big enough picture to know how much allowing people to have whatever they want while increasing the level of dissatisfaction at the same time will do. I think it can easily be tuned by monitoring the earth's rotation, and every time it starts going faster than it should be going, add more dissatisfaction. that is the counterbalance to the post-scarcity economy.
+
+from my perspective, I want to continue to hold out until the proper interfaces are created for people to manifest any condition they want. really, none of that matters, as what really matters is how you really feel.
+
+I kept getting reactions to whether I would be involving myself with girls, and for now -- no. it's possible in the future, and inevitable once venus is setup, but for now I see no reason to involve myself in that right now. for me, I'm all about not needing the manifestation and feeling the way I want to feel. it's all or nothing I think I would like to wait for that.
+
+I'll come back to this subject again because I just had a flurry of reactions which is way too much to sort out right now. the important thing for now is that this whole planet should start to feel a lot more like mr. motor as we begin to realise a post-scarsity society. people will begin to destroy theirselves with their own dissatisfaction and the rest will find ways to quell that feeling physically. it's all attraction, and what other people are doing doesn't have anything to do with you. it's for this reason, that I think nosebook will try and find ways to placate people and keep them comfortable. things are going to get nuts, and when I can produce things with my mind, they'll really start to get even more nuts. conditions don't cure dissatisfaction. this is, of course, is better than LOA accelerating out of control. 
+
+I think it is ultimately a way to keep the good-feeling people here longer. we'll see.
+
 ### 2021-07-17 ??:?? - conduct vs. perception
