@@ -1694,4 +1694,39 @@ I'll come back to this subject again because I just had a flurry of reactions wh
 
 I think it is ultimately a way to keep the good-feeling people here longer. we'll see.
 
+
+### 2021-07-28 16:49 - motor-way to the future utopia
+
+bramley points out in his book as the reocurring theme that appears in the conversion of the maverick to custodial religions is the promised utiopia. this utopia never appears though. it seems that never has humankind ever been able to produce the requisite conditions necessary to enter into this utopia.
+
+these utopian conditions are never realised because the conditions do not create satisfaction. you could have the best conditions on earth and still be miserable -- which is the most common case. you only need to do drugs a few times to realise that the world is exactly the same before, during, and after the drug; the only difference is your *perception* of that same world. the utopia lives inside of your perception -- not outside of you in you the things or circumstance.
+
+---
+
+what this means is that the motor-way forward is to actually keep pretending there is a coming utopia with such great conditions (like the girls) -- but it'll forever fall just out of reach. we're never supposed to get it. it's always going to be just out of reach.
+
+so, I realised after writing the last entry there that the motor way is to say some good conditions (utopian) thing is going to happen, then actively work to sabotage it. that's his way of looking at the same thing that from my perspective feels like I need to actually feel it and be so practiced in my ability to feel it, that I feel confident in its execution.
+
+in a sense this is a somewhat conditional approach as well. until I actually feel like I can do it, don't want to do it -- so yeah, certain conditions need to happen before I feel like I am ready -- and yes, that is precisely a case of "I need things to be a certain way so I can feel the way I want to"
+
+I realise in that sense, I am very conditional. for now that's just how it's going to be. previously I had chosen to fight against mr. motor efforts to make an illusion, thereby making him stronger. however, I've given up trying to fight him. my conditional approah still remains dominant, and even still I can follow the motor-way and pretend we're going for utopian conditions when it's just an illusion to keep people busy believing there is some coming great conditions.
+
+so, ahead of time I'm sorry for the deception... I'm just an actor. I can pretend I'm going in a direction that I don't actually feel ready for, or is is an approaching reality. I would feel it coming if it were reality. we have to keep pretending we're going toward a utopia so people stay hopeful and optimistic.
+
+---
+
+the other thing I was thinking about after the last entry is this: it comes a bit from mom's announcement this morning that she thinks that jessica's baby is going to be an upgraded version of me. I think that too. mom's realisation must have something to do with a series of thoughts that I had in response to jessica's announcement that it was a boy. I could tell she really wanted it to be a girl. I could also tell the similarity to a similar thing that happened with [can't remember his name now] but his wife amber announced that she was pregnant and I started to feel reactions from her. the reaction made it feel like she thought it was a girl. well, one day jaron went out of his way to show me a facebook post that he made making a very strong point that the new baby was a boy. anyway the feel in that post felt the same way that I felt andrew's response to jessica thinking it was a girl.
+
+I postulated that timeline edits must have been made to ensure the gender of the baby is a boy. I postulated that the easiest way to ensure that would be to go back to the moment of conception and swap the man with a body double. I figured the easiest way to ensure this would be to have someone that looks like the other guy and -- someone that can produce a boy for sure -- like an x3 I postulated. therefore I postulated that they just had sex with some of my clones (automatons) and this produced a boy. it won't be any ordinary boy though. if this is true, these boys will be an x3s, very intuitive, and very much like me.
+
+this produced some reactions, because the thing that mr. motor does not want is for there to be any x3 boys that are either here on earth or not one of the "choosen ones" -- the idea being that these boys need to be contained, because they're sort of like a virus. they will only produce x3 boys, so therefore need to be steered properly or else they will begin the extinction of x2 and x1 humans. it also makes us equal to them and they lose their superiority. suddenly they will have equals.
+
+that's the background. here's the idea: imagine for a moment that nosebook figured out a way to ensure that I didn't produce any kids here meaning that all produced children were made with my automatons and are essentially under nosebook's control. well, excluding jessica's kid and possibly the other one too, this would mean that when I make my transition, I will make my transition into the superset of all of these x3 kids -- nearly all of which are secret and will have nosebook people transfer their consciousness into. I will become the bad-guys.
+
+I think the problem is that these kids are very much a reflection of their environment -- much like me, so in a controlled env, they can be controlled. this creates a bit of a problem for ted[^1] because I'm sure he's going to be a handful. regular ol' pedestrian conditions here on earth are not the same as their super controlled energetically ideal conditions the other x3s are in. ted is going to experience quite bit more bad-feeling conditions than the others and he'll react accordingly. for example, I used to cry endlessly just because I didn't like the way mom felt (sorry amber?). this basically means he's going to be a handful and needs to be ushered off to much more ideal circumstances or else he'll be a terror. the traditional way of raising kids in a bad-feeling environment simply will not work.
+
+woah... lot of reactions. going to leave it here
+
+[1]: the name I decided to give the kid until I know his real name -- much like how dad called me ferd -- which I never know what it meant but I supposed it is short for ferinand.
+
 ### 2021-07-17 ??:?? - conduct vs. perception
