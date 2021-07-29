@@ -1729,4 +1729,45 @@ woah... lot of reactions. going to leave it here
 
 [1]: the name I decided to give the kid until I know his real name -- much like how dad called me ferd -- which I never know what it meant but I supposed it is short for ferinand.
 
+### 2021-07-29 13:28 - weird times
+
+a few weird occurances happened the last few days which allowed me to begin to see things in a new light. I mentioned in the previous entry two concepts which got a number of different reactions to it. first was that when I make my transition, I become the superset source entity for the bad-guys -- or as I have been calling them, the custodians. I'll get to the second one in a second. also a bonus third
+
+I think there are two major factions of custodians: the vulcan/osiris and jupiter/thoth ones. the nazis fall right into the jupiter/thoth category, wheras the jewish american leadership falls more into the vulcan/osiris category. these are very broad term and no specific label can be used, so I will instead use aryan for the jupiter/thoth and semitic for the other. kinda weird because I would consider myself much more in the aryan body -- even though I think they have a common source.
+
+imagine the situation -- think of it as fiction (you'll understand why soon) -- where (in a previous timeline) I found a way to my alignment in the difficult conditions of earth. it's kind of like the most difficult puzzle for someone to solve and whoever this is is supposed to leave the custodians better technology and genetics allowing them to remain out of alignment and superior to the humans. from their perspective, they get the offspring/genetics of the winner and then use his genetics/technology to continue to enslave humankind.. however, because they're using my genetics we're now vibrationally compatible, so when I made my transition, I became their superset personality. just like you are the superset consciousness (director) of your cells, and your cells respond to the super emotion that is presented to them, the whole group responds to this emotion. in this same way, I become the superset consciousness for the custodians.
+
+you may be able to tell that I seem to understand them quite well, but it's not who I really am. I'm not really all that excited to be the bad-guys. I'd rather be in alignment with who I am. here's the problem though: the most energetic guy on the team insists on dragging his feet. no matter how hard I try to get him to find his alignment and become the next most energetic guy, he refuses. he *must* be the bad-guy because he won't ever find a way to perceive himself as capable of allowing anything good flow too him. there's no real changing his mind so something has to be done. I'm sort of stuck being the bad-guy for as long as he continues to drag his feet. to make matters worse, he also wants to try and keep everyone below him, while at the same time dragging his own feet. "I have to drag my feet and be the slowest, because I'm the bad/incompetent/worthless-guy -- yet I need everyone else to be worse/slower/more incompetent than me" -- a very complicated personality of many paradoxes.
+
+what I need is to go back and create such a difficult timeline for myself that I very far outperform the bad-guys expectations and they're overloaded. each iteration I give the bad-guys way better tech and genetics than they can possibly do with. this bleeds over into the humans and they are constantly getting stronger and stronger -- more and more capable that the bad-guys are having trouble keeping up.
+
+I dunno how long ago this started, but I'm referring to iterations. so, each time I do this I get a little better at it... each time I outperform the last iteration by a tiny margin further. like -- imagine that this timeline alone has many thousands of iterations to it -- meaning, I've done this very situation now thousands of times. the venus thing -- all of it. I just keep getting better at it. every time I beat the game I make my transition into the bad-guys and start over making it even harder for myself.
+
+I haven't quite figured out the goal entirely, and there seems to be some disrption in the transmission so I'll go to the next part now.
+
+---
+
+the second thing I noticed is that the form of time manipulation they are using is an objective form where it translates the objective into an emotion, and then that emotion is used as the tuner to navigate time. that temporal perception, like any emotion is perceived and interpretted in relation to your present state of emotion. this is likely why my interpretation of the book of revelation is so different than others'. I'm fairly certain that the original transmission was made (and received by john) in a feeling of desperation and insecurity, where it feels like all effort is about to fall to pieces and a saviour should make things right (john's perspective). for the other perspective (the transmitter of the vision), note that for everyone that needs a saviour there is a "saviour" that appears to fit the desire -- when in reality this "saviour" is just a "wolf in sheep's clothing". as an example, how many girls down and out with a laundry list of problems, find a "saviour" to her problems which actually just turns out to exploit her further.
+
+there never was a saviour and never will be. this is an illusion that conditinal people want to believe in so they don't have to do any work to improve their perception.
+
+---
+
+what appears to be happening in the bigger picture is that I will soon make my transition to become the bad-guys again. the goal is to make earth such a difficult environment, that the next energetic person/people that show up don't have to be me. my plan is to make it everyone on an infinite set of timelines spreading out people to a point where any human who wants to will be able to outperform the custodians and find their alignment despite the conditions. at some point the spreading won't be able to be done anymore and someone will find their alignment on earth. I can't possibly know what that'll be like, but I know that everyone who makes it out will have the ability to feel any way they want to no matter the conditions and like instant manifesters and stuff. I can't see the final plan -- whether it's going to be a continual event where many "stars" are constantly being born or if it'll be something like a big explosion where one person makes it and there is a gradient of consciousness distributed. no idea, there, but I'm definitely going to push the limits. it's gonna be ultra hard-mode.
+
+remember a long time ago, I was writing about how I would make my transition into the population of the earth, and then mr. motor would have to endlessly design more and more difficult DNA, put my consciousness in there and then divide it endlessly until eventually there is no more way that I can avoid running into myself or finding my own connection on my own? the subtext there being that I will become the humans and this would leave the custodians as a sort of scaffolding or launch-pad -- something that's discarded when the creation is complete.
+
+well, I think that's actually me that's going to orchestrate that. eventually, the humans will get going so fast and the one that drags his feet will no longer even be able to stop the blazing fast and smart humans. being the most difficult DNA, he'll get mixed with so many other humans as a way to hold them back, we'll sort of absorb him. the bad-guys (me) will eventually go down in flames as the humans get too strong and powerful to be held back anymore. I wouldn't worry about me though. I'm sure I'll turn up again :)
+
+that version is the explosion version of the idea. I think it's fine because it has a transition point to it. the opposite of that is the continual creation of more and more stars -- which I tried to illustrate in the interpretation of the new earth to be the venus / earth duo as the early environment to where the star's can interact with each other and provide a source of contrast for each other. I'm fine if mr. motor wants to keep up his dissatisfaction. I can use that as a perfect source of contrast. so for me, if he wants to remain the bad-guy, it doesn't matter. I got it figured out either way. one way is an explosion and the other way is a dance. I can even do the dance without him. none of the paths need him (or anyone else) to be different.
+
+in this sense, it must be the reason that I perceive this timeline and not another because all paths lead to this eventual result.
+
+---
+
+what this means for going forward is nothing. everything carries on as usual. the show must go on. it's just fun for me to realise this. I imagine I'll find my alignment soon and then we'll make another iteration, I guess.
+
+weird reactions... I'll follow up another time.
+
+
 ### 2021-07-17 ??:?? - conduct vs. perception
