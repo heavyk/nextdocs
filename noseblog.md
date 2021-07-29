@@ -1770,4 +1770,36 @@ what this means for going forward is nothing. everything carries on as usual. th
 weird reactions... I'll follow up another time.
 
 
+### 2021-07-29 16:34 - a rough outline of events
+
+this is mainly a followup to the previous entry. when I see these things, they come to in an instant. time has no meaning. I realised that people were considering if I was saying all of this is going to happen in the next few years. I doubt it. if I would guess, I would say this is the rough blueprint for the next 6ky. it's just that this reversal / reset / magnetic excursion (whatever you want to call it) is basically marking the transferrence of the custodial role over to me. I'm the new "bad-guys" after I make my transition.
+
+this is obviously subject to revisions, but the way I think I want it to go is something like this.
+
+1. my genetics need to become the de-facto standard so that I'm vibrationally similar to humans
+2. bonehead custodial females will be put into place to ensure their spread. they'll be designed to try and prevent the x3s from spreading further, fearing an extinction-level event.
+3. this should cause them to attract near-extinction of the humans because there are so many x3s, no xls anymore (the goal) and a quickly dwindling x2 population.
+4. fearing their own survival, and the beginning of the next era, someone (likely a girl) will figure out how to tune into the solution and figure out how to make an x4 possible (this one is really unclear. it could be genetitcally created, or some other way. however, a manufactured disaster and extinction event will certainly be the reason for their inability to find this solution immediately)
+
+all along this time, humans will be taught to be conditional and to just follow others direction. I plan to have this appear in the form of very dominant females that are very serious, unfun, and force people to be productive and serious all the time. all types of surprise and wonderment will be taken out of everything. I was joking with jaron this morning about this, as I think it will become fashionable to try out and program yours and your kid's personalities so that they grow up to be the way you want them to be (I can feel mr. motor's cringe, as this feels like his worst nightmare)
+
+I figure that will be space of leo. cancer will probably start when the new x4 arrives. however, it works, that feels like the re-realisation of the females. this whole quarter turn through the zodiac will be all about learning the receptive (X) side of things. men (especially as more x3s happen) will make great strides forward in their efforts to gain an understanding of this side.
+
+---
+
+after that, things get too cloudy for me to see with any clarity, but the general thrust is toward replicating my circumstances for everyone. this is probably the realisation of the gemini. I'm just kind of like the early prototype.
+
+imagine that a system is created where everyone has a dual. everything about you (consider this all aspects of your conceptual self/source -- the tripart(?) thing that exists before the physical) is considered and it is determined all aspects of your concept which do not feel good. this is your dual.
+
+now, by this time, you can imagine that x4s are around and humans have been spread so wide that we all contain the ability to be seen any way we perceive ourselves to be -- any skin, hair, or shape desired. race and culture have been (or will be) stripped away from you, because these are all things that are outide of you which you use as your identity. you are none of those. you are whatever you perceive yourself to be.
+
+to get to this point, you can imagine that humans will be interbred and spread so thin that very little of this will even exist anymore. in fact, each person will eventually live in a world (their own timeline) where the whole world is a reflection of their perception. there will be so many different worlds with so many different shapes and colours of people, the diversity will be unmatched. far more than ever could be accomplished on a single planet.
+
+everyone has their own timeline now which is a reflection of them, this is the "golden age" -- then their dual gets introduced into their world. for most this will be a very devastating thing. these are the custodians that come to poop on your creation. it's just you and all the things you don't like about yourself though, so you're not really fighting anyone other than yourself. custodians are notoriously bad at causing their own destruction though, and you are clearly the answer to all of their problems so they have to exploit you.
+
+soon, (and this is always true cause of LOA) you will become the very thing that you're fighting against. it's from there that you'll be able to (being your own worst enemy) continue to cause trouble for yourself until you get to where I am now and know what it is you want to create.
+
+I just want to pat myself on the back and say, that is possibly the most brilliant "enemy" I could become. I'm very happy with how this is turning out so far...
+
+
 ### 2021-07-17 ??:?? - conduct vs. perception
