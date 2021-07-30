@@ -1801,5 +1801,46 @@ soon, (and this is always true cause of LOA) you will become the very thing that
 
 I just want to pat myself on the back and say, that is possibly the most brilliant "enemy" I could become. I'm very happy with how this is turning out so far...
 
+### 2021-07-30 11:44 - what about mars?
+
+in response to the entries I kept getting a reaction that something was wrong with what I wrote. I determined that it's probably a cucumber. a cucumber is when someone is saying something that's problematic, but to correct the person would require the revelation of a secret. therefore, nothing can be said. however, leaving the cucumber idle, it'll eventually turn into a pickle. I think the subject of venus is a bit of a cucumber for them. the only solution then is to distract me.
+
+problem is, then I go and write @[noseblog](2021-07-29 13:28) which started the subject of something even more unwanted -- which is to be expected because they tried to distract me from a place of dissatisfaction, meaning that I would write something even more unsatisfying. I began to talk about how when I make my transition I become the custodians, and so therefore using their tech I went back and kept pushing this timeline to the limit -- why not, right? I guess, if you think about it, it's a whole lot more fun to do this than be a custodian.
+
+it seems pretty evident to me that numerous times I have found my alignment, and each time we've gone back to "sabotage" the timeline and find a way to improve on it. obviously finding my alignment and hanging out with girls for 15-20 years is a lot more fun than being a custodian. it's no wonder that I would prefer to repeat this over and over. each time I get a little bit better at it, and each sabotage causes an evolution of desire which keeps building up into more -- until I finally begin to see what it is that I really want to create.
+
+I decided to write that down in @[noseblog](2021-07-29 16:34), and the reactions that I've gotten to it are quite varied. it feels like I managed to roll up the pinnacle of mr. motor's worst nightmares into one sequence of events. just for fun, let's enumerate a few of them...
+
+1. I become them, and all of their secrets are revealed. in a single fell swoop, I'll completely dismantle all of the things they've been keeping so secret
+2. worse still, is that this will be done by a group of very unfun women. mr. motor hates the idea of women ever getting power over him. his mom must have given him quite an unfun time. ironically, that's probably why he's so unfun himself now. I'm sure he embodies everything he hates about women
+3. the conclusion to this ordeal is living in an ideal environment which is a reflection of you -- people are going to be very beautiful, so there will be a wide diversity of beauty -- but then, at the peak of this golden age, the embodiment of everything you hate about yourself will show up in your own creation and begin to exploit you. mr. motor is absolutuly terrified of having to face himself
+
+those were the main three dealbreakers for him (btw, this is line 1818) that it really caused quite a disturbance. last night I was star-watching and I was getting vision upgrades so easily, and it was so easy, it felt like if I wanted to focus a little stronger I could push throgh to the other side. I decided I wanted to spend today to put this up online and tidy up a few things because I didn't know how long I would be unconscious, or if I would actually have to do that thing where I'm locked into an unconscious body so I reconstruct myself externally as a group of automatons, reflective of how I and numerous other people perceive those versions of me. I decided that because I'm so close, I can get it pretty much any time. I wouldn't imagine I would need more than to take it a litle bit seriously. meditate, star-watch, and do some like breathting and other exercises I learned in a video last night: @[youtube](https://www.youtube.com/watch?v=12Wxrr-Y9HM). no big deal. I got this. no need to rush anything. let's just take this nice and steady.
+
+I woke up this morning with a few strange events. mr. motor force ejaculated me last night meaning he wanted to reduce desire in me -- which makes sense because I'm supposed to go to "game night" tonight. I started to think about ellie and hayden and someone dropped something large on the floor above me. jerrica is also coming this afternoon before we go. I also woke up in a weird dream-state being reminded of my plans to make a "post-scarcity" civilisation. these sorts of dream states are not ever anything I want -- usually more what mr. motor wants to steer me toward, so very curious.
+
+I figure there is great effort to keep me from physically feeling pleasure. if it's now suddenly weighted as a stronger priority for anyone who wants to have what they want, vs. me -- this indicates to me that when other people feel pleasure -- call it addiction if you want, but the reliance on that condition to feel good breeds dissatisfaction -- so even though, they feel physical pleasure, they don't really enjoy it as much because it continues to amplify their dissatisfaction (and also satisfaction). so, if you're a person that feels pretty satisfied, good-feeling physical conditions will amplify that satisfaction tremendously.
+
+the feeling of satisfaction, consequently is what I postulate is causing the earth to rotate faster. more people are feeling more satisfaction so the earth is beginning to turn faster. interestingly enough, abraham talked of a "tipping point" where more people are feeling satified more time than dissatisfaction. that was 2020, right about when the earth started to rotate faster.
+
+the solution I proposed is to separate the try-hards and the feel-goods, and pump the other planet with the satisfaction that we/I feel, meanwhile pumping earth full of the dissatisfaction to prevent the earth from spinning too rapidly. when contemplating this, again I felt a cucumber -- and after investigation, it feels like they have been trying to slow the earth down for a while now, but it's not really working so well. also, it feels like I specifically have a dramatic effect on the rotation speed, and likely a lot of the "rotation glitches" happened when I was feeling better. it's a cucumber for sure. they definitely don't want to release real-time rotation speed data, or correlate it with emotional swings of people on the planet.
+
+what that tells me is that we're on an inevitable rotation speedup of the planet. what I have theorised is that things will speed up faster and faster and that'll cause a split between the up and down spin electrons. let's say the up spin electrons will keep spinning fater and faster until they enter a higher energy state. the down spinners will suddenly be free to spin their down direction, the up spin will slow and then reverse to down spin.
+
+that's all old news. nothing new there...
+
+---
+
+my solution to that problem was to do the separation ourselves and use the opposite spin to couple instead. I illustrated it as pluto and charon. one planet would vibrate of the try-hards but have the feel-goods on it. their try-hard vibration will be a natural source of contrast for us and we'll use it to create more feel-good vibes which will then be pumped into the opposite planet. the more one planet vibrates like the other, the more they attract each other. a delicate balance of vibrations needs to be maintained to keep them in equilibrium.
+
+however, since venus is a bit of a cucumber, I was thinking -- ok, well, what about mars? what I've heard about mars is that it used to have an atmosphere, but the people who inhabited it at the time were so dissatisfied and focused on unwanted, the atmosphere started to deteriorate as a physical reflection of their dissatisfaction. they tried to solve it using gold -- I'm not sure how, but that's a metal which feels good -- so they were probably trying to create a feel-good atmosphere using gold. obviously it didn't work, and they eventally moved to earth.
+
+I suggested then to try the venus experiment I proposed with mars. pump my vibration into the centre modulation point of mars and see if it starts to produce an atmosphere. I imagine it will. just like with the previous inhabitants, the physical conditions will begin to reflect the vibration it contains.
+
+I was then reminded of an old myth where venus sleeps with mars and vulcan gets pissed so they never have any children. however with interactions with mars (collisions?) venus gave birth to a few of mars' moons, but also to harmonia. weird coincidence.
+
+anyway, I would at least try it. this time the cucumber feels like it's in their control. can at least try it. the worst that could happen is it solves the spin problem. I guess NASA will have to come up with something... climate change?
+
+I dunno...
 
 ### 2021-07-17 ??:?? - conduct vs. perception
