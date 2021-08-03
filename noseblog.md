@@ -1932,4 +1932,30 @@ geez, it feels to me like I didn't include enough "edgy" material in this one. s
 
 [2]: I can imagine how enticing it would be to acquire a very beautiful person that has figured out how to move all the way up to leadership and get the conditions that they want. I can also imagine how enticing it would be to "save" some struggling kids from such a difficult environment and blow their minds with good conditions -- just ask TLA.
 
+### 2021-08-03 13:02 - the divine feminine and the sun
+
+there were a number of reactions wondering why I thought it was a bad-feeling condition. it's a very common thing for a girl to believe that if a guy makes her the reason why he feels good, then she gains value and becomes valuable. this is no different in the "divine feminine" approach to spirituality -- cept you're saying, I need the goddess to be able to access my higher self. she is responsible for my accessing the divinity. in a society which did not value women and treated them more like cattle and floormats, this was pretty forward thinking. to be completely fair, I don't think too highly of the divine masculine either.
+
+in a video yesterday (@[youtube](https://www.youtube.com/watch?v=eTjQCQXwoaQ&pp=sAQA)), dr. carmen was talking about how the egyptians kept the men and women separate to build up charge (much like a capacitor) and then the divine men and women would get together and perform sex magick to access higher states of consciousness. great, that sounds like codependency to me. interestingly enough, this is quite similar to what I propose is happening with the sun.
+
+---
+
+there is this idea that the orgasm is to be avoided because afterward you lose all of your power and become limp. this is the same thing that is said to happen when a star goes nova. it blows its load and then goes limp for a few hundred years taking a while to regain power. therefore we will consider this to be similar to the male orgasm.
+
+I don't know the exact science of this so I'll just talk about what the feeling experience is for me. the female would be like the planet. she is desiring for some sort of creation. when I was with raquel, I noticed that if I could just hold for as long as possible, when she finally felt like she was able to orgasm, then there was nothing I could do anymore to hold it. we orgasmed together all the time.
+
+in general also, it can be noted that the stronger the attraction is the more rapid orgasm can be experienced. in this sense, consider now that I am the sun and the various girls attracting me are the earth. the stronger that nosebook pushes against this attraction, the stronger it gets. eventually, the earth (girl) will attract such a strong orgasm (nova) from the sun that will eventually satify the conditions.
+
+you could then wonder if the goal is for the earth or the sun to orgasm first. if the earth goes first, the sun will follow rapidly thereafter. maybe the goal isn't to orgasm at all. I don't really know as I'm not the one with the knowledge of these things so much.
+
+---
+
+however, what I do know is that I'm essentially proposing a similar situation to what the ancient egyptians were doing. earth will become the "divine feminine" as it's my plan to ensure that the leadership here is a bunch of wonmen that have the concept, "I need you to believe I (the goddess) am the reason why you feel good" -- you need to worship me, honour me, service me, and make sure I feel good because without me you won't feel good. I can hear a number of people cringing, but remember, I'm going to become the new superconscious state for nosebook after this. objects are attracted by how similar in vibration they are to each other, so it's important there is a lot of mixing. this divine female perception is vibrationally very similar to the patriarchal way of doing things, and it doesn't surprise me that patriarchy came as a result. I'm sure many men were not happy to appease the divine female and sought out to do things their own way.
+
+thing is you can't push against something without becoming a reflection of it -- and so patriarchy was born. now, everyone needs to show their gratitude to the divine male for being instrumental in their creation. I need you to make me feel good because without me you wouldn't have this material thing (something like that). obviously, this is just as bad.
+
+so, as soon to be the superset consciousness of the x3s, I consider myself to be the soon to be chief custodian. I have a bunch of patriarchs running one planet, which means they need to "control" the divine female leadership on the other planet, and make sure no one on earth is getting the conditions they want. they also need to ensure that the females being born have to be taught that they are responsible for men's good-feeling and their ability to access the divinity. obviously, this is just something the girls are told. in practise, no men will ever be allowed to access their divinity. they'll get the illusion of it, but having sex with this vibration, I'm sure that men will acquire this feeling in a strong way. I suspect many men will go gay.
+
+I have more to say about the sun but it's not ready yet. to ensure the doesn't orgasm, we need to decrease this planet's attraction, not increase it. keeping the genders mostly separated will ensure that no one is finding their connection (cept the chosen ones).
+
 ### 2021-07-17 ??:?? - conduct vs. perception
