@@ -1879,12 +1879,57 @@ there are infinite different sequence of sinusoidal waves (any elliptical orbit)
 
 next time, I want to talk about explosions...
 
-### 2021-08-01 ??:?? - explosions (draft)
+### 2021-08-01 ??:?? - explosions (incomplete)
 
 ok, now on to explosions. last night was kind of an interesting experience. I was playing hearthstone and I was feeling pretty good. I probably started winning too much because a flash flood happened and various physical things started to happen, followed by some of the most impossible sequences of bad-luck I'd seen in a while (getting a hand full of deathwings while my opponent has 3/3s every turn was ridiculous). it really felt to me like there was a significant effort to get me to not feel so good. they do this usually by cooling down the environment (physical conditions), starting first with strong wind and clouds, then heavy rain and trying to get me to think abouut things that don't feel so good[^1]. that's probably harder to do while I'm playing a game though.
 
 whatever the case, when I'm feeling good, I'm tuned into that source. that sourc
 
 [1]: this is the reason why I told brian that while some people tell you to control your thoughts (conduct vs. perception), I do not find this to be an easy task. therefore, I have to just expect that my brain is going to have a lot of different types of thoughts passing through it, so the only control I really have is how I perceive those thoughts. I have to find a way to feel good about even the worst thoughts so I can continue to feel good. same while playing hearthstone.
+
+
+### 2021-08-03 10:21 - explosions (try again)
+
+there is some difficulty with me finishing the above entry. I feel it as the same effort to ensaure I wasn't winning the hearthstone duels game -- so I'm just going to leave it. since then I also had two major reactions I'll start there:
+
+1. if we go to mars, when the person keeping the frequency of our planet running nicely (me) transitions, then it'll be similar to the last time where the rug got pulled out from under us and we had to move to earth
+
+well, I mean that's not my goal. the whole reason why I see it as such a good opprttunity is because the harder they push against stuff, the more it makes things worse. what that eventually makes is an explosion. the majority of the pushing against is actually over conditions. there are four extreme types of people:
+
+those who want:
+1. good conditions and perception which produces good things
+2. good conditions and to hold on to their bad-feeling perception
+3. don't care the conditions and perception which produces good things
+4. don't care the conditions and hold on to their bad-feeling perception
+
+unfortunately, society today is geared to create more and more of #1. these I believe will either be rejected from the "new earth" or will attract their own demise or make a decision to become #3 which is what all of the inhabitants of earth will be. the other two will live on the new earth. I think the #1 types will be like the present day noseboys who feel great and are doing all of the programming for nosebook's system. the mr. motor types are clearly #2 types. it's good to have them because they produce the fuel to ensure the earth never feels too good.
+
+there is a sort of transition species that could exist. this happens when people on earth start to get so good at attracting what they want, they start to begin to rely on the conditions. this has happened to me a number of times and is my greatest weakness. becoming conditional like this will create (temporarily) a #1 type here on earth, but because the signal of dissatisfaction is so strong, my experience with this reliance on conditions backfires on me, as I start to let the conditions slow me down, and then being conditional I notice the slowdown getting more until it overtakes me. I have to maintain a desire to feel good no matter the conditions -- even when the conditions are good. these types will oscillate between conditional and unconditional. my plan is to make these condititional types the new leadership. they are designed to keep all of the conditions for theirself and make sure that others on earth are constantly being exploited for the good-feeling they provide[^1].
+
+nothing needs to be done to get to this place. it's already the direction that we're heading. here on earth, the feeling of dissatisfaction will begin to grow so strong that it'll begin to create this separation naturally. nosebook is already doing it because they refuse to allow people to have the manifestation of good-feeling vision (unless of course they pay for it). there are also countless snake-oil salespeople out there trying to get people to focus on getting the right conditions (divine feminine or to control their thoughts) so they can improve their physical conditions like DNA and well-being and stuff. this isn't the way forward as it's just another set of conditions. perhaps it's a more balanced set of conditions but it's still using conditions to create better conditions without changing the perception which attracted the bad-feeling condition in the first place (it's all attraction).
+
+the sun is also increasing in intensity and this will almost certainly produce a situation which forces people to begin to use their perception to feel good (rather than conditions). I think the increased solar outout is actually a feedback loop. humans want better feeling conditions, and so the sun ramps up the energy output while the custodians push against that energy, causing more desire, so the sun increases its output. this continues on until it novas and starts over. this runaway feedback loop is exactly the opposite of what I think may have been happening during the fall of atlantis. including my theory that the great pyramid was transforming bad-feeling energy into good-feeling energy, and the structure overloaded, but from the sun's perspective, people were creating more and more powerful devices to harness the sun's energy (desire) and this continued to increase but there was no feedback to the sun -- just stronger desire for more energetic conditions.
+
+I believe that the present conditions will continue to accelerate the dissatisfaction on this planet (previous custodians have bred in the #4 types there thereby making the effect much worse) and this is actually the real underlying cause for the nova. I think the flips are physical reasons, but the revversals I'm beginning to believe is our interaction with the sun. more on this another time as I think the solution is to look at capacitors again.
+
+anyway, I think it's easy to see (or, it will be by the height of this solar cycle) how this energy (desire) cannot be quelled in any meaningful way and will continue to grow -- and, pushing against it will only make it worse eventually resulting in an explosion. this is a temporal accumulation of pushing against people from getting capabilities has produced such a big vortex now that it's basically inevitable and an explosion will allow a lot of people to get what they desire while a lot of other people to crash and burn and start over..
+
+---
+
+2. if the sun explodes, then it was the sun's fault. we can blame the for the cataclysm instead of our ability to go up a power level.
+
+the idea here being that we're so incapable of going toward what we want, that we need things outside of ourselves to blame for the things that go wrong. we don't need to ever figure out how to change -- just to keep surviving the onslaught of difficulty that all the out of control conditions are subjecting us to.
+
+while blame is a nice thing to use as a motivating force, it's not effective. this is the root perception involved in the previous reaction -- something that the out of control conditions are responsible for the bad-feeling, not that it's attraction. I get the tangle of contradictory thoughts. whether its me or the sun or whatever that cannot be controlled to produce the conditions desired, it's ...
+
+in the previous reaction, I was basically assuring that the design is to ensure that the people here are capable of feeling good no matter what. the ones that find a way to feel good enough, they can either move to the new earth (if they're chosen[^1][^2]). when I make my transition, I don't know what we'll be capable of by then, but I imagine that we may be able to do selective transferrence of consciousness. like, maybe doing the transfer into a bunch of the boys is the plan. it's so far away, it's too hard for me to tell what that will be like. either way, I'm pretty certain that I'm going to want to continue to gain more and more control over what I am attracting, no matter the conditions -- good or bad.
+
+the whole point of the dual earth idea is that the energy that we're constantly attracting is actually beginning to create stars and planets. this is a continuous flow and balancing between the energies so that we never get feeling too good and neither do the others either. it's no longer about who's better anymore, because it would be like the protron competing with the electron over who is better.
+
+geez, it feels to me like I didn't include enough "edgy" material in this one. sorry for being boring. get used to it though :)
+
+[1]: it may also be sometghing that nosebook wants to do to choose some of these people to become members of the new earth. the incredible conditions there will feel at least twice as good as their present circumstances. maybe they can be exploited in some way because of how good they feel. dunno.
+
+[2]: I can imagine how enticing it would be to acquire a very beautiful person that has figured out how to move all the way up to leadership and get the conditions that they want. I can also imagine how enticing it would be to "save" some struggling kids from such a difficult environment and blow their minds with good conditions -- just ask TLA.
 
 ### 2021-07-17 ??:?? - conduct vs. perception
