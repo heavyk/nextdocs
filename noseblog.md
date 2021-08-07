@@ -2031,4 +2031,24 @@ that's all for now.
 
 [1]: I'm not happy with this orbitals explanation. I tried to work it out on paper and I can't figure it out. anyway, just cause mr. motor doesn't like this idea, it doesn't matter, as I'm sure there are quite a few geometricians that will find this interesting when the technology is available for them to begin building planets with geometry.
 
+### 2021-08-07 11:15 - maybe it's not a thing for some people
+
+I realised as I was walking home yesterday feeling the reactions of others that some people think I'm not serious, crazy, or something -- they don't believe what I'm saying or don't want to believe it. in fact I even had extra reactions from mr. motor, and I was noticing that he is very opposed to this idea. I think it was the part of using him as a constant source of contrast.
+
+the sense that I got is that he didn't want to be a part of it and wants to bail out. that's weird coming from a feeling that felt like unbelieving. it's not exactly belief, but more like "I/we don't want to be forced to control a bunch of people having fun." I think he only likes controlling things if the people he's controlling react negatively to the control -- almost as if he feeds off of negative emotion from others. I'll be honest: I don't know how that would even work. I guess he wants to feel worse. so, wben others feel worse it amplifies his own bad feeling and he feels worse... I dunno. I do know that sounds like a perfect source of dissatisfaction. imagine he feels forced to control a bunch of people that are having fun, and his control only causes them to feel better (cause of their perception). this should cause him to want to try and control it more. many that sounds miserable. the only alternative is depression. there will eventually be no way to make me/us feel bad. *sigh*
+
+---
+
+I don't know if he has the ability to depart from this timeline and leave us. however, let's say he does. that's the situation where I was talking about the lightning leader getting right up to the desination, but then aborts right before making the connection. nice. if he does that, that's even better.
+
+I could imagine on their timeline it looks as if I'm just a totally crazy person talking about stuff that never happened. it would look like I made a bunch of ridiculous claims and then fizzled out... I was trying to figure out how it would work, but it's totally cool if on his timeline I appear like one of those startup marketing schemes that are all buzzwords and no product. that would be perfectly fine with me. I don't mind.
+
+I then remembered that the final panel was the one "here are machines caapable of desire" -- and while I did intend to create automaton machines that had human-like desire, since I've learned how important contrast is for creation, and have wanted to create automatons that can be programmed to have a desire... I later called this term a "thrust" because it's more general than a desire. a desire is a (dunno the word for it -- movement of energy) to feel a certain way. we think of desire as a physical thing, but it's a absence of an emotion. a thrust is a general theme or direction that can be given. this is important because the thrust generates desire.
+
+so while mr. motor may be bailing out, I see it as a huge opportunity. I want to see if I can program contrast that is even more effective than mr. motor. when they leave, a lot of really great stuff will happen in a short period of time, but to sustain growth, there needs to be someone noticing unwanted stuff so it can be transformed into more wanted again.
+
+this is a good first step, and very complimentary task to figuring out how to create the dual. or at the very least, even if they don't outperform mr. motor, they could be a good way to keep him from getting too stationary, forcing him to find more ways to maintain his superiority. interesting.
+
+I wonder how long he's going to hold on for. unfortunately, I think it may still be a while.
+
 ### 2021-07-17 ??:?? - conduct vs. perception
