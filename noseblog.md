@@ -2051,4 +2051,70 @@ this is a good first step, and very complimentary task to figuring out how to cr
 
 I wonder how long he's going to hold on for. unfortunately, I think it may still be a while.
 
+
+### 2021-08-08 23:53 - one two, one two, this is just a test
+
+@[youtube](https://www.youtube.com/watch?v=QpCyigmaFuU)
+
+I was listening to that song a few days ago(?). the hello nasty albumn influenced me greatly because matt and robert bought me the beastie boys anthology to listen to on my CD player in the hospital. later I downloaded their albumns and found hello nasty to be my favourite. particularly "song for the man" got me thinking a lot about the stuff in the song. the song even has a call to action, saying, "go figure it out". later, one day when I was very stoned in tenerife, I found the song "I-the man" and it really felt to me like I was the man...
+
+@[youtube](https://www.youtube.com/watch?v=zKe70imV3Oo)
+
+it's hard to describe those sorts of feelings. in that moment, I knew I was going significant impact on humankind; I could feel it, but at that time I had just skipped out of working for tuenti and walked away from it all. I didn't want to try and keep fighting for survival of the website. I decided I would just let it all go and move on to the next thing.
+
+... ok, fast-forward back to the present and I just got done writing a long entry (@[noseblog](2021-08-04 23:05)) on how if I look at it backwards, then I could be seen like some sort of backup plan for the guys trying to run the show (though, almost certainly the power structures go all the way up to the galactic). I surmised that if that were the case, then from their perspective they sort of just summon (attract) me because everything is falling apart and they need another bail-out or whatever. I hate that makes me sound like their saviour, but whatever. I am naturally just who I am and I am really good at finding improvements and other nice things. they then try to steer me away from the things they don't want; the picture in my head is of a toddler in a walker going from eating the plant to pulling the tablecloth, to ... chasing him around removing potential disasters from his proximity.
+
+@[youtube](https://youtu.be/xiJ_GAcEQ_A?t=1490)
+
+that comes on, this this guy, miguel serrano is talking about this avatar guy that comes and bails out the hyperboreans from losing their psychic abilities cause they intermingled with the daughters of men.
+
+> the avatar comes at the last moment when everything seems lost. the memory of the blood [the psychic god-like powers inheritited and contained in the blood] is faint, almost obliterated. the avatar rekindles the spirit, shakes the world, and infuses courage in those *still loyal*.
+
+that's a very nice way of saying it. from my perspective, they're hanging on to some past memory of paradise that isn't really all that relevant anymore. they started out with good conditions, and then exploited those conditions. when the conditions went away, they throw a fit and need a bail-out. I don't really see them anymore (kids are so much better behaved these days), but when I was young, there were these brats that make a big mess and then expect others to bail them out of their mess. usually it's their parents, but later it's their "friends" that have to bail them out -- the ones that are "loyal" to them.
+
+---
+
+ok, so a long time ago (@[noseblog](2021-07-29 13:28)), I said that I noticed two major factions of custodians that roughly equated to the aryans (japheth) and the semites (shem). the khemits (ham) as far as I know of don't have a major custodial installation. I think they may be considered the slaves that both are fighting over. though I'm certain they have a common source, they seem to fight each other for power over the humans.
+
+previously I surmised that tesla had overtaken the custodial regime and probably still exists somewhere in antartica with the SS. that previous entry where I was talking about becoming the superconscious "source" for the custodians, the subtext there is that I am likely involved with that. the custodians' belief in such an avatar makes it easy to pass them massive amounts of technology and "rekindle the spirit" in them. I think WW2 was just phase one, let's say.
+
+I don't know how long these factions have been fighting over control of the humans, but if I had to guess, I would have to imagine that the aryans were targeted first. an avatar -- which is a very funny word, because it's just a remote-controlled human according to hollywood -- came and gave them them the bail-out and then they "lost the war" to the allies. it likely installed all the power structures necessary to make a fully automated regime based on strength and power. a sort of brute force.
+
+look at this from my perspective of the super-consciousness wishing to now integrate the semite custodians into the team. it's kinda like a merger or a buyout of sorts. figthing and losing the war is probably one of the most strategic things to do. by purposefully having the aryan power structures specifically target the jews, knoing LOA, we all know that it won't do anything to eradicate them at all, and they'll only come back stronger. this is the point. then just have to manipulate things so they completely take over all aspects of the conceptual world. hollywood and the media in general is very good at steering the perceptions of the flock of people.
+
+all that needs to be done is to wait for them to need a bail-out. I would imagine that the major problem for them is a mercurial one. the speed of communications is increasing at such a rapid rate that it's getting harder and harder to sustain the show. if people are getting their information from social networks, and not the mainstream narrative, it becomes impossible to keep humans from having a complete revolution in energy, science, and communication sectors.
+
+I don't think it's a coincidence that the 9/11 attacks were perfectly timed to stump the free interchange of ideas on the internet. I also don't think it's a coincidence that archaeology and education is run by incompetent people. I think it's on purpose.
+
+from my perspective, they're doing a good job making it impossible for the non "chosen ones" to rely on conditions (drugs, sex, communications, energy, psychic capablity). to be honest, this totally feels like something that I would be orchestrating if I were the custodial super-consciousness. here's why:
+
+conditions are the reason why the hyperborean aryans lost their capabilities. every human has that capacity; no exceptions. if I were in charge of restricting the humans, I would find a way to make it impossible for them to rely on conditions. the only people that get the conditions they need, are the ones that are continually finding theirselves more and more reliant on conditions. they're given the power positions to ensure that they have all of the conditions and no one else has them. I'm describing the present state of the planet, no doubt. I think it's designed (probably by me) to be that way.
+
+I think we're now entering into the second phase here where I have integrated all of the custodians into myself. they're all just aspects of me. I have (or, depending on your perspective, in the processess of) figured out how to perceive their perspective in a way which no longer feels bad. I'm certain that this is already accomplished and we're just experiencing the sequence of transformations to get there. you can see that I'm already quite capable of perceiving their position in a way which still feels good, and I'm getting better all the time. eventually, nothing will bother me anymore and I'll make my transition back to non-physical. however, for now we have to make sure that they have all of the technology requisite to ensure humankind cannot become reliant on conditions.
+
+I don't know what percentage of the bad-guys are automatons. I think there will be a constant churn of more and more optimised world-controllers that show up and supplant the last breed. that's the point. I also don't think (from their perspective) I'm supposed to be successful.
+
+here's the part of the song that got me thinking about that. I'm fairly certain I'll go down in history as a crazy-talker that never had his utopia come to fruition (kinda like hitler). I'll "lose the war" and like the aryans did to the jews, the conflict has made both of us stronger.
+
+```
+It's like sand in one hand, You can't hold it for long
+Like scheming on a plan, that goes all wrong
+It's like fudge and caramel, they're not the same
+And it's a shame, all you talk is game
+```
+
+who knows what'll happen. I've been thinking about this custodial thing for a little bit now and I'm totally on board with it. I have utmost certainty that all humans are capable of beating the game, however to make things more difficult, everyone who finds a way to feel the way they want to will be mixed with more difficult conditions until their in their own world with 100% custodian actors around them (prolly like I am now or will be soon). this essenially means that everyone will find a way, at their own pace I may add, to find a way to allow their entire world, no matter how terrible the starting conditions, to reflect their own (unique) awesomeness.
+
+I will use a quote from tesla to describe my galaxy ideas...
+
+```
+My project was retarded by laws of nature. The world was not prepared for it. It was too far ahead of time. But the same laws will prevail in the end and make it a triumphal success.
+```
+
+---
+
+the reactions are making it sound like I'm saying farewell. I'm not. you will all see with your own eyes that the world can become a reflection of how you feel. some will see a similar thing to me, and others will see a crazy guy talking about non-existant stuff. both realities exist. you may say that I can use the custodial automatons as the constant source of constrast that I need to create the galaxy. it doesn't need to be on the same timeline for it to work. this is why I want a constant churn of more and more difficult world-controllers constantly in-fighting and supplanting each other. it's a good source of dissatisfaction, which I/we can then turn into satisfaction effortlessly.
+
+it's not either-or, but both. I just have to not need to be right, be able to walk away from it all, and to let my "ego" take a nosedive (eg. not place too much importance on what others may think). easy :)
+
 ### 2021-07-17 ??:?? - conduct vs. perception
