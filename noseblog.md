@@ -1605,7 +1605,9 @@ also, the natural eugenics of the idea means that those which either are unable 
 
 it also has a lot of advantages to me/us -- namely that they are a constant source of contrast and we're in a sort of co-dependent relationship too. they love codependent relationships, and as long as they can continually provide a stronger and stronger source of dissatisfaction, then that's all I need to keep making more.
 
-I actually think that this is just the beginning too, as I believe that it will produce so much excess energy, I'll need to offset the excess protrons being attracted into the sun itself. the sun would continue to grow more and more rapidly the faster that they find ways to be dissasified with their environment. I believe that it wouldn't take much effort to use this method to start a few stars too.
+I actually think that this is just the beginning too, as I believe that it will produce so much excess energy, I'll need to offset the excess protons being attracted into the sun itself. the sun would continue to grow  the process of continued compression of these protons and other processes must mean the sun is producing all sorts of elements -- every element, in fact. these spew out in all directions constantmore and more rapidly ly in the solar wind. I believe also other times it expells this material to create planets. all the planets are her children.
+
+what causes the sun to nova, I think is a buildup of these elements to such an extent that finally the attraction becomes so great. it felt like I was perceiving this sort of thing happen with raquel all the time. I think I incorrectly stated it a few entries ago, but actually what was happening is that I was actually attracting more from her, and then finally when she overcame the barrier to allow it to flow. essentially, I always perceived it as the man/earth/electron is attracting the energy much like a tesla coil. the stronger of a field (desire) placed on the primary, the more electrons it has to pull to satisfy that the faster that they void. the energy comes from the energy-verse, translated into electrons(?) vibrating at a much lower frefind quency (but probably still pretty chaotic) by the woman/sun/proton.ways to be dissasified with their environment. I believe that it wouldn't take much effort to use this method to start a few stars too.
 
 like, for example, on the venus side of things, I can understand that mr. motor will not want to feel too good, so he will have to negate that energy, but not everyone on the planet is like mr. motor. some will enjoy the good-feeling conditions and enjoy their heart chakra open and all that other good-feeling stuff, so they likely won't negate the energy but will like it. it means they'll start to become very attractive as well, and that energy will likely need to be siphoned off into various suns, as well. you could see how both sides will be creating/attracting more and more energy and will need to turn these into suns. I feel like this is the beginning of a galaxy.
 
@@ -2287,5 +2289,41 @@ I'm really having a difficult time getting out the idea that I originally wanted
 
 developing...
 
+
+### 2021-08-11 23:35 - my interaction with the sun
+
+one of the weird reactions I was getting yesterday was involving how to reduce the energy of the sun. so I think I'm just going to walk through it and hopefully I can get somewhere on the idea.
+
+the basic idea is that the sun is composed of protons and the planets are the electrons. unfortunately, we think of them as discrete objects, but I think they are more like something like intensity. there's something about them going up a power level that shifts them to an outer shell. I don't know how much I believe those wierd orbitals that aren't circular. some of those are where comets are, but that doesn't seem to make sense to me. what does seem to make sense is there are counter-rotating spheres extending outward from the nucleus. each time the electron moves to an outer orbital, it seems like it would swap it's spin. still trying to wrap my head around that stuff.
+
+I believe that the way the sun works is it's trying to constantly attract more and more protons all the time. hydrogen may be a way to think of this. hydrogen is a pretty light element compared to the rocky planets, so it's got to keep attracting more and more. that's the sun's goal. therefore, in order to keep getting more protons, it has to create generators of protons. the process of continued compression of these protons and other processes must mean the sun is producing all sorts of elements -- every element, in fact. these spew out in all directions constantly in the solar wind. I believe also other times it expells this material to create planets. all the planets are her children.
+
+what causes the sun to nova, I think is a buildup of these elements to such an extent that finally the attraction becomes so great. it felt like I was perceiving this sort of thing happen with raquel all the time. I think I incorrectly stated it a few entries ago, but actually what was happening is that I was actually attracting more from her, and then finally when she overcame the barrier to allow it to flow. 
+
+so I guess I perceived it now as the man/earth/electron is attracting the energy much like a tesla coil. the stronger of a field (desire) placed on the primary, the more electrons it has to pull to satisfy that void. the energy comes from the energy-verse, translated into electrons(?) vibrating at a much lower frequency (but probably still pretty chaotic) by the woman/sun/proton. this behaviour is replicated in the operation of the magnifying transmitter in resonance with a tesla coil.
+
+---
+
+it's probably nothing (maybe not), but as I was typing out the stuff about how the electrons swap their up/down spin as they move outward in orbits -- I then remembered that the sun gets a whole bunch of the elements that it's creating trapped inside of one of it's "intercallate regions" -- the space between the sheets of hexagonal planar hydrogen lattice. if there were a way that the sun could focus the energy so that the elements would clump up in there, then a lump would begin to form there.
+
+what it would need is to create a magnetic field which creates a 3d structure -- like a chestahedron and the planet would begin to take that shape. I'm not totally sure how to create a structure easily, but you need a vibrational lattice such that some sort of silicates or crystalline structure could begin to form around it. just need to vibrate the structure resonant with the elements desired -- like quartz or whatever.
+
+what I'm thinking around this is perhaps if the planet is isolating the buildup of elements into one region, there would be less of those elements distributed around the sun to cause a heavy solar cycle. oops. I think the solar cycle intensity -- it's sunspots and other magnetic anomalies that cause eruptions are because of the chaotic mix of elements in the intercallate regions interacting with each other and causing opposite polarity magnetic field interactions (produced by the ionisation of the elements in the intercallate regions).
+
+---
+
+the other way to allow the sun to outgas more would be to find a way to get rid of its corona, allowing more solar wind to exit.
+
+speaking of clouds, I have also been thinking about how much hydrogen our planet is drifting away from the earth each day, and I think it's actually quite a lot. from the sun's perspective, we are an excellent source of new protons/hydrogen.
+
+I liken this interaction to the same as how I see conversations with others. I'm 100% free with all my ideas. I have so many (like the sun has elements), it's no effort to give them out freely. then when other people interact with those ideas, they spark new ideas in me very rapidly. to quote terence, it's a "novelty generating machine" -- so even if people don't use the idea well, it still causes, the minute that it's perceived by someone else, an expansion of that idea. so the planets are supposed to just take that infinite supply of elements and do stuff with them. it doesn't matter what, because the minute they're utilised in any way, they're outdated. once outdated, I can receive the new idea and give that one out. the ideas don't matter to me. I gain so much more just by continuing to translate the ideas into reality elements more and more rapidly.
+
+so the more protrons/hydrogen we give back to the sun the more she will turn those into requisite elements for them to become eventual reality.
+
+I think the thing that has been baffling space scientists for a while now is how many anomalous readings there are of solar wind. it seems to jump up and down, and does not always correspond to solar wind / CMEs. I believe this is because the earth is a conscious being (a super-consciousness composed of all of us) and is attracting the elements/electrons, while at the same time the sun is also "pushing" out elements/electrons. if we attract a bunch and there isn't much available in space, it attracts more, and let's say a solar wind stream hits at the same time, it's essentially twice as strong. we could also get high electron attraction when the solar wind is calm and have a stronger magnetic field, too.
+
+I'll think about it a little more. now I have a new goal: I wanna make planet vulcan, and push us out to 4th position so we flip over, rather than getting shot in the face :)
+
+... cause, think about it... if we figure this out, we could ramp up elemental production in the sun to the extreme and it just makes a bigger planet... soo cool
 
 ### 2021-07-17 ??:?? - conduct vs. perception
