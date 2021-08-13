@@ -2339,5 +2339,37 @@ even if you try to make the bad-guys the strongest, so that they "win" against t
 
 to break the cycle, you gatta break the meta :)
 
+### 2021-08-12 19:46 - response: what if you don't want to do what you want?
+
+there's nothing wrong if anyone wants to continue to play the game infinitely. the whole system is designed for optimisation of extremes. this time I'll use colours because they can be mixed easily. say there are two colours: black and white. if you want to go toward black, no matter how white the circumstances get, you get better and better at going toward black. then you become the thing you were fighting against: white, and again you find a way to get back to being black again. you win.
+
+the same is true for the whites. the harder they fight the black, the more they become it. they get better and better at going toward white, no matter how black they and their environment is surrounding them.
+
+it's very difficult to explain this with any single way so I'll have anothter go at it. remember the "mould effect" -- the faster something goes in one direction, the more it causes lift in the opposite direction? consider that black is the loop rising out of the bucket opposite to the attraction and white is the chain being pulled faster and faster in the direction of the way it wants to go. to go faster, the chain must have that opposite effect to continue its acceleration. inotherwords, the harder black pulls, the faster white goes toward what it wants.
+
+this is the basic formula for my equation for going infinite. the more people that are hell bent on finding ways to continue to give birth to more unwanted, the more there is to transform into wanted -- and therefore the faster it can go. the faster it goes, the higher frequency it becomes.
+
+so, there's no problem if you wanna keep winning. each time will be a little different because each time you will have more of a propensity of going toward wanted/unwanted. each time you will get better and better until you finally decide that you're tired of so much winning and instead of *just* winning, you want to actually create something. that creation, whatever it is, will have a tremendous amount of energy to it.
+
+ah, I see the problem: people equated winning with good-guys. the bad-guys win too. in their perspective they find better and better ways to continue to find new ways of fighting against unwanted to get wanted. I don't consider this to be winning, but they do, because they found a way to take advantage of someone and get it without having to earn it (like the rest). in reality, no one needs to earn the ability to receive what they want. normally, you have to focus on wanted to get wanted, but they want to try and fight the flow and focus on unwanted and find a way to manipulate the conditions to get wanted. for them, they think they "won" when they sucessfully manipulated someone for it.
+
+this makes sense to me, as I have everything as free. it's like trying to prevent someone from hogging the sunlight. for example, from the sun's perspective, the more hydrogen we're releasing into the atmcosphere, the better. that hydrogen vibrates at a different frequency than the sun's hydrogen, and that vibrational difference causes an expansion.
+
+the goal is to give them the ability to spend unlimited resources as fast as possible. they still think they need to limit other people and keep them away from unlimited resources, which is the going against the flow part. however, that causes the others to become more creative and use those resources to create even more things.
+
+---
+
+oh, that just made me think of an experiment that I want to do with the sun with hydrogen and protons. like if I could find a way to generate massive amounts of hydrogen at a constant frequency and then release it into the atmosphere rapidly, how does the sun react to such a thing -- and is this similar to a comet tail.. then, I want to release the same constant frequency hydrogen into space directly and see how the sun reacts to that, then I want to create a (I don't really know how to describe it well) -- kind of wireless proton energy transfer directly into the sun at the same frequency and see how that goes. I imagine there is quite a difference. I imagine this could be used to stimulate solar activity, but likely the most efficient way would be to directly transfer protons generated from people's emotions directly to the sun. I imagine you could get basically unlimited power (electrons) in return -- just by transferring the chi/prana/vril we produce to the sun.
+
+hey that's such a good idea! I wanted to make a local-area nosebook where each person is their own local area broadcaster and we all can interact with each others' "conceptual programs" -- a sort of distributed nosebook network. this is exactly the power source I needed to make that happen. we give chi/prana/vril (protons) we create and the sun powers our network. each person's network now lasts as long as the sun.
+
+wow, that's cool!
+
+---
+
+wow, I really derailed my point quite a bit there. what I was saying is that for these games we use each other's source signals for other characters in the world -- so like for example, imagine that this same timeline can produce a win for mr. motor and also for me. he could leave here and go his own way with all of the capabities that he acquired. that's the point. from his perspective, he managed to figure out a way to accomplish his desire of having enough technology to control the whole world. from there, he *could* go toward even more control and domination if he wanted to. or, he could continue to optimise his capacity to go toward unwanted, and even when he has the stuff he wants, build more systems to help him keep fighting against all the unwanted stuff (which is just a reflection of him). then, when he needs another bailout again his desire for survival will attract someone going toward wanted again. rinse and repeat.
+
+moar winning
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
