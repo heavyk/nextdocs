@@ -2326,4 +2326,18 @@ I'll think about it a little more. now I have a new goal: I wanna make planet vu
 
 ... cause, think about it... if we figure this out, we could ramp up elemental production in the sun to the extreme and it just makes a bigger planet... soo cool
 
+
+### 2021-08-12 18:06 - the greatest game
+
+I was thinking about thia after I woke up, but I wanted to write it down. I think my game is quite a good one because both the winning case and the losing case result in a loop. the only way out is to figure out what you really want to do, and do that.
+
+if you lose, you stay defeated and you try again. then, when you win, you become the thing you were fighting against -- the "bad-guys" (this always happens because of LOA). so then from the bad-guys' perspective you can try to conquer the world further and defeat yourself with your own perception, or replay the game with an easier challenge -- but, I mean, who would do that, right? it's like trying to figure out how to make "go fish" an easier game to win. after some amount of time, you increase the game's difficulty for yourself (you are the bad-guys) until you get so good at winning the game, you finally decide that instead of winning or losing, why not just do what you want to do...
+
+in my opinion, this is a pretty cool setup because it fits everyone -- even the bad-guys. let's say you remain 1000% convinced that you are still the bad-guy even after thousands of iterations -- even when you decide to finally try being a good-guy for once -- you still find yourself to be the bad-guy again. perfect. now, instead of fearing that doing things the "right way" will jeapordise your bad-guy status, you don't have to worry about it. you can keep making the bad-guys stronger (they are you after all), and just focus on winning -- I guess.
+
+even if you try to make the bad-guys the strongest, so that they "win" against the "good-guys" -- they too become the thing they're fighting against -- the "good-guys". see how the bad-guys become the good-guys and vice versa over and over? it's like a pendulum that swings between both extremes.
+
+to break the cycle, you gatta break the meta :)
+
+### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
