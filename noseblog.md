@@ -2371,5 +2371,51 @@ wow, I really derailed my point quite a bit there. what I was saying is that for
 
 moar winning
 
+### 2021-08-13 15:25 - wasn't I supposed to deal with the girls?
+
+for starters here, I'm kinda just following cues I'm being given a little bit here. in a lot of ways, the lowering of the emphasis of going toward the girls was way lowered. as evidenced by the reactions to writing @[noseblog](2021-08-10 15:03), I noticed that they really did not like the idea of all happening. I've been backing off on the girls for a few months now. I'm not interested in the idea unless it's all or none. I decided to stick with none. however, after writing that I started to think that maybe the all version is the best way because it's the biggest disaster.
+
+I then started to become more interested in programming again. it feels good to me to work on some ideas that I had of things which make things. to do this you need a good JIT with metaprogramming capabilities. the elixir project started out feeling really good, but quickly turned to feel pretty bad. jai never became available, so I didn't try that one either. I decided to shelf the idea for a while. I was quite excited when I found out about mass, because it reminded me a lot of the old SpAsm days (it's called RosAsm now). rene's macro unfolding was really mind opening for me back then.
+
+---
+
+I was going to write an entry yesterday saying how I was going to just focus my time on programming for a while. it felt to me like they have some technical stuff to figure out -- probably relating to the things I wrote about the sun and mars -- so I figured it would be a good time to pull out the idea of a program which makes a program (or web page). they don't want me working on web (no social interactions), so programming seemed like a good choice.
+
+I disliked very much how I used to frequently talk about programming things, and then never actually program anything. so, instead of doing that, I set a few small goals and decided I wanted to make a very simple tower defense game. I didn't even want to worry about the display of the game, so I wasn't going to write graphics code. instead, I was going to take in a bunch of configuration files. they would be parsed and then that would write out the code -- maybe lua or c++ or something -- didn't matter. this fit perfectly with the objective of the mass project to create type-safe dsls.
+
+mass is (very unfortunately) quite in its infancy still. I don't really find that to be a problem because I seem to understand C code much better than C++. given a little bit of time, it feels like I can get the image of the code in my head. I seem to be understanding it already pretty well... sorta. I mean, enough to start to do things anyway.
+
+it's also kind of an interesting challenge for me. I want to keep trying at it for a bit, because I think it's kinda fun anyway.
+
+---
+
+there are a number of problems though. they don't really want me interacting with people. also historically, whenever I've interacted with people on a project (eg. jon, andreas, elixir, etc), chaos starts to get introduced (LOA is stronger when creative energy flows).
+
+creative energy is a very peculiar energy. you can notice a very similar energy that a programmer feels toward his project as a girl wants a man to feel about her -- like, I'm the only one, the best one, the solution to your troubles, etc.
+
+it's a nurturing energy and it comes as a reflection that the flow-er (flower?) of that (feminine) energy feels like they are doing their best and that it'll yield the best result. there's a lot to write about that energy which I can do some other time, but it produces a lot of interesting effects like "oneitis" and territorialism.
+
+---
+
+the problems arise because I get the feeling there's sentiment that I'm supposed to be keeping the girls busy while the dudes work on their passion. obviously if that were the case, then I'd be around girls all the time. they don't want that because again LOA is stronger when creative energy flows, and girls attract a lot of it -- some times even more than a invigorating project.
+
+they definitely don't want too much of that energy flowing, and they definitely don't want me around girls. I realise this is opposite the image they're sending out. so, there's a bit of a problem because the programmers don't really want me around, as my input causes too much chaos, and nosebook doesn't really want me to be around the girls either.
+
+for now, I believe I'm going to just keep fiddling with mass. I'll put my code up on github. I'll try to do it in a structured way where each branch has a written objective to it. probably use github pull requests on my own fork. for now, I'll just go at it myself. if he wants to reach out, that's cool, but no worries if he doesn't.
+
+---
+
+it feels like I'm sorta just passing maybe a few months or years of time as I steadily get closer to finding the capability to feel things manifest into reality faster and faster.
+
+I don't really know what to say but my life has this 11 year pattern to it -- for both of my sides. the 11 year increments are the turning the corner and then the following year is when it goes nuts. my left side is turning 22 next year. the following year (2023) kenny also turns 40. I don't know what'll happen by then, but I do know those will be very energetic years.
+
+it feels like I'm on a steady rate of expansion right now -- maybe slightly accelerated, but when that happens, it'll really be overdrive. so, while I'm going slow, why not take advantage of the slower speed to try and do some of the things that are impossible when I'm going fast.
+
+like, when I'm manifesting things with my mind, I'm going to be harware focused, as I'll want to create energetic interfaces to my computer. it feels like a good idea to have a JIT language that can expand as fast as I can think. obviously, building interfaces for others would be pretty cool too.
+
+I dunno. it just feels like the right way to go for a bit. I struggle with C, but I'm picking it up really fast, and so far there aren't any of those "wtf is going on here" moments.
+
+I just want to make things which make things.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
