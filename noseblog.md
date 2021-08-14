@@ -2417,5 +2417,24 @@ I dunno. it just feels like the right way to go for a bit. I struggle with C, bu
 
 I just want to make things which make things.
 
+
+### 2021-08-14 04:59 - the sun and time
+
+while star-watching, I was thinking about how to explain time and the expansion of the universe. the reason why is because from our perspective we can explain how things work, but it's never a complete view. if we had a complete view, then there wouldn't be any random. everything could be predicted. this is a description of source, and as we get faster and faster frequency, we get a better explanation of how things work. when we get to where source is now, source will be considerably more faster than we are.
+
+I don't know if source has everything figured out and they're essentially inventing new things at higher and higher frequencies for us to figure out -- or, if they too are steadily gaining more clarity of what higher and higher frequencies enable. I believe it's a bit of both -- just, they're way further out ahead of us.
+
+either way, this means that we're all increasing in frequency the more time passes. we think of increase in frequency as a vibrating body approaching the perspective -- the "doppler effect". so all of the contents of the universe is acelerating faster and faster toward the perimeter. this sounds like solar wind. solar wind is most dense nearby to the sun, but this is when it's travelling the slowest. as it gets further out in the solar system, the faster it goes.
+
+that's weird right, because we usually think of attraction going toward a point. however, it appears that the edge of the solar system is attracting solar wind toward it. crazy, because this is how I also perceive time -- as flowing outward.
+
+we have a good example of this right here on earth. the most dense stuff is in the centre. the light stuff -- namely, hydrogen -- accelerates more and more rapidly as it heads toward space. I think this is the reason for cosmic rays. it's just hydrogen accelerating towards space at a more and more rapid rate. out in space, it goes basically unubstructed faster and faster toward lower density regions of space.
+
+this must be the process which produces solar wind as well. imagine a hollow sphere and all of the molecules inside are attracted toward the perimeter. when they get there, some stream out but the process by which the sun retains its hydrogen is through condensation. turning the gaseous plasma back into a liquid so that it can fall back toward the sun. another interesting effect is -- imagine for a moment that the distribution of the hydrogen gas is uniform inside of the sphere. as the hydrogen is attracted toward the perimeter, it will create a negative pressure zone in the centre of the sphere. this must be the reason for the polar vorticies, because, like a reverse drain, it needs to fill the negative pressure zone in the centre with something.
+
+---
+
+ok, so now I wanted to tie all this in together with how I perceive time but I cannot get there now. it all shows itself so clearly to me when I've got the stars, but now it's foggy again. I'll get it soon. 
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
