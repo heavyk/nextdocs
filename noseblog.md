@@ -2436,5 +2436,64 @@ this must be the process which produces solar wind as well. imagine a hollow sph
 
 ok, so now I wanted to tie all this in together with how I perceive time but I cannot get there now. it all shows itself so clearly to me when I've got the stars, but now it's foggy again. I'll get it soon. 
 
+
+### 2021-08-15 05:26 - a wave of apathy & the monohero
+
+I wrote about a few different things -- like, the idea of how to use the sun and stuff as a way to delay the evitable. I also wrote about how I want to do some stuff with programming, but I have such tremendous apathy that I just don't think that anything will come of it.
+
+the reality is, it all basically depends on how long they want me here. I figure they're just going to keep pushing against everything -- like, there's no way they can allow for all, so they will want to ensure that I'm never manifesting anything. this will keep building up until it's impossible to try and hold back me back from finding my alignment. at that point it's kind of too late to try and delay things. sorta unfortunate because there just won't be enough time to stop the acceleration.
+
+to take a quote from abraham on this one, they're going to try and slow down the vehicle when it's already at the bottom of the hill. I get it though. I'm the same way. if someone told me something, I'm not going to just take their word for it. I learn things the hard way too. it's the most effective way to learn.
+
+---
+
+however, this all seems to relate to what I was talking about yesterday with mom about the monohero. if they fumble the ball and have to go into recovery mode to try and ensure that no one is finding their alignment, then it produces the exact situation that I originally was thinking about where they have to keep spreading people out and mixing them into more and more difficult conditions until everyone is essentially on their own timeline in conditions similar to the ones that I'm in now -- where there are no conditions that I can rely on for my alignment -- no friends, not really family -- it's basically just me figuring it out on my own. I'm the hero in that sense. I'm also the villian too, in the sense that it's only really myself that I'm fighting against, so when nothing bothers me anymore, there will be no way to stop my finding my alignment, so I beat the game.
+
+from my point of view this is a great thing because, just like when you die, you leave behind all things unwanted and only experience wanted, the same thing will happen. from that perspective, everything is wanted because of the benefit of extremely long-range vision. so sure there are a bunch of people out there trying to keep humans from finding their alignment -- well, this isn't like a bad thing at all, because I have the benefit of seeing how they are producing the very thing they're fighting against. dispite their best efforts to produce unwanted, it all appears wanted to me.
+
+it's a bit difficult to explain this perspective. it can only be appreciated when you experience it for yourself. so, if it's so great, why then do we "incarnate" into these bodies? it's not to experience wanted, as that's natural, but to experience unwanted so that greater quantites of wanted can be desired.
+
+that's what I mean when I say when I say that their fumbling the ball actually produces more than if they were to just take my word for it. in a sense, the biggest disaster is also the most unwanted. I guess it's like an investment -- don't take the manifestation now, you get a bigger one later.
+
+---
+
+I've actually given this a lot of thought and I think it's actually one of those things where I'm sorta forced to always allow the manifestation to become bigger. obviously this has a limit, right. I considered at first that the limit (or even perhaps the trial run) would be galaxy sized, but then that would require a manifestation for that to happen -- I think.
+
+I decided that maybe actually it was a good idea to just try and not go for a manifestion ever, and just allow for the non-manifestation to increase to produce more wanted in the moment to moment (because of the constant feeling of acceleration), rather than a manifestation which expands rapidly, but then slows down its expansion after that. the "going infinite" concept.
+
+the major flaw with that is that it does not appear like these guys are capable of keeping a manifestation away. they will never be able to accomplish wanted while focusing on unwanted. so the going infinite idea has to be shelved for as long as they insist on making action from perception of unwanted.
+
+I later thought that maybe the galaxy idea actually does not require a manifestation. in fact, I surmised that actually, it will be accomplished naturally. they have such an impossbile task ahead of them of trying to keep away from their alignment as we appreach sirius, that there simply is no way to prevent that from happening. I actually believe that the only way for them to even come close is to begin creating planets and stars.
+
+I don't think they'll do this now, because as always, they'll drag their feet until it's the only option left and they're "forced" to do it. therefore, I don't suspect this will be a real thing for some hundreds of years, I guess. this could change if they had a bunch of strong attractors.
+
+therefore, I think then the goal is to plant the seeds now and get that ball rolling now so that it's an easier "solution" that they can arrive to later when backed into a corner again. so, I don't actually create the galaxy -- they do. I just sort of planted some idea seeds and make sure they have the capability of reaching such a goal technologically.
+
+---
+
+I imagine that (or some variation of that) will be the case. therefore, I'm back to not having the manifestation again. what tmen I was thinking is that perhaps this will actually continue on until they're able to give their attention to wanted.
+
+like, let's say the galaxy works out well, eventually we will occupy the whole galaxy. eventually, you can imagine that with this monohero idea, that if everyone is the hero, and everyone has to find a way to no longer need the manifestaion too... like, if everyone is fighting their own self, and each person's dual is responsible to ensure they don't get conditions to facilitate their alignment, then that means everyone is going to become pretty good at not needing the manifestation. this is such tremendous potential (but not manifested) energy that I could even imagine a scenario where the realisation that perception of unwanted is understood to create more, so we just create constructs of ourselves to just keep that going forever. all of us will be going infinite, in that sense. there's no reason to try and get any physical manifestation anymore.
+
+that's so far out, it's hard to see. in fact it's pretty difficult to try and imagine what it would be like to feel constant acceleration (infinitely), while at the same time being relaxed and knowing that everything is fine. I imagine it's similar to how I feel now actually, where even apathy doen't feel bad to me anymore. the "worst" manifestation even appears as wanted. it feels like going forever in the direction of wanted, even though I never actually get there. like, you know how you feel on the way to getting to christmas or some other great event, the excitement of going there -- cept, that excitement just continues to increase -- like forever, and never getting there.
+
+I dunno man. it's kinda an interesting concept because it combines a bunch of ideas:
+1. you never get there
+2. it's always more
+3. there are cyclical variations, but it's just variations in rate of acceleration.
+4. you're always going faster.
+5. the only reversals in direction are relative to something else
+6. everything is perceptual/relative
+7. everything is improving
+8. nothing is ever manifested -- instead, more like discovering the higher and higher frequencies -- cause they cannot be perceived until you're close enough to them.
+
+---
+
+it sorta assumes that you are able to constantly improve on your ability to navigate at faster and faster speeds. only things that are in a constant state of improvement can exist in this universe. 
+
+I think to get there, all I need to do is just keep not needing the manifestation.
+
+in that sense, this wave of apathy is no problem at all. one step closer to never getting the manifestation.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
