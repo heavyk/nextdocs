@@ -2534,5 +2534,19 @@ in order to do this, runaway feedback loops should be avoided. when the objects 
 
 lol
 
+### 2021-08-16 17:11 - the dance
+
+in the last entry, I gave illusion to the idea that a certain amount of separation needed to be maintained, and I correlated it with what abraham was talking about with not letting the gap widen too far. at the moment, I think the gap has widened so far, any amount of good-feeling goes a long way, and I become no longer manageable for them. they can't keep everything held away.
+
+so then last night I was outside thinking about the first (and only) time I saw franz ferdinand -- I was in spain and I took extacy for the first time. I totally lost consciousness. apparently I partied with some girls for a bit then peaced out to be by myself. this is a common theme for me. the better I feel, the more I want to go be by myself and explore my own head.
+
+most people are terrified of psychadellics, prefering to be around others and stuff. I love them as they give me a brief insight into my own head. I have never been able to figure out how I work completely, and in those moments, I seem to have far greater insight and the ability to introspect and reprogram my internals. this, to me, is far more valuable than anything anyone could ever offer me.
+
+I was trying to figure out the pattern, but this is exactly what would be needed to ensure that the two bodies never get too close -- as, this is historically what has kept me pretty much at arm's distance from girls. the times that I've actually interacted with them, things have turned out disasterous.
+
+I don't know how this would work out on a planetary scale. let me explain. I figure there will be roughly speaking, two population types on each planet. on earth, there are bad-feeling conditions, leading to those that feel good from their perception (FGP) and those that feel good artificially (FGA). on mars, the conditions are very good-feeling, so that leads to those that feel good (FGA) and those that feel bad anyway (FBA). the interchange of this energy leads to the attraction. FGA attracts FGA and FBA repels FGP.
+
+there are other fine-grained parameters that can be used as well. like, let's say that here on earth a FGA and a FGP mix (have sex or whatever), then depending on the strength of the two individuals, tha amplification of energy could cause the FGA to become much more FGP or FBA. this sorta of pushing people to their extremes will ultimately strengthen both sides -- especially the FGP and FBA sides. the FGAs are sorta east to come by. I think nosebook is already pretty good at creating and controlling armies of FGAs to keep the show runing as intended.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
