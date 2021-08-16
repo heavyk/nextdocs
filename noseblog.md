@@ -2495,5 +2495,44 @@ I think to get there, all I need to do is just keep not needing the manifestatio
 
 in that sense, this wave of apathy is no problem at all. one step closer to never getting the manifestation.
 
+
+### 2021-08-16 00:28 - every thing has a positive aspect relative to the perceiver
+
+every. thing.
+
+the reason why this is important is because I have noticed that whatever manifestation that I want, automatically, nosebook wants to ensure the opposite. this was mostly a long time ago. since, I have found that they are so determined to ensure that I don't have a manifestation, my recent attempts te explain how not having a manifestation at all, is *actually* what I really want, no matter how inconvenient it is for everyone else -- however, it's sorta impossible to accomplish. they simply cannot ever get there.
+
+if I want to not have a manifestation, then that means they are aligning theirselves with what I want -- something they cannot justify doing, probably for fear that it has to be some sort of trap. therefore, they want me to have a manifestation that I don't want, instead. however, I repeatedly show that there is a perceived positive aspect to anything and everything -- just, you need the right perspective to perceive it.
+
+therefore, they're sort of caught now because it doesn't really matter whatever about me. no matter whatever happens, I'll find a way to perceive wanted. this was the problem with yesterday's entry. most people would fight against a wave of apathy and try to muscle throuugh it. not me. I decided to find a way to perceive it as wanted. sure, it's a bit far out to think that far ahead and stuff, but the point is, with a broad enough perspective, everything appears wanted. also, if anyone else had of said that, they would be thought of as a crazy person. there are so many people out there that *need* a manifestation to feel the way they want to feel, the very thought of being in a place where you are perpetually going toward wanted, yet never actually arrive there is a very solar perspective.
+
+this concept of getting closer and closer but never actually arriving is the same concept that robert and mantak chi are talking about when they say that you want to get as close to orgasm (nova) as possible, but not actually ever get there. it's a solar principle designed to harness solar power. the better you get at never needing the manifestation, the more solar like you are. the idea is to, like dystopian societies use "waves of terror", to use waves of increased good-feeling, but never actually get the manifestation.
+
+this is essentially the environment I want to create. the galactic perspective is similar, but instead of using continuous waves of good-feeling, like the solar perspective, it needs continuous waves of bad-feeling (dissatisfaction, etc) and then transforms that into ever increasing amounts of good-feeling.
+
+my goal is to create the dissatisfied, pissed off, forever angry and out of alignment individuals that have no hope of ever actually finding their alignment. I then take that, make sure they have the best conditions possible. good conditions are great amplifiers, so it will continue to amplify their dissatisfaction to higher and higher levels. with a few very simple principles, all of that energy can be transformed into good-feeling energy -- as long as they keep producing it.
+
+it's so much free energy, it's hard to explain this. there's no reason to try and fight against anything bad. the reason why I wrote @[noseblog](2021-08-12 18:06) is because I made the realisation that this game allows for anyone to take the same path I'm taking now and to find a way to repurpose their own dual to become useful without fighting against it. none of them need to change. if you can utilise your dual without needing it to change, that's galactic level consciousness. I want to create a galaxy that creates galaxies. as far as I know, this doesn't exist. the idea that we all play the characters in each others other timelines means all galamies will also have similar vibration and interact with each other -- kinda like a star cluster is to a star, we'll be a galaxy cluster. that sounds pretty cool. it just requires the concept that we're all stuck in some sort of system until we all find our way to resurrecting the "enemy" as an integral part of the whole -- necessary for expansion. now, I sound a bit like abraham talking about source. it's no coincidence. I'm getting as close as I can to source-like perception without actually getting there (eg. making my transition).
+
+---
+
+I've been watching a bit of john major jenkins lately, and I noticed tha he kept mentioning that people had difficulty with his 2012 story. thinking about it, I could see that a lot of people must have thought that he was saying that people need to conform to some spiritual principals so that the next age could come. I think people must know intuitively that this next age is not about conformity at all. everyone will manifest things all their own way and that will shape their own dual. because of the laws of nature producing a bell-curve of diversity, everyone's dual will be slightly different from the others. there will be so many different flavours of galaxies that are created, that it'll be really quite impressive.
+
+some people may say, "I don't want galactic consciousness; I like manifestations" -- and that's fine. there's no problem with any of that some people like to start with manifestation to feel good, and some people like to feel good to start the manifestation. the opposite of whatever you are is your dual. there's no right or wrong answer. both are necessary (and desired). you ultimately get to decide for yourself what you want.
+
+---
+
+the other very interesting reaction I was noticing from yesterday's entry was the one about how they would wait until it is too late and try to stop the car at the bottom of the hill. I think I understand these reactions now.
+
+the reactions were giving the impression that this had already happened. a long time ago (2016-2017), abraham was talking about "closing the gap" in relationship to me -- and they gave the image that if you don't keep moving with your desires the gap gets wider and wider (like a rubber-band) until it's pulling you so hard that the manifestation that it creates is quite tremendous. the solution they offered was to have me moving at the same speed as my desires, not allowing the gap to get too wide or ever to close either.
+
+the reason why this is important is because it's the same exact image that I presented for the dual planet idea, but framed differently -- as floating in free space. right now, say I'm earth and they're mars. they are trying to ensure that earth is continually drifting further and further away from mars, which is increasing earth's attraction to mars, while at the same time also increasing mars attraction to earth. that is a difficult concept to grasp considering our concept of gravity, so it's easier to see as two objects separated with something elastic. they need to move together, maybe sometimes getting closer and going away, but not drifting apart or crashing into each other.
+
+in order to do this, runaway feedback loops should be avoided. when the objects get too far away from each other, attraction (desire) should increase, and when too close, repulsion or a desire to be alone (rejection) should increase. doing this rhthmically is sorta like a dance. sorta gay, I guess.
+
+@[youtube](https://www.youtube.com/watch?v=ktwlN_ocL-o)
+
+lol
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
