@@ -2548,5 +2548,79 @@ I don't know how this would work out on a planetary scale. let me explain. I fig
 
 there are other fine-grained parameters that can be used as well. like, let's say that here on earth a FGA and a FGP mix (have sex or whatever), then depending on the strength of the two individuals, tha amplification of energy could cause the FGA to become much more FGP or FBA. this sorta of pushing people to their extremes will ultimately strengthen both sides -- especially the FGP and FBA sides. the FGAs are sorta east to come by. I think nosebook is already pretty good at creating and controlling armies of FGAs to keep the show runing as intended.
 
+I feel like I have more to say here, but I'll stop for now.
+
+### 2021-08-18 07:17 - twice 11 brethren and the pre-game show
+
+@[youtube](https://www.youtube.com/watch?v=3Pp8eWlrBF0)
+
+I don't really know how to put all of this into words. I watched the video up there about matthew 11:11 referring to john the baptist being the greatest amongst men born of women (but least in the kingdom of heaven). I can't really help but to relate that to my other favourite 11:11 verse in revelations:
+
+> And after three days and an half the spirit of life from God entered into them, and they stood upon their feet; and great fear fell upon them which saw them.
+
+there are lots of references to the "two witnesses" being both moses and elijah. however, jesus says that john the baptist *is* elijah. there's another reference to these guys being "the two olive trees and two lampstands" in zacheriah. concluding by saying, "These are the two anointed ones, that stand by the Lord of the whole earth."
+
+I just looked that up just now and it made me wonder who the lord of the whole earth is. following rev 11 is woman who will give birth to a man who will rule the earth with an iron rod... the dragon tries to interfere, but the dragon is defeated.
+
+in masonic symbolism, there are two columns that has something standing between. often times one (always left?) column is corinthian (maiden) with terrestrial sphere on top. the other (right?) column is the ionic (masculine) column with the celestial sphere on top. this shows the masculine (left) and feminine (right) from the perspective of the lord of the whole earth is standing between the two columns. pictured between the pillars in masonic symbolism is high-ram abiff, the builder of soloman's temple.
+
+what these verses are saying, is that these two witnesses or two annointed ones are, like john the baptist, just the pre-game show. there's another weird thing about the kingdom of heaven... let's say that's the celestial sphere sitting upon the ionic column. when he says, from the time of john the batist until now (when is "now"?), the kingdom of heaven suffers violence and the violent take it by force. this reminds me of the symbolism of michael and his archangels making war in the heavans (taking it by force).
+
+it's also weird the description of the great red dragon -- the deceiver of humankind having 10 horns and 7 heads -- there's that 17 number again. the great red dragon causes a third of the stars to fall, but michael and his angels fight against the dragon and defeat it, thereby taking over the kingdom of heaven (the celestial sphere) with force.
+
+---
+
+later on, there's this beast that shows up. the first beast is described as similar to the dragon and was also given power by the dragon. this beast was wounded, but that would has been healed. again this is similar imagery to the two witnesses having been given 1260 days to prophesy. this blaspheming beast is also given 42 months to speak many great blasphemies against "God". though dispite this, the dragon and this first beast were worshipped by the whole earth, cept those not written in the book of life (these are the "redeemed ones" -- the ones on God's good list).
+
+I contend that the two witnesses are symbolic of me in early times -- say from 2017 (34-17) or so.. not sure when exactly. later, I get upgraded to the dragon, and again, I'm not sure when that would be -- maybe 2020 (37-20) or so -- dunno. from there he transforms into the first beast -- which again, I think is symbolic of me. again, 42 menths will pass, and this time we're at a future time but that would we in 2023 (40-23).
+
+after describing this second dragon, it says, "If any man have an ear, let him hear." -- very similar to matt 11 when jesus explains that john the baptist is elijah, "He that hath ears to hear, let him hear."
+
+this beast/dragon which the whole earth worships ia now said to be making war against all those that are not written in God's good-boys list -- and strangely enough in the second chapter, it describes these 144k good-boys as been "virgins, not having been defiled by women".
+
+these chosen ones sound to me like the masculine rulers of the celestial sphere which michael and his angels were able to remove the dragon from. this must be the meaning of "And from the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force."
+
+it really is weird to intertwine the texts of rev 11 and matt 11 together. it's literally twice 11 at the beginning and the end (alpha and omega)...
+
+---
+
+ok, so that was a pretty good intro.. now, what I wanted to talk about... the reactions the last few days have been that there is no way possibly that it could be all, and that we've decided to instead go for none. I'm totally on-board with this idea. I have no intention to try and make anything happen.
+
+as a result, that means that the galaxy (or even the mars/earth dance) idea is out again. we're back to them going to make their own timeline. I contend that the book of revelation is an abstract version of that future, propagated through the centuries and believed in by many as a way to make that future more likely. that story is told from the perspective of michael and his angels being victorious over the great dragon.
+
+interestingly enough, I have often held the belief that I am not the main event, but something more of a pre-game show. this could be seen in all three of those symbols. the two witnesses have a rough first half, die and are resurrected. the dragon also has a rough first act, then after having been defeated is able to create the first beast. the first beast does not say what is the first act, but it was wounded but healed from it. it's kinda like the first beast is the dragon's second form.
+
+however, there is a second, second act too. the first beast is followed by the second beast, the one having horns like a lamb/ram and speaking like a dragon. this performs many wonders (spectacles of illusions), and is responsible for economic difficulty of people, but most known for deception (as opposed to shameless blasphemy). consequently, this deception is likely the reason the imitation/false beast (speaking like a dragon) causes the people of earth to worship the first beast (who is now healed of the wound).
+
+---
+
+rev 14 contains another second act with a sickle. first, "behold a white cloud, and upon the cloud one sat like unto the Son of man, having on his head a golden crown, and in his hand a sharp sickle." -- "father time" imagery alert here. then, after that an angel -- presumably one of michael's angels -- copies the son of man and repeats the procedure...
+
+```
+17 And another angel came out of the temple which is in heaven, he also having a sharp sickle.
+
+18 And another angel came out from the altar, which had power over fire; and cried with a loud cry to him that had the sharp sickle, saying, Thrust in thy sharp sickle, and gather the clusters of the vine of the earth; for her grapes are fully ripe.
+
+19 And the angel thrust in his sickle into the earth, and gathered the vine of the earth, and cast it into the great winepress of the wrath of God.
+```
+
+I find it especially interesting the very clear distinction being made here between "angels", the "son of man" and the "lamb". there's even a distinction between "jesus" and "lamb". they're not the same guy. it seems that "God", "Lamb" and angels are associated, yet the saints (chosen ones) keep the commandments of "God" and the faith of "Jesus". (evidenced mostly in rev 14)
+
+it's also weird that the second false beast having horns of a lamb and speaking like the dragon gets people to take a mark on their forehead for economic reasons, then in the following chapter (14), 144k of those chosen by the lamb also have a mark on their forehead. this time, instead of the false lamb putting a mark on them for economic reasons, this lamb gives these good-boys the mark of approval, "being the firstfruits unto God and to the Lamb"
+
+seems to me like the false beast (which has the horns of a lamb), is a second act to the first beast, but also has a first act to the Lamb. this second beast is sorta like a transition from the dragon to the lamb.
+
+---
+
+ok, now to fill in a few things here... there's that talk of the lamb sleeping with the lion... kind of weird because the lamb is on the opposite side of the zodiac of the lion... anyway, there's another symbolism here which is that the lion (of judah) is the symbol of jews. the lamb is the symbol of the aryans (aries/mars the ram). the idea of them sleeping together in completely bonkers.
+
+I submit that these two warring factions have a common source. they are perpetually each others' second act.
+
+I'm just the pre-game show. the lamb coming after me will be much more handsome than me. I'm sure they'll get most of the bugs out of the image by then, and I'm sure he'll be a lot more desirable than me too.
+
+don't wait for someone to come down out of the sky to annoint you the hero. you are the hero.
+
+there is also a second act of the "lamb 
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
