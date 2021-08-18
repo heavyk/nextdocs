@@ -2620,7 +2620,48 @@ I'm just the pre-game show. the lamb coming after me will be much more handsome 
 
 don't wait for someone to come down out of the sky to annoint you the hero. you are the hero.
 
-there is also a second act of the "lamb 
+
+### 2021-08-18 12:12 - the aryans did it
+
+one of the funny reactions that I noticed here when I got home was in relation to where I said that the book of revelation was written from the perspective of the loser. how could that possibly be so if it corresponds to present time. the way I understand it, the time when john received the vision, it was a time of terrible persecution and hardship. john was tuned emotionally to that frequency. therefore, the way that john will interpret those symbols/concepts will always be in relation to his tuning -- which for most people is their present circumstances.
+
+I believe this is the same for de vere -- as he too was interpretting and implementing the symbols in reflection of his present world view. in fact, this will always be true. everyone always sees what they want to see -- rather, I should say, a reflection of what they feel (their present concept) in the moment.
+
+therefore, knowing this, assume for a moment that it was the aryans that are losing the end of days battle and need to come up with a way of making an out for themselves. they need people to believe in the future to make it happen. it's sorta like "create your own messiah" -- a derivative of create your own reality, but for the those that need saving (the losers).
+
+this the meddling of the aryan custodians through time combined with the lamb symbolism, paints the illusion that it was them. they are known to be able to transmit images and concepts to other humans and stuff, so it checks out. however, like I said -- I believe that the aryans were either compromised or were some sort of foreign invader (robert says they're from aldebaron). I honestly have no idea. I don't really care.
+
+---
+
+the next set of reactions were regarding my recent question to ninth heretic asking about the phoenix having two heads and that in separate forms they are the right-looking eagle and the left-looking eagle. these eagles can be seen throughout history. I wondered if they have a meaning which way they look and if the phoenix bird which revives from the ashes is when both left and right-looking eagles are united into one.
+
+this corresponds with the symbolism that I was explaining that this whole episode of the germans losing the war and pushing hard against the jews was to make them stronger. then when they too needed a bail-out, because the internet was allowing for too-rapid of communication, they could get their second-wind by someone like me. they did the necessary measures to take over the world's economy.
+
+that symbolism also corresponds roughly to the first and second beasts (loosely). the first beast was the germans and the second beast was the jews. anyway... I believe that these two factions are constantly pushing against eachother.
+
+the reaction was that the jews are constantly being displaced (moved out of their territory) by the aryans. I don't know enough to comment on this. I have no idea if this is a perception or if it's history. the reality for me has nothing to do with this. I also don't know if the aryans are going to continue in the south pole or not. I would assume so. I believe they would definitely be a lot of the FGA here. seems they have mastery over feeling pretty good (nice and relaxed and stuff) and even maintain high psychic capabilities even while experiencing strong negative emotion. there must be someone(s) somwhere that they're hooked into (probably at the top somewhere) that are FGPs. very much not unlike my present situation.
+
+if FGP energy behind the aryans is me (err, not kenny -- but, who kenny *really* is) and they're using similar genetics to my own, which is what I propose is likely to be happening, then it's a consolidation effort. the point is to get the semites using the same genetics as well.
+
+---
+
+to me this plan makes perfect sense. imagine that me, the aryans and soon to be the semites too are all "automatons" of a common source -- then, that means that they exist essentially as a source of contrast to continue the expansion. from my perspective, there's nothing wrong with them at all.
+
+most people behave in response to their environmental stimulus, and this usually is in response to unwanted. let's look at the two extreme types of automatons -- ones that react negatively to bad condtions, and the ones that react positively to good conditions. there is no stopping any of the automatons from breaking away from their programming and reacting negatively to good conditions or reacting positively to bad conditions.
+
+the more this happens, the more "conscious" the automaton becomes, choosing to behave differently than its programming tells it to behave. not all automatons are programmed to such extremes, and the programming is varied, giving different emotional reactions to different conditions.
+
+therefore, you can imagine that there could be armies of unconscious people reacting positively to bad conditions, because that's what they've been programmed to do. this beneficial energy is then utilised to power the FGAs. this is how, I believe, the seed grows up so quickly in otherwise harsh conditions. they transform the vibrational conditions of their environment into something useful, which furthers the creation of more conditions -- some good and some bad, like too much weight, or whatever, this reaches an equilibrium and from then on the plant starts to die. plants are static, so they have a size determined solely by their conditions.
+
+humans though can overcome their conditions and use their perception to continue to produce more and more wanted, dispite the conditions. this capacity is what can allow an automaton to become conscious.
+
+everyone can make whatever they want of it.
+
+---
+
+you can then see that from this perspective, it must be true then that tesla was an automaton, as am I and many others too. however, I belive that tesla did become conscious, and I'm pretty certain that I will too. in fact, like I am saying, it is the goal for everyone to eventually become conscious whenever they want to. however, I have a feeling that many people will stay quite content winning the game over and over. the reward at the end for all of the contrast your dual puts you through makes it worth it.
+
+in order to extend past this perpetual winning (or losing -- depending how you perceive yourself), you'll need to begin to see yourself as more than just your body, before it gets revealed to you that is the case (like I'm doing now) and also to realise that you are also the villian too. you are both the good and the bad guys. both (all) of these automatons extend out of the same source, which is who you *really* are.
 
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
