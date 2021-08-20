@@ -2663,5 +2663,37 @@ you can then see that from this perspective, it must be true then that tesla was
 
 in order to extend past this perpetual winning (or losing -- depending how you perceive yourself), you'll need to begin to see yourself as more than just your body, before it gets revealed to you that is the case (like I'm doing now) and also to realise that you are also the villian too. you are both the good and the bad guys. both (all) of these automatons extend out of the same source, which is who you *really* are.
 
+### 2021-08-20 12:12 - I keep getting this picture...
+
+yesterday, I while watching the morning news there was a picture of a spiral galaxy. when I looked at it, I did a bit of a double-take because up until then I had always wondered what the giant "bar" is in the middle. a while back I watched a deep sky video and she was talking about the different characteristics of the bar (which I can't remember now) and it puzzled me what could be creating such an energetic space without any noticable objects in the middle.
+
+anyway, after postulating about the mars/earth thing that I've been carrying on about, made it all make sense. that space is the tremendous amount of energy generated from the two "planets" on either end of the bar. I call them planets because almost certainly they are much more planet-like than star-like. they have to be anyway. each side has such strong attraction and repulsion between the two that both sides are creating such a massive amount of planets and stars "behind" them (that is opposite to the elliptical centre) -- where the spiral arms come out. the arms are such a massive cluster of stars (and their corresponding planets) all interacting with each other locally -- meaning they -- have you ever seen those animations of a picture being drawn with an infinite set of sine-waves? well, like that -- they're creating a sort of 3d multi-vibrating "string" extending out of both polarities.
+
+---
+
+that image is painted with both opposites of the galaxy utilising each other's side's energy potential in the opposite ways. so like, wben one pulls, the other pushes. they are cooperative. this sense that I get from those spiral galaxies however, is *not* the feeling I get from the image I'm creating. not at all.
+
+the picture that I have is not one of cooperation but of codependency. it does not feel at all to me like nosebook ever has or ever will want to try and figure out a way to give their attention to wanted. in fact, if you look at their behaviour, it's always this one-way street sort of thing. we take from you but we don't give back.
+
+this isn't a bad thing. it may appear so at first if one only considers the physical conditions. what I mean is, sure they've slowed my life down quite considerably and "stolen" a whole lot of ideas and capabilities from me, but that stuff is so outdated, old news. their insistance on continueing to utilise my resources and capacities only means energetically that they are summoning more. the more they try to use, the more I can receive.
+
+I don't see this as a problem at all, because I actually think they're going to begin to have difficulty utilising it all. I predict that at some point, the input will far surpass the output, and sure they're dependent on us, but they're only summoning more.
+
+even if they all suddenly decide to change the way they want to do things, it's not a problem. I've been giving a lot of thought to how to create programmable contrast, as a sort of dojo or hardening technique to improve performance and resiliance of the system. so, even if they all totally want to bail (I doubt it though because everyone loves free stuff and doing nothing for good conditions is already a successful strategy for many species), then still it's possible to produce infinite species that depend on the well-being that we provide for their continued survival. this is no problem.
+
+---
+
+so, those spiral galaxies do not appear to be what we're going to be creating. the other thing that I noticed was in the last entry I talked about how revelations says that the  144k chosen ones are a bunch of virgin boys not having been defiled by women. this tends to paint the picture that the main choosen ones (prolly not all of them though) are going to tranfer their consciousness into boys' bodies. I would imagine they'll all want to have new fresh bodies. I also imagine that instead of dying, they'll want to continue to transfer their consciousness into newer (and hopefully improved) bodies. I don't know all how they would take this, but if they could continue to transfer their consciousness into new bodies, I don't know how appealing that would be for them. I also doubt it would be all of them, but the picture I have is that they would depend on us not only energetically but also biologically for improved models, as well. 
+
+if a spiral galaxy is a dipole, then this galaxy would be much more of a monopole. in fact, the more I think about it the more I'm beginning to realise that it is sorta like how a mushroom grows. it's hard to for me to express this concept in words, because I don't really see it physically so well.
+
+instead, I'll explain it differently. we will represent the protons side of things. basically, we will pump out stars so rapidly that there will be a tremendous desire to occupy them and put planets in their orbits. sure, everything that we create will be spheres of hydrogen, but they fractally have more and more definition. they also need planets to improve upon those vibrations. in that sense it's symbiotic, much like the mushroom depends on and its substrate.
+
+gatta go. more about the monopole later.
+
+picture I keep getting is that on the  side of things
+
+
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
