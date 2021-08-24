@@ -2693,7 +2693,33 @@ gatta go. more about the monopole later.
 
 picture I keep getting is that on the  side of things
 
+### 2021-08-23 18:33 - nothing really to say
 
+@[youtube](https://www.youtube.com/watch?v=9uQC0Nv-fMw)
+
+I got various reactions the last two days about the full moon and how it relates astrologically. the thing is, I just don't have anything to say. I've been very interested in programming for mass again. I enjoy it. little by little I'm getting the hang of it. I really feel like I'm starting to understand C now more than ever. it's really nice.
+
+anyway, the reactions were about the whole thing of the moon being in aquarius while the sun is in leo with conjunction with jupiter. it feels like I'm supposed to be writging something about the future. the thing is, I already wrote it in the previous entry. I still keep getting those flashes of the galaxy but admittedly they are a lot less frequent now which means nosebook is fighting against it. I don't mind. frocm my perspective it looks like we're perfectly on track for it. however, the thing I don't know if it's me or them that's going to make it happen.
+
+remember the giant revelation that I had -- that I *am* them -- so it doesn't really even matter. it's going to happen anyway. desire is desire and I don't really mind it if they want to do it. they have a number of different issues that they simply cannot overcome in any reasonable way. there is just no way that they will be able to keep people disconnected as we continue on getting closer and closer to sirius. they're going to need to offload that energy somehow.
+
+the other major problems they have are the reproduction problem of the boys. if all of the noseboys produce more boys, then they have a severe problem. imagine trying to herd a bunch of little guys that are similar to me, telling them that they are unable to relate with women -- or, they have to maintain two separate populations and none of them can intermingle.
+
+the likelyhood of keeping two separate poulations without any intermingling is just impossible. 6ky is a long time too. that separation is really important and I really think that these two populations cannot remain separated if both are living on the same planet. sure, after the nova, civilisation will need to begin anew, but we're a lot smarter than we were 12kya this time, and I imagine that even under difficult circumstances humans will reinvint airplanes and more in under 5ky. consider also that 12kya, the last time we got reset, we were heading into the kali yuga and even still in less than 4ky we went from stone-age civilisation to computers and aircraft.
+
+the idea that they're going to be able to keep everyone disconnected is just impossible. there's just no way. humans are too smart now.
+
+---
+
+therefore, I'm of the opinion that it just doesn't matter. it's entirely up to them what they want to do. from a LOA perspective, I think the best is just to let them try their hardest. it sounds terrible to just let it all go, walk away and let an evolution of desire happen, but I'm certain that it's the best thing to do. the more they try to fight it, the evolutions of desire happen and the more wanted it becomes.
+
+imagine for a moment that they utilise the mental expansion provovided by our approach to sirius as fuel to improve their technolgical capability, improving their capacity to manipulate time and space to prevent us from getting connected... great, because it will produce a whole lot of advances in technology and they'll be able to stay ahead for a while. however, the separation problem is such a huge one that eventually, like I proposed for my game, they have to separate people out eventually until they're on their own timelines.
+
+essentially, creating the game I proposed is the solution to their problem and allows them to kick the can down the road another few hundred or thousand years.
+
+I say let them try. I've given it a lot of thought and I just don't see any reason to try and convince anyone of the thing. by fighting against it, they are becoming the thing they're fighting against.
+
+pump up the bros..
 
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
