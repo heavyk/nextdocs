@@ -2769,5 +2769,27 @@ what I mean is, for things to be accessible to the general population, they need
 
 I'm stepping away from all of this. sorry for the false sense of hope. please make it happen. *you* are the hero! don't wait for someone to come and make your dreams a reality for you.. you are the person you're looking for. *you* have the capability; find a way to believe in yourself. if andreas can do it, you can too.
 
+
+### 2021-08-25 17:22 - what do I mean lowest common denominator?
+
+there's a reason why there are billions of people on facebook and zero on tuenti. people resonate with facebook. it's on their frequency. I don't know how to market something to the general public. I'm beginning to understand that not many people have a clue what I'm talking about most of the time. I went to friendly harbor and realised that this whole time I had been talking to them as if they could understand me and it turns out they haven't a clue. I have no interest in trying to figure out how to adjust my words to a way which they can understand. in my opinion, it's nosebook's job to try and figure out a way to present what I have to say in a way which is perceivable by the general public. if I try and adjust my message to fit them, I start to get right into the "caring too much about what others think" category.
+
+I've learned that this is a very destructive form of thought because I really don't know (and shouldn't care) what others think. the only thing that matters is if what I'm saying feels good to me. so, for example like this merning when I went into the monologue to try and explain that what I said in the dream didn't come out right. I don't want to try and conform to whatever they want. I don't need to try and push or market my ideas to get them accepted. when they want them is when they will manifest. my goal is not to try and conform to anything so that they'll conform to me. I just do my thing and they will do the worrying about trying to make it accessible to the general public.
+
+my relationship is with me and me only.
+
+the way I'm making it sound is that I only can work with myself. that's not what I'm saying. what I'm saying is, I felt very strongly how much I don't resonate with the howtube thing. the idea felt good, but when I woke up, it felt like a lot of trying to make things happen. that's not me. I will just worry about me and my own vibration, and those that like that vibration will be attracted to me naturally.
+
+so, to put it more plainly: nosebook wants to make sure that the people I interact with are on nosebook's vibration. I am not usually on nosebook's vibration. so, just like friendly harbor, the dentist, or whatever -- I'm beginning to go toward people and environments that feel similar to me. I'd rather not interact with people that feel dissimilar to how I feel. no thanks.
+
+---
+
+I really don't mind that others want to find a way to make howtube accessible to the general public. for me to do that, I would have to tune myself to the way the general public feels. I would have to start to care about that, and I do not. going that direction feels bad because it feels like manifestation is more effort -- not less. I prefer tesla's world of ideas.
+
+one day I hope to find a way to make it possible to create products that are accessible to people other than myself. I believe this is part of the plan. I would need to be able to manifest other aspects of myself that are on the frequency of the general population.
+
+to put it simply, if I were tesla and I wanted to get my world system installed, I would need to manifest a whole bunch of people that are on the same frequency as the general population that will create the implementation of that idea resonant with *their* frequency -- not mine.
+
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
