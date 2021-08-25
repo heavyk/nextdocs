@@ -2721,5 +2721,53 @@ I say let them try. I've given it a lot of thought and I just don't see any reas
 
 pump up the bros..
 
+
+### 2021-08-25 15:40 - bomba de humo
+
+two events strongly shaped what I'm about to say. I can't remember what order they happened in meaning there were a lot of edits that happened between them. the thing is they both seemed to have happened when I woke up this morning, but that's impossible. when I woke up I had a strong sense that I had been instructed not to go forward with the howtube thing. it was very strongly emphasised that it would cause too many problems. I don't really mind and have decided that I don't want to do it either. it feels like stress and a lot of not good feeling things besides. when I wrote out [my ideas](howtube/initial-thoughts-and-ideas), the ideas felt really good as I was they were flowing out of me. it was the first time I had put words to many of those concepts and it really felt good.
+
+there was also a bit of euphoria that I felt as a reaction to the sense that I was getting from people to the ideas. weirdly enough the dentist thing happened right after it and I think that was largely the manifestation of some real-time edits to diminish some of that euphoria.
+
+I went to watch stars and it was quite a strong feeling I could feel. it was quite nice.
+
+the other event was also when I was waking up. perhaps actually this happened before watching stars -- I dunno -- but in the dream, I was telling someone that appeared to me similar in feeling as derek. I was telling him that anything that nosebook wanted, I was going to just do for them. that didn't at all feel right to me. I believe they were words being put into my mouth by the directors of the interactions in my dreams, and because it felt so off to me I became conscious in the dream and wanted to clarify, so I started to monologuue...
+
+---
+
+I explained that the whole earth and mars idea, although quite nice is not something they will ever want to do. they only do things when the alternative is less undesirable. so, for the mars galaxy thing to work out, they'll need to find theirselves in a situation where the attraction between two population groups is so strong, only the controlled travel through space is what keeps these two population groups from mixing.
+
+so, much like how tesla's world system couldn't become a thing until they had the problem of needing to manipulate massive populations percception and to selectively allow determine how enlightened different people can be. in that sense, I would consider tesla's world system a triumphal success.
+
+the same thing I have to say about my galaxy idea. it's too far ahead of it's time. they need to find theirselves in a deep problem where separating poulations is necessary for their continued survival.
+
+call me crazy if you want, but that's the world in which I want to create...
+
+---
+
+when it comes to howtube, as always my ideas are 100% free -- *always*. as elon says, it's not the idea, it's getting it to market and making it accessible to the world that's the difficult part (sorry, I can't remember the exact quote).
+
+@[youtube](https://youtu.be/V0K82295TrY?t=2288)
+@[youtube](https://youtu.be/V0K82295TrY?t=2117)
+
+I agree completely. this is why I say my ideas are for free -- always. the most difficult part is the implementation because that's where the constraints of reality come into play. I just don't want to try and deal with all that on someone else's terms. for me, I would consider myself on the forever quest to be able to manifest all that I want to manifest with my mind.
+
+I really like the feeling of effortlessness, and for me coming up with ideas is effortless. I wish it was as easy to communicate those ideas as it is to feel them come to me. the ideal would be able to manifest them as fast as I feel them, but that may never be possible in the near future.
+
+when it comes to manifesting things, I've noticed that if I manifest something that threatens the paradigm, then it gets shut down by those that want to maintain the current paradigm.
+
+@[youtube](https://www.youtube.com/watch?v=QstrRR031XE)
+
+as jimmy points out, edison fought against tesla trying to maintain the current paradigm. tesla fought back against edison and in my opinion, that was a silly mistake on tesla's part. I don't want anything to do with fighting anymore. they can have their whatever paradigm. I don't want to interfere. I offer my ideas and that's it. do what you want with them. anyone can take them and run with them. elon or robert or anyone that wants to can do it. please take the ideas and make them happen. I don't like how difficult implementation in reality feels. I don't like that struggle. I like the feeling/concept/idea dimension much more than the physical one.
+
+it really is all about making those ideas accessible to the current paradigm, which essentially means transitioning people to the new idea with minimal consequences. one of the things that I have done, and am very proud of my capacity now is to perceive effortlessly the marketing vectors and the human psycology that goes into making a product good. I used to really struggle with that when I first went to spain, but I've really come a long way since then. however, dispite those improvements, there is still the enormous glaring issue that my form of perception does not perceive the present paradigm or the transition very well. I see the new thing, which means if that concept were to find its way into realty how I perceive it, the implementation would cause a tremendous impact. it would be very disruptive, and that's not what anyone wants. we need glacial changes in this uniformitarian society. that's not me. I'm a cataclysmic person in that respect and my ideas have those sorts of impacts.
+
+what I mean is, for things to be accessible to the general population, they need to target the lowest common denominator. I make ideas that are targeted to me -- things that *I* would like to use -- and trust me when I say I'm not the (typical) target market.
+
+"all I do is pretend that I don't desire you"
+
+---
+
+I'm stepping away from all of this. sorry for the false sense of hope. please make it happen. *you* are the hero! don't wait for someone to come and make your dreams a reality for you.. you are the person you're looking for. *you* have the capability; find a way to believe in yourself. if andreas can do it, you can too.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
