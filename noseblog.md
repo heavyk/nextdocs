@@ -2791,5 +2791,27 @@ one day I hope to find a way to make it possible to create products that are acc
 to put it simply, if I were tesla and I wanted to get my world system installed, I would need to manifest a whole bunch of people that are on the same frequency as the general population that will create the implementation of that idea resonant with *their* frequency -- not mine.
 
 
+### 2021-08-25 19:03 - in short...
+
+it feels like there is a bit of confusion over what I said, so in short...
+
+nosebook wants me to do howtube on their frequency (or at least one they find acceptable). I don't want to. I like my version of the idea. I don't want to make the idea acsessible to the public (like some sort of repeat of affinaty). I like the idea when it's a reflection of me -- that is, tuned to me. however, if I make the idea the way I want to make it, it's too different of a frequency from where they're at, it causes large problems.
+
+in order to minimise the negative effects of the manifestation of their hatred of the idea (like the amun priesthood with aten or anything else), we can't go any faster than what the priesthood can go. all things need to target them as the market.
+
+---
+
+another reaction was something like, "well, what if we don't want a common denominator version of X" -- and the easy response is, "yeah, if it's not for the common denominator, it's for the elites". if you're not the elite, you're the common denominator.
+
+so, here's where many people may disagree with me and say that you would want to fight against such a situation, and that's what I was trying to express with the tesla and edison quotes. there's no reason to fight, and fighting it only makes it worse.
+
+you are not the common denominator unless you believe you are. just do your own thing. that's what I do. don't wait for someone to come and manifest the thing you want for you. find a way to feel the way you think the manifestation will make you feel, and then watch reality conform to the way you feel.
+
+if everyone does that, the common denominator is pretty difficult to define. if everyone is on pretty much the same mainstream vibe, things that manifest have to be compatible with the mainstream vibe for it to become accepted.
+
+that's why it's called "create *your own* reality"
+
+it doesn't matter what anyone else is doing. just do you, you know -- and you'll find people in your vicinity compatible with you. if you notice the people around you are majority cranks, then you're on a cranky frequency... lol
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
