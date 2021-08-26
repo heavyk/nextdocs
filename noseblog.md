@@ -2813,5 +2813,62 @@ that's why it's called "create *your own* reality"
 
 it doesn't matter what anyone else is doing. just do you, you know -- and you'll find people in your vicinity compatible with you. if you notice the people around you are majority cranks, then you're on a cranky frequency... lol
 
+
+### 2021-08-26 04:51 - you are not the elite
+
+there was some reactions to what I was meaning when I was saying that -- and it's basically this: if you want to manifest things like a boyfriend, a car, a new houese, gaming console -- or anything else materialistic, then sure no problem -- manifest away.
+
+however, if you want to manifest a revolution in space travel, the energy, communications, government, healthcare, or financial sectors -- or anything that makes higher states of consciousness accessible to yourself or the masses, then the amun priesthood will ensure that these manifestations are aborted as rapidly as possible. they rely on secrecy to continue operation and better conditions jeapordise this. the most dangerous to their secrets is perception.
+
+when you get into higher capability of 4d and 5d, you can tune into anything you want to and begin to perceive it. this is most certainly a dangerous thing if you have secrets that need to be kept in shadow -- you can't just have anyone with the capability to "remote view" what you're really saying or what's really happening. they rely on the illusion that the media reports is happening, to hide what is really going on.
+
+these secrets must be kept *at all cost*.
+
+---
+
+I actually am beginning to believe that there was a custodial presence that was here previously -- let's call that enlil, but then I believe that I figured out that enlil would never allow for my creations to happen. therefore, I set out to create an even more optimised custodial regime than the previous one.
+
+inotherwords, what I'm saying is, I find it very likely that the amun priesthood is my own creation. I believe it is likely because there needs to be a force that supplants the previous custodial regime and desires the utilisation of my creations.
+
+yesterday, I read some theosophy stuff and was surprised to find out how much I resonated with it while at the same time thought it was rediculous spiritual mumbojumbo. I noticed that it's 99% buzzwords, but a few times the truth shows through.
+
+anyway what she (I think it was alice bailey -- can't remember now which one) was saying is that there is a new "root race" that happens every 12ky after a cataclysm and is the roughly the next most oppressive form of heierarchy. she says that the last root race was the atlantian, and this one is the aryan.
+
+the one that is coming after this one is, in my opinion the hermaphrodite root race. this is what is being installed now.
+
+---
+
+what needs to happen is for there to be a desire to have separation between the two population groups. here on earth, if you want to manifest useless material crap that does not expand your mind, manifest away unhindered, but if you want to manifest anything external to you capable of expanding your consciousness (drugs, energy, frequencies, etc.) all of those efforts will be countered in the same way that nosebook is doing that to me now.
+
+they will ensure that everyone who wants to get expanded vision will continually see the image presented in their eyes, not what they really see. they're perfecting their technique on me now. they'll continually get better and better at ensuring that only the "chosen ones" have access to expanded forms of perception.
+
+this makes for another interesting thing: I couldn't find the quote but steven mehler said that jesus was the 34th christ and akhenaten was the 33rd. I wondered who the 32nd one was, but that will make me the 35th, and the completion of this creation means that *all* humans will be the 36th -- each on their own timelines, of course -- and the massive amount of energy that this will create will fuel the galaxy.
+
+you see, on the other side of things (mars?) -- sure, there will be all sorts of people that are having a great time creating all sorts of things -- and this energy will be used for the creation of planets and other form, but their upper management will have a constant one-upmanship happening, as there will be a continual supply of new more optimised hotshots continually attempting to dethrone the top guys. this is necessary to ensure that on our side conditions are constantly feeling worse and worse.
+
+under normal circumstances, this sort of regime would fall apart rather rapidly, but the reason why the aryan custodial implementation is so much more successful than the previous (atlantean) one is because they have the good-feeling foundation to build their empire on. the atlantian one relied the conditions of earth. without a good-feeling foundation like that, they would destroy theirselves.
+
+all of the inhabitants of the earth will become the foundation for the next set of custodians. we'll all become better and better at feeling good because of perception and not from conditions. the better we get at that, the crustier and crustier custodians can compete with each other for control.
+
+their world will feel as good as we feel, allowing them to continually expand and create more and more great forms and structures with even more detailed and intricate frequencies to live in/on and experience (or, try to control if you're upper management). it's a pretty good feedback loop because the continuous churn of custodial regimes will create stronger and stronger desire for more and more advanced conditions (genetics, structures, feelings, etc) which can support a stronger and stronger desire to control. we provide the foundation for that feedback loop to be possible.
+
+I suspect the gradient from upper management down to the creators will be kinda like one of those weird relationships where both relies on the other, yet feels strong competition with them while at the same time feeling love and admiration for them at one end of the spectrum all the way to the other end, which is just a bunch of guys creating things they like -- new genetics, new technology, new better and better conditions and projects to focus their passion into. I suspect they'll tend toward paying less and less attention to the upper management because it's so much funner to just enjoy the flowing of creative energy (very much like me in corporate environment).
+
+---
+
+this is the bigger picture that I don't think that any on earth will see until they find a way to feel good with their perception (no matter the conditions). obviously the controllers will see this bigger picture. however, once "graduated" with the capability to feel the way that we want to, we'll have the ability to create more instances of ourselves and try out that capability in the multitude of planets and different forms of biology that they create for us. it'll be pretty fun and this will continue to propatate outward.
+
+obviously, I prefer to be here giving my attention to what's wanted. this is only just the beginning and you can tell that at some point it's going to become so much wanted even in "bad-feeling" conditions that the conditions become inconsequential. it's quite likely that I will spend most of my time here moving between various personalities. I think the goal for me is to ensure that the custodial regime is self-sustaining enough they can keep finding new ways to feel worse and worse so that I too can continue to experience the euphoria of perceiving unwanted in a way which feels good to me.
+
+btw, there's no real permanence to any of this -- and anyone can pretty easily transition (tune) to where-ever they want to go. there will certainly be those that want to just feel good conditions and create cool stuff and I imagine that there will be a system of selection where people here can earn the conditions they desire. the other side is easy -- they just asked to be put into the matrix. certainly both sides will have constant exchange -- and, what I'm really hoping is that many of those that find their way to feel the way they want to go on to make their own system the way they want to. that's the goal anyway.
+
+this is just me dreaming here and I'm talking about 10-100ky timescales here -- though I'm certain we'll measure time differently by then -- just I like the idea of thinking really far out and then adjusting the trajectory as we get closer and closer.
+
+---
+
+it's possible that at this point, some people find this hard to believe...
+
+I suppose, the only thing left to do now is to make it feel like their survival is in jeapordy unless they separate populations... I wonder if that's my cue to find my connection here soon... :)
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
