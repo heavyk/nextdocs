@@ -2870,5 +2870,50 @@ it's possible that at this point, some people find this hard to believe...
 
 I suppose, the only thing left to do now is to make it feel like their survival is in jeapordy unless they separate populations... I wonder if that's my cue to find my connection here soon... :)
 
+
+### 2021-08-28 09:13 - thoughts on trauma
+
+yesterday, I had a number of very influential events on me. first, I went to game day over at johnney's house and had a really great time. the subject of trauma came up a few times in relation to stories of girls beginning adolescence and brain injury trauma in general.
+
+I explained that I see these subjects as quite similar and if I were running a brain injury group, I would do things a lot differently, because IMO the current technique is greatly limiting. both involve the chaos and confusion that results when someone begins to try and mske sense of this world logically (which is the part of the brain that begins to activate when adolescence begins). it's usually a huge power spike, however often that logical side is shut down and replaced with a description of (traumatic) events used as a *logicah justification for the trauma.
+
+later yesterday I waatched the latest skake-bros podcast:
+
+@[youtube](https://www.youtube.com/watch?v=EIDOA9-ANgQ)
+
+in there david mathisen talks a bit about trauma and I see it once again as a similar thing -- however, we're talking about a world population going through adolescence. these star symbols are a picture of the "god of wine" but they are the story of the humans on the planet. each culture has a different angle to the story -- but roughly speaking these stories are highly symbolic and and speaking of a passage through *time* -- specifically the zodiac. in that way, we are all dionysus. he is the symbolic story of the human race in our passage through time.
+
+there is quite some trauma in the story, however I will give it the same treatment that I give to adolescent chaos and traumatic brain injury (TBI). *all* trauma is, is a perception of an event or series of events that produces negative emotion. that's it. there's nothing really special about it and really the entire work is to realise that those events (or series of events) are not you. you are a magnificent eternal being and negative emotion is just evidence that you're looking at those things in a way which does not harmonise with that divine perspective of yourself.
+
+all trauma is perceptual.
+
+---
+
+so as I continued on with tha presentation on the god of wine, I was beginning to see how much I would have percceived myself as similar to dionysus a very short time ago, I don't really relate as much as now as I would have thought.
+
+once I know what I want -- which is to create a galaxy and to able to feel anything I want into existance -- I don't really find all of these manifestations as very much important. if I can feel any way I want to feel, there is no manifestation that can produce what I already produce.
+
+as I get better and better at this, my life will become more and more euphoric all the time. in addition, if I can feel any way I want, manifestaions all around me will reflect that all the time. I predict that as I get better and better at all of it, euphoria and LOA will become stronger and stronger for all of those around me, and very likely the world will feel this effect.
+
+for those unable to perceive this euphoria, it will appear to them in a form of strong negative emotion -- something akin to trauma -- which is just a perception of event(s) in a way which produces strong negative emotion.
+
+so, for example a few weeks ago I was playing hearthstone and in a few matches it felt as if the odds were very strongly stacked against me. the sequence of events produced strong negative emotion in me, and I could tell that it was emotionally linked to this perception that I have which I believe that everyone is always trying to poop on any good fortune that I may have.
+
+feeling like things were stacked against me feels terrible. you may say that it is true there is evidence that things are stacked against my favour -- which again, it doesn't matter how much evidence there is or how justified I am in feeling that trauma, it still feels bad and does not resonate with who I really am.
+
+when I give that up, I feel euphoria.
+
+---
+
+there's another interesting thing is that dionysus is symbolically similar to jesus and jesus was an essene. the essene (btw, is this where we get the word, "essence"?) takes a vow to give up strong drink (wine) and I think also takes up a vow of celibacy.
+
+I don't know for sure on the last one but it would make sense and fits right into my interpretation of what happened to jesus[^1].
+
+in my opinion, the trajectory of dionysus (and the human race as a whole) is to no longer rely the conditions (strong drink, girls, etc) which produce euphoria and those estatic states of consciousness -- but to instead have the capacity to produce them completely at will regardless of the conditions.
+
+I have more to say, but I don't feel it's ready yet.
+
+[1]: there was a radical change in jesus that happened rigtht before palm sunday and the celebration where he suddenly begant to curse things and experience strong negative emotion. what I believe happened, which has also happened to me, is some sort of strong drink followed by a sexual experience, during which he tuned himself to her frequency instead of his own. this resulted in the loss of his expanded form of perception. people wonder why jesus went from having power over the conditions around him to suddenly completely complasent to the assertions of his accusers.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
