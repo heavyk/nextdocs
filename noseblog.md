@@ -2915,5 +2915,52 @@ I have more to say, but I don't feel it's ready yet.
 
 [1]: there was a radical change in jesus that happened rigtht before palm sunday and the celebration where he suddenly begant to curse things and experience strong negative emotion. what I believe happened, which has also happened to me, is some sort of strong drink followed by a sexual experience, during which he tuned himself to her frequency instead of his own. this resulted in the loss of his expanded form of perception. people wonder why jesus went from having power over the conditions around him to suddenly completely complasent to the assertions of his accusers.
 
+
+### 2021-08-28 11:26 - a bit more on trauma
+
+continuing on with the ideas of dionysus, I want to point out another thing. he is born of zeus and so inherits a lot of zeus' qualities, however dionysus has a much more emotional aspect to him that zeus doesn't have. zeus can be do or have anything he wants, yet spends most of his time deceiving people -- usually hera in fear of what she thinks or to try and get his way or sleep with someone or whatever. it's very strange behazviour from my perspective because if he can conjure anything he wants with his mind (have), shapeshift into any form (be) and has no restrictions on what he does (do), then he can literally be, do, or have anything he wants, yet zeus only seems to express negative emotion.
+
+in my opinion, dionysus' trajectory through time is headed toward being able to feel any way that he wants to feel. this is why there is so much death and trauma -- because he is indestructible, no matter the conditions he gets put through. no matter what he seems to come back stronger. I believe this is the true source of his euphoria and also why he's so attractive to women -- prolly because they resonate. women have long been oppressed through time and his capacity to continue to recover and become more from the "trauma" is quite an attractive quality.
+
+---
+
+what I've learned is that if you can feel any way that you want to feel, you can be, do, or have anything you want to have. however, everything that anyone wants to be, do, or have is so that they can *feel* a certain way. so, if he finds the capacity to feel any way he wants to, then what's the point of the conditions? you don't need the conditions to feel a certain way. instead, conditions become a sort of amplifier.
+
+this is the part where I think trauma is actually productive. trauma in my opinion is not something that is to avoid, but instead something to embrace. each time there is another trauma it produces negative emotion, which then produces more of what's wanted at the same time -- just you gatta tune to the wanted part, not the physical conditions part.
+
+this is pretty easy for me to do now. in fact, it's so effortless, I really think that it's really not a problem at all. I think trauma and negative emotion is a good thing. it only feels bad if perceived in a way that doesn't harmonise with who you really are. so, from that perspective, it's of the most benefit to experience as much negative emotion as possible, because with the capacity to find a perception capable of transforming that negative emotion into something that's just a part of the process, then that negative emotion turns into pure euphoria for the one perceiving that way. for the rest still perceiving it as a bad thing, then it's total disaster and feels like the world is ending. those capable of perceiving the wanted aspect, it feels just the opposite: it feels like the beginning of a whole new beginning -- a sort of second adolescence where everything once again feels like it's wide open and full of possibilities and new things to explore.
+
+obviously this is where I'm headed. from a vibrational (amplitude) standpoint, the most amount of wanted (going the most quickly toward the attractor) is also the most amount of unwanted because the pendulum will always swing an equal distance (or exert an equal amount of force) minus friction, in the opposite direction.
+
+---
+
+this makes it seem quite clear to me that my goal is to get the capacity to feel any way that I want, because by having that capacity I could have any conditions I want as a reflection of how I feel. no need for conditions. you may be wondering if I can be, do, have, or feel anything I want, then what's the next thing.
+
+I think that's the whole galaxy thing beginning to take shape. I want to live and explore conditions that are not ones that are reflections of me. you can imagine then that from my (higher-self) perspective, I'm excited to see what *you* guys manifest. I can manifest anything I want. I cannot however manifest what you want. you have to do that. I can be a "cooperative component", but ultimately it's you that comes up with the desire and tunes into it.
+
+however, the sense that I get is that people either do not want to figure out how to feel the way they want (thereby tuning into the manifestation they want) or want someone to produce the manifestation for them.
+
+no problem. that's why there are evolutions of desire. whenever I wasn't able to tune into exactly the manifestatioen that I thought I wanted, the desire evolved into something new. there was negative emotion that happened in the process, but that negative emotion was just me perceiving the "going away" part of the ellipse, not the "going toward" part of the ellipse.
+
+---
+
+this actually got me thinking of a new addition that could be made to astrology. imagine that venus is in some position in the sky during some aspect (square, trine, etc) and sometimes it feels like that aspect is the going away part of the aspect, not the coming toward part. as earth moves closer toward that aspect, it will feel like going toward, while other times it feels like going away.
+
+this happens most frequently with mercury, so for example, last 26th mercury trined pluto which would normally symbolise communicating the deeper things inside of you. however, I wonder if that aspect (from our perspective) we were moving toward that aspect or moving away from it. I don't really know how to easily look it up now. however, I bet there's something to it. it's how I look at things from a LOA standpoint anyway.. it's important to know if you're perceived as going toward or away from the aspect.
+
+from my perspective, it doesn't matter what the earth's perspective is, because even when things appear to be going away, that's just an evolution of desire. they always swing back in with more intensity next time.
+
+---
+
+so, as a closing note here, I would say that the optimum (most energetic) manifestation is no manifestation at all. that is, of course, impossible only being able to be delayed, but never stopped, I would say that from my perspective I would find it most productive if no manifestation happened at all, and then when I can be, do, have, and feel any way I want, then I'll have to experience whatever manifestation is a reflection of how I feel. so, until then, I want to push the limits of perceptually transforming highest amplitude of unwanted into wanted.
+
+from there, the manifestation for most will be max unwanted. don't worry though because if you want to feel good, you can perceive the max wanted part of the ellipse.
+
+to understand this unwanted wanted aspect, understand that you do not perceive everything all the time. there are massive gaps between consciousness moments. imagine your day as your consciousness. if you awaken at midnight this is max darkness. you start going toward the light until finally the sun rises and continue to go toward max light at high noon. if you go to sleep then, you will be max going toward the light. if you wake up at high noon, the sun is beginning to lower in the sky and it continues to go away. the sun goes down and then it gets to midnight when the sun is on the opposite side of the earth. at midnight you go to sleep. this means you spent 100% of your day going away from the light. most people awken sometime around sunrise and go to sleep after sunset. this means they experience nearly equal portions of increasing light and decreasing light.
+
+you decide when you want to go to sleep and you decide (somewhat) when you want to wake up, and in just the same way you can decide whether you're seeing something as coming toward (wanted) or going away (unwanted) from you. what happens while you're not conscious doesn't matter.
+
+hrmmm, I really like that solar, awake/asleep example. so good :)
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
