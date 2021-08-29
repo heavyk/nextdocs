@@ -2962,5 +2962,60 @@ you decide when you want to go to sleep and you decide (somewhat) when you want 
 
 hrmmm, I really like that solar, awake/asleep example. so good :)
 
+
+### 2021-08-29 07:13 - a few more solar thoughts
+
+yesterday I was exploring the concept of just finding the feeling. the idea behind this one is to focus the sexual energy into the heart and use it to feel better and better. if I'm not connected, this is definitely the way I want to do it -- but even not, this is still a thing that I want to try. you can always go to have the manifestation, and the manifestation is also guaranteed to feel better too so it's not really even a risk.
+
+the thing I was postulating is that this may actually be a way to keep solar activity lower. I felt like it may be a thing, but I didn't know how. as a background to this, I have been really thinking about the dionysus euphoria factor. what is this and where does it come from?
+
+I believe it comes from the sun, and it feels more and more like euphoria when the frequency goes up. imagine the two stars of sirius (that we know of). for sake of discussion, I will call sirius a aphrodite and sirius b isis. aphrodite is a very luminous and beautiful star emitting light mostly in the visible sepctrum. however isis is ultra dense and barely visible in visible light -- she's like the black sun. however, instead of being visibly beautiful, she's instead a very powerful x-ray emitter. you will *feel* her attractiveness a lot stronger than aphrodite. though aphrodite is so bright and visible to probably most of the galaxy, isis is a *much* more powerful attractor.
+
+roughly speaking, aphrodite will illuminate our reality with more and more light the closer we get to her. however, the effects of isis will be *felt* -- like, the whole world will experience a stronger feeling of euphoria and well-being the closer we get.
+
+this is the major difference between visible/uv light emission and x/gamma ray emission. the higher the frequency, the more it's felt.
+
+I don't want to try and go off into climate change bushes too far here, but I do know that personally when I feel better and better, the climate warms up around me quite a bit -- and all I did was start to emit higher frequency waves. I do not believe that it is the direct energy input from the sun during these high frequency events that is causing the warming (for example, the only time we've had warm nights this summer has been when girls felt strong attraction or when the sun was giving off more x-rays than normal).
+
+I also tend to think this is the case because for example, new years 2020 or the one time I went to FWC, the night warmed up significantly and the sun was below the horizon. these higher frequency events seem to be related...
+
+---
+
+the other thing I was thinking about is the cause for the spring and fall equinox times in the great year (where we're at now) and I don't think that it's a physical space phenomena that is causing this. the ancients had the capacity to leave their bodies and fly their consciousness around the galaxy and solar system measuring the different cycles. they demonstrated their capacity to observe the celestial interactions with the detailed astromical records they left us.
+
+however, I believe the one thing they could never figure out was the cause for the 12ky cycle of destruction. they feared it and knew it was coming but couldn't nail down the root cause for it.
+
+I am (99%) certain at this point that the cause is LOA (emotion) and the sun is just manifestor.
+
+---
+
+I'm going to simplify again here so just bear with me. let us suppose that protons are evidence of emotions and electrons are the evidence of reality. you need protons and electrons both to create matter, and I think this is happening all the time on the sun, and is what is producIng a lot of the visible light. however the case when there are more protons being attracted is what I want to explore because I think that's the cause of the nova events.
+
+if we look at isis, she has massive amounts of protons but they're paired with electons and are stably organised into a very dense structure. the density of this structure (evidence of strong attraction on those wavelengths) is what produces the x-rays when excess electrons (reality) is created.
+
+I would have to imagine that on the sun there are all sorts of H+ ions floating about and as they're interacting with other existing elements they are fusing to create bigger and bigger elements. this is likely the cause for the convection currents, much like enso hot/cold water differential is causing currents to flow.
+
+eventually these elements fly off the sun in solar wind, but all over the sun this process of fusing H+ ions into existing elements is the energetic process which is ionising? (illuminating) the sheets of hexagonal lattice on the surface of giving off the blackbody spectrum.
+
+it seems this interaction both creates and alters the existing magnetic fields on the surface where these elements are being fused together happens. obviously the sun will oscillate between having more protons and more elements. so like if I'm a silicon atom and my energy level is rising to where I'm now becoming a phosphorus, I need a proton to do it. so, I'll be attracting a proton so I can go up an energy level.
+
+protons will be streaming in all directions to where the atoms going to higher energy levels are. this works fine. if there aren't enough protons then the reactons slow down -- no big deal, but the energy level will continue to rise, because they're wanting more and more a proton to go up. this is kind of like an atomic version of me right now. this interaction I think is evidenced by stronger magnetic fields and eventually grows into sunspots.
+
+when finally there is a strong enough attraction to get the protons they need it generates a burst of energy, which strengthens the magnetic fields of those around, etc. other similar elements around are now attracting stronger too so it starts the reaction. this will set off an explosive event because so much of this reaction is happening at once it has enough force to propel matter out at a rapid rate (CME). this continues on until all of all of the elements got the protons they needed.
+
+I'm not quite sure what causes the separation between elements not allowing them to interact, but what I do know is that elements vibrate and can flow freely in a plasma state like that, so they will vibrationally be attracting based on the frequency of its environment. I think this is the conscious/mental link that we have with stars, and our mental activity directly affects the interaction of these things on the sun.
+
+think about this from the sun's point of view. it's looking to find more and more novel ways to vibrate at higher and higher frequencies. the more attractive it is the denser and higher frequency it becomes. it gets that, not from it's own mental capability, but from its interaction with its environment.
+
+a sun can create whatever it wants to, so it's looking... this is the same thing I was saying yesterday in @[noseblog](2021-08-28 11:26). it's easier to see it from a human perspective. so imagine you figured out a way to be, do, have, and feel any way you wanted to. what then would you want to create? you can have anything you want. the only thing remaining is to experience things that others create. the objective of the sun is to get more new ideas into the beings which inhabit its environment to come to feel new emotions (protons). producing reality (elements) is so easy, so what the sun wants is those elements to be organised into structures which can then build desire for more structures. the more structrues that are desired, the faster it can use up its protons.
+
+---
+
+the thing I really wanted to explore is the case where there are an excess of protons and not enough electrons to pair with, because I think this is the cause of the nova event. the idea I woke up this morning was that if we could instead of making a manifestation here on earth, just continue to feel it getting more and more. the interaction between electrons and protons is what creates the solar flares. so if we weren't going to interact so much, then a charge buildup would occur. however, if we could siphon off those protons from the sun and get them to instead coagulate into another sun, we wouldn't have the nova event.
+
+I'm beginning to think actually that perhaps there is a desire for the nova event actually. I think it has to do with the necessity to start over because too many people know too much now. anyway, this can be accomodated as well. I find it likely that once I'm connected I'll be interested in creating this second sun. that would mean that we continue on to aquarius without a nova and the rest over to leo. yeah sure. seems good.
+
+I guess I'll leave it here and come back to this.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
