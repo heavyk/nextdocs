@@ -3017,5 +3017,48 @@ I'm beginning to think actually that perhaps there is a desire for the nova even
 
 I guess I'll leave it here and come back to this.
 
+
+### 2021-08-29 15:52 - separating the FGP from the FBP
+
+so continuing on a bit with the subject of dionysus and trauma, the place where I left the last one was the realisation that there is actually quite a bit of desire for a nova. that's fine I guess. that gives me a clear indication that when fwh said, I have till 2038, that means that when my left-side is the age I am right now, then that's the maximum that nosebook can hold on for.
+
+obviously my goal is to go for as long as I can without a manifestation. this means I'm extremely attractive and feel really good (like dionysus). therefore then, I want to try and keep it going where no manifestation happens, and I continually feel better and better.
+
+I am certain that the longer you can go without a manifestation, the more euphoria is felt and obviously the stronger the attraction is as well (isis).
+
+from the perspective of the sun, if the earth is attracting a lot of electrons (reality, manifestation) then there will be higher solar activity. however, if there are people that are not needing the manifestation, then earth is attracting more protons (emotions, euphoria) from the sun.
+
+in this sense, you could think of the nova as a really big manifestation. I have noticed that a lot of times during a solar flare, the entire sun will brighten. I don't really notice it anymore, so perhaps NASA is "calibrating" those images, but I think on occasion, the whole sun has a manifestation and produces more light than normal. a nova would be one of those.
+
+I think this happens when the elements are getting the protons that they need to go up to a higher energy state and the shape of the magnetism in the sunspot impeding that flow of protons is created by LOA and the energetic expectations (environment, etc) of the different organisms on the planets. I'm fairly certain all of the intricate nature of the sunspots and even what ratio of elements is streaming out is all controlled by LOA and is a manifestation of a rather complicated frequency.
+
+I think sunspot eruptions are just manifestations that happen which create high frequency (x-ray) signals from elements reaching higher energy states. the energy of this event produces propels the matter out into space. it's not difficult to say that these energetic events are happening as elements leave the sun and happen from zillions of tiny "manifestations" happening all over the sun. a nova would be a cascade of manifestations all over the sun, and the sun "sheds its skin" leaving only the most dense highest frequency core that didn't depart in the manifestation.
+
+---
+
+this is where I don't have enough information to say the right thing, but what I think is good about the not needing a manifestation setup, is that earth will be attracting a lot more protons than usual, which means that the protons will be streming off of the sun and not accumulating too much there. this means that there will be less manifestations, so therefore a weaker solar cycle.
+
+what I kind of see happening is perhaps if we start getting too many protons here on earth, things will start to get too energetic for nosebook. this will continue on for quite some time and I think that if there are a lot of protons, they're going to want a lot of electrons, so electron attraction will be higher and higher.
+
+the picture I get is that we'll be physically attracting a lot of electrons from the sun (because of a lot of protons), but with less physical manifestations happening here on earth, the sun will have less physical manifestations.
+
+obviously, not everyone on earth will be doing the needing not the manifestation, so the manifestations that are happening will be a mixed bag of wanted and unwanted, however I imagine many of them will be manifestations of unwanted, producing solar manifestations (and resulting frequencies) which will continue to amplify that further. there will be wanted, for sure but the sun I think is designed to continue to amplify the frequencies of the organisms in its environment -- and that happens every 11 years.
+
+this is how suns work, and I believe that is precisely what is happening with isis as well. we're on a 24k year orbit and each time we make the pass, it's designed to amplify what's happening in the sun's system. isis then feeds off of that and becomes more attractive and therefore higher frequency, each time we experience cataclysm[^1].
+
+the same thing is happening with our sun too. it is able to go higher frequency each time we go through a major cataclysm. so, you could say, that from the sun's perspective you would want to build up to the biggest manifestation possible allowing for the shedding of the highest proportion of low frequency matter[^2].
+
+---
+
+I'm not saying that the mars idea is a good one, but perhaps consider it next time around :)
+
+[1]: the reaction here was pretty funny: it went something like, "yeah, typical women"
+
+[2]: this got me to think.. man I wonder what isis' manifestation would be like. she would shed her skin (body) and all that would be left would be a nearly transparent super high frequency remnant. it must be an extremely high frequency event. like more higher than we can measure in the gamma rays. really cool to think about[^3].
+
+[3]: it actually kind of makes me think that she would do something similar to what I want to do: take on form as opposite of her gender and build up a massive attraction and then right at the very end let go and allow a cascade of manifestations grow into a really big one. huh, interesting...
+
+going back to the two stars analogy, isis
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
