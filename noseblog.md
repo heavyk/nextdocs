@@ -3020,7 +3020,7 @@ I guess I'll leave it here and come back to this.
 
 ### 2021-08-29 15:52 - separating the FGP from the FBP
 
-so continuing on a bit with the subject of dionysus and trauma, the place where I left the last one was the realisation that there is actually quite a bit of desire for a nova. that's fine I guess. that gives me a clear indication that when fwh said, I have till 2038, that means that when my left-side is the age I am right now, then that's the maximum that nosebook can hold on for.
+so continuing on a bit with the subject of dionysus and trauma[^4], the place where I left the last one was the realisation that there is actually quite a bit of desire for a nova. that's fine I guess. that gives me a clear indication that when fwh said, I have till 2038, that means that when my left-side is the age I am right now, then that's the maximum that nosebook can hold on for.
 
 obviously my goal is to go for as long as I can without a manifestation. this means I'm extremely attractive and feel really good (like dionysus). therefore then, I want to try and keep it going where no manifestation happens, and I continually feel better and better.
 
@@ -3054,11 +3054,11 @@ I'm not saying that the mars idea is a good one, but perhaps consider it next ti
 
 [1]: the reaction here was pretty funny: it went something like, "yeah, typical women"
 
-[2]: this got me to think.. man I wonder what isis' manifestation would be like. she would shed her skin (body) and all that would be left would be a nearly transparent super high frequency remnant. it must be an extremely high frequency event. like more higher than we can measure in the gamma rays. really cool to think about[^3].
+[2]: this got me to think.. man I wonder what isis' manifestation would be like. she would shed her skin (body) and all that would be left would be a nearly transparent (black) super high frequency remnant (probably cube). it must be an extremely high frequency event. like more higher than we can measure in the gamma rays. really cool to think about[^3].
 
 [3]: it actually kind of makes me think that she would do something similar to what I want to do: take on form as opposite of her gender and build up a massive attraction and then right at the very end let go and allow a cascade of manifestations grow into a really big one. huh, interesting...
 
-going back to the two stars analogy, isis
+[4]: I forgot to finish this thought. I can't remember what I was going to write now though... I'll come back to it, I'm sure.
 
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
