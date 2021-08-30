@@ -3060,5 +3060,37 @@ I'm not saying that the mars idea is a good one, but perhaps consider it next ti
 
 [4]: I forgot to finish this thought. I can't remember what I was going to write now though... I'll come back to it, I'm sure.
 
+
+### 2021-08-30 12:12 - the magic of perception
+
+@[youtube](https://www.youtube.com/watch?v=ySx84Ca7BFQ)
+@[youtube](https://www.youtube.com/watch?v=E2l95ttmJOg)
+
+watched both of those videos last night but I didn't realise they were related. when I first wwatched the magic of maqgnetism one, it seemed pretty obvious to me that the relationship current and magnetism have is exactly the same relationship that I have with mr. motor
+
+@[youtube](https://youtu.be/ySx84Ca7BFQ?t=355)
+
+clearly, mr. motor is like current pushing his way through a conductor (insert train pun here) and I'm magnetism -- an attractive force that wants to go a different direction.
+
+@[youtube](https://youtu.be/ySx84Ca7BFQ?t=368)
+
+lol
+
+---
+
+@[youtube](https://youtu.be/E2l95ttmJOg?t=1369)
+
+ok, jokes aside, I realised that if we take this animation and orient it so that it has a perspective to it, then magnetism plays a role in the progression of the dimensions.
+
+imagine you're looking at a point, and then all of a sudden magnetism wants to go 90(degrees) perpendicular to the perspective (x), and the point turns into a line. now, you're looking at a line and again magnetism takes you 90(degrees) perpendicular to the perspective (y) and you see it now as a square. notice how each iteration of this the perspective turns 90(degrees) in the direction of the next dimension? go 90(degrees) perpendicular to the perspective again (z) and now a cube is visible.
+
+pretty cool huh?
+
+it takes a pretty strong current to got a strong magnetic field going... then...
+
+@[youtube](https://youtu.be/qORYO0atB6g?t=229)
+
+lol :)
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
