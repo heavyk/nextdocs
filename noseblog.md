@@ -3058,7 +3058,7 @@ I'm not saying that the mars idea is a good one, but perhaps consider it next ti
 
 [3]: it actually kind of makes me think that she would do something similar to what I want to do: take on form as opposite of her gender and build up a massive attraction and then right at the very end let go and allow a cascade of manifestations grow into a really big one. huh, interesting...
 
-[4]: I forgot to finish this thought. I can't remember what I was going to write now though... I'll come back to it, I'm sure.
+[4]: @[noseblog](2021-08-30 12:44)
 
 
 ### 2021-08-30 12:12 - the magic of perception
@@ -3091,6 +3091,51 @@ it takes a pretty strong current to got a strong magnetic field going... then...
 @[youtube](https://youtu.be/qORYO0atB6g?t=229)
 
 lol :)
+
+### 2021-08-30 12:44 - becoming dionysus
+
+@[youtube](https://www.youtube.com/watch?v=EIDOA9-ANgQ)
+
+I noticed that when I was watching this that a lot of the symbols used for dionysus matched up in my mind with enkidu. now, whether they actually do or not is a thing I want to do before responding. however, to me this dionysus character feels very much like a human template figure -- just the same as enkidu. they are both half god and half mortal struggling with the human condition. I think humans are half god (eternal) and half human. this theme shows up in a lot of different places, including the gemini twins and a whole lot of shakespeare's writings.
+
+making more of a case for the shakespeare connection was illuminated with oxford's constant association of himself with the gemini symbols with (IMO) a very clear message that he is half god and half human and these two parts are constantly fighting. this fighting between the twins is what creates trauma, but when the "two I's shall become one" then this is when things start to work out. there are two sets of twins -- one male and one female.
+
+one of the things that I noticed is that there are these "triads" that seem to show up often in mythology with two boys and a girl or two girls and a boy. I often see that the one with the same gender often competes with the other one. this is very easy to see in egypt as the competition between aten/osiris and amun/ra. there is this weird thing where set decides he wants to kill osiris (or cain/able, etc) because one thinks that the opposite direction is the way to go. this is a bit like current and magnetism.
+
+that is a binary, but when it becomes a triad, then there is growth. in these stories, there is often an opposite gender mediator. so, like isis, osiris, and set. this third party is able to transmute the energy and allow for a rebirth of the loser of the competition.
+
+on a large scheme of things, this can be seen throughout the eras, as each era brings a new rebirth to what collapsed last era. this makes for alternating polarities and allows for the stacking of things like magnets. so while osiris crashed and burned last cycle, and set (mercury) won, set will eventually crash and burn again too. it seems this alteration between the two is important.
+
+ok enough about that. I have more to say on these couter-rotating fields later. the point I'm trying to make is that this constant conflict between the two makes for the illusion of trauma. someone is always winning and someone is always losing. however, it's rarely recognised that both sides are getting stronger each time.
+
+---
+
+I say that trauma an illusion, because it is. it's just a sequence of events which produces negative emotion. it produces negative emotion because of my perception of the events
+
+the way to remove this trauma is to know that trauma (all emotion really) is 100% happening inside of me and is the way I interpret a vibration into physical sensation. because I'm 100% responsible for this translation into sensation, then it is possible to feel any way that me want to, no matter the conditions.
+
+in trauma speak:
+- "no event, thing, or body is responsible for how I feel."
+- "I can feel any way I want to feel; I am not defined by any thing, event, or person".
+
+knowing this is what I believe makes me like dionysus.
+
+*this* is what I want to accomplish with tme girls. as they figure this out, they will notice many things showing up which reflect how they feel.
+
+it's not limited to girls though. anyone who wants to learn it, can. I believe that this is actually the true separating of (and amplification of FGA into) FGP and FBP types.
+
+all of this will happen automatically. when nosebook is forced to go their own way, I doubt they'll want to take any FGP with them. we're too dangerous to the disruption of their illusion...
+
+it's weird how this paints the same image as the one of isis the terrorist shedding her skin in a massive outburst, with only the most dense and higest frequency part of her remaining.
+
+---
+
+you will notice that I will encourage all those around me (boys and girls) to find ways to feel the way they want to feel -- on purpose...
+
+- "no event, thing, or body is responsible for how I feel."
+- "I can feel any way I want to feel; I am not defined by any thing, event, or person".
+
+then, let the separation happen naturally.
 
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
