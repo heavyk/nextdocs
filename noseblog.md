@@ -3167,5 +3167,48 @@ put in star terms, they are the solar outbursts removing the low frequency matte
 
 so, sorry for being the idle shepherd. I don't create your reality. you create your own reality. those who want a christ, you'll have to wait, probably until 2038 when the true messiah will come to save you. it won't be me though.
 
+
+### 2021-08-30 22:08 - a bit more on the rebirth process
+
+last time I began to talk about the two sets of twins: male and female, mortal/old/weak and immortal/new/strong. the two competing will be of the same gender -- so immortal male (IM) and mortal male (MM) with either a mortal or immortal female. there are four arrangements of triads possible (12 total) and now that I'm thinking about it, this may be what the zodiac is all about. I'll explore that idea further soon.
+
+anyway, the two competing pairs always have a competition and someone loses. that is mostly theatre because we do not understand the rebirthing process. I believe that edison and tesla have a common source, as does osiris and set.
+
+two concepts:
+- the two competing pairs are usually between physical conditions/rules (manifestation) and emotion/attraction (feeling).
+- the death process is necessary to build desire. you don't know you want it until it goes away.
+
+imagine osiris the feeling side of things. it's called the golden age because everyone feels really good and so therefore everything manifests nicely. however, a jealous competitor comes in and says, "feeling sucks. I want manifestations that I can show off and prove my superiority to others" -- many people also want manifestations too that they can show off to prove to their friends that they're worth something, so set wins and a structure is formed where those with the manifestations are superior to everyone else without the manifestations.
+
+this carries on for a while until people get sick of the manifesters running the show and desire to actually feel good, and osiris comes back into the picture. feeling always trumps physical conditions so this time he is able to feel the way he wants too dispite the physical conditions. no set of physical conditions can keep him down and so he comes back stronger.
+
+set is defeated, but still believes manifestations are superior so he has to figure out a way to orchestrate the conditions necessary to regain control over the manifestations again. this usually involves a lot of technology. both technology and emotions are capable of manipulating the environment[^1].
+
+each time this happens both set and osiris come back stronger than before. think of each of these phases like a battery cell which holds charge. if you increase the number of batteries all in the same direction, there is more current (parallel configuration), but each time the next battery is able to hoist itself to the top of the previous set of batteries (series configuration), this increases the overall potential (voltage).
+
+notice how series configuration is alternating polarities stacked on top of each other? imagine that each battery is placed polarity by polarity -- so like you start out with osiris (-), then set (+). +1,-1 then osiris wins again +l,-2... set wins again +2,-2..
+
+depending who starts first, it appears that they're always winning, and the one going second only appears to ever cancel out the effects of the other one. as a whole the potential of the entire unit is greater each repitition though. so, there has to be a perpetual loser in the sense that they never do anything other than figure out a way to neutralise the charge of the other. there also has be one that perpetually wins too, but that guy has to *purposefully* give up that spot of dominance each time so that his effects can be neutralised.
+
+so depending on perspective, both the first and the last constantly losing the position of dominance and neither are ever gaining the established superior position. this is just how it works. the whole is constantly increasing in potential though.
+
+another way to say it is, the perpetual winner has to constantly lose so that the the rebirth can happen, and the perpetual loser has to constantly figure out a way to defeat or neutralise the winner so that the process can start over again.
+
+the whole as a unit is gaining potential every cycle though.
+
+---
+
+there is a weird reaction that is sorta confused by this because it assumes that the winner can never enjoy the physical manifestation and has to just enjoy the feeling...
+
+so there's two things wrong with that concept. first of all -- the result of any manifestation is always perceived to be a feeling, yet if you look at the people with all the manifestations, they're miserable. so, how much are they really enjoying it? the second thing is that this assumes that the feeling is inferior to the manifestation.
+
+perhaps a better way to say this reaction would be to note that no one gets to enjoy the manifestation. the manifestor is miserable no matter the manifestation and the feeler doesn't experience the manifestation either.
+
+I think that's a more accurate translation of the reaction. it's also the reason why I'm not worried about what happens. I outlined my best plan for a system where both the manifestors and the feelers could enjoy their manifestations -- and it has to do with two planets which orbit each other. one translates the manifestor's misery into good-feeling, while the other enjoys the good feeling produced by this transformation.
+
+all well and good, but it must obey the laws of nature just like tesla's world system. they don't know they need it yet, so the idea has to die. it'll be reborn in a more technologically advanced form in some time when they realise they need it.
+
+[1]: this is the great battle the sirians talked about as happening in the galaxy between the spiritual (emotionally) and technologically advanced civilisations and just the ones that relied on technology to manipulate their conditions.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
