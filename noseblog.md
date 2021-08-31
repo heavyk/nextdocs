@@ -3137,5 +3137,35 @@ you will notice that I will encourage all those around me (boys and girls) to fi
 
 then, let the separation happen naturally.
 
+### 2021-08-30 20:08 - if I were king
+
+@[youtube](https://youtu.be/N7ub0ztW_Ic?t=1220)
+
+yesterday, I posted a comment on one of john anthony's videos linking rev 11 to the twice 11 brethren. there is a margin note linking rev 11:4 with zech 11:14. it is talking about two stalfs that are given to break the brotherhood between the king of judah and the kings of israel.
+
+this was specifically something that john had noticed as being specifically coded there in 2 kings 8:17. I thought it was particularly notable. matthew (flavius?) explains that the first staff beautie was fulfilled by jesus and this was proven correct by the sacking of jerusalem in 70ad just as prophecy foretold.
+
+the second shepherd is an idle shepherd having no intention of healing the people, leaves the flock -- he'll bear a sword (so, like violent, I guess) and his right eye will be completely darkened.
+
+that part about the right eye being darkened always was weird to me because I remember after seeing "the passion of the christ" I remember they made special note to darken and disable his right eye. this is weird because all other signs would show that I'm the idle shepherd that YHVH is pissed off with.
+
+---
+
+I woke up this afternoon to a dream where people kept trying to make me king. I don't want to be king. I don't want to tell people what to do. in the dream we kept running into problems and I had no desire to try and fix them. people kept trying to get me to care about the flock and I didn't want to.
+
+I started thinking after I woke up a bit what sort of politics I would install if I were king and it occurred to me that I would create the most dysfunctional leadership known to humankind. I would ensure that they would be so selfish that they would constantly be trying to strip any good conditions from those that didn't play their stupid game of secrecy. it would be inspired heavily by the amun priesthood.
+
+in fact, I think I have already put that system in place and I'm just here to give them the technology to have more (perceived) power and control.
+
+why? because they *don't have any power*!!! it's all attraction. you create your own reality. they have only the control that you believe they have. and, when you begin to see things the way that I do (which is what I hope for everyone to have), then they are nothing more than free energy. they provide such a easy and rapid way to experience explosive growth in one's perception.
+
+to put it back into geometry terms, they provide free current. nothing needs to be done for them to continue to keep trying to take away the conditions, meaning that new (improved) conditions will be continually manifested. they are an unlimited source of free current that always wants to go exactly perpendicular to what is being attracted.
+
+put in star terms, they are the solar outbursts removing the low frequency matter, leaving the high frequency matter behind.
+
+---
+
+so, sorry for being the idle shepherd. I don't create your reality. you create your own reality. those who want a christ, you'll have to wait, probably until 2038 when the true messiah will come to save you. it won't be me though.
+
 ### 2021-08-12 ??:?? - a bit more on self-production
 ### 2021-07-17 ??:?? - conduct vs. perception
