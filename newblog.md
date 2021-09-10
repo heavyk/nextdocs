@@ -408,3 +408,13 @@ these thoughts are in raw form and are presented as-is. this is 100% speculation
 
 warm regards,
 kenny
+
+### 2021-09-10 17:24 - I think I figured out the 2038 thing
+
+I believe it's the maximum inflection point that can happen before it's past the point of no return for the split.
+
+so, it basically means that up until then the mars thing can happen. I don't know for sure, but I would guess that there is a way to relieve the pressure.
+
+there's not a whole lot of risk to doing the galaxy thing.. after a while, I'm sure people will get bored of it and want to do something harder. we can then go back and sabotage this timeline and pass through the cataclysm.
+
+the realisation seemed more real than these words. I wanted to writ it though.
