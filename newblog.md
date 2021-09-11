@@ -466,3 +466,43 @@ there is a definite sense that the effort to get me to watch the hdcam film is b
 all of these are side-issues in my opinion. I'm just going to keep going steady. we'll get there eventually. there's no need to rush anything at all.
 
 nice, problem soleved :)
+
+### 2021-09-11 13:17 - solar perception, compensation, and magic wands
+
+three concepts: they appear separated, but they are connected. I'll return to them more in the future too cause I think it's an important one.
+
+---
+
+I kept getting a few reactions to the concept I presented in my letter to marty. I talked about three concepts of where the more the custodians depend on me (or tesla) to feel good, the better we can feel because we're capable of transforming bad-feeling energy into something that feels good using perception (a feeling of going toward or away something desirable).
+
+however, I said it (purposefully) in a way that was very similar to the stereotypical perception that society has of women. the thing is, the sun has the same perception about us. there are some differences in some of the surrounding concepts, but essentially I'm point out that solar perception is stigmatised in this society and I believe understanding that perception was a huge breakthrough in realising that you cannot fight aganst unwanted. instead shift perception so that the undesirable is perceived as moving (eventually) toward something more desired.
+
+---
+
+I also had some reactions to the idea of compensation in last night's entry. I used to think that girls consciously offered sex as a compensation for behaviour that they liked. that is, afterall the way it's presented in the movies. if you do what she wants, sex; if not, you're sleeping on the sofa.
+
+I determined that was not the case, because if that were true then that means that girls all over the world are consciously compensating douchebags for their behaviour. I determined that was likely not the case, and that instead a more simple answer is that they're just choosing the option that feels the best and often times the douchebags often have more money or material posessions, so they're perceived to be more capable of providing a more luxurious experience. that's it.
+
+so, none of this is a case of compensation. that's an illusion presented by hollywood, yet doesn't have any basis in reality. I have seen many men perform above and beyond what is expected if them and the girl still appears to reward some other douchebag instead. the more simple answer is that the first guy isn't exciting enough or doesn't make her feel good enough so she looks elsewhere.
+
+this creates a huge tangled mess though because often then the guy thinks he needs to spice things up or do something exceptional for her. this too is a flawed conclusion because the way she feels isn't his responsibility.
+
+the road of compensation is dangerous road to go down, almost always ending in making the other person responsible for how I feel.
+
+---
+
+I woke up this morning to a flurry of dream putting me into situations where I was being isolated into places with girls and other strange things. I even remember something about making out with jessica, too.
+
+I woke up terribly uneasy about the situation because it felt like I was getting put into inevitazble situations. I had to make a decision between making a fail to girls again or doing something that doesn't at all feel effortless, but actually quite stressful.
+
+I remembered the first concept there and decided to take a non-fighting approach to it. I determined that I would just go and then figure out how to let my creation happen anyway. afterall, the more people that depend on me to feel good, the more energy it summons throgh me. from that perspective, I *want* people to depend to feel good.
+
+so I decided to not fight it, and just go with it. the feeling shifted from the groin area up to my heart again. that's good, so I know I'm on the right track. I then remembered the conversation I had with jaron about jerrica and the magic wand. I wanted to ask her if she had a magic wand, would she at least make replica magic wands for her friends?
+
+the picture that came into my mind was the idea that even if I couldn't gain the power to create whatever I felt like (magic wand), then I could imagine that the girls could, and they could make all of the magic wands they wanted and give them to anyone they wanted to give them to.
+
+I was reminded of tuenti when I was considering the success of "invite only" vs open to the public. facebook opened up to the public and that (IMO) had negative results to the quality of the page. it left a huge market opening for exclusive social networks, which IMO still has not been filled.
+
+shifting this to a way where the girls invite their friends to join in by replicating the magic wand for them is a great implementation of the "invite only" way of doing things. I kinda approve. feels OK to me so far.
+
+there were the obvious reactions to this, too. someone is pretty convinced that this will create a sort of female deminated society. there are a lot of other feelings mixed in there. it may be his worst fear. lol...
