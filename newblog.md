@@ -418,3 +418,51 @@ so, it basically means that up until then the mars thing can happen. I don't kno
 there's not a whole lot of risk to doing the galaxy thing.. after a while, I'm sure people will get bored of it and want to do something harder. we can then go back and sabotage this timeline and pass through the cataclysm.
 
 the realisation seemed more real than these words. I wanted to writ it though.
+
+### 2021-09-11 04:47 - I don't know what to do
+
+I was just watching stars and with my left eye, I got to the state where my whole body goes into this weird paralysis and tingling as it feels like my vision is expanding. it feels like I would normally gain a new perspective there -- like, get connected. I'm not totally sure though and I don't want to force it.
+
+I laid there and looked at the star with both eyes and noticed that it was back to how it used to be where my eyes would look forward parallel, not toward a point. I stopped looking with both eyes because this stopped working and they would cross instead. I believe this is because I see the image of my left eye in the right eye.
+
+the other possibility is that my brain has gotten used to the reversed eyes setup (both eyes are looking wide to look at a point) and it straitens them instead by looking in but by looking outward... hard to explain the sensation.
+
+---
+
+anyway, the reason why I don't know what I want to do is because I don't want to try and force it. I know that whenever I artificially push my body toward a goal, it works out fine because it's like practise -- however, if I accomplish something with artificial conditions, then I don't like it.
+
+man, it's hard to explain that too...
+
+anyway, the difficulty arises for me because I have this feeling like they want to try and get me with the girls again. I really want to be connected. I also really want to have some time to figure out how to conjure other things with my mind so that there can be other versions of me too.
+
+I think this is kinda important because I don't want to be responsible for how others feel. it's OK if copies of me are responsible for others' satisfaction, but I don't personally want to be obligated to perform.
+
+this is mainly the reason why I stayed out of the public. I like being there and having fun sometimes, but when people feel I need to be some way or do some thing so that I can be a part of the celebration... it's weird.
+
+the opposite side of this is that there is one me (right now) and there are lots of girls. it's just not possible (and neither do I want to try) to satisfy all of their requests. again, this is a job for the clones.
+
+you know, often times I don't need to be a part of the main manifestation. it's like in tuenti -- I really did not mind that there were so many people partying around me. I didn't feel I needed to have a relationship.
+
+it's really hard to describe this in words. it feels like there is an idea that I need to be compensated for my efforts or something. almost universally, it feels like that should be some form of affection.
+
+to me affection doesn't feel needed. I really like me. I don't need someone else to like me so that I can like me, too.
+
+as an analogy, there are various things that people do to feel good, and some of them even feel essential to a lot of people, but I don't need those things to feel good... ok, new angle.
+
+imagine there is a film or something that everone is telling me that I have to go and see. I don't really care if I see the film or not. it's not going to make me feel better than I already can feel, so it feels very low priority. let's say that I'm also not allowed into the theatre or I don't have money to go either. that part doesn't matter to me because it's not even a high priority to me. they feel I *need* to see the film, so somone brings me a hdcam version of the film (low quality version) and suggests that I watch that.
+
+why do I want to watch a low quality version of the film now? why not just wait until it comes out on DVD? in the same respect, I don't want to try and force getting connected just for some affection. I already like me and I'm expanding at a rapid rate. if anything, it could be seen maybe as a reward or something, but then obviously why would I reward myself with a hdcam version of the film when it's not what I'm looking for?
+
+it seems plainly obvious to me that I want to wait until I'm connected. it doesn't offer mental expansion, and that's what I want. I don't want to force mental expansion either. that's not effortless. I want to keep expanding and not have this hindering it.
+
+this is about where I was at in (the beginning part of) tuenti with all of the discos and stuff. there were all these dudes super worried about trying to hook up with girls in the disco. I didn't find that to be a priority. they're not expanding my consciousness. I come away from those events feeling like I lost perception, not gained.
+
+it's true though ended up later a hypocrite, spending most of my time drinking and not really expanding mentally very much. this, I believe is because I fought against the efforts of people trying to put me in their drinking, girls, and party lifestyle. I became the thing I fought against. I turned into an idle drunk fighting the world's injustices.
+
+so, I mean I'm not really about that. I like continuing to expand mentally, yet I don't want to force it, because that means fighting it (effort). I want to continue on my gradual discovery and practise of percieving things the way I want to.
+
+there is a definite sense that the effort to get me to watch the hdcam film is because it will distract me for some time away from my mental expansion. that certainly is true, but it's just not that relevant to me. I don't need others' affection to be able to like me or find me acceptable. I don't need validation from them and I definitely don't need to be compensated or rewarded for anything.
+
+all of these are side-issues in my opinion. I'm just going to keep going steady. we'll get there eventually. there's no need to rush anything at all.
+
+nice, problem soleved :)
