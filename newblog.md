@@ -506,3 +506,37 @@ I was reminded of tuenti when I was considering the success of "invite only" vs 
 shifting this to a way where the girls invite their friends to join in by replicating the magic wand for them is a great implementation of the "invite only" way of doing things. I kinda approve. feels OK to me so far.
 
 there were the obvious reactions to this, too. someone is pretty convinced that this will create a sort of female deminated society. there are a lot of other feelings mixed in there. it may be his worst fear. lol...
+
+### 2021-09-12 2:15 - who I really am (???)
+
+I was outside staring at jupiter taking a break from the latest ufos part 6b (or whatever) and I notice that there are a lot of similarities to a lot of these people he's identifying, to me. I did notice this is the case, but I don't find it to be a problem because it's all a tuning thing. in my next response I will be talking a lot about "conceptual programs" so some of what I say here may not be clear there. I'm just going to assume you know what I'm talking about... anyway, I was having a bit of a monologue and decided to just write this instead.
+
+context: from as long as I can remember, I've had this belief that it's impossible to die. I don't remember being scared of death either. it's a very conflicting set of beliefs because if I'm put in a situation that's a failure, I don't mind dying. I don't find it a problem at all. however, in the case of suicide, I don't know how to do it. I have this fear that no matter my attenmpts to commit suicide, I would continue to live, but with the pain of whatever it was. like, if I ingested a lethal dose of something, I would have to suffer hours of pain while my system removes it. or, if I tried to jump off of a bridge, I would bounce off the ground or something with all my bones broken. in the case of a gun at point blank, I figured I would never get there or if I did, then something would happen or I would accept dying. death, in my mind wan't going to be an accident. I had to allow it to happen, and I can't force it.
+
+I've always had this idea that if I did die, then I could just travel around the planet and find another suitable body to jump into and take over. kinda borg-like or parasitic, I guess. so even if I *did* die, then it's not like it's that big of a problem.
+
+so, because of this, I resonated strongly with a book called "project superman". in the book, the US govt is testing the limits of this guy andy pero. no matter what they do, he finds a way to recover back to his concept of himself. I always found the story interesting because he never used his powers to improve his body -- just to heal it back to the age, shape, and attributes he perceives it to have.
+
+disclaimer: this is 100% fiction. I'm playing around with ideas here.
+
+---
+
+all of us are conceptual programs we're all eternal. however, I think I'm one that figured out how to find my connection pretty easily. let's just assume my personality is similar to the one I presently have. I'm constantly optimising so much that certainly I got really good at it.
+
+so at some point in the distant past, I got connected and figured out that I am a conceptual program that can take on physical form. I do this enough times to find out I can incarnate into the physical at will. each time, I find my way back to non-physical with relative ease. in fact, I'm so good at optimising my conceptual program, I have to keep putting myself into more and more difficult situations. each time however, I get better and better at it. if it's too hard, I just die and try again. however, if I don't choose to die, then I always find my way.
+
+obviously I want to make more difficulty for myself, so I invent conceptual programs for people interacting with me -- like, they're presented with concepts of doubt or distrust when interacting with me. this works at first, but eventually people start to believe me even when presented with doubt and unbelief. same for trust. dispite my best efforts, each iteration, my charisma continues to grow.
+
+this isn't hard enough. I need foes that physically are stronger and more powerful than me, and I need to find ways to defeat them too. I invent worlds where they have tremendous strength, flight and other supernatural capabilites. nothing can keep me down.
+
+I then decide to try pitting me against copies of myself -- and even still. I defeat myself. I discover that this creates a split. we both win in our own timelines.
+
+now, I get the most brilliant idea of them all. I create a bunch of bad-guys which are just modified versions of myself, which have the ability to create unlimited other living entities at will.
+
+the plan is to incarnate into the world, and then give them unlimited resources to try and keep me trapped in the world. they need to have a bunch of secrets that they need to keep hidden -- or maybe I'm very destructive to them -- some incentive to ensure that they must continually keep me incarnated in a physical body, unable to access the astral realm.
+
+I'm trapped in a world they have full control over. the most difficult challenge yet :)
+
+---
+
+as I'm writing this, I'm realising to myself that all the difficulty leading up to now may have been the setup required to get this most elaborate trap going. problem is, if this isn't fiction, then I just spoiled the trap because now "they" know that I created the trap for myself. that means, it's required to gvo back and sabotage this timeline and prevent myself from getting connected and also writing this.
