@@ -636,3 +636,28 @@ when a girl figures out how to produce repicas (planets), she can produce them f
 you could imagine a lot of innovation that happens there. other men may perceive this as a threat. that could be a pretty good reason for some of them to feel competition/jealousy over who has the most desirable/effective men.
 
 nice. I kinda like it... max disaster :)
+
+### 2021-09-13 03:49 - physical vs conceptual reality
+
+one of the things russ noticed in one of the snake-bros episodes was that the custodians constantly use war to get people away from the spiritual stuff by focusing them into the material details. the idea is that it forces people to focus on the physical implementation of an idea rather than its conceptual implementation.
+
+this is almost always not the case for me though. every time that I try to do anything physical or material related, they're in the business of preventing me from doing it. like, if I try to code, they're constantly trying to figure out how to get me to stop. they don't want me to interact with people physically. they don't want me to have sex, etc.
+
+---
+
+I don't really know what is up here. after those dreams about being put into situations with girls where I felt like I couldn't leave them and make them the fail, I was terribly distraught because I didn't want to make more fails, but I also want to continue on with mental/conceptual expansion for as long as possible and don't want to have to be physically focused.
+
+if I could move my body with ease and agility, then being physically focused would be not that bad, but in my present state, I'd rather remain conceptually focused. I understand so many things now, it really feels like I can figure any concept I want to figure out. I just desire and the answer comes to me.
+
+because I have such a huge amount of questions and there is such a relatively small time between question and answer now, I'd like to continue to expand my mind and pass as much of that information on as I can. each time I do this, I get more. the physical aspect to me is completely inconsequential.
+
+---
+
+I'm trying to figure out how to quantify what it is about this time of mental expansion that I like so much and it's difficult to quantify.
+
+perhaps I'll say it like this: everything is feeling easier and easier all the time. it's the feeling of "effortless power" that I'm enjoying so much. sure, I don't have any manifestation that I can show off for this yet, but it's sort of like training or a dojo in the sense that you can expend so much effort becoming the strongest, fastest, and most agile, but I'm feeling that way mentally.
+
+some people do a lot of exercises to feel agile or strong, but I what I aim to show is that I can feel agile or strong and it was as if I had done the exercises.
+
+I don't want to imply that physical is not necessary. the physical implementation is still necessary. it's something more like becoming my own golem.
+
