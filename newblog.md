@@ -610,3 +610,29 @@ lol.. gonna have to think this over. the image of people joining a satanic cult 
 perhaps I'll call it, the anti-innovators guild or something like that. our quest will be to come up with novel solutions to erradicate innovation.
 
 needs more thought...
+
+### 2021-09-13 03:17 - pueblo superstars
+
+I realised that the organisation needs to be desirable for most people, but definitely not to a specific group (nosebook). I also don't really like that dark stuff, anyway so it's not a good fit for me. the idea was that would be the outer image, but the reality is it would be more about fun, feeling good, and not needing any conditions to accomplish that. because the image is so much more different than the reality of it, I'm getting back into secret stuff and exclusive, because you need to know the people who know the truth to get the proper image.
+
+instead, what I'm looking for is something that is highly addictive, easy to get and has viral properties in the sense that it spreads fast and could be perceived as a threat to others.
+
+going back to the part about wanting nosebook to fight against it and try to prevent its spread, I was reminded of that one reaction where I said that I *want* others to depend on me to feel good.
+
+the reaction that I got to that was that idea is highly detestible -- something they don't want more people thinking.
+
+I also had a similar feeling of detestment to the "want what's not easy to get" (want what you can't have). I have also noticed similar feelings to the girl with insatiable desire and "never satisfied".
+
+these are all things that I suppose I originally tried to fight against in myself. eventually, I had to give in and recognise that these are parts of my personality. however, as I've gained more perspective, I notice that from a solar perspective, these viewpoints are valid. as a human, one could argue that they are not.
+
+I suppose there are a number of other ideas out there that fall into the solar perception which is detestable for a person to have. that may be the way to go.
+
+---
+
+the other thing that I was thinking of is the idea of planets and their role. so, imagine for a moment just the case of replicas and girls, where a replica is a planet and the girl is a sun. there could be other males, but that's not what I'm trying to show here.
+
+when a girl figures out how to produce repicas (planets), she can produce them for herself or for other stars. each girl will figure out different models that she finds more desirable and pass them out to her friends to try out. the most desirable models will be the successful ones and they'll get the most utilisation.
+
+you could imagine a lot of innovation that happens there. other men may perceive this as a threat. that could be a pretty good reason for some of them to feel competition/jealousy over who has the most desirable/effective men.
+
+nice. I kinda like it... max disaster :)
