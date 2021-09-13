@@ -540,3 +540,73 @@ I'm trapped in a world they have full control over. the most difficult challenge
 ---
 
 as I'm writing this, I'm realising to myself that all the difficulty leading up to now may have been the setup required to get this most elaborate trap going. problem is, if this isn't fiction, then I just spoiled the trap because now "they" know that I created the trap for myself. that means, it's required to gvo back and sabotage this timeline and prevent myself from getting connected and also writing this.
+
+### 2021-09-13 00:59 - creative energy and the custodial formula
+
+so, it seems that it was intended that I fight against the efforts of those dreams. I decided that I didn't want to fight their efforts to try and stick me with the girls.
+
+sure, there were some slight downers to the setup -- like I really want to get connected, but then again maybe that isn't exactly what I want.
+
+if I get connected, then I'll figure out how to create replicas of myself, but that's kinda like open registration. anyone who wants it can get it. obviously, I would want to try and make an interface for people to create what they want easily. I don't want to have to micromanage it. that seems like a lot of effort to me.
+
+therefore, the obvious solution now for me is to find a way to make sure that the girls I'm with have the capacity to make these replicas instead. then, the problem is solved and I don't have to do any micromanagement. they can create these guys for their friends.
+
+sure, it creates a bit of an "exclusive" or "elite" sort of setup where some have the thing and some do not. however, I think that's preferrable because it keeps the desire and the quality high. you have to ask someone you know that has one for a replica -- you can't just get it at will.
+
+the reaction was that someone must know how effective an invite-only network is (probably this was the growth strategy nosebook took). so, someone thinks it'll work.
+
+the next reaction that I got was that they would just do that without me. I don't really care. it's not my job to tell people what they can and cannot do. it's only my desire to try and give as many people as I can the possibility to create their own golems. no big deal.
+
+---
+
+this next part is really foggy because I wasn't conscious for most of it. there was then a sense that something was going to be making that not possible. I don't know the picture or the thing that was put there to give that impression, but it's obviously an illusion.
+
+you see the custodial formula is to use implication to make an illusion that something is one way, and so then people will make an action based on what they do or do not want. this is basic sales and marketing. the suggestions that they give to imply that a product will do such a thing are just that: implications.
+
+once you then believe in the implications, they can drive action to get you to buy the product or use you to further their goals in some way. this is nearly every aspect of society at this point. probably the easiest to see would be the amun priesthood in egypt. they create so much imagery in people's imagination about what happens when you die, that the implication is that you need some thing that they are selling to get into the beneficial afterlife. or, maybe you want love. they create so many illusions that you are not capaable of attracting it on your own, that you have to purchase some gimmick and say a spell to get you the love interest you desire.
+
+what I'm saying is, this formula is ancient and pretty well optimised. so let's go over some of it.
+
+---
+
+from my perspective, if I somehow have attracted a situation that I don't believe I can get out of, then I have to just accept it. (I am where I am, and that has to be OK, because that's where I am)
+
+because it's all attraction, then before it manifests, I can always adjust my trajectory to avoid it. however, if I feel I cannot back out of it and it has not yet manifested, then the situation is an illusion. I am beliving an implication.
+
+what I just learned is that the implication isn't alwas the direct one, but the desired output. they believed I would fight it, but I didn't. so I'm learning that the non-fighting approah is always a good way to go. I don't think that fighting ever yields good results.
+
+so, it's weird because from my perspective, I want to keep going for as long as I can go, knowing that I'll eventually get connected. the major take-away for me here is to not try and make it possible for anyone to get anything that they want. instead, I want to do it invite-only and exclusive.
+
+I know that sounds weird, but for a person like me who is so open and free with my ideas, the idea of exclusivity is not the first thing that comes to mind. I usually have a low opinion of exclusive stuff because I dislike the idea that I have to perform to their expectations in exchange for an invite.
+
+I usually don't value anything anyone has high enough to do that. I'd prefer to figure it out or pay for it myself than to try and perform for someone. obviously, that's not how the world works though, so I can't really go against the flow.
+
+the other way to do it is to have a force which is opposing people joining it, and so therefore create value that way. like, if nosebook were to try and prevent people from getting the capacity to create their own golems, then it would be a sort of discovery of how to figure out how to do that.
+
+---
+
+for me, it doesn't really matter. I know from my perspective I just need to keep going for as long as I can go without any manifestations. if I find myself in a situation that I don't feel I can get out of and a manifestation happens.
+
+so like my goal is to not try and push through to getting connected as fast as possible. I believe I have until 2038 before it's too late, so like plenty of time... enough about that.
+
+---
+
+people may wonder why I'm so head-strong on trying to go without a manifestation, and why that makes me so attractive. I claim it's creative energy, which I think is the driver behind invention. terence calls it novelty. you want the thing that is novel -- not the thing that everyone else has. this drive to obtain the thing that no one else has what drives innovation. literally. I also claim this to be a very feminine force. it's funny that we commonly associate this with the stereotypical person that always wants what they can't have. this is the inventive nature.
+
+we all have a little bit of this in us. I absolutely want what I can't have, too. however, I don't believe it's another person's responsibility to give it to me. I want to get it for myself. if it's not yet discovered, then I feel I must find a way to it.
+
+it's funny how the topics here are connected. this is the sense that I want people around me to have. so, now I'm actually beginning to turn away from the idea of invite-only again, and this time I want the network that I create to be illegal and prohibited. something that is so profane, that no mainstream people will want to join it. it'll be reserved for the innovators.
+
+I really don't mind that there's an invite-only network out there. I have to figure out now the structure of it's appearance. how do I make something that is so terrible that nosebook and most people will think is so evil/terrible that people should be prevented from joining it.
+
+we need to build a whole bunch of false implications around it. like, you're a follower of satan or something. maybe make it's motto "do what thou wilt" and stuff like that. the implication is that it's something evil and awful.
+
+obviously, I want nothing to do with all of that bogus satanist crap. all of that nonsense is an old paradigm designed to create a false negative appearance. in reality, it's going to be all about LOA and how you are an infinite, eternal, wonderful being..
+
+lol.. gonna have to think this over. the image of people joining a satanic cult designed to equip a person to "do what thou wilt" is an interesting idea..
+
+---
+
+perhaps I'll call it, the anti-innovators guild or something like that. our quest will be to come up with novel solutions to erradicate innovation.
+
+needs more thought...
