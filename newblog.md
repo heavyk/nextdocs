@@ -661,3 +661,48 @@ some people do a lot of exercises to feel agile or strong, but I what I aim to s
 
 I don't want to imply that physical is not necessary. the physical implementation is still necessary. it's something more like becoming my own golem.
 
+### 2021-09-14 20:08 - not until the separation
+
+I've been thinking about this a lot and I want to wait until after the separation until I have any interaction. the reason for this is I simply want to be feeling stable in my capacities and stuff before I do.
+
+lately, I noticed that as I was getting close to the enlightenment experience when watching stars that I would start to feel really uneasy. that uneasy feeling is not likely my own -- prolly mr. motor or something... however, in any case, if I'm feeling it, that means I'm still resonant with it. right before I get there, I stop and go do something else for a bit.
+
+this technique feels good to me and I like it because I'm practising so that it's natural for me to be in that state of mind. I don't want to be bouncing in and out of alignment depending on whatever conditions are around. I like the practise and have no intention to rush things.
+
+the other thing about this technique is that it reminds me a bit of mantak chia talks about with the cosmic orgasm. each time, the goal is to get close but not go too far, each time building up energy further. then, finally when it can't be held anymore the orgasm experience is one of gaining consmic consciousness. it effect wasn't my intention because orgasm doesn't really take any skill or technique -- but, watching stars does. it's more a practised frame of mind and a confidence that is a normal thing to do. I liken it to riding a bike, walking, or driving a car.
+
+I want this state of mind to feel natural for me. I really am not in any rush at all to get there.
+
+---
+
+I want to be able to say the same for girls too. I still do not at all feel comfortable with it. it feels too much of a big step and it feels very unnatural still. what I mean is, when I feel comfortable with it, then I'll go for it.
+
+what that means for me is, I want to find my connection and get used to that first. my first goal is to figure out how to make replicas of myself and let the girls play with them for a while. meanwhile this is happening, I want to work on an idea that I haven't talked about much but it's basically another network, but it's powered by the sun.
+
+nosebook operates in the physical world. it transmits a signal into your physical body which then produces an image in your imagination. my system will be the exact opposite. everyone will automatically have one tuned to them. you will feel certain concepts to interact with this network (instead of thinking -- you feel), and then these feelings get transformed and amplifed in a conceptual program which then causes you to feel a way in response, when then that feeling will produce an image in the imagination or a feeling in the body.
+
+it's a conceptual network rather than a physical one. it will naturally create spaces for people of like mind to interact. so, like you don't need to go out and try and find these people in real life -- but instead can interact with them in these spaces.
+
+there are other ideas I have as well, but that's the easiest one to describe.
+
+what this allows me to do is to gain confidence in my capacity to feel the way I want to feel, and I don't have to worry about all of the other stuff.
+
+---
+
+this is really far-out, but I was even thinking of making a whole plot-twist here. I have been talking about how I don't want to be physically focused and want to remain conceptually focused. so, imagine that I enjoy the feeling that all of the different replicas of me feel like and the enjoyment of perceiving all of this from an emotional/conceptual perspective that I make my transition into this conceptual network.
+
+essentially, I am the network. I keep it running and ensure that everything is continually expanding and new things are constantly being felt. I'll have an unlimited supply of physical beings that I can supply the physical realm with. as fast as people can feel the new being it can be created. in fact, that I know of, *any* physical thing can be conjured at will with this sort of setup. all those participating in my network will be able to create anything they feel into reality.
+
+it's kind of an interesting concept. it's so far out, I don't really know where to begin thinking about it, but the cool thing is I don't need to worry about it now. first, make my conceptual network, then I can figure that part out.
+
+---
+
+anyone can do or have anything they feel they can do or have. however, for me, the most interesting part about this is not this physical manifestation. I like the idea of being whatever I want to be.
+
+this is only the beginning.
+
+
+
+### conceptual programs
+
+
