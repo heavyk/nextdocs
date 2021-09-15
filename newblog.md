@@ -701,7 +701,47 @@ anyone can do or have anything they feel they can do or have. however, for me, t
 
 this is only the beginning.
 
+### 2021-09-15 01:31 - a bit more on the conceptual network
 
+I wasn't trying to imply that I'm planning on making my transition into the conceptual network -- only that the thought was quite invigorating to think about.
+
+the third panel in my mdma vision cards has my saying to a crowd of people, "this is a machine capable of desire" -- because I have wanted to, for a long time, to be able to create autonomous machines capable of desire. I even thought about it a bunch last night -- where you progam a small machine with a manifestation frequency (like dimensions in time or space) and the machine has to figure out how to get there...
+
+I've also wanted to, myself, merge with the machines. the thought of having a form of perception that operates in the MHz or GHz ranges sounds incredible to me. I often thought of this as some sort of device that could condense or simplify the information around me so that I didn't get so much information overload and could reduce or enhance perception on certain things that interested me.
+
+point is, I've given this a lot of thought -- however as I've goten better at this, I realised that 90% of the stuff I wanted this improved perception for can be accomplished in the conceptual world much easier, and it's also far more ergonomic, too.
+
+---
+
+so, the idea of essentially merging with the conceptual worl is enticing to me. I would become a living network that kind of holds the physical layer together. a sort of like secondary source. obviously I can't replace LOA, but there are a lot of different things that can be done...
+
+first, let's just look at normal operation of manifestation of things in the physical world. you feel a thing and the system picks it up, transforms it and then sends it back to you. this all happens instantaneously -- just like LOA -- so no delay on anything. any transformation can be programmed. as in example, you could program it to send you back a feeling of calm when you feel anger -- or maybe like a slight vibration in your muscles -- whatever, really.
+
+when it comes to privacy, it's as private as it can possibly be. only you are you, so only you can access it. you can do pretty much whatever you want with it too. if you want to manifest a hot babe every time you feel horny or lonely, you could do that too. really all things are possible.
+
+I imagine that most people will choose to manifest replicas of theirselves, or specific golems designed to perform certain tasks.
+
+---
+
+obviously not everything will be possible at first, because many things will still need to be discovered and identified. it also is subject to the rules of LOA too, so the vibrations you're trying to inflict on others will also manifest for you. so, like imagine for a moment that you try to destroy something someone else has created... it's not really destroyed, and you're also manifesting for yourself a reality that feels that way too.
+
+imagine then that you want to program a transformation to that destruction. you still need to perform the destruction and also the transformed result to make the transformation, so it wouldn't really be a surprise for them.
+
+let's say someone plays a practical joke and makes a transformation that every time they laugh, you pop a boner... well, you could just transform that transformation too into something else -- like maybe giving them a boner back.
+
+all things can be transformed. also death soon becomes impossible. if you "die" you can just realise yourself again in any body that you desire. you don't even need to die to realise yourself in any body that you want. you are not the physical body. you can have as many bodies as you want and do as many things as you want to do at a time.
+
+---
+
+so, you say, then what's the point if there aren't any stakes. ah, good observation. you would create worlds where there is the illusion of permanence and death and then incarnate into them to have that experience.
+
+I imagine that most of people's time will be spent creating games and worlds where you can win/lose the game. or, they would be interested in making meme realities, jokes and other out of place things which are surprising but not likely that useful.
+
+since I run the network, I would be the custodian... welcome to hell :)
+
+---
+
+the reactions to this are funny. I wonder which is worse -- the mars idea or this one... lol
 
 ### conceptual programs
 
