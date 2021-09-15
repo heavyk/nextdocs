@@ -810,6 +810,24 @@ I have a lot of people around me still that believe all sorts of things about re
 
 more thought is definitely needed :)
 
+### 2021-09-15 16:44 - magnetic field of earth
+
+the reason why the magnetic field of earth interests me is because I think the rotation of the earth is directly correlated.
+
+the part about the two satellites being pointed just off of the east coast and the other being pointed just off of the west coast is that the shapes of those curves show that a stronger megnetic field is induced on earth when the sun is straight overhead (perpendicular). that means that as the earth rotates, the sun generates a magnetic field on the surface of the earth which then, if we imagine the core of the earth to be a dynamo, the higher magnetic field will pull the rotor toward it. something similar to this must be how the earth rotates.
+
+therefore, I will consider the crust of the earth to have a rotating magnetic gradient around a rotor (prolly a rocky core of silicates) and this operates like an AC motor.
+
+if I plug a motor into 60Hz electricity, it will rotate 60 times a second (3600rpm). this means that the rotation of the earth roughly matches the frequency. this will yield a roughly constant rotation speed, with the earth rotating as fast as the gradient moves around. everything should be constant -- neither slowing down or speeding up.
+
+however, we know that the earth's rotation was slowing down until 2020 when it started to speed up slightly. I think this has something to do with the magnetic field strength. I wanted to know if the field strength is weakening or not because if my theory is correct, it should be increasing in strength and that's why rotation rate is speeding up.
+
+---
+
+to demonstrate this theory, imagine a standard 60 Hz motor plugged into the wall. run it at 120V and it goes fine. now, lower the voltage gradually and notice that the motor is having trouble to turn as fast because the field isn't strong enough to pull the rotor fast enough.
+
+if we change the setup to one where there is a setup similar to the one where the sun induces the magnetic field, a stronger field will cause the rotor to turn a little bit faster each revolution (accelerate). likewise, a weaker magnetic field will decelerate until it reaches a constant velocity proportional to its field strength -- assuming a constant load, of course.
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
