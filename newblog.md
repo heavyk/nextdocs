@@ -743,6 +743,73 @@ since I run the network, I would be the custodian... welcome to hell :)
 
 the reactions to this are funny. I wonder which is worse -- the mars idea or this one... lol
 
-### conceptual programs
+
+### 2021-09-15 13:00 - concept vs meaning
+
+I woke up this afternoon to an explosion sound in my head. in the dream, I was pointing out how hollywood takes certain symbols (physical details, actions, etc) and puts them into a sequence, to condition you to belive that whenever you see one symbol, followed by another symbol, then a thing will happen.
+
+this technique has been used for a long time to teach kids what to expect in certain situations -- like what to expect from strangers in tme forest in little red ridinghood. this technique is the foundation upon which all prophecy is built and hollywood employs it everywhere.
+
+it's designed to program your mind to perceive similar symbols in your own life and then come to expect the result that happens in the film.
+
+because most of our lives we learn by watching, many people (including those that make these films) believe these implications are the way that reality works. in fact, a lot of them are reportraying past events from an implication standpoint -- like maybe a past relationship or whatever -- so, people watching begin to expect the same sort of behaviour out of their mate, if they notice similar "signs" of that behaviour.
+
+---
+
+this is what I call the 3-7 form of perception. you pay attention to physical details (7), and then come to conclusions of what will happen based on the percceived logic or implications of those details (3).
+
+aftter raquel, I was caught up in this very badly. like, very very badly. I saw a bunch of things happening (actions) and physical hechos that I then made implications about what was happening. I was totally driving myself so crazy with it that I attracted a very life-changing event -- vallecas.
+
+prior to that I got my first glimpse of abraham and they said that all manifestations that are happening can be traced back to the way I feel. I started to remake a lot of the prior associations I had, and instead of looking at physical details, actions and hechos (things that happened), I looked at how I felt. I started to see pretty quickly that every one of those details were a reflection of the way *I* felt.
+
+I started to value how I felt more and more, so I started to feel better the best way I knew how which was drugs, alcohol, and programming. unfortunately, I still had a lot of those implications hanging around still and I found myself in vallecas...
+
+a number of times I recovered from these bad feelings and could find ways to feel better, but I would then find myself in another situation which would reveal false implications.
+
+for example, when I went to valverde I noticed that people were looking through my eyes, and I started to realise that my eyes are being manipulated. every time that I would go from 3d to 4d, it would go away; the spot in my eye would move around; my vision would get better, then worse when I slept. obviously someone was preventing me from getting to the state I wanted to be at (4d).
+
+the implication was that I was no longer in control over my physical reality. someone could put sounds anywhere, shock my body when I saw any images in my eyes, or whatever to ensure that I couldn't get the manifestation that I wanted (to see creations in my eyes and build incredible things like tesla in my imagination).
+
+because it appeared like they had my physical reality subdued, then the implication was that I would never be able to get what I wanted. it also implied that I had to *fight* the oppressor (just like in the movies) and the righttous man hero would emerge victorious.
+
+@[youtube](https://www.youtube.com/watch?v=fRL3wx-ZKsg)
+
+obviously this is totally not the way to go about it. the idea of fighting it only made it worse, and I eventually felt my power slipping away so far that I was entering into a state of depression.
+
+after a complete disablement of my left-side, I found myself back here in the USA. this time, because I felt powerless to get what I wanted, I had severe depression because the implication is that I would never be able get what I wanted. they were using my own capabilities against me. thankfully abraham insisted on reminding me that "it's all attraction" -- and admittedly, I knew they were right, but it was annoying to be wrong about my rightous quest to get the capacity that I had discovered.
+
+I figured out how to watch stars and improve my frequency, so I should be able to use the thing I discovered... right?
+
+---
+
+I've come a long way since then and now those ideas seem very outdated. it doesn't matter what they're doing, and in fact, those things aren't what I really want, anyway. I don't really care about that stuff. nowadays, I have figured out the power of being able to feel any way that I want. that's a lot better than some stupid capability of seeing images or whatever. I'm learning that the concept that one has *is* their reality.
+
+the common way to produce this concept is through pattern recognition and the implication of the next expected result in the pattern is what will manifest.
+
+these concepts either feel good or they don't feel good. if they feel good, they are in alignment with the way you want to feel.
+
+---
+
+I suppose I still have quite a few implications still floating around in a lot of places. I know they're just concepts though.
+
+I'll return to this. I want to think more on it.
+
+---
+
+there is an idea that I have which all paths, lead to the future you. with some taking longer than others (imagine lighnighmg going between two points. it never goes in a straight line). the only thing that prevents you from reaching the destination is an inability to maintain alignment with it -- like say maybe it's transforming too fast or something.
+
+however, all paths do lead to the same location -- just some appear to take more time because they traverse a longer distance.
+
+so really, it's much more about my ability to tune rather than the path to get there. obviously some paths are more desirable than others, but again that has to do with my tuning, and not the environment or the conditions.
+
+still needs more thought...
+
+ok, so there's a difference between feeling physically good (pleasure) and feeling emotionally good (joy or happiness). I probably have a lot of implications still that degrade the feeling of physical manifestations.
+
+I have a lot of people around me still that believe all sorts of things about relationships and when they see certain key things, they freak out. a good example of this was the idea of "wanting what you don't have" or "wanting people to depend on you to feel good". these have huge implications in a lot of people's minds that don't have the same implications in mine.
+
+more thought is definitely needed :)
+
+### 2021-09-13 ??:?? - conceptual programs
 
 
