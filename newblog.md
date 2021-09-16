@@ -828,6 +828,64 @@ to demonstrate this theory, imagine a standard 60 Hz motor plugged into the wall
 
 if we change the setup to one where there is a setup similar to the one where the sun induces the magnetic field, a stronger field will cause the rotor to turn a little bit faster each revolution (accelerate). likewise, a weaker magnetic field will decelerate until it reaches a constant velocity proportional to its field strength -- assuming a constant load, of course.
 
+
+### 2021-09-16 04:33 - go figure it out
+
+@[youtube](https://www.youtube.com/watch?v=vik5dL1WfPw)
+
+I have felt a lot of uneasiness going on around going to becky's house. there are a lot of assumptions and stuff.
+
+about that -- the thing is, I think it's OK to talk about these concepts and stuff...
+
+I just listened to the latest snake-bros podcast (@[youtube](https://www.youtube.com/watch?v=Yw9BVqDK4Qo)) and I'm totally digging that they're figuring it out for theirselves. they kind of invigorated my inner trickster a bit. I really like that they're doing all of their discovery and stuff. it's really good.
+
+my whole thing is I want to open up the "spirit realm" (or whatever... conceptual realm) so that others can see it. once people begin to have interaction with that, I think a lot of these mysteries will become pretty understandable.
+
+I kind of sit on the fence on this because on one hand, I want to give people magic wands so they can create all the crap they want -- thereby greatly accelerating the realisation that stuff isn't the goal. there was this one part in tesla's autobiography which always stuck to me about his gambling addiction. his mom gave him the money to spend, knowing that only by spending all the cash was the only chance to allow him to make his own decisions.
+
+I'm of the opinion that you have to let people shoot themselves in the foot. it's essential to the learning process. this is the same way. while, I know that that would severely interrupt nosebook's desire to tell people what they can and cannot do, this realm is opposite of the physical one. you cannot do a lot of things here, so the limitation is resources. there, you can do anything you can imagine -- so the limitation is your creativity. almost all creativity is a remix of an existing idea, so this is all about trying stuff out, failing, revising and trying again.
+
+it's a really difficult thing to figure out... if everything is possible, what do you try? imagine you were tasked with trying out the different combinations of DNA (a very large number) to create a new species... it's difficult to explain this concept easily...
+
+in a slightly related incident, I was watching an [ontological discussion](https://www.youtube.com/watch?v=fXW-QjBsruE), and I noticed that I have very strong opinions about what things are and are not (very ironic joke considering the content of the video), and I had this realisation that it must be so annoying for people to hear me say, "no, it's like this ..." and then state my current understanding of the topic as if it were fact.
+
+sorry, that's the way I am and I don't really want to try to see it any other way. I have to make some assumptions to make any progress -- otherwise I go in circles cause I can never be fully sure of anything. I do recognise there is uncertainty to the things I'm saying and my opinion changes all the time as I continue to find a more general implementation of the concept.
+
+from my perspective, though I think my perspective is correct, I don't want to impose that perspective on anyone. I'm willing to offer my suggestions and my current understanding of it, but I don't want it to become doctrine. my own ideas change so rapidly, I could never afford to have something that I believe is unchangable. even source (or God, or supreme deity) I believe is also changing, expanding, and improving. there is nothing that is static and immovable.
+
+so, even though I'm nearly 100% certain that there will be some beady-eyed opportunists that'll take some of the things that I say here and turn it into a system that reinforces their authority on the matter, I don't want to have any part in that. there are a lot of people that want to be told what to do and how it works, and those guys are for them.
+
+those people are not for me. I'm willing to offer my ideas, but figure it out for yourself, ya know. I don't have all of the answers because no one ever will have it all figured out -- just better and better explanations of it.
+
+I like that people are figuring it out for theirselves. I believe that's what this domain is actually designed to have.
+
+---
+
+the reason why I said that is because I was thinking about the custodians and stuff and how it all fits in here.
+
+imagine for a moment that all of this is a simulation, and it's a sort of genetic algorithm designed to harden the system.
+
+if a virus came to your system, knocked on the door and said, "I'm the good guy; let me in" your friend may ask, "how do you know he's the good guy?" "well, because he told me he was, of course" -- that sort of thing sounds silly, but that's about the extent of "security" people have with most channeling.
+
+to make the game more difficult, LOA is a real thing, so you get what you're tuned to, so someone who is on the lookout for a monster around every corner is going to find a lot of monsters, and that distrust actually attracts them. it's like they can smell it. you want to be on the lookout for the desirable things. however, a person who is naive will also get duped a whole bunch of times too.
+
+the system appears to be optimising for someone who is naive so as to attract desirable realities, yet can recover easily/rapidly from any setbacks. intuitive enough to recognse the undesirable without even interacting with it or attracting it in the first place, and also capable of figuring out the nature of reality as a reflection of them so they're able to amplify the desirable aspects.
+
+that can probably be said in a better way. I'll think about it, but one thing I seem to be noticing is that the reality around us is in the business of deception.
+
+---
+
+I guess what I'm saying here is that I want to keep offering as many ideas as I can, which I'm sure are not *the way*. they are *a way* -- of many possible ways. nature loves redundancy. anyone who says they are the only one true way has drank the custodial koolaid and are part of the simulation designed to compromise the easily infiltratable.
+
+all of these phenomenon are just mega amplifiers of your concept of reality. need a saviour -- the galactic guardians will save you from your crappy reality. want some power? try this ritual.. how about 200X boosting your internet connection?
+
+lol.
+
+---
+
+great opisode :)
+
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
