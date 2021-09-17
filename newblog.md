@@ -885,6 +885,57 @@ lol.
 
 great opisode :)
 
+### 2021-09-17 03:19 - and the lord spake unto moses...
+
+...that *the LORD thy God* shall harden the heart of the pharoah and multiply My signs and My wonders in the land therein..
+
+naw, just kidding... right? the last few days I've been continuing to lower my own resistance. the thing is, the whole girls thing doesn't feel as bad anymore, so I'm not really fighting it so much anymore.
+
+I still think it'll be a rather bumpy ride though. my main reason for wanting to hold off for as long as possible is that I wanted to try and figure out my own way toward getting the mars thing going.
+
+since, I've come up with the concept of passing on the magic wand. I thought maybe originally I wanted it to be invite-only, however I've changed my mind to making it a conceptaul thing. I still like the idea that girls can invite others to join the conceptual network, but I don't think that's a necessary thing anymore.
+
+I still haven't worked out all of the details on that, but I do want for more replicas to be created, though I don't think this'll happen very soon.
+
+what I'm learning is that this isn't necessarily a battle (it's not a battle -- just I don't have another word for it) of conditions, but instead a conceptual engagement. what I mean by that is kinda like what abraham would always say about conflict -- telling people to change their point of attraction (concept of reality) and those incompatible will vibrwate right out of your experience.
+
+I started to think in @[newblog](2021-09-13 03:17) about the different things that would be detestible to nosebook as a way to try and force the egyptians out of egypt...
+
+obviously that's not going to work and I would be attracting a similar sort of incompatible reality for myself as well. the original goal was a physical separation instead of a temporal one.
+
+I pretty much came to the conclusion that there isn't anything that needs to be done actually. all that I have to do is follow the road that feels like the right way and course-correct as I go. doing that, I should get there OK.
+
+so, I stopped having so much resistance, and it felt from my perspective like some people were very concerned about this. personally, I don't mind how long the pharoah's heart is hardened, because I'm really not in a rush at all.
+
+---
+
+@[youtube](https://www.youtube.com/watch?v=NeuLEu9ZePc)
+
+so, I feel like I want to watch this video and lindsey is talking about the character arc of the little mermaid. I've never seen this movie before, so I don't have much context to go by either.
+
+the first thing I noticed is her name. her name is aries with an l -- so, like a feminine mix of mars and saturn. she has a bunch of earthly books and wants to be a human. her father neptune (the original chief god of atlantis) forbids her from her books or something like that. he fights her desire for human knowledge. I don't know the story but neptune gives up his power to a witch.
+
+this reminded me of the chimera -- a mythical beast having lion, goats and snakes. OK, so mythologically speaking atlantis (of which neptune was first ruler) fell about 12kya at the end of leo. the lion is always connected with this terrible and ferocious female goddess (innana, ishtar, sekhmet) having power over the lion and sometimes she is clothed with a lion's body -- always she has an attractive female body with the face of a male lion (drag king?).
+
+the fact that this female influence coming and overthrowing the kingdom of neptune could not have been perceived by all as having been a good thing.
+
+the chimera is also the offspring of typhon and echidna. in a previous nosedocs, I make the case that typhon is the destructive side of velcan. I also have implied that vulcan is likely another incarnation of saturn (satan).
+
+anywaay, typhon and echidna give birth to a lot of monsters that heracles has to fight in his trip through the zodiac. also, I'd like to mention that I believe the suffix "cles" is like "ovich" meaning "son of" -- so like, son of hera -- which was also vulcan -- so like his counterpart, or the same guy. either way, the picture I get is that one makes the monsters and the other defeats them.
+
+back to ariel. I don't really know how you mix two dudes to get a girl, unless you were a genetics superstar and could sew x chromosomes together to make an x2 or an x4 (depending if it's the immortal or physical twin).
+
+anyway, I think I should probably watch the little mermaid. I'm surprised at how "prophetic" it is. that, and hercules, actually (see where I'm going with this?).
+
+---
+
+the next thing that caught my eye was when she says that ariel has a very simple charaacter arc. most disney protagonists go through the monomyth, but ariel knows what she wants and gets it. the entire struggle is external. I probably should hate identifying with a disney princess, but from what I gather, I see myself a lot in ariel.
+
+I would assume that I'm not though.. like she's similar to me, but not me -- so, I had a look at the [monomyth](/img/monomyth.jpg). I noticed that I am heading down both the left and the right side of the chart there, and it appears that I'm gonnna meet right there in the middle at the temptation, right between "meeting with the goddess" and "attonment with the father" stages.
+
+---
+
+that's all I have to say for now. it wouldn't surprise me if some of the story gets a rewrite.
 
 ### 2021-09-13 ??:?? - conceptual programs
 
