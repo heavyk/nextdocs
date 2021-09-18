@@ -937,6 +937,54 @@ I would assume that I'm not though.. like she's similar to me, but not me -- so,
 
 that's all I have to say for now. it wouldn't surprise me if some of the story gets a rewrite.
 
+### 2021-09-18 02:42 - thinking on the rewrite
+
+@[youtube](https://www.youtube.com/watch?v=8qh7YV23aRY)
+
+I just watched that and I noticed that the 12 labours of heracles are also quite similar to the future outline I lost in the disk crash, and also to the final stretch after the death of enkidu in the epic of gilgamesh.
+
+there is one interesting part where when fighting the hydra, it seems to continue to regrow its heads during the traversal through cancer. after cancer, there must have been a reversal because now we're in saggitarius with the centaurs.
+
+then, after clearing out a whole bunch of crap with a lot of water (flood?), he kills some birds and we're back to fighting bulls. this would seem to be taurus, but in my narrative I have this part ending in gemini. the labours seem to suggest that girls cause heracles many problems. the girdle gets the amazon girls killed. the next one has cattle causing problems again, and is somehow related to termenting heat. heracles threatens to kill the sun and is given a spaceship in return. he rounds up the cows and sets up two pillars (gemini?).
+
+I don't believe that these cows symbols are of taurus because these cows seem to produce a lot of waste and need to be rounded up. perhaps the bull is related to taurus, but the cows I think are the feminine principal -- giving milk or sacrificed for food. the mortal female
+
+finally the apples of the garden are to be fetched, and this is (IMO) the immortal female. in order to accomplish this, the sky needs to be held up (this seems to be a reference to the atlantians and their electrification of the sky). seems heracles almost fumbles the sky, and tricks atlas to holding it up again.
+
+mission accomplished. he goes and celebrates and then get loose with women again. his wife, wanting to regain his love actually poisons him with hydra blood -- the snake tyrant that kept reproducing double instead of killing it. this I believe is a reference to "job" and the general principal that every force produces double (see story of gob). the hydra was good at returning what it lost in double proportions. well, this same capacity when applied to heracles, kills his mortal self (the end of gemini).
+
+the last scene is cerberus, the 3-headed dog. I find it likely that sirius has a third star, and this is cerberus. this is the closest approach to sirius in the underworld. from there, we probably flip over and now back into scorpio or libra (dunno which one).
+
+therefore I must conclude that the "opposition" to hercules is hera. she is an interesting character that I think is well portrayed (in modern eyes) by ursela (bear lady) in little mermaid. this opposition seems to drive heracles to perform these labours -- so therefore I will consider heracles in this context to be the martian task force, or gilgamesh. the cattle are symbolic of the earth humans. the amazonas are likely the more powerful females on earth.
+
+consider this to be the frame for the rest of this discussion.
+
+---
+
+@[youtube](https://youtu.be/KznZcK7ksf4?t=974)
+
+on the subject of superman vs rocky, to me, it feels like they're trying to move away from the superman christ-like narrative and move instead toward a rocky-like narrative for heracles, who was born with godlike powers -- just he needs to train to be able to use them. 
+
+so, while I do identify a bit with heracles in this, I consider heracles to be the x3 models -- making my character hera :)
+
+---
+
+this presents an interesting difficulty because the rocky story is that rocky is the underdog that is going to fight heavyweight champion apollo. he lasts pretty long (like heracles), but in the end is defeated.
+
+the superman narrative is weird -- and it also *does not* fit the martians either, so that won't work.
+
+---
+
+@[youtube](https://www.youtube.com/watch?v=AIIWy3TZ1eI)
+
+the final thing to discuss here is the hunchback narrative. I've never seen it and I never heard the story before tonight, so I'm a bit blind. some things to note is that the esmerelda reminds me of the "dark lady" sonnets -- more sexual than the "fair youth" sonnets/princesses.
+
+the story is that the hunchback is the physically inferior to frollo. his name means "almost like" or I would say, "almost formed" or "almost there". frollo apparently means "killed by arthur". I also don't know anything on arthur, but I'm assuming that arthur is some super awsome dude that had the female power (holy grail), so frollo appears to be labeled as the jealous/inferior rival type of arthur.
+
+@[youtube](https://youtu.be/AIIWy3TZ1eI?t=1656)
+
+this sequence "it's fine" appears to me as a passing on of something... I will assume that esmerelda is the "holy grail", that he is passing it on to the new apollo.
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
