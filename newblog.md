@@ -983,7 +983,63 @@ the story is that the hunchback is the physically inferior to frollo. his name m
 
 @[youtube](https://youtu.be/AIIWy3TZ1eI?t=1656)
 
-this sequence "it's fine" appears to me as a passing on of something... I will assume that esmerelda is the "holy grail", that he is passing it on to the new apollo.
+this sequence "it's fine" appears to me as a passing on of something... I will assume that esmerelda is the "holy grail", that he is passing it on to the new apollo (captain phoebus).
+
+### 2021-09-19 23:53 - little more on the rewrite
+
+I have been thinking about those story elements I talked about in the last few entries on the rewrite. even though I have some similarities to the hercules story (especially the disney one), I contend that this is the future story of the martians over the next 6ky, told symbolically through the form of heracles.
+
+I do however have a lot more similarities to the rocky and quasimodo stories though. when thinking on the rocky one, his story is to train physically as hard as he can to defeat the heavyweight champion, apollo. he makes it all the way up to the last round but is ultimately defeated by apollo. quasimodo is similar in that he passes on esmerelda to apollo.
+
+so I was thinking about the rocky story. he is training really hard to defeat apollo, but that training is physical. my situation is similar, but my goal is not physical strength, but instead the capacity to feel the way I want to feel, and then be able to be anything I want to be.
+
+I was talking with mom about this, this morning and I was explaining how I feel a bit of a hypocrite because I talk about all of these things that I cannot do. if I truly could feel the way I want to feel, I wouldn't have trouble to pee. I could also navigate time very easily too.
+
+these last few days provided two very clear examples of this too. the first was yesterday when I went to becky's and I simply could not eat all day. my stomach hurt and everything sounded terrible to me. I also had a very difficult time to pee.
+
+the effects that this had were notable. I really felt very strongly how much disinterest I have in getting back to concerning myself with the mundane. I don't care about football, and I don't care about someone's inability to figure out how to feel good. none of that is anything that I want anything to do with. so, sure I can lower my resistance and perceive that all paths eventually lead toward the creating of the thing I want, for some reason I still feel strong distaste for a path that involves such a material/mendane approach to it. I want to feel the way I want to feel. the irony is, sure if I am placed in that situation, I can *definitely* feel the way I want to feel, it is not something that I think I would choose.
+
+so again, I'm a hypocrite. I say to find a way to feel the way I want to feel no matter the circumstance, and then reject the circumstance because I don't feel good, instead of finding a way to feel good.
+
+the second good example of this was today. I woke up and I was feeling pretty good. even though I did feel pretty bad, it was still quite an improvement over previous performances, and I did think I was doing better. when I woke up, I had a strong feeling that today was a trajectory toward something happening. it felt very strong to me. I think I then lost consciousness, and I can't remember the order of events, but one thing I remember is how uninterested I felt being stuck in a life with the mundane details of ordinary public school life. I also found my stomach was hurting quite a bit and I was very unable tco pee again.
+
+however the order of events happened doesn't matter; when I returned back to consciousness, I really did not feel well at all. I even had a nosebleed, which is something that is very very uncommon for me (I have to get hit; it never just happens)
+
+I'm pretty certain that the difference between how I felt before and after directly modified my trajectory through time (eg. switched timelines).
+
+---
+
+so, in the sense that I'm rocky, my objective is not to defeat my opponent physically, but to be able to feel the way I want to feel. it appears that their capacity to manipulate the physical aspects of my body still has an effect on how I feel emotionally/conceptually.
+
+the other major realisation for me was that I realised that no matter what is happening, they'll always just adjest the way I feel to alter that trajectory. therfore, seems safe to say that nothing will happen with the girls until all timelines possible must traverse that event, so as to make it completely unavoidable.
+
+---
+
+so that brings me to my final point here. I'm getting better and better at feeling the way I want to feel, but I want to really master it. this isn't a championship title in that I only have to defeat them once. I have to be good at it so that it feels natural and normal for me to feel the way I want to feel. so, just like my star-watching, I'll probably get good at feeling the way I want to feel, keep doing it, but right before anything manifests, I'll just let the conditions carry the moment as everything seems to fall apart. this gives me and also others a chance to get good at feeling the way they want to.
+
+there's nothing inherently wrong or bad about any of the conditions that people are in right now. it's just the perception of them that feels bad.
+
+so, for example, today I was studying football. I don't want to fight against it, so I study it instead. it's funny how this ties right in to the conversation that I had with that guy on saturday about where I get my news: the conspiracy therists. I study the proposed bad guys and their objectives and then work my way back to reality.
+
+well same thing here, so I take the thing I don't like (the mundane interaction of american football) and I study it to find my way back to reality. I noticed that there's a ton of bean-counting on time (time-shortage consciousness), and an official declaration of what happened (referee), and commentators on the action (fox/cnn news) complete with replays and analysis if the official declaration is correct or if there should be outcry.
+
+it's exactly like american government and politics played out in real-life. I remembered the quote from mcluhan quote about how sport and games are modeled conceptually to illustrate the successful aspects of a culture's achievements and play them out in a structrued and organised form. american football is a game that is showing us how we have distilled our success and expansion into a game. this isn't a game of wit secrets, planning ahead, etc, like chess. it's a different game.
+
+I propose that it's a game of propulsion. the goal is to push the ball through the resistance as forcefully as possible. sometimes it involves some trickery, but it's mostly brute force, of which you get 3-4 attempts to try and push it throgh an acceptable distance before being forced to give up and try to make it as hard as possible for the opposition to return the favour. I was watching the cowboys and the chargers, but it may as well have been repubicans and democrats, or USA and iraq.
+
+interestingly, I was talking to the same guy about how our technology reflects our consciousness (another idea I lifted from mcluhan), and that we won't be able to progress much further technologically (especially space travel) until the propultion-only paradigm gets changed to one of attraction.
+
+---
+
+so, in a bigger picture of things, I can see that there are a lot of people out there that like to push things forward, whether it's mentally or physically -- so, while I do think it would be a great idea to have good conditions, with which we can all experience and enjoy, it appears that the manifestation that I want (to feel the way I want to feel) seems to be directly linked to that separation.
+
+intuitively, I reasoned that I did not imagine that any girls would be happening until a separation has occurred -- either physically or temporally. I'm starting to see this playing out more and more all the time.
+
+instead of trying to get any single event to manifest, I want to get so good at feeling the way I want to feel, that it doesn't matter what is happening.
+
+I was thinking to stop talking about the difficulties, but the reality is, these are OK because my attention to them trying to manipulate my timeline by the way I feel is giving me more and more practise at it. they'll continue to get better at it too, and when we finally split, they'll be so good at it, apollo will have finally defeated me -- but not entirely because I'll be with a bunch of people that also know how to feel the way they want to feel.
+
+because, love...
 
 ### 2021-09-13 ??:?? - conceptual programs
 
