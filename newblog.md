@@ -1115,12 +1115,15 @@ solutions:
 2. no longer do they have to worry about me seeing images. I simply don't have the capacity from birth, so it's not like it's even a thing.
 3. entire portions of my brain can be disabled and certainly I'll still find a way. no worries if that produces paralysis or inability to pee. again, if I'm born that way, then the brain figures out how to perform the task within the framework it's given.
 4. I get to become completely unstoppable. obviously, this won't last forever; I will find a way.
+5. if I make my transition now, I believe the earth's magnetic field will severly weaken. I don't know if this is dsetermined to be desired or not. this will allow the earth to begin to rotate in the opposite direction.
+6. considering the traditional way of accomplishing someone else's form of perception through sex, there will be zero girls that got my perception the natural way. they will only have got it through nosebook (which likely has a limited featureset and is heavily controlled). this eliminates a uncontrolled spread of my perception to others
 
 problems:
 1. I get to become completely unstoppable. obviously, this won't last forever; I will find a way.
 2. who will they broadcast in my place? they could broadcast the kid, I guess but that may not be as exciting. I dunno.
 3. andrew may not want to be broadcasted
 4. if they reveal they have the capacity to transfer consciousness, that may be undesirable. or, perhaps the healthcare industry could find a way to capitalise on moving their consciousness instead of keeping those dead people alive.
+5. if I make my transition now, I believe the earth's magnetic field will severly weaken. I don't know if this is dsetermined to be desired or not. I think increased magnetic field means more perception/energy and faster speed of light. I also think it means shorter days as rotation speeds up.
 
 more to think about still...
  
