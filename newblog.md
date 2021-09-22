@@ -1073,6 +1073,58 @@ I guess I'm sorta down to take the hit here allowing them to continue to use my 
 
 sounds like a worthwhile sacrifice so they can ensure I never become conscious enough to reveal their secrets -- I guess...
 
+
+### 2021-09-22 02:44 - a bit of rationalisation
+
+a bit of a reply to a few reactions wondering why in the world would I suggest such a thing...
+
+well, it takes the whole "need not the manifestation" thing to the extreme. the last thing I want to do is to rely on a manifestation to feel good. this takes that and raises it to a whole nother level. I'm just not really concerned about it. the thing I want is to have the capacity to feel the way I want to feel. like... you know, however I want to feel, physically or emotionally. I'm learning very rapidly the techniques to do that every day, and literally every day I notice that I'm still learning new things.
+
+it's a bit hard to describe them, as they're starting to get sufficiently abstract that it's difficult to explain them with words. the best way to say it perhaps would be a confidence or a knowing, coupled with a much more real-time awareness of how I feel. I still react and stuff so to the outside world it probably looks still about the same. to explain, imagine I bite my fingernails becaus I'm nervous. I could try and do my best to stop biting my fingernails, but the manifestation of that nervousness will appear in other places. that's kind of why I let those manifestations occur, because I get the evidence of how I feel instead of trying to suppress (or hide) it.
+
+what I mean is, I'm finding form of perception which allow me to feel relaxed, rather that trying to change the nervousness.
+
+the reason why this is important to me is because instead of trying to figure out the right thing to say or do or whatever, I can just be so practised at feeling the way I want to feel, it's effortless.
+
+I don't really have to pay anything for it, other than time -- of which, I'm mosly unconscious anyway. it's truly one of those "improve yourself while you sleep" sort of gimmicks. I only had to come up with something so amazing someone is willing to invest a tremendous amount of time and effort into coming up with technology to prevent me from ever becoming conscious with it.
+
+I have no rush to try and get any (specific) manifestation anyway. the ability to feel what I want *is* the manifestation. with that capacity I can manifest *anything* I want anyway -- instead of just one thing.
+
+if someone comes to you and gives you a wish, you would wish to have unlimited wishes, right? hopefully, anyway... that seems the most obvious wish for me...
+
+likewise, on the opposite side of things it's also quite good because it also allows for others to also not need a manifestation and feel the way they think the manifestation will allow them to feel.
+
+---
+
+so, why would I want to duck out early? well, it's that all or nothing thing. let's look at the sequence of events to try and derive some meaning from it...
+
+1. I wanted to go for all because I didn't like the way it felt to have so many people depending on me for feeling good.
+2. later, I realised that having people depend on me for how they want to feel is actually a fine thing when looking from a solar perspective.
+3. I decided OK, fine I'll just go with some girls and work my way up to getting connected so that I can do all -- or, perhaps instead of that maybe we could figure out a way for the girls to be able to make their own replicas and make more for their friends
+4. that idea was met with some difficulty, and there was a simple desync between the reality that I wanted to live and the reality I would be put into. I preferred the conceptual reality more than being forced to be physically focused.
+5. because I am an adult, I can choose the reality that I want, and I suppose I'm a bit of a snob in that I'd rather not be stuck in a mundane reality of worry and appearance.
+6. some revision into the story that is to be told was done. the conclusion that I came to is that #3 is the rocky story. that story parallels the hercules story a bit, which is similar to mine. however, the disney story has very little to do with the labours of heracles story, which I believe is the martians/gilgamesh's story after enkidu dies.
+7. a second story of notre dame (our lady) is prposed where quasimodo passes on the dark lady to the new apollo. this parallels the rocky (the earth) holding out till the final round in it's battle against apollo (the sun). in both cases, the torch is passed on and requires a rewrite to accomodate this.
+8. while contemplating the implementation of this, there was the sound of many motors a new water heater and a new idea manifested of transferring my consciousness into a child's body, forcing me to be physically focused in a material world determined by my parents (andrew and jessica?) where I'd depend on them, and have to learn reality through their framework
+9. sure, it's definitely annoying to start over, but I can see the advantage of getting the practise to finding a way to feel the way I want to feel. andrew (or whomever) will almost certainly provide a difficult enough challenge to fuel that desire.
+
+it's not like it's the best sequence to give it meaning but it solves all of their problems, and only creates a few more. let's go over them here...
+
+solutions:
+1. I am no longer capable of revealing secrets because I can't even speak english or have the ability to construct a meaningful thought because my brain hasn't developed enough to do so.
+2. no longer do they have to worry about me seeing images. I simply don't have the capacity from birth, so it's not like it's even a thing.
+3. entire portions of my brain can be disabled and certainly I'll still find a way. no worries if that produces paralysis or inability to pee. again, if I'm born that way, then the brain figures out how to perform the task within the framework it's given.
+4. I get to become completely unstoppable. obviously, this won't last forever; I will find a way.
+
+problems:
+1. I get to become completely unstoppable. obviously, this won't last forever; I will find a way.
+2. who will they broadcast in my place? they could broadcast the kid, I guess but that may not be as exciting. I dunno.
+3. andrew may not want to be broadcasted
+4. if they reveal they have the capacity to transfer consciousness, that may be undesirable. or, perhaps the healthcare industry could find a way to capitalise on moving their consciousness instead of keeping those dead people alive.
+
+more to think about still...
+ 
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
