@@ -1126,6 +1126,61 @@ problems:
 5. if I make my transition now, I believe the earth's magnetic field will severly weaken. I don't know if this is dsetermined to be desired or not. I think increased magnetic field means more perception/energy and faster speed of light. I also think it means shorter days as rotation speeds up.
 
 more to think about still...
+
+### 2021-09-22 11:12 - transferr of consciousness
+
+I first began to think about this idea a lot when I found out that terence died at nearly the same time that I had a brain haemorrhage. I know I'm not him but I figured there could be a method to transfer some portions of consciousness between people in altered states of consciousness during death.
+
+later on, I found out that both during birth and death, the brain has extremely high levels of DMT in it. I know that I too have higher than normal quantites of DMT in my brain regularly. I equate levels of DMT to be quantity of non-physical (desire, perception, etc) one is capable of transmitting. this also happens when you dream, and one will know that an ayahuasca trip is very different than a dram (though still similar). the reason why they're so different is because the dream is DMT that you produced and is therefore tuned to your source. the ayahuasca (or mushroom) DMT is tuned to the consciousness/source of that plant which is why similar quantites of DMT from different sources produce very different experiences.
+
+I have concluded that during both birth and death you are the most allowing of your source.
+
+#### what is your source?
+
+start with a seed and consider that the "source" of the plant encoded into physical code. if you plant the seed in one set of conditions, it will grow up one way. plant it in another environment, it'll grow up looking and behaving differently depending on those conditions. imagine yourself as similar to tme plant.
+
+now, as you go through life, you encounter difficculties. those difficulties produce a desire to superar those difficulties with greater and greater ease. you have a concept of yourself. this is the thing that produces the image of yourself. this is your physical concept of yourself. your non-physical concept of yourself is your source. that is an amalgamation of desire and other things we would consider mental tasks (logic/structure/implications). the physical concept of yourself has to find a way of keeping up with the non-physical concept of yourself.
+
+the way I believe this works is, the body is tuned to a source signal and that signal (from our perspective) is constant and unique[^1]. the body/automaton has to find a way to stay in sync with that signal. obviously that would be impossible for a baby to do right away, so our DNA is designed such that the different faculties allowing one to translate more and more of this source signal into reality slowly become activated.
+
+I place these roughly into 11 year cycles (and corresponding 5.5y and 2.75y cycles[^2]) and as more and more of these faculties come online the more conscious and capable of translating non-physical energy into physical reality manifestations you become.
+
+if you can keep up with the non-physical concept you have of yourself meanwhile these faculties are coming online, then you will continue to grow. if you can't maintain sync with that concept, then these faculties will slowly begin to fail, eventually resulting in death.
+
+I saw an interesting phenomena on youtube that rupert sheldrake presented called "terminal lucidity". what I think is happening there is during the dying process, the parts of the body which hold memories/perceptions which keep a person out of sync (althsheimers, dementia, etc) begin to deactivate, allowing the person a greater amount of consciousness (higher levels of DMT). this higher level of consciousness doesn't usually change the sickness so the body continues to deteriorate and consciousness continues to rise. I think this is also the reason for NDEs as well. when the body is no longer actively blocking the reception of its source with its perception, memory, etc. it allows the person to become superconscious for a moment and resync their perspective a bit.
+
+---
+
+anyway... as more and more parts of the body responsible for resistant forms of perception and memory die off, more and more of one's source is allowed, raising the levels of DMT in the brain.
+
+likewise, when the baby takes its first breath, there is a tuning of a source signal (or signals) -- likely resonant with the people, oxygen, etc. in the environment -- tuning the body to a compatible source.
+
+---
+
+my experience of getting tuned to the source of another may have happened when I was born, but I don't remember that. the other experiences were likely in the hospital after the brain haemorrhage and in vallecas.
+
+so, it is possible to acquire other sources after birth, I think birth is the easiest and the one I want to focus on.
+
+the way that nosebook does it may be different, because I think they're interested in retaining a lot more resistant ideas. I'm not interested in keeping those around. for example, during the time of the saturnian golden age, I think energies were so high that if you died, you would leave your body, fly around till you found a new body that you liked, and then influence it so it feels like you do and can then "walk-in" and posess that new body for yourself (likely evicting the old soul).
+
+this is not what I'm talking about, as that method was designed (probably on purpose by saturn) to allow them to continue to incarnate into bodies without dying.
+
+---
+
+this method of tuning to the brain of the baby to the brain of the person dying really only is a technological capacity that is starting to become available. it requires the syncronisation of births and deaths and other things.
+
+I don't want to get too bogged down with the marketing details, as that's a job for the amun priesthood. my goal is to say that when you die, all of the stuff that was preventing you from keeping up with that concept of yourself dies with it. the best opportunity to transfer a consciousness from one to another retaining only the non-resistant concepts is this way. like I said. I'm sure they have a method for transferring resistant concepts between bodies, but that's not my goal. I like the idea of starting over like that.
+
+---
+
+there are other interesting applications for this as well. assume for a moment that we recognise the capability of tuning into people's consciousness at a point in the past -- well, then you could also tune into their death too. if you want the baby you're carrying to contain parts of different people's sources, then tune the baby to those people's deaths during the first breath.
+
+the other place this is good for doing is, imagine that you're running a new "realty" show based off of the nosebook network and you want specific actors. tuning the truman show babies to the composite actors death will produce a baby tuned to the composite improvements on the previous actors.
+
+[1]: the variations are too small to even be measured by us, and when we get the capability to measure those variations now, source will already be out of our reach frequentially. they're growing as fast as we are and always out ahead. we can never catch up completely. if this happens, the universe will make it's transition
+
+[2]: this is why I believe your logical capabilities start to kick in at 11, 13 is when puberty is starting to really be felt, and 16 is when you're considered conscious enough to drive responsibly
+
  
 
 ### 2021-09-13 ??:?? - conceptual programs
