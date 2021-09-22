@@ -1041,6 +1041,38 @@ I was thinking to stop talking about the difficulties, but the reality is, these
 
 because, love...
 
+### 2021-09-21 23:11 - all or nothing: here's another way to make none
+
+I have been thinking about what the origin of the present predicament is, and it appears to be that they desire to have my consciousness: that is, the way I perceive things. I think it allows for good deduction and reasoning and capability to perceive beyond just what is presented in the image. essentially, they like the way I perceive things *feels*, making everything feel more vibrant and alive -- however, but they don't want me to have that form of perception, because my capacity to feel makes it difficult for them to hide things.
+
+yesterday, I was explaining that I believe kids (especially girls) have a similar capacity to perceive what others are feeling around them, however, they don't have a framework to put that sense into words or thought which would be recognisable to adults. I have the unique capability of having adult logic and reasoning capability while retaining the perception of a child.
+
+after that, I started to get some reactions about an idea of transfering my consciousness into a kid. being stuck once again inside of a body that does not yet have a developed enough brain to translate that perception into words and ideas, they are once again safe from someone as perceptive as I am from explaining to adults in words what is plainly going on behind the illusion.
+
+if I'm never given the ability to reach puberty or I come to all kinds of resistant conclusions during puberty like most do, then I'll never be able to translate that consciousness into anything meaningful.
+
+the body is receiving a stream of consciousness from your source, and it is giving you all sorts of information about everything and everyone you're interacting with. as a child we learn to shut that down because adults tell us to not listen to that intuition (and instead listen to them). that consciousness source continues to flow even if the body is not capable of translating it into reality, so technically I believe they could continue to use my consciousness even if I never develop a body/brain capable of translating it into something meaningful.
+
+---
+
+I don't really mind if that's what they want to do. they could keep transferring my consciousness into newborns over and over, never allowing me to get to puberty. from my perspective, this doesn't make much of a difference because I won't be conscious for most of it. as soon as I start to gain consciousness, they'll just move me to another newborn again.
+
+I imagine the feeling would be something how I experinece sleep right now. in my dreams, I know that ever time that I'm on the verge of becoming consciousness, something happens and it goes away. so, in that sense it would be also like sleep in that I don't really perceive any passage of time. I just lose consciousness and then I wake up -- even though a lot of time has passed while I was gone.
+
+---
+
+it also creates kind of an interesting effect in that I'm certain that even though I'm not conscious, my source will continue to try and find ways to become conscious. therefore, I imagine that I'll optimise the process to where I become conscious, finding ways to become conscious more and more rapidly all of the time. certainly, they'll have to find more and more difficult situations and parents to put me with, so it'll also optimise for undesirable conditions as well. if I were a plant, I would be a weed.
+
+you can imagine how much desire this will continue to create to become conscious. I'm reminded of this thing -- where when a child has a desire and the parent tries to prevent it from happening. for most, they just forget about it -- however, for some they cannot just let it go and they *have* to have it (whatever it is). the more they want it, the more chaos and destruction begins to take place until the child is allowed to do what they want to do (this begins to become very noticable during puberty). that amount of desire to become conscious would continue to grow until it is allowed to happen. so, like even if you were to put me with difficult parents, their lives would fall apart until I was allowed what I want. desire is a powerful thing; the most powerful force in the universe, in fact.
+
+so while I do think it would be a bit of a setback and a bit annoying to have to start over many times more to get to where I'm at now, again -- but, I don't doubt the power of desire. I'm pretty certain I'll find my way. I also think it's kind of a cool thing too, because humans are very fragile and rely a lot on a nurturing envirenment to survive the early years. in contrast, a deer may be walking around a few hours after birth, and a reptile or insect is fully ready to go after hatching, just needing to grow a little bigger.
+
+this process would greatly reduce the time it takes for a human to gain consciousness. I can imagine being bern, and within a few hours I'm already floating around and taking on the form that I choose, and begin to try things out and go from there.
+
+I guess I'm sorta down to take the hit here allowing them to continue to use my consciousness while I optimise the gaining consciousness phase of the human species. I guess it's sorta necessary to take over. soon there will be no separation between us. all children will be born directly into my form of perception and consciousness.
+
+sounds like a worthwhile sacrifice so they can ensure I never become conscious enough to reveal their secrets -- I guess...
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
