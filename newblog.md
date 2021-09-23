@@ -1300,6 +1300,8 @@ soiler: we all have a common source and we're only limited by our perception.
 
 disclaimer: this entry is not likely to be accurate. I don't feel very certain about it and there is at least some discomfort. so, speculation is advised.
 
+final disclaimer: not all aryans are custodians. neither are all atlantians/semites custodians. neither are all aquarians custodians. I'm specifically referring to the ones that think they "own" the place, are custodians of the planet, the nanny/babysitter to keep the reckless humans from killing theirselves... etc.
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
