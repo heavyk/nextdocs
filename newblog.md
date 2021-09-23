@@ -1181,7 +1181,27 @@ the other place this is good for doing is, imagine that you're running a new "re
 
 [2]: this is why I believe your logical capabilities start to kick in at 11, 13 is when puberty is starting to really be felt, and 16 is when you're considered conscious enough to drive responsibly
 
- 
+### 2021-09-22 22:44 - 11y solar cycle
+
+after writing that I think the human progresses on an 11y cycle, I had the sense to check to see if the sun has an exact 11y cycle. my intuition said no, and I also really wanted to look up jupiter's orbit period. turns out it's 11.862y long. I look up the solar cycles and wikipedia shows a pretty convincing graph of solar cycles beginning with 12 back in 1878. before that, I will consider the data to be unreliable. wikipedia also says that the cycle starts dec 1878, and cycle 24 ending in dec 2019. a simple calculation reveals that 2019-1878 is 141y for 12 cycles. 141 / 12 = 11.75
+
+that's close enough for me. what that means is that jupiter's orbit is related to the solar cycle. I then remembered an animation I saw about the 720 degree spin of an electron.
+
+@[youtube](https://youtu.be/pWlk1gLkF2Y?t=569)
+
+btw, when I just opened that, my views count is "1,444,044" -- weird coincidence I guess..
+
+anyway, looking at the animation, pay attention to the ribbons connected at the equator and imagine that one of those is jupiter and instead of the cube rotating, the ribbons are rotating. see how the ribbon goes above, then below the cube. imagine the cube is the sun and it should all make sense now (woulda been even more cool if it were a black cube too).
+
+---
+
+I believe this has something to do with the ancient legends of jupiter dethroning saturn as the solar deity. likewise it's quite reasonable to think that at one time when uranus rotated upright, he had a stronger magnetic field and therefore was the solar deity.
+
+what I mean is that the ancients must have known that the solar cycle is coupled to the planet with the strongest magnetic field.
+
+---
+
+I also noticed that the faster spinning planets have higher hydrogen concentrations, with the more dense elements being converted to hydrogen. this must be the alchemical (purification) proceess that planets go through on their quest to transform into a pure and perfect sphere star.
 
 ### 2021-09-13 ??:?? - conceptual programs
 
