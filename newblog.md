@@ -1203,6 +1203,65 @@ what I mean is that the ancients must have known that the solar cycle is coupled
 
 I also noticed that the faster spinning planets have higher hydrogen concentrations, with the more dense elements being converted to hydrogen. this must be the alchemical (purification) proceess that planets go through on their quest to transform into a pure and perfect sphere star.
 
+
+### 2021-09-22 23:18 - transferring consciousness again
+
+I had a few reactions wondering how the transfer of consciousness works. this is going to be very unscientific because I don't have any real data to go with. I'm fairly certain that I was likely a transferred consciousness likely at conception to kind of begin the trajectory, then perhaps at birth too. I think the conception one was of very resistant consciousness, and then at birth I had gained a consciousness more similar to the one I have now. I think the brain haemorrhage was also another big change. I may have been tuned to various consciousnesses then (I specifically remember interacting with a being I identified as jesus). I also had a pretty serious change again right before the "foster the people" concert in berlin; lot's of time missing and I felt very strange and a forboding distance to raquel afterward, too. I'm 100% certain that I picked up another or many consciousnesses in 2013 during the vallecas episode, too.
+
+I would also count the time with vera (cause I felt like marcos afterward) and my first time in the brothel as having similar feelings as well. regarding the one with marcos, I often have wondered if after making the decision to sabotage a timeline, how many people would build conceptual programs to control their body and then transfer their consciousness into my body and ride along experiencing this reality as if they were me.
+
+what I mean to say is that this subject is less of a defined "me" and "you" and is much more of a gradient. from your source's perspective, you're actually free to experience any perspective inside of the universe you desire -- just you are experiencing this one because it is the most interesting to you (addicted to this reality, or want to accomplish something or whatever). the reality is, we're all much more of a conglomerate of sources that we then decide, this is where me begins and me ends.
+
+this subjuct of "who is me" is about the same as the discussion of "do chairs exist?" (reference to vsauce video in @[newblog](2021-09-16 04:33)). it's hard to know where you begin and end. you define that yourself and say these cells are "me".
+
+---
+
+I have memory of what it's like to be very young now, and I think it's only because of my predicament. the way I remember it is that I find myself in a space. I guess you could consider it black, but it's not necessarily any colour. it can be any colour and transforms and moves dynamically with thought. I have superconsciousness in that I know everything that's happening around me. I can feel my environment and everyone in it. I'm mostly curious to why they feel so strangely.
+
+I begin to get sensations and at first I don't know what they are. weeks later, I'll begin to start to feel the physical touch, but for now I just feel the people touching me, not physically yet but conceptually. I know everything about them and can sense their intentions.
+
+I suppose from the parent's perspective, I'm reacting strangely to the things they're doing. from my perspective, I react to things I feel and no one can see what I see. the parents just hear crying.
+
+most of the time is spent reacting to things. slowly I'm beginning to communicate what I can perceive better and better into ideas and then later words. I remember that I think that everyone can feel what I feel and understand what I'm thinking. obviously, they cannot but I try anyway. to me it looks like I'm explaining a full concept to them. to them, it probably looks like disobedience or crying.
+
+from what I can remember, I don't really start seeing out of my eyes and moving my body intentionally for quite some time. I don't really know how I learned to walk, but I feel like it was more like 5 or so wben I started to move my body directly instead of just thinking to go there and then waiting for my body to catch up.
+
+I feel like I existed mostly outside of my body for the majority of my early years, mostly confused as to what it was doing and what was happening around me. it feels to me like I operated my body kind of like it was an automaton.
+
+as time went on, I started to see mere and more out of my eyes and I was beginning to be convinced that the body that I'm looking out of is "me". when I think, it moves and other stuff. lots of stuff excites me as I interact with my world and everything feels like there's so much new and exciting things to do.
+
+my most difficult thing was trying to figure out why some things made me feel bad. I always wanted to do the good-feeling stuff, but I had some blocks that prevented me from a lot of them because I couldn't understand what I was feeling.
+
+---
+
+the major thing to take away from this is that I did not really start moving my body deliberately till very late and I didn't become conscious of my emotions until even later. I was mostly confused for most of my childhood reacting to my circumstances.
+
+I was very perceptive, so I could easily feel my parent's responses to me and when they were trying to give me orders that didn't feel good. I remember that I would follow my intuition, but that would get me into trouble, so I had to follow their commands. however, I wanted good commands where if I obeyed them, then I was good. that wasn't always the case. sometimes it was impossible to follow their commands and get a good result. not following their commands also yielded a bad result too.
+
+I started to keep things a secret they wouldn't like and tell them what they wanted to hear. like, I knew when to tell on my siblings and when not to. over time I figured out that it was better to do what needed to be done (instead of disobeying), but to also be sure to tell them what they wanted to hear. I forget how long my no (want to) phase lasted, but I found it to be inefficient to get the results that I wanted.
+
+I later became more and more results oriented, which made it difficult for me to understand my emotions. now, however I know much better, and it's quite likely most of my training this time around will stick, and I know that my results are reflective of how I feel, not what I'm saying or doing.
+
+---
+
+it seems plainly obvious to me that I want to find a way to carry that knowing that what I feel is more important. this will allow me to continue to operate my body from a feeling standpoint, just feeling the objective that I want and allowing my body to do the work, without needing to get so tangled up in the physical senses so much.
+
+I noticed that the more I felt physically, the less I felt emotionally.
+
+I'm kind of excited to try and get good at this. almost certainly, this document will persist some time and people will use it as a reference to try and keep me as physically focused as possible, trying to ensure that I don't get so much esp again like I have now.
+
+as much as they want to try and keep me physically focused, my goal is to continually try to make my reality an emotional/conceptual one rather than a physical/material reality with only actions and meaning to separate the components from the interactions.
+
+it may take me a while to figure it out and a lot of conflict in the process, but bring it on :)
+
+---
+
+hopefully that helped to explain the transfer of consciousness. the main reason why it's so difficult to articulate it, is that we are so used to thinking that the stuff people say is real, unless they're lying -- but it's a gradient of things, and units are perceptual. there isn't a unit of truth and not everything is a binary one or the other. the unit is relative to your perception. you define if the sickness or oldness is "you". you are the unit which best fits your form of perception.
+
+I was always surprised to get called by mom to dinner or whatever because as a child, when I was playing the game, I *was* the game. getting called back into "me" felt like a huge jolt.
+
+@[youtube](https://youtu.be/ooxfzyS_hDA)
+
 ### 2021-09-13 ??:?? - conceptual programs
 
 
