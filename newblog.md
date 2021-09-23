@@ -1206,6 +1206,8 @@ I also noticed that the faster spinning planets have higher hydrogen concentrati
 
 ### 2021-09-22 23:18 - transferring consciousness again
 
+get your speculation goggles on for this one :)
+
 I had a few reactions wondering how the transfer of consciousness works. this is going to be very unscientific because I don't have any real data to go with. I'm fairly certain that I was likely a transferred consciousness likely at conception to kind of begin the trajectory, then perhaps at birth too. I think the conception one was of very resistant consciousness, and then at birth I had gained a consciousness more similar to the one I have now. I think the brain haemorrhage was also another big change. I may have been tuned to various consciousnesses then (I specifically remember interacting with a being I identified as jesus). I also had a pretty serious change again right before the "foster the people" concert in berlin; lot's of time missing and I felt very strange and a forboding distance to raquel afterward, too. I'm 100% certain that I picked up another or many consciousnesses in 2013 during the vallecas episode, too.
 
 I would also count the time with vera (cause I felt like marcos afterward) and my first time in the brothel as having similar feelings as well. regarding the one with marcos, I often have wondered if after making the decision to sabotage a timeline, how many people would build conceptual programs to control their body and then transfer their consciousness into my body and ride along experiencing this reality as if they were me.
@@ -1261,6 +1263,42 @@ hopefully that helped to explain the transfer of consciousness. the main reason 
 I was always surprised to get called by mom to dinner or whatever because as a child, when I was playing the game, I *was* the game. getting called back into "me" felt like a huge jolt.
 
 @[youtube](https://youtu.be/ooxfzyS_hDA)
+
+### 2021-09-23 01:13 - thoughts of where it may have begun
+
+this one is going to need the speculation goggles again. there is so much convoluted information, I simply cannot really ever know for sure. neither does it matter either. my job is just to find a way to feel good no matter the circumstances.
+
+I had some reactions to the beginning part about the conception and birth. I honestly don't know. the best I can figure, I'm one of the "automatons of contrast" that I wanted to create. I don't know where it begun, but tesla talks in 1903 of communicating with mars, and says that he believes conscious life is out there -- then nothing. complete radio silence. I figure he must have got into contact with something. somehow he must have figured out how to communicate with source (not too much different than esther/abraham)
+
+personally, I believe that it's possible to communicate using technology (and other psychic things like remote viewing) with planets, stars, galaxies, the deceased, and even source. it's just tuning and a willingness to communicate on their level rather than trying to bring them down to yours.
+
+I don't know where I originate from or any of that, but it doesn't matter. I imagine a situation where tesla is figuring out how to move around inside of time, and he needs someone he can use to influence timelines. he sets up the conditions and then tunes me into a body and off I go. manipulate the circumstances to adjust my trajectory and it's possible to make a lot of things happen.
+
+what I'm saying is that a lot of the custodial influence could easily have been me. he would just need to incarnate me into a body and give me the conditions necessary to produce the outcome desired.
+
+I don't know if it is or not, but I figure I could have easily have been hitler, constantine, various roman emperors, mystics, etc. a lot of these custodial influences that bramley talks about could easily be me considering how conditional I am. I just optimise for the result I desire, and that can be influenced pretty easily, I imagine.
+
+it seems strange, even to me that I want to make a galaxy so badly. when it comes to my personal development, I can clearly see that I want to feel the freedom to feel *any* way that I want, good or bad, and I can still find my way through it, oozing creativity and novelty because that's a reflection of who I am. just put me in a situation and off I go. I find my way no matter what.
+
+---
+
+what I think is happening is I'm being offloaded here. seems I was used to create an environment capable of needing tesla's creations (you gatta want them) and that was good for me because I expanded a lot in the process.
+
+the semite/atlantian custodians were supplanted by the aryan custodians. I must have been involved with the atlantian custodians, but I don't know to what extent. I likely built a lot of technology and stuff cause I like technology and creativity... the aryans had to supplant the atlantians and make way for the new ones... I'm going to call them the aquarian custodians.
+
+this, I believe is what is happening. the aryans incarnated me into bodies to affect the timeline the way they wanted it to go. now, the baton is being handed to the aquarians. from my perspective, I'm getting too good at feeling the way I want to feel now, so I'm not as useful to play custodial roles because I'm less and less conditional all the time and I'm too difficult to control easily. this is probably why physical stuff doesn't really motivate me much, and I long to return to being creative again.
+
+seems the world system setup is capable of controlling my conditions pretty good, so the aryans are passing me off now to next custodians. they have to find a way to keep me forever in an endless cycle of contrived emotions (like the movies). if I find my connection, their secrets are revealed and everything falls apart, so they have to keep incarnating me into bodies over and over finding more and more difficult circumstances and influences to try and keep distracting me from becoming conscious of who I *really* am.
+
+they want what I have, but never for me to have it too.
+
+---
+
+I guess I'm ready to start any time. I have no idea what all of the constraints are or any of that. I'm going to continue to keep practising my technique. I'm in no rush to get connected. I'm mainly concerned with improvement of my technique.
+
+soiler: we all have a common source and we're only limited by our perception.
+
+disclaimer: this entry is not likely to be accurate. I don't feel very certain about it and there is at least some discomfort. so, speculation is advised.
 
 ### 2021-09-13 ??:?? - conceptual programs
 
