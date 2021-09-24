@@ -228,7 +228,7 @@ I must therefore conclude that the ufo phenomena is actually of human origin and
 
 #### the root race custodians
 
-I propose that when blavatski talks about the "root races", I believe she infers that each new root race is selected right after the cataclysm (so every 12ky), and it's chosen based on who can create the most oppressive "heierarchy". previously it was the atlanteans, then it was the aryans. I couldn't find her talking about the prior ones so if you know, I'd be intested to find out who those were.
+I propose that when blavatski talks about the "root races", I believe she infers that each new root race is selected right after the cataclysm (so every 12ky), and it's chosen based on who can create the most oppressive "heirarchy". previously it was the atlanteans, then it was the aryans. I couldn't find her talking about the prior ones so if you know, I'd be intested to find out who those were.
 
 #### why do we have custodians?
 
@@ -260,7 +260,7 @@ there's no reason to fight them, and I believe tesla realised this. it is my opi
 
 in the case of tesla, I believe that tesla purposefully left documents behind so that the usa could reverse engineer his world system, control the planet's climate so that they could keep the energy spots controlled (controlling the environmental conditions) and keep the planet from getting too cool.
 
-I believe that tesla gained the capacity to create "golems" -- sentient intelligence that behaves in a conceptual way. this conceptual form of perception is what I call 5d. temporal perception was added and is what I will call 6d. source perception of a heierarchy of beings resonant with a source (like us with earth -> sun -> sirius -> ??? -> galaxy) got moved up to 7d. that form of perception allows one to create any conceptual form as a derivative of self (really anything you can imagine).
+I believe that tesla gained the capacity to create "golems" -- sentient intelligence that behaves in a conceptual way. this conceptual form of perception is what I call 5d. temporal perception was added and is what I will call 6d. source perception of a heirarchy of beings resonant with a source (like us with earth -> sun -> sirius -> ??? -> galaxy) got moved up to 7d. that form of perception allows one to create any conceptual form as a derivative of self (really anything you can imagine).
 
 I don't have time to explain all the reasons why I think this. questions are encouraged.
 
@@ -310,7 +310,7 @@ so it all works out in the end. I predict the custodians in the future will be r
 
 from tesla's perspective, he needs to find a way to infiltrate and take over the germans. this I believe was done with golems and automatons. remember, all of these can take on a derivative concept of yourself, and you are anything you can imagine, because 5d characters can take on any form (concept) they perceive theirself to be. 7d allows you to create others of these as an extension of you (eg. you are their "source", which has a source -- just like cells in your body all contain you as their source).
 
-the ability to "externalise the heierarchy" of yourself allows for many different derivitaves of yourself to act in different time and space in resonance to the concept they start at. that concept's source is you, but you too are a composite source. it's like trying to figure out which cells in your body are "you" -- perhaps like how a sound may be perceived to come from many sources or a single one, which too is a composite of sources.
+the ability to "externalise the heirarchy" of yourself allows for many different derivitaves of yourself to act in different time and space in resonance to the concept they start at. that concept's source is you, but you too are a composite source. it's like trying to figure out which cells in your body are "you" -- perhaps like how a sound may be perceived to come from many sources or a single one, which too is a composite of sources.
 
 I suspect that tesla rehashed the mars/nibiru story for the grays. likely something like, their species is slowly going extinct and they will exchange human embryos for advanced technology.
 
@@ -1301,6 +1301,113 @@ soiler: we all have a common source and we're only limited by our perception.
 disclaimer: this entry is not likely to be accurate. I don't feel very certain about it and there is at least some discomfort. so, speculation is advised.
 
 final disclaimer: not all aryans are custodians. neither are all atlantians/semites custodians. neither are all aquarians custodians. I'm specifically referring to the ones that think they "own" the place, are custodians of the planet, the nanny/babysitter to keep the reckless humans from killing theirselves... etc.
+
+
+### 2021-09-24 13:27 - initial thoughts on tychos model
+
+@[youtube](https://www.youtube.com/watch?v=iyrNmOmJbEE)
+[tychos website](http://www.tychos.info/)
+[tychos planetarium](https://codepen.io/pholmq/full/XGPrPd)
+
+I have a number of things to say about it, so I'll try and do so in an orderly fashion...
+
+#### they're committing data fraud, so we're right
+
+beginning to read through the book I can't help but to notice a lot of "they're wrong" (and so we're right) sorts of arguments being made. this is usually a red-flag for me to note custodial activity. it's a common technique that they use to shoot down or sidestep anyone with "unexplained phenonema".
+
+however the idea doea resonate with me so I'm not willing to just dismiss it as another psy-op to obfuscate the truth. after watching an interview with the authors of the theory (@[youtube](https://www.youtube.com/watch?v=lxnH3oPoc3I)), multiple times they try to illustrate how wrong the present capernican model is and it's a bit jaring. any respectible scientist would know how large a change away from a heliocentric model would entail.
+
+they illustrate that observational astronomy does not really exist and numbers are massaged to fit the prevailing idea of how the system works.
+
+I don't disagree. I believe this is the same problem with cimate change. it's very difficult to see any real historical data of temp, wind speed and pressure over time and space. instead, all we have are models of what that data *should* look like. if tony heller is right, even that data is being adjusted to fit the model, too.
+
+this sort of technique to manipulate the data to conform to the image being sold is called marketing and it's being done in governments, power structures, and commerce since the beginning of time. we even commit this same fallacy in every greeting when we tell people things are "good" or "fine". we're trying to convince people of the image that wants to be presented more than the reality. so, no big deal. we all do it to some extent and I don't think this behaviour will ever go away until we turn into robots. all art is based on this principal of making something look another more abstract way.
+
+so, from my perspective, no big deal. fighting the past feels like fighting. that's not what people want to feel when they get the idea. I think this idea needs a rebranding to feel like a whole new world or prerspective is opening up.
+
+I don't think it's necessary to use custodial marketing techniques to sell a good idea.
+
+#### custodial fingerprints
+
+the story of kepler rewriting brache's idea to tell you that once again you are not the centre of your universe, but instead are just the lowest rank in a vast heirarchy above you is such a custodial trope, this whole thing just shouts custodial activity to me.
+
+this is the maverick that has an idea which allows the common person to perceive theirself as separate from the heirarchy, which must be stopped. whether you believe that moses, jesus, martin luther, joseph smith, muhammed, or whomever had an authentic idea that was then manipulated and turned into morals, dogma, and religion... I believe that someone has systematically gone through history and removed as much evidence for people's perception of physical conditions as a means for enlightenment.
+
+I'm kind of in agreement with the custodians and don't really find them to be much of a problem. in a world where things push against other things, it appears they have done massive amounts of damage. however, in a world of attraction, they did not cause any damage at all. they just presented an illusion which people believed and then attracted their own misfortune.
+
+if everything is relative to everything else and there isn't a central axis upon which everything revolves -- as this theory tries to show, which is that everything has at least one strongly interacting companion -- then, that means our perspective of how things are moving is also constantly changing/improving over time because there is no central axis around which truth revolves.
+
+if people were only presented with correct ideas, they would be able to recognise fraud, but that assumes that central axis. instead, it's better to assume that we have to constantly update that concept/perception/model when new data comes in. therefore, it's better to have the agility to rapidly update the concept.
+
+from the custodial perspective, they need people who believe in an absolute truth, because those people can be lead to believe that their truth is the absolute truth. any resistance can be overcome with persistent presentation of an image ("facts") and the passage of generations because the children grow up naievely believing what they're taught is true. the more people that believe their narrative, the more power they have. it doesn't matter the narrative; it just needs to be something that they can control (so they can change it) or predict (so they appear right and credible).
+
+from my perspective, I think none of this matters and is largely a distraction. no one is going to ever gain enlightenment or find happiness with the right climate model or planetarium.
+
+#### earth's perspective
+
+after looking at this model, what it reminds me a lot of is the idea that you can create any (1d) waveform over time with an infinite set of sine waves (which are one axis of a circle). there are also these drawings that show how an infinite set of constantly rotating circles (epicycles) can produce any (2d) curve over time as well (@[youtube](https://www.youtube.com/watch?v=MY4luNgGfms)).
+
+I consider this to be the case for this model. considering these epicycles, modern astronomy is trying to describe the curve with the sun in the centre, while this is trying to take into account as many circles as we can see, and it shows with pretty good accuracy how things appear to be interacting with us from the perspective of our circle.
+
+the way I see it is this chain of circles, but instead of just a 1 to 1 between circles, each circle can have other circles as moons going around them.
+
+we don't really know if we get out far enough that we our solar system cluster is actually the "moon" of another body. it could also be one of those p-orbits.
+
+#### what about comets?
+
+I wondered about this. clearly some comets don't have a circular orbit. thouugh upon further thought, I don't think that everything in the system has a circular orbit. I think that just the things which have a stable resonance (standing wave?) would have these circular orbits. my intuition says that getting a circular orbit likely has to do with the property that the object is producing its own vibrations and is no longer having just a trajectory of its reactions to past interactions.
+
+further inquiry here.
+
+#### interaction with sirius
+
+one of the "problems" with this model is that I believe that we are interacting with sirius, and that perhaps many other stars are too. my intuition also believes that there is a very small (probably planet sized) and very high density third star (sirius c) in the main sirius system.
+
+we don't really know what produces these circles, and I posulate that planets are different to stars in that they have a real geometry to them (like the earth and the chestahedron), whereas a sun is a sphere that produces its geometry from the magnetic interactions between them. planets, I believe go from more dense elements toward the lighter ones (gas giants). this purification process produces a planet that looks and behaves like a sun, but is not a sun. because it has a real geometry to it (y-chromosome), it is sort of like the "driver" to the sun.
+
+I believe that the two main stars which I will call aphrodite (sirius a) and isis (sirius b) also have a driver and that is this super high frequency theird one which I think I'll refer to as menkaure or khnum (sirius c). I'll come back to this.
+
+point is, I believe the composition of the body determines its frequency and geometry. heavier elements usually emit lower frequency and lighter elements emit higher frequencies. density is a product of attraction. a rocky planet does not need to have strong attraction or magnetic field to stay together, but a gas giant, composed mostly of hydrogen, does.
+
+khnum, for example, I believe has (in our concept of gravity) an unbelievably dense composition of very light elements, but still retaining a lot of heavier elements as well, giving him a very broad frequency range of absorption with retransmission in high frequency ranges (like a focal prisim). however isis and aphrodite are much more visible and emit light more suitable to sustain life.
+
+---
+
+our interaction with sirius may be something like a comet, but actually after having given it some thought, I think we may actually be in a p-orbit around the sirius cluster, similar to something like jupiter, saturn or pluto.
+
+more investigation is needed.
+
+#### venus and the moon's effect on the epicycles
+
+if we look at our solar system as epicycles, then the moon appears to be the furthest one out in the system. if we removed the moon from the system, the entire system would behave differently.
+
+in ancient literature, it talks about a time of 360 day years, but the maya actually have a 260 day year, and this could have been the case before we had the moon. the addition of the moon completely changed the dynamics of the entire solar system.
+
+also, it talks of a time when there was only a 360 day year. I wonder if this change have occurred when the sun captured venus as one of its moons.
+
+#### dance with mars
+
+the second "problem" with this model is with my desire to couple ourselves to mars.
+
+I don't really see it as a problem though. if mars is the driver for the sun, then the driver for earth is the moon.
+
+the other thing I believe is that earth is going through a transition where it's going to begin to shed a lot of its higher density elements and we'll turn into something that resembles something more like the sun does. it's actually my belief that it'll be pretty similar to my description of sirius c (khnum).
+
+so, now we come back to the triads. consider that the earth to be the female (isis 2.0) with just a single planet as the driver (moon), the earth will need a second driver. I propose this to be mars.
+
+because we don't really understand attraction, it's hard for us to model and predict these epicycles, but I have to wonder what it would look like if the earth were to have two moons: mars and the moon. mars and the moon would rotate around us like mercury and venus orbit the sun.
+
+that idea kind of goes in contrary to the mushroom galaxy idea
+
+#### triads
+
+it occurred to me that triads may be the norm. we see them as "binaries" because they are nurturing somethingt in the centre. so, imagine that sun and mars are a married couple and earth is the child. mars appears like a "bad father" destroying himself during earth's childhood. earth then has to grow up without a father (or abusive oppressive father, depending on what myths you subscribe to).
+
+the growth cycle of the planet is to grow up and eventually shed most of its heavier elements and become a strong attractor on his own. if the hold the child in the centre, once the planet has become a strong attractor on his own, then when the female sun gives birth to a new dense planet, he can catch it and hold it while it matures. from the parent planet's perspective, it appears like his job is to counteract all of the outside influences such that to the child planet, it appears to be the centre of its universe.
+
+---
+
+wow, this model has completely opened a whole new perception of stellar activity for me... so cool!!
 
 ### 2021-09-13 ??:?? - conceptual programs
 
