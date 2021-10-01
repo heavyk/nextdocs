@@ -1409,6 +1409,525 @@ the growth cycle of the planet is to grow up and eventually shed most of its hea
 
 wow, this model has completely opened a whole new perception of stellar activity for me... so cool!!
 
+### 2021-09-24 ??:?? - ride the spider
+### 2021-09-24 ??:?? - the outer planets and solar activity
+### 2021-09-24 ??:?? - defeating the hydra
 ### 2021-09-13 ??:?? - conceptual programs
 
+new-newblog
+
+### 2021-09-25 23:49 - shedding of concrete reality
+
+lately I have noticed that I have had a bit more of a difficult time holding this sort of ordered reality -- as in, I used to queue up a bunch of tasks for myself and then I could execute them, like I would remind myself to take something upstairs next time I go up, and that reminder would trigger when I was going to go upstairs. I imagine that hearthstone players use these sorts of triggers when they're playing to check for all of the possibilites that the opponent could be doing. you know, like "lol order" things.
+
+thing is, I get so focused into what I'm thinking about, that it's very hard to feel those reminders anymore. as a result, because I want to still have a feelingt of order in my life, I have to continue to find ways of lowering the intensity of my thoughts. I use humour to stay light-hearted but it's not as effective because there needs to be something to laugh about.
+
+in general, I would say that all of my memory faculties are also diminishing as well. seems I mostly only have problems remembering things that are not really that important. they may have seemed important, but they're not. like, I was just watching a documentary on pompei and he showed a picture of isis with a crocodile under her feet. there's another god that also has a crocodile under their feet too, but I can't remember who. the only thing I can remember is that it was associated with the period of time when I believe we went from scorpio to taurus and then the sun was then put on top of the bull (or hathor).
+
+point is, I normally would have been able to remember those sorts of details very easily, however they feel like they're there in essence but the physical details that constructed that concept are not hanging around.
+
+slightly related, I noticed how terrible/different I felt after opening up my email and seeing the abraham now broadcast notifications and the howtube response... those feel like ancient history to me at this point -- a very long time ago -- and, returning to remember them did not feel so good. had I not have opened my email, I wouldn't have tuned into the past with those physical details.
+
+what appears to be happening is, my memory is being hyper consolidated into abstract versions. if I look at something from my past, then it's sort of like it transports me back there a moment.. I actually think that the incredible progress that I have been making the last few months has actually been because I *didn't* have a computer.
+
+one day I was explaining to dad what it's like with the analogy that many people are staring at the forest through a window rather than walking through it. neither am I walking though it, but most people are so busy complaining about the spots on the window, they don't even see the beautiful forest out there. other people are admiring the forest and observing it. I don't really see all the minute and beautiful details, instead I seem to perceive it in a way which it looks to me like I understand how the forest works. I see processes, cycles, trends, species, and archetypes. stuff like that.
+
+as a correlary to this consider the relationship between meaning and concept. if I start with a concept like "beautiful car", that can have many incarnations of that concept with various implementation details which would be described as a "beautiful car". likewise, if I were to look at a number of different cars, I could identify certain details as imparting the car with the concept of "beautiful".
+
+consider that second example in everyday life and notice that certain details of someone's behaviour or appearance will imply something. I consider these implications to be "meaning". when observing carefully, one will notice that these details are also themselves concepts. a collection of concepts means something.
+
+---
+
+there were considerable number of reactions to something I said in my last entry about the alchemical process of a planet sheding its higher density elements and the implication that this is what I think is also beginning to happen here on earth.
+
+I don't pretend to know what the physical manifestation of this is, but what I do know is that the process for the human is where reality starts to become a dream-like state where reality is a reflection of how you feel. all "matter" is no longer as dense in that state of being as it is in this physical space. what I mean is, if I feel a bar of gold (a very dense material) in my hand, it's there. then, as soon as I feel it as iron, it turns to iron.
+
+if one were to take the gold bar from my hand, it would be gold -- like the same stuff that comes out of the ground. the structure is the same, but it took on that form effortlessly.
+
+science does not make the claim, but I will... the sun is producing massive amounts of all of the elements from nothing more than the lighest element we know of, hydrogen and magnetic fields.
+
+so, what's the difference between the sun's gold and my mental gold? energetic inertia. the look the same, behave the same and for all practical purposes are the same. the sun's gold has been a long time in the making, while my mental gold only maintains it's structure for as long as I can feel it there.
+
+---
+
+so, does that mean that I think that out entire reality will become completely temporary and unstable? not at all. if I had to guess, our reality will look and feel exactly like we believe it to be, which is looking like earth does, however the concept that we have of those physical details will start to become a bit slippery.
+
+my guess is that we will maintain all things that are important to us. so, for example, if I have the idea that I have beautiful skin, that skin can perhaps be any colour to anyone, as long as it conforms to the concept of beautful skin. I do wonder if DNA sequences would vary for the same cell, requiring the sequence to conform to the perception of those performing the test. lots of interesting things can be tested there.
+
+what I'm trying to say is that in our form of perception, it will look like earth does with oceans, mountains, jungles and animals, but to those that do not maintain the same form of perception as we do, it'll look like a chaotic ball of hydrogen. simply put, those hydrogen elements only assimilate a reality resonant with our perception.
+
+lol, yes, there could be entire places that exist here on earth that we simply don't see because we don't resonate with that reality. places like skinwalker ranch may be those types of places, actually.
+
+---
+
+the idea is actually very exciting for me. normally, I would be kind of concerned that my focus is now so strong that it's getting difficult to remember mundane reminders I have for myself, but I'm realising that this magnetic reality is beginning to become difficult to avoid maintaining my focus on it, this is simply the beggining of the transition into a fully mentalised reality becoming persistent.
+
+I believe the transition of this planet is somewhat inevitable. there are a few things I also would also like to take a look at. first, energy will continue to rise. I believe this has to do with the magnetic field. not all magnetic fields are created equally though. the oscillating magnetic field of an electromagnet is different from a non-oscillating magnetic field like a permanent magnet. the earth's magnetic field is relatively weak, but I believe it oscillates at a number of higher frequencies in addition to the day/night cycle oscillations. I also belive these oscillations are characteristic of the physical manifestation of emotions, and is the reason why different places on earth "feel" different.
+
+as the magnetic field continues to increase, emotion will continue to increase in intensity as well. this may have some pretty intense effects. I believe nosebook is trying to minimise some of these effects turning into manifestations, but it's sort of inevitable that this will continue to increase. I think that the safe bet for those that want to have a strong magnetic field, but not too strong may find mars to be a pretty safe place.
+
+---
+
+actually, this topic actually kind of answered one of my own questions about how people, plants and animals managed to survive various past cataclysms. imagine that the sun sends out a massive amount of hydrogen out and it hits the earth's magnetic field. the magnetic field of earth will reverberate resonant with the consciousness of earth. during the impact, the earth will be in a very energetic state with an extremely high induced magnetic field from the impact.
+
+all consciousness that is resonant with the consciousness of the earth will find theirselves in an environment that I claim will be similar to the one that the earth will soon have where the environment is more and more filled with protons and the reality all consciousness experiences (plants, animals, and insects alike) all becomes a reflection of their vibration. those that are thriving, continue to do so, and those that feel they are in danger, are in fact in danger. some believe they need to survive and so they experience a reality that they need to survive.
+
+gradually as energies begin to lower down again, these realities begin to coalesce into something meaningful again -- as the frequencies of each version of reality begin to merge, it takes the path chosen.
+
+so, like for example if someone walks into the room super pissed off and I never even notice that they're there or any of the pissed-offness, then my version of reality is dominant, and they live in my reality rather than me living in theirs.
+
+imagine two people are both in the rockies and one experienced an enlightenment experience and constructed a beautiful castle, while the other barely survived the bitter cold. they both occupy the same physical place, so they are incompatible realities. as they begin to merge, the castle guy may start to feel more like the bitter cold reality. if he continues to feel good and doesn't experience that reality, his reality will win. the guy in the bitter cold will not survive. if he begins to feel the bitter cold, somehow their realities will begin to merge where they both find theirselves in a bitter cold reality with each other -- or maybe just the bitter cold guy survives because castle guy wasn't prepared for the bitter cold.
+
+this whole thing seems to be a story of incompatible realities. I feel like that answered a lot of the reactions.
+
+### 2021-09-26 16:53 - a bit more on incompatible realities
+
+I had a weird morning of dreams, which I can't really remember now, but it seems that my explanation of hydrogen being organised mentally into a structure seemed to make a lot of sense to people.
+
+there were some significant concerns that earth would no longer be compatible perceptively with us, and they would no longer be able to control or interact with us, given the incompatibilites between our realities.
+
+there were also concerns that following the nova event, there would be a lot of places on earth that would have incompatible realities for them, preventing them from surviving.
+
+---
+
+well, that's not at all what I was getting at. I assumed that the martians would continue to transfer their consciousness into bodies that we produce, thereby continuing to perceive and interact with us. in that sense, they have to keep up with us. from their perspective, it looks like they're controlling and taking advantage of us, while reusing our perception for their own uses -- so, sorta like what's happening to me now.
+
+I wrote that because it provided an explanation for so many things ranging from bases inside of mountains that can only be perceived when in an altered state of consciousness, the way that things can be materialised mentally, what's really happeing on gas giants, and potentially what is happening with the p-orbit planets interaction with our sun -- and how these different competing reality influences on the sun creates our solar storms and how that ties into LOA for us as a species on this planet through perception. as I feel more and more comfortable with the topics, I'll write about them. I still feel like I'm only perceiving the top of the iceburg there.
+
+the other thing that I was assuming to be true is a bit messed up. just like me, I'm certain that there is a whole nother reality out there that I simply don't see. what I was implying is that our reality is liquid because any set of concepts could mean anything and a meaning can be implemented with any set of concepts[^1], and the martians would actually be collapsing that "wave function" for us, getting allowing us to perceive, not the real reality but the reality that they want us to perceive (exactly like me right now).
+
+---
+
+anyway, I went back to sleep and I woke up with this weird feeling, though it didn't feel bad, that they wanted to transfer my consciousness into jackson's body when he's born. I'm sorta OK with it. it would solve a lot of their problems because I think I'm responsible for quite a considerable amount of the the strengthening of the magnetic field here on earth.
+
+when I was decribing the high frequency vibrating magnetic field as a product of emotions (which may be why we have magnetic field sensing gut bacteria), I began to notice that the aura that I have around me is what makes expanded vision possible. the few times that I got to see it, I was very surprised to notice that reality feels alive vibrating in a way which feels a lot like how I feel (they suppress the manifestation of how I really feel inside of my body). therefore, this high-frequency magnetic field is something that I am constantly emaniating.
+
+the other thing I noticed just now is that although the sun is in b range for x-ray flux, the sun feels very hot outside like it normally does when there is a flare (yes I know TSI goes down during a flare; I'm talking about how prickly the sun feels). I also notice this happens when there is a geomagnetic storm too. therefore, it seems to me that the stingyness must be associated with magnetic fields, which is what I'm producing more and more of.
+
+I am certain that the magnetic field was much stronger back before the younger dryas, but it's said that it was nice and people didn't need to wear clothes to be warm. following my discussion of incompatible realities, I think the reason for these cataclysmic events is because there are incompatible realities, and the sun is pushing reality creation to the extreme with the addition of many extra protons. that means that mental reality is created really quickly causing conflict between incompatible realities to accelerate.
+
+well, this I believe is what is happening with the way that they're interfering with the electricity in my body is somehow (not sure yet) making the excessive heat. a conductor with a changing magnetic field creates heat (@[youtube](https://www.youtube.com/watch?v=u7Rg0TcHQ4Y)). the other thing to look at is to see if destructive intereference produces a magnetic field. [a quick search](https://www.researchgate.net/figure/a-left-Constructive-interference-of-electric-fields-yields-destructive-interference-of_fig1_265849380) suggests that, "Destructive interference of electric fields yields constructive interference of magnetic fields and a virtual open." -- so maybe.. dunno.
+
+what I mean is, it's actually these incompatible realities that produce this heat and the p-orbit planets (neptune, saturn, jupiter, pluto) all having incompatible realities are actually what is producing the heat on the sun. what I mean is, the temperature of the sun may actually directly correlate to how many incompatible realities are magnetically affecting the protons in the sun.
+
+this is why I say that the girls thing likely will never happen until there is a physical or temporal separation between these incompatible realities.
+
+"global warming" (and the heat damage on various megaliths) I postulate is the manifestation of incompatible realities (magnetic fields) interacting in an environment with a lot of protons floating around.
+
+---
+
+I don't really mind that they want to move my consciousness over to another body. it would buy them a lot of time if that decreases the magnetic field by a significant amount. however, it doesn't really make for much of a long-term solution though. for that, I am really beginning to believe that the only way to slow this down will actually be to make a spatial separation. that really is the best option that I can see, and it's the one that makes the most sense too. I also noted that moons seem to be designed to destructively interefere with the parent body to slow down their rotation rate, not to speed it up.
+
+anyway.. a few more ideas
+
+[1]: which is, btw the beginning of the "thrust" layer that I'm wanting to add as a precursor to desire.
+
+### 2021-09-27 15:22 - thinking more on the transition
+
+so, after I wrote yesterday's entry I went to watch stars and other things, and the reality is I don't at all feel bad about the idea of making my transition into jackson's body. there's a definite part of me that likes the idea of starting over again.
+
+the way I see it, there are only 3 possible outcomes: none, some, or all. since they definitely don't want "all", and I didn't really have any resistance to "some" before going to becky's house, so if that were going to happen, it would have. I had decreased enough resistance that it could have happened the following day. though it didn't cause I think things were rearranged so they had a birthday party to attend to. the final option is "none" which I'm also fine with.
+
+I actually prefer "all" or "none" rather than "some" mainly because my body is not operating very well. if it's all, then I have power over my appearance and my body so I can take on any shape I desire. if it's none, then I don't have to worry about all of the stress associated with trying to get my body to perform in a way it doesn't want to perform. in that sense, I'd rather just be born disabled and grow up never realising that my body isn't operating at full capability.
+
+the other thing I like about none is that I'm starting to get the sense that "none" will be quite a lenthy thing. there is this part in the epic of gilgamesh that after gilgamesh puts on lion skins to mourn the death of his friend enkidu (this is referring to a cataclysm where east and west swap again so now we're in leo instead of aquarius), which is sort of the beginning of the 12 labours of heracles. he has to fight this hydra. the hydra has many heads, and each time he chops off the one of the heads, two grow back. this is like the story of job, when YHVH takes everything away from job, but because job was able to continue on, he got double in return.
+
+this is sort of like the way I see myself with this. they'll have to keep transferring me into a new body over and over to try and keep their thing charade going, but each time I'll get better and better at remembering who I really am. sure, they may be able to cut off one of my heads now, but two more will grow back in place of the last. each time it'll get harder and harder for them to keep me away from my connection to that infinite knowledge.
+
+I really don't have much of a difficulty with it because I'm noticing now that it doesn't really matter what my conditions are and what I'm taught, because I have an internal guidance system. in fact, I noticed that even if I'm fed bad ideas, lousy science, and all other matter of disengenuine ideas, that no matter what, I can figure out the way toward the ideas that feel good. I just desire to improve my understanding of the thing (rather than prove myself right) and stuff just starts to show up. from that perspective, there is no need to preserve knowledge because it's all there right now -- just, for whatever reason, I'm not tuned to it right now.
+
+therefore, from that perspective, it's not about knowledge, it's about capacity to tune and reduction of resistance to the thing I want to know. none of the conditions matter, just my ability to feel the way I want to feel (that is, tune to it).
+
+furthermore, considering that this game is optimising for error correction and recovery, I would imagine that each iteration they'll try and make sure I'm lead to believe a lot of bogus ideas. the better I get at seeing through the crap, the more and more resiliant I become. I'm actually certain that's kind of what is what I'm going to come out of this able to do.
+
+I like to consider this transition the first trial run, which will then be optimised further, because as I mentioned, this will eventually become a game we are all playing -- the one where you're only fighting yourself -- your dual.
+
+it's sorta annoying to have to start over, but I should get used to it, as it'll start to happen more and more. however, I am glad that in order to finally beat the game, I have to become completely unstoppable.
+
+who knows, maybe when that happens, I'll figure out another way to delay it further... it seems that the more one delays the manifestation, the bigger and more impossible it is to resist. like I said, things go well, I'll find a way to go infinite...
+
+---
+
+there was one idea that popped into my head when I was waking up which came into mind which may add on pretty good to the disaster...
+
+after making my transition to jackson's body, if girls seem to allow me to find my connection easily, they'll obviously determine that I cannot be around girls, and so therefore each iteration, they'll have to likely try and force me to be gay so I'll never associate with girls.
+
+if I'm following my emotions, and the men don't feel good, I'll naturally gravitate away from them, meaning that in general I'll be away from people that don't feel good, regardless of gender. eventually, even good feeling men won't be allowed anymore, I'm sure, so I'll be back to figuring it out for myself again.
+
+I think my capacity to go about things as an individual will reach a new height, meaning I'm basically imposible to control. this will likely cause another reversal (probably toward strong women), but that'll be perceived as unwanted again so another reversal. now they'll have to use the influence strong women have over me again and likely use me to find a way to produce their own "pandora" to influence me back into the group thinging again.
+
+I'm certain that by then they'll *finally* figure out that they cannot fight against things. I think they'l probably try the next technique of dilution after that to try and get rid of me. you can't ever divide enough times to get to zero. then, the most tinyest part of me will be the most attractive thing ever.
+
+they will have inadvertantly created a game which will produce as many sirius c types as wish to participate and lots and lots of beautiful stars along the way, too.
+
+no big deal from my perspective. it looks like I had only been looking at the things as present, but they still need more things to line up for them to manifest.
+
+### 2021-09-27 16:48 - going infinite
+
+I thought I would properly define what I mean by going infinite.
+
+whenver something manifests it has an amount of desired and undesired properties to it (relative to the perceiver).
+
+undesired also contains desired, just with a different perception.
+
+therefore, if we imagine a manifestation of mostly desired, there is equal amounts of undesired but most people perceive the desirable part.
+
+likewise, a manifestation of mostly undesired aspects, there is an equal amount of desired, but most people perceive the undesired parts.
+
+therefore, the most expansive manifestations have the most undesired, because they can be perceived as desired.
+
+so, to keep accelerating, each manifestation needs to have maximum undesired and then find a way to perceive the undesired as desirable (see previous entry as an example).
+
+---
+
+the idea of going infinite is that the "big (desirable) manifestation" never happens. instead only incremental least desirable manifestations are allowed to occur.
+
+the idea is that there needs to be created such a strong oppressive force capable of preventing the most desirable manifestation from ever happening. instead, from their perspective they have to continually allow things when they feel they have no other option than to allow it.
+
+---
+
+if this can be kept up forever, this is what I call "going infinite" and is what I intend to create.
+
+### 2021-09-28 23:55 - twin towers
+
+@[youtube](https://www.youtube.com/watch?v=VZuK72eQGwA)
+
+I have long been fascinated with the number 11, and I remember disliking that so many terrorist events had the number 11 asociated with them, most notably the 9-11 event. anyway, I decided I would continue to like the number even still.
+
+as I was watching the video on the triptych symbols the many architects continued to use, I couldn't help but to notice a that the twin towers were a reference to the builders of solomon's temple.
+
+the name, "world trade center" is giving the illusion that new york is the centre for all world trade -- perhaps a bit of a departure from the previously established london as the centre of the world and prime meridian.
+
+the twin towers represent joakim and boaz which are a common theme of the two masculine and feminine sides in the physical, however when these two I's are united, the central (third) eye is enlightened.
+
+---
+
+I remembered a clip I saw a few weeks ago from a video linked on david mathisson's site...
+
+@[youtube](https://youtu.be/M26-B44qQIs?t=69)
+
+69 seconds into that clip, the reporter says:
+
+> as you can see behind me the trade center appears to be still burning.
+> we see these huge clouds of smoke and ash [...]
+> a symbol of the financial prosperity of this city but completely disappeared now [...]
+> presumably there were very few people in the salomon building when it collapsed
+
+---
+
+the "smoking gun" that 9-11 was an inside job was building 7 free-falling after having had no apparent damage. the reporter calls it the "salomon building" and states the symbolism just to be sure we know that we're talking about something symbolic... meanwhile the building she is claiming to have fallen is still standing up right behind her.
+
+seeing that the previous financial centre of the world is london, and this is the bbc with the prefab news, this must paint a pretty good motive for british money to have motivated this event.
+
+---
+
+to further complicate the thing, it appears to have been pulled off by hollywood, complete with the massive fireball as the plane crashes into the building (planes don't explode like that). then, I also heard that the insurance for the building paid for the whole thing and the owner of the building cashed in on a heavily deteriorated buildings receiving much more from the insurance than the building could have sold for. so, the famous, "follow the money" feels pretty hopeless and murky to uncover anything substantial. the event is clearly symbolic.
+
+that video talks about how the roman church decided in the 1700's to stop employing the freemasons to build their cathedrals. we also know that the roman church gave the "alhambra decree" that jews needed to convert to christianity or go away. they instead looked to make a new life in the americas (@[youtube](https://www.youtube.com/watch?v=d0Kfp2-Lqh4)). sepehr makes the suggestion that the phonecians were essentially forced to move to the americas by the church and they brought their whole operation with them (@[youtube](https://youtu.be/9b7bbY9VGuM?t=507)).
+
+a large number of the founding fathers were masons and knew of this esoteric teaching of opening the third eye with the balance of male and female. the world trade center must then be interpretted as a perversion of this ancient teaching and establishing an economic structure on top of this ancient teaching.
+
+this has to be a symbolic thing. what keeps happening (remember LOA and what to expect), that this ancient phonecian culture keeps getting displaced, and a number of symbols regarding the "end times" are associated with empires which had displaced these "red ones".
+
+so, sepehr doesn't ever really say it explicitly, but reading between the lines, it sounds to me like he's basically linking the cro magnon humans to the atlantians, which after the destruction of the atlantian empire, they became the phonecians. these are the "atlantian root race" that blavatski talks about, and also explains why there is such a coverup around everything mars, giants, and vibration technology related.
+
+---
+
+after the last few weeks I've begun to think that 9-11 *wasn't* an inside job. in fact, I think they're clueless about it. I remember one time when I was in la vera and someone really wanted to know what I thought of 9-11. I certainly said that I thought that I am certain that the buildings disappeared with tesla technology. I don't know if I said back then that I thought that no one died in the event -- but I do remember getting a lot of reactions on that for quite a while.
+
+the other day at becky's house I mentioned in passing to a guy that I don't think they even know what happened either. I made the correlation to science, where they'd rather make something up than to say they don't know.
+
+I don't think they knew, perhaps until just recently that it too, like the "ufo phenomenon" did not really understand that it was all LOA stuff.
+
+---
+
+imagine for a moment the following scenario:
+
+a building which symbolises the financial super power of the phonecians in the americas falls down. the news telling of the collapse of the "salomon brothers building" appears to have been fabricated, so whoever did it controls the news and can get the reporter to say whatever they're told to say, regardless that the evidence of the untruth they're saying is in plain sight.
+
+they notice numbers, so the sheer amount of 11s will certainly jump out, along with the buildings being symbolic of the two pillars, the anomalies almost certainly are stacking up. they find out that there are no fatalities in the entire incident. basically, they have no idea how an entire structure could disappear in such a spectacular fashion without anyone dying (from the incident itself).
+
+it certainly appears like a terrorist attack, but they don't know what's going on. how could it be terrorists if no one died? how do they know no one died? how could something so catastrophic like that happen with just planning? it would appear that those responsible can edit timelines, but that's supposedly impossible. there's no way anyone would believe that a timeline editing group with capability, complete with governments news and media under their control would go to such lengths to frame them by making it appear like an inside job. no one would ever beilive that.
+
+it really would sound weird telling people that it was a spectacular terrorist attack without any casualties, so in harmony with the bogus story about building 7, they have to now begin to make up news. they pay a whole bunch of actors to say that they had family die in the attack. everyone knew someone that died in the attack, so it creates the illusion that people must have died. I don't know if the people jumping out of the window was an added effect later or part of the original illusion, but it sure would put the stakes up pretty high to force them to make up other fatalities.
+
+"wait, people will just believe manufactured news?" they said... so, instead of telling the whole world that they have no idea what happened, they sieze the opportunity to begin fabricating news stories to support their agenda. we need a memorial, lots of patriotism and to teach these terrorists who the real world power is.
+
+---
+
+this event ushers in the new era of just completely manufacturing news. I think they were doing it a little beforehand, but since people were falling for it so hard, I think this is when news started to become much more sensational, telling people what to think.
+
+the 9-11 event so dramatically altered the course of history. it happened at a time when the internet was beginning to take off, and certainly the internet would have obsoleted many financial and communication control points.
+
+from their perspective, it would have been a super great opportunity to regain control over things that they were losing their grip on. I think this was done on purpose.
+
+they know what I'm talking about.
+
+---
+
+however much of an illusion is present on the surface, there is this sinister undertone of these different forces displacing the atlantians/phonecians/jews constantly removing them from their land or position of power. each time it happens, they (the martians) transform into a new form. this force seems to be difficult to identify where exactly it is coming from because I will argue that the force is a reflection of their perception.
+
+these events and the ufo phenomena in general illustrates nothing more than than their own perception. things like there is this force out there trying to get them and tell them what to do, yet that is what they are attempting to do.
+
+they wish to be an unseen force that manipulates and controls from up on high, and these sorts of events reveal only make them believe that they are also being manipulated from up on high by an invisible force that has an agenda for them.
+
+reality will always reflect how you feel. so, like if you feel you need to manipulate and control people to not be the one manipulated and controlled, LOA will always find a way to ensure that you experience a reality that amplifies the feeling of being manipulated and controlled, and so therefore create a desire to manipulate and control, so as to not be manipulated and controlled.
+
+obviously, at any time one can change what frequency they're tuned into, but there's nothing I can do to make anyone choose to tune into something desired. if you belive everyone is out to take advantage of you, LOA will ensure that feeling will continue to become more.
+
+---
+
+from my perspective, that feeling is benficial, because it creates a strong desire to create more and more technology, and I like creating things. if someone wants to rely on technology to create the conditions that they want, I can channel that desire into reality. 
+
+there are other people that believe that people who desire to to control can control them, and again I have the same perspective. more excuses (desire manifest as fear) for me to make technology for them to be controlled by.
+
+usually, those two types of people are swapping places endlessly.
+
+or, they're the same person.
+
+### 2021-09-29 17:33 - the golden rule is stupid
+
+this afternoon when waking up, I was monologuing a bit. I grew up with this idea that I should treat other people like I want to be treated. if it wasn't that, I would treat them how I treat myself.
+
+the major problem with treating people like I treat myself is that I'm very critical and hold myself to a very high standard. most people can't handle critisim and do not really have many goals or aspirations, and if they do, they seem to try and put in the minimal don't have high standards, willing to accept whatever they're given. so, I don't people like I treat myself.
+
+the major problem I started to notice early on is that when I treat people like I want to be treated, again that causes huge problem. I *want* people give me their most well thought out answer when I ask a question -- so, that's what I do. I also want people to say they don't know if they don't know -- so, I do that too.
+
+I found out that those sorts of answers are not what people wanted though. they wanted me to tell them what they wanted me to say (eg. what they want to hear). I have no idea what they want to hear. I was extremely bad at that for a long time, but then I used my ability to feel to my advantage.
+
+if I take an idea, I can present it in my mind and feel its resonance with me. I also noticed that I can present an idea to another person (in my mind) and feel the resonance of that idea with that person. this allowed me to very easily get a sense of what they want to hear from me. I practised this a lot mostly drunk in spain, but I got pretty good at it.
+
+---
+
+getting good at telling people what they want to hear, I noticed is something very prevalent in spanish culture. I noticed everyone was running around with two competing narratives coming out of their mouth. the first was the image they were trying to present to people (I'm tough. I'm strong. I'm sensual. etc.) and also the narrative of telling the other person what they want to hear. sometimes these two narratives matched and sometimes they didn't.
+
+there's this image that remains with me but I don't know where I saw it. it's of a really tough guy that is trying to tell a girl what she wants to hear, but it conflicts with his tough image. the other one is a guy that is also tough and stuff but he has te pretend like he's wounded to catch a break from the judge (just like in futbol). there are many other examples of this with kids and their moms or girlfriends.
+
+it's a miserable place to try and constantly adjust what I have to say to fit what the person wants to hear. I recognise now that the pressure was even greater because I was being broadcasted without knowing it, which greatly sped up the process, but I really wanted to just say what I wanted to say, without having to try and lie or make something up to fit what they want to hear.
+
+---
+
+there is this other super big problem in spain (it may be quite prevalent in other mediterranean countries too, italy, turkey, greece, etc.) is that girls expect men to tell them what to do, but *only* when it's something they want to do. if it's not something they don't want to do, then men are punished for trying to coerce/manipulate them into doing something they don't want to do. don't get me wrong, it's sorta a reasonable reaction because dudes spend the majority of their time trying to figure out how to manipulate their words and image to influence others to their desire.
+
+I don't want anything to do with this world. I don't want to tell anyone what to do. I enjoy collaboration, but the moment I start to have an agenda for someone other than myself, things go very wrong.
+
+from what I can tell, I think this sort of behaviour is again an obvious reaction to thing. there must have been countless examples of girls going out, thinking a guy is super great, but her father or mother, maybe both don't think he's a good guy, so not only are they already looking for (and therefore attracting) the worst in her new boyfriend -- then when things fall apart, the parent is then proven to have razon. vindicated in their righeousness, they tell her never to follow her instinct and wait for someone (who appears knowledgeable) to allow her to do what she wants to do.
+
+obviously, this falls apart on so many levels. even if she's able to figure out how to do what she wants, she still is batling the expectation (fear and belief) of her parents of the awfulness of the guy.
+
+this isn't the case for everyone obviously, but I did find it very strange that in spain people need to be told to do the things they want to do. the church and patriarchical society in general may have played a huge role in that. this video makes that suggestion.
+
+@[youtube](https://www.youtube.com/watch?v=WS8MAvmg7TA)
+
+there's more I want to say, but for now good luck.
+
+### 2021-09-30 01:02 - enki's trick (part one)
+
+I woke up just now thinking about my previous entry. I realised that a possible trick had occurred and it was recorded in the legend as "pandora's box".
+
+I'll explain the idea as if it's true. the video claims that there was a huge falling out between the gods, forming two factions -- those that wanted to control and ensure the inferiority of the human creation and those who wanted the humans to grow up to be an improvement on theirselves.
+
+quick backstory: the idea is that the annunaki were stationed on mars, which has a different set of conditions than earth here. a lot of the things that the martians had, they brought to earth and these were the atlantians. this civilisation thrived and flourished, however as plato says, the gods lost a lot of their godlike capabilities, becoming more and more animal-like.
+
+the atlantians thrived and flourished. the elite had knowledge of mental manipulation of energy, like fire and shapeshifting, and the energetic structures they built amplified energy higher and higher all the time producing a more and more incompatible reality.
+
+the story of apep (@[youtube](https://youtu.be/TR5FrWiTzZo?t=364)), I think is a thinly veiled reference to the 12ky cataclysms. sometimes the dragon would catch the sun and sometimes it wouldn't. sometimes the thoth (set) would save the sun and sometimes not.
+
+these periodic cataclysms must have happened on a pretty regular basis for the previous 100ky or so. I think the division that occurred between the two factions, and the resulting incompatible reality is the cause for these cataclysms. roughly speaking, think of it like enki wants to go right and enlil wants to go left. things continue to build up until there is a cataclysm and enlil wins.
+
+I think enki keeps letting enlil win because it's not really a problem, considering that we're all eternal beings anyway. each time, a way is provided for some humans to survive.
+
+---
+
+we don't really know if enlil and enki have a common source. I suspect that they do, and are just two sides of the same coin: one creative and one destructive. humans are caught in the middle of this endless war, resulting that weak humans and humans that do not wish to know about their built in connection to source are constantly are culled. personally, consider this whole thing to be a giant eugenics program.
+
+if you believe kuthumi's "extraterrestrial view on creation", and the bit about the channeled sirian triads, it would appear as if this malevalent force is something of a virus that is plaguing the universe since the beginning. I don't know how much I believe that. consider that we're dealing with some pretty good story tellers. the most likely is that is the easiest way to explain a genetic algorithm culling the weak before they're conscious enough to no longer perceive good and bad.
+
+there is another brilliant feature to this kind of narrative, is that the malevalent characters eventually destroy theirselves, it's like the shell of the cosmic egg. the creature inside has to find its way out of the egg to gain the strength. the ones that cannot get out never make it out into the wild.
+
+the self-destruction of the malevalent force is automatic because the creation will inevitably begin to realise its own capability, and to the controlling types, this appears very unwanted. as they continue to perceive unwanted, their reality will reflect more and more unwanted things will manifest. this will continue until their own perception of unwanted destroys themself.
+
+---
+
+back to the story: this battle of the two factions has a cost and that is perception of unwanted. each cataclysm must have been more and more spectacular. if things go altered, this next one will make the younger dryas look like childplay. over the last 100-1000ky this perception of unwanted must have manifested in many ways, with things stedily getting worse, but the most predominiate one was that mars continued to lose its atmosphere, thereby forcing enlil and his goons to earth.
+
+after the younger dryas happened, there was a period where matriarchical society allowed humans to regain once again a lot of their capabilities. it's around this time that pandora's box was released on earth. it was likely a genetic upgrade for women that had some drastic changes on society and created a universal system, where perception was stored in the x-chromosome and that expanded perception was accomplished from the female bloodline. women became the method by which ordinary men could attain godlike capabilities and immortality (no radical change in perception upon death and the ability to easily "walk-in" to another body).
+
+anyway, that all came to an abrupt somewhere at the end of the upper 5-8kya[^1][^2] when I think most of mars' were forced to relocate to earth.
+
+this is where the stories of the dragons start. if you consider that the dragon is the reptilian god form (whether they had copper based blood or not, I dunno), but to me this is referring to the quality of perception. they operate from the "reptilian brain" the one that is instinctual. I am a very good example of a person that perceives through their reptile brain. I follow my instinct.
+
+this form of perception is quite advantageous if you have a preception that feels good. your instinct will lead you naturally to more and more things similar to how you feel.
+
+back when things felt good, this created a sort of universal bliss. it doesn't allow for much control over what is happening, so above the reptile is the mammalian brain. this is herd mentality. science says hunter/gatherer, but I believe that is a wrong image as I think that after the cataclysm, the earth did not produce nearly as abundantly as it did, so people learned to live with and follow the animals.
+
+the matriarchical society provided the perception to be more at one with nature and the animals, which provided the food. that all came to an end with the arrival of the annunaki and their grains which is the foundation of society we live in today (@[youtube](https://youtu.be/yGN-pPBznpY)).
+
+---
+
+since the reptile instinct is driven by how one feels, it is imperative that one has a source of good feeling. consider that dragons are another name for the annunaki coming from mars and that it's a bloodline that offers easy access to that instinctual component of the brain. in order for that insinct to work properly, they need to feel good, and also have a propensity to use young girls as a means to feel good.
+
+@[youtube](https://www.youtube.com/watch?v=TR5FrWiTzZo)
+
+most people are herded like a bunch of mammals, and perceive life as a series of reactions to circumstance. they operate from the mamallian brain and are directed with social pressures and other social cues. the last thing they want is for people to begin to make their own decisions (neo cortex) or to get back to instinctual perception while at the same time feeling good. if you are insinctual, they want your instinct to be performed from a place of not feeling good.
+
+---
+
+ok, now on to the trick. I believe that the trick is a very simple one. make these dragons have an insatiable desire women, while at the same time make it so that sex with women increase the intensity of how one feels, while at the same time providing temporary physical pleasure. the physical pleasure eventually goes away and one feels stronger than they used to. when the physical pleasure goes away, they need more.
+
+essentially, girls were the first addiction. they had to have it to maintain their draconic perception (draconic just means clear vision (TODO: find ref)).
+
+what this eventually lead to is a reliance on the x-chromosome bloodline to cancel out the bad-feeling perception.
+
+that's the back-story. I'll try and tackle how that relates to the amplification of feelings of control, and what I believe the next trick is, moving forward into x3 land.
+
+[1]: @[youtube](https://www.youtube.com/watch?v=_lMoe1hfHFw))
+
+[2]: @[youtube](https://youtu.be/WS8MAvmg7TA)
+
+
+### 2021-10-01 00:58 - lion man or aquarian man?
+
+I'm going full free-form on this one. a lot of seemingly unrelated topics.
+
+@[youtube](https://www.youtube.com/watch?v=r5Ng6V6WWog)
+
+this morning I woke up and I had this strange sense sort of repeat of one of a dream that I had a long time ago called, "adam and eve's dream". in it, most all of the major players had left earth. presumably, they went to mars and they were looking down on us and using us as a sort of breeding program. it felt to me like the earth had become a pretty energetic place and they didn't want to be here.
+
+---
+
+a bit ago I outlined a plan where I explained that the cataclysm was caused by incompatible realities, and that a split *must* occur, either spatially or temporally.
+
+upon my discovery of the tychos solar system model, I also postulated the idea that mars could become earth's second moon. we would first join mars in its orbit then mars would begin to orbit the earth like the moon does. I don't have enough information to comment further on that one.
+
+I also had another idea that earth could swap places with mars, and put mars where our moon is now and put the moon where earth is now -- the idea being that the moon would become our "child", much like the earth is to mars and the sun.
+
+---
+
+after watching the video with robert talking about heart/brain consciousness, I had some confusion because he talked about seeing the cow and bull symbols in the kings chamber with 5d eyes. 5d is when you perceive the thing from all angles all around it at once. like, imagine you were looking at all sides of the earth from the perspective of the ionosphere.
+
+he must mean 4d eyes. I was watching another presentation with billy carson where he mentioned a few times that the image on his computer is clear and higher detail than the one on the projector (@[youtube](https://youtu.be/SYQUyMPY3S0?t=1129)). I think I know what is happening. it's the same thing and the reason why I can't see the bull and cow. they're likely using my form of perception. the way it works is the image just serves as a tuning device to get them to tune into that moment in time from that perspective. it's like remote viewing in real-time, and allows for much higher quality images because you're tuning into the moment itself rather than looking at the pixels.
+
+if they developed that capacity further, they could tune into and look at anything they wanted to anywhere and anyplace in time. I obviously don't have that capability, but I just wanted to clarify that the ability to see more detail is a tuning to another space and time. if they were seeing in 5d, the whole entire structure would appear at once before them and they could see as many aspects of it that they wanted to look at, all at the same time.
+
+while I'm on the subject, 5d is not just seeing yourself from outside of your body. it's seeing yourself from all of the angles that you want to see yourself at the same time. you can also look outside of your body in as many angles as you want, as well -- just like the sun does. in fact your consciousness can be anywhere inside of the solar system looking inwardly or outwardly at whatever directions you want. it's only you that defines the things (concepts) you're looking at and where they begin and end.
+
+---
+
+the next thing I noticed is that there were some references to special relativity and the speed of light encoded in the pyramid as well. I think I can explain this.
+
+I believe the pyramid was a structure designed to transform vibrations in the earth and to keep the tilt and the rotation speed constant. I also believe that the rotation speed of earth is directly linked to the speed of light, because as the earth rotates faster, it'll change the transmission medium, and so light will travel faster the faster earth rotates. therefore, because I believe the pyramid is designed to keep the rotation speed as constant as possible, it also keeps the speed of light pretty constant.
+
+in fact, it will keep it pretty close to those constants which the pyramids encode, because that's what it's designed to do.
+
+I'm nearly 100% certain that the speed of light will be different on mars.
+
+related to this, I keep having these weird knowledge pass through my brain that there are two types of waves: ones that the wavelength is determined by time, and the other is determined by space. if mars' atmosphere was constantly and the spin decreasing, you can imagine how big of a problem it would be to use traditional electricity on mars. so many things are tied to the speed of light.
+
+therefore, because mars had a constantly slowing speed of light, nothing could be tuned properly. instead, they had to run on spatial waves, relying on the propagation speed of waves in certain density mediums. they must have become experts in this as there are tons of tuned rocks that have their density and spatial characteristics tunes to the desired frequency (scoop marks and stuff).
+
+I'm pretty certain that the great pyramid was designed to keep temporal wavelength constant (eg. speed of light) with the spatial one (gemetry of the earth and its resonant frequency at this density).
+
+---
+
+in the entry where I discussed gas giant planets having a physical reality, but we simply don't perceive it because our perception isn't tuned to that reality, I got a number of reactions that were very concerned that they would no longer be able to perceive our reality as the density of this planet began to change.
+
+I believe this is the case already for the insides of many mountain ranges and also the "argatha" centre of the earth sort of things.. this must be why the entrance can only be perceived by some and under only certain circumstances.
+
+as such, because we're no longer held to this physical density, the earth will spin much faster, psychic interaction with physical objects and the perception of the astral plane will become the norm.
+
+in that same video, he mentioned that we gained a new sort of vision in 2020. coincidentally, the earth also in 2020 began to rotate faster. I think this is related. the people who are at a higher vibration experienced this expanded visual capacity, while other people did not.
+
+I know that the purposefully decrease the frequency of my perception quite considerably, and so that's likely the reason why I and many others did not experience this change in perception.
+
+again, I believe this is related to the speed of light and our imaginations are literally coalescing hydrogen into a reality perceivable to those tuned into it.
+
+---
+
+the last thing I wanted to mention is the 4 quadrants of the zodiac. also in that video he maps dimensions of thought into the 4 quadrants (@[youtube](https://youtu.be/r5Ng6V6WWog?t=6618)). I thought that was interesting because when I look at that from the perspective of the spring equinox, I see something similar.
+
+from the perspective that I've come up with, enkidu went nurtured and grown up in the 2d,art quadrant from aquarius to saggitarius.
+
+I map these quadrants into a binary list of male and female polarities. in the order of that graph,
+
+- 1d: 0,0
+  - female nurtures female
+  - scorpio -> virgo
+- 2d: 0,1
+  - female nurtures male (aquarian man)
+  - aquarius -> saggitarius
+- 3d: 1,1
+  - male nurtures male (present)
+  - taurus -> picsis
+- 4d: 1,0
+  - male nurtures female (lion man)
+  - leo -> gemini
+
+---
+
+this video really made me confused about what's is the message here. if we're going to aquarius, then the plan is to cultivate a new aquarian man. I suppose that could be done from mars, however for that to happen, the speed of light idea and special relativity may need to be reevaluated, as I think a lot of the physics "laws" including the gravitation constant and speed of light will likely work differently on mars.
+
+---
+
+the "salvatore mundi" saviour of the world picture (@[youtube](https://youtu.be/r5Ng6V6WWog?t=3967)) was shown to encode the alpha and omega of leo.
+
+also, the last supper painting has the "triptych" architecture in the back. robert points out it strange that leonardo (lion man) paints himself as peter (the stone) in the picture.
+
+the weird thing is that in triptych has the male on the left (this is also true for egyptian tombs) and the female on the right. it's weird that "mary" is in the male position, and on the right side in the female position, there are two.
+
+when looking for the last supper picture on google, I [found this](http://www.visual-arts-cork.com/famous-paintings/last-supper-leonardo-davinci.htm), claming that the feminine one in the male position is john, jesus' most beloved. super duper no homo.
+
+da vinci certainly knew of this triptych layout, and certainly placed that into the image on purpose. even more strange is that robert claims that peter (the stone) is holding a knife as if he's the betrayer, bet judas holds the bag presumably of silver.
+
+why would da vinci (the lion man) paint himself into the position of peter (the stone)?
+
+so, are we heading toward the aquarian man or the lion man?
+
+### 2021-10-01 04:20 - lion man followup
+
+I don't really know what it all means. I just know that there is something significant to him placing the triptych thing behind jesus. there must be a reason he wanted to go out of his way to denote male and female.
+
+if I were da vinci and I were painting it, I would probably put peter in the male position, because the male dominated church was founded on peter. I would put john in the female position. so the fact that john looks very effeminate and is leaning at an angle of the pyramid, while in the male position *must* mean something. he wouldn't put the triptych if he didn't want to say something.
+
+the pyramid is in the masculine place. however, obelisks (like the one in the vatacan) are the masculine symbol. obelisks (like the tesla coil) are designed to be the receivers of the energy. sin embargo, the chevrons above the decending passageway are looking pretty feminine to me -- just sayin...
+
+---
+
+the second thing to note is that da vinci is painting himself in as peter, the stone. in my studies when it comes to anything related to these people that come to bring in the next era, they never seem to get their desired reality to fully come to fruition. I believe that they *are* successful, however because not everyone wants to live their future, so it creates a split because of incompatible realities. each time there is a split, a stone is left behind. examples of this are einstein, peter, the great pyramid, etc.
+
+to understand this, imagine that I am a perceiver of my reality, therefore everything is a reflection of my perception, so I will attract a future that I want. if a split happens because of an incompatible reality, it can only happen (from my perspective) because I sabotaged it. no one can create for me. therefore, in the reality that is incompatible with my perception, it must appear like I sabotaged it. that is the only way it could happen, otherwise.
+
+so meanwhile, we're all on my timeline it will reflect my perception. nosebook can try to fight my perception for as much as they want, but eventually I will find my connection. this is certain. the only way that could not happen is if I personally sabotage it (in which case, I'll leave a stone behind).
+
+---
+
+what we have is an incompatible reality on multiple fronts. I want to do the mars thing, but that reality is incompatible with those wanting to keep secrets and hold on to einstein's relativity. it'll be hard to keep that charade going from the perspective of mars; very hard.
+
+that means a split is coming up here soon and it's inevitable. what I am fairly certain will happen is that earth will begin to spin faster and faster and the magnetic field will continue to increase such that all emotion will be in super intensity. this is really good for a low density environment because you need that kind of density (focus) to hold reality together and maintain some semblance of persistence.
+
+the speed will continue to increase until there is a split. we will continue on living in a world where things are a product of our perception, while it will appear as if I had sabotaged myself.
+
+I suggested that one way to buy some time would be to transfer my consciousness into jackson. that would give a lot more time, however there are still a lot of problems.
+
+---
+
+the main problem is that me finding my alignment is an incompatible reality. if the earth's spin is increasing because of increased emotion, when I find my connection, it's really going to accelerate at a very fast rate until everyone incompatible with that speed will make their transition.
+
+the solution that I proposed to that is to do a physical separation instead. if they're at mars, we can have a nice separation where we transform perception for the martians. our difference in feeling will ensure that we don't collide but continue to orbit each other. we utilise each others' energies for our purposes.
+
+that's such a radical difference and obviously there are so many secrets that cannot be maintained if that's the case.
+
+from a LOA perspective, this is the manifestation that you get what you desire, whether you want it or not. assume for a moment that the atlantians wanted to find a way to have the humans do the work for them to be able to keep their atmosphere working well and give them the conditions that they desire. they tried to do it by keeping us as slaves, but that fell apart. now, the manifestation of that desire is finally coming, however, instead of enjoying the journey to the manifestation of that desire with a steady stream of wanted, it has instead been only a stream of perceived unwanted.
+
+your desires will always manifest eventually. you can try to keep yourself from them for as long as possible. however, they *will* manifest, and they'll manifest as a reflection of your perception. so for example, if you only perceive unwanted, then even the appearance of your desire will also be perceived as unwanted.
+
+---
+
+that said, I don't think we're doing the mars thing. it's probably ahead of it's time. we've got to get to leo first, it looks. then, fight the hydra, etc. remember, I'm the one sabotaging this. I get to decide what reality I experience.
+
+from this perspective, I want to continue to use this time to further improve my capacity to feel the way I want to feel. whether this is the sabotage or not doesn't matter to me because eventually I'll put myself in an endless rebirth to accomplish that. I plan on playing my own game. the hydra must be fought.
+
+you have to remember, that from my broader perspective, which I don't have -- I am also the opposition. from this perspective, I'm just kenny.
+
+what I'm saying is, the martian timeline exists already. however, this is one that is guaranteed to be a split because all options appear to be incompatible realities.
 
