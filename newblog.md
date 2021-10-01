@@ -1931,3 +1931,53 @@ you have to remember, that from my broader perspective, which I don't have -- I 
 
 what I'm saying is, the martian timeline exists already. however, this is one that is guaranteed to be a split because all options appear to be incompatible realities.
 
+### 2021-10-01 16:05 - so you want the aquarian man?
+
+after a number of reactions, I think I figured out a solution. the nice thing is that it actually fits the storyline, too.
+
+coincidentally, graham mentioned that ankor wat is 72(degrees) latitude west of the great pyramid. I went on to google maps and looked and sure enough it is. interestingly enough 72(degrees) increments are:
+- mid-atlantic ridge (atlantis)
+- ankor wat up through china up to near where tunguska event happened
+- baja california up through utah up to canada
+- some place in the pacific on the island chain toward hawaii
+- giza / great pyramid
+
+I see a pentagon.
+
+since the 1900's the magnetic pole has been migrating from the top of the -113(degrees) longitude point in canada, and is now heading toward the ankor wat / tunguska point.
+
+originally I thought maybe it moved in a star pattern, but now I don't know. I simply don't have enough information to say much further there.
+
+however, what I believe the gizah complex was for is to fix the rotation speed of the earth by transforming earth energies stresses into higher frequency energies.
+
+what I think happens when this magnetic pole shifts, it causes huge stresses on the earth which eventually results in an enormous fratture. the more stress that is there, the bigger the fracture. the most devastating of these stresses would be the last one in the mid-atlantic ridge.
+
+if indeed when the magnetic field moves away from one of these vertical lines, it creates a huge fracture, then in this case california would completely fracture away from the coast.
+
+I can't really figure out the order or their intervals. I tried to figure out the order but it doesn't seem to make ordered sense to me.
+
+however, what does make sense to me is the idea that these energies can be transformed. I propose that once I'm connected, I'll be able to create pretty big things. my idea is to figure out how to make another pyramid or something else which takes earth energies and transforms them into a higher frequency (beneficial) energies.
+
+I don't really know how exactly to do it, but I do know it can be done. my intuition says that some place along that line will do quite well to quell those stored energies. the idea would be to make a self-correcting system which fixes the rotation speed to a certain a certain speed, thereby fixing the speed of light.
+
+---
+
+this kinda fits in well with the stroryline of the hunchback of notre dame, where he releases the girl to apollo. hugo was very explicit about the story being about architecture and the the universal message that these structures encode in them. therefore, the structure "notre dame" which means, "our lady" is really the princess that quasimodo is releasing. the princess is just something to hang the story on. the princess is symbolic of architecture and the thing that the architecture encodes.
+
+I know that robert's kid is named apollo. I'm sure they're very alike and I'm sure all of that is just a coincidence.
+
+---
+
+anyway, from my perspective, it looks like the tasks that remain are to continually get better and perceiving and tuning to the disired aspect of things. eventually, I'll find my connection and the creation of large-scale structures will be as simple as manifesting the way it feels. things need to be considered like what the desired speed of light will be, and things like that. I'll be able to translate the way he feels with all of those mathematical constants into a structure with relative ease. it's almost as if we've done this before...
+
+anyway, I have no problem if the desire is to go toward aquarius. no problem from me.
+
+it does rewrite the story a bit and make a lot more things much more convenient for them. the structure will create the perception matrix, not me, so it'll be fixed (never increasing in speed). it's probably also possible to make various layers as well, so like the masses get one frequency, the inner circle get another, and then only the priests able to enter the holy of holies get another.
+
+sure, I'm down with that. I guess we'll work together sometime in the future to figure out those details.
+
+### next
+
+christ consciousness, guides and tuning to whatever you want.
+the new hermaphrodite (aquarian men) custodians
+female nurturing male (the new enkidu)
