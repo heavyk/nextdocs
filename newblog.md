@@ -1976,8 +1976,70 @@ it does rewrite the story a bit and make a lot more things much more convenient 
 
 sure, I'm down with that. I guess we'll work together sometime in the future to figure out those details.
 
-### next
+### 2021-10-02 02:57 - some more thoughts on the aquarius
 
-christ consciousness, guides and tuning to whatever you want.
-the new hermaphrodite (aquarian men) custodians
-female nurturing male (the new enkidu)
+the reactions have been kind of interesting around the idea of going to aquarius. the sense that I get is that people keep saying the age of aquarius like it's some sort of marketing buzzword but none of the higher ups actually belive that's where we're going.
+
+what I mean is, if one looks at government policy financial stuff and everything else, almost no one has a plan beyond 2040 (other than projections), and no one really has an idea what to do after 2050.
+
+it seems like they're all hoping for this cataclysm. all they need to do is to survive it and then set up after that.
+
+so, when I come along and say that I think it'll be possible to make a solution that will prevent it from happening and we can go into the age of aquarius, there feels to be some pushback.
+
+wait, that's weird because I was also feeling pushback from the leo, gilgamesh and labours of heracles idea too.
+
+there is this idea that there are too many people on this planet and we don't have the resources to sustain growth like this, while at the same time there is talk of a coming golden age starting in the age of aquarius. it can't be both.
+
+the reality is, we do have the capability to support many more people on this planet -- just, they don't want to.
+
+---
+
+the other reaction was around the realisation that where the magnetic field is stronger, there is more innovation, stronger feeling. previously this was on the west coast, california, seattle, vancouver, etc. but now this is moving over to east russia, china, thailand, malaysia, etc.
+
+it's kind of crazy to think that all of the land of innovation and insight will move over to the east. a complete reversal of our western dominated world today.
+
+---
+
+personally, I'm actually starting to like the idea. I think it's a great idea for western thought power to rapidly decline. it'll be interesting to see what happens honestly. I know that robert knows mandarin and korean so that's likely something he has intuitively begun to prepare for. nice.
+
+there are so many things that will have to be done but I think it's fine. it's kind of a perfect timing thing because naturally conditions will continue to get better, meaning lifespans will increase, less sickness, more intelligent people, etc. it really will be the start of the golden age.
+
+---
+
+there is another thing that I wanted to talk about which is that it's sort of going about things the opposite way, but I don't really think that's a bad thing. if there's one thing I've found is that going toward the seemingly "worst" manifestation always has unexpectedly good results that happen naturally because of LOA. I'm generally interested in seeing what a golden age founded on special relativity and a fixed speed of light will result in.
+
+I'll be stuck in it too. I'll make my transition into another kid and grow up just like everyone else in the system. it's the same problem of fighting the hydra, but it'll be in aquarius instead. he'll have to mix me and put me into increasingly more difficult situations so that I never find my connection again.
+
+I personally like the idea. I think it adds further to the difficulty as well.
+
+---
+
+there's another level of difficulty upgrade that I'd like to mention as well. I hadn't been thinking on it and had completely forgotten about it, till jerrica reminded me of it today. it's actually quite fortuitous because I didn't know how to put it into words for "enki's trick (part two)". it's the missing link I was looking for to connect the increase in feeling to the third part.
+
+anyway, consider that sex with will girls have a pleasure addiction related to the dragons wanting to retain their clear perception, but at the same time the increase the intensity wich one feels something. that's one ingredient.
+
+the second is that a girl starts out with a clean slate and is naturally attracted to boys, but as she gets older she begins to gain an idea of how men are, and therefore what to expect from them. the younger they are, the less convoluted this is, unless she's been abused since younger.
+
+any boy she meets and gets into a relationship with *must* conform to her perception of how men are. she has to be right about what she believes is true. this is true for many other subjects as well, and a woman that believes well of a man can be a very strong motivating force for him. the strongest of these relationships is when the girl mostly perceives with desire (1) (someone like esther), and when the boy is a physical/mechanical (7). these are the prototypical hermes and aphrodite. when they're combined into a single person, it's the "hermaphrodite".
+
+these hermaphrodites have a balance between both male and female and are the centre of the triptych. "when the two I/eyes become single". as shorthand, I call them the x3.
+
+anyway, those guys are the next custodians and the next root race for humankind.
+
+what's important about this is that we're moving into the aquarius -> saggitarius quadrant, which is the one that I defined as "women nurturing men". I define the quadrant as different from the one where we're in now as "men nurturing men". the last time we had this happen was after the peak closeness to sirius and energies were lowering (0.5->0).
+
+at the beginning of the phase, energies were at their highest, so the manifestation of the way a woman perceives a man was about where it's at now. over time, her ability to perceive him and have attract that reality lowered over time, giving the impression for the men that they had increased capability to dominate. this was the upper paleolithic, neolithic when organised warfare began to become more and more of a thing until it became so dominant that it caused the horus kings to completely wipe out all forms of the goddess culture.
+
+this time however, the influence will be the same but energies will be *increasing*, meaning that as we get closer and closer to sirius, their capacity to conform men to their perception of men will increase. this will be a very different landscape.
+
+this adds an entire new level of difficulty to the whole ordeal. it won't be much more difficult to ensure that I'm never allowed to interact with young girls which may have a positive perception of me, but instead only to be with ones that have already been programmed to already have preconceived perceptions of "how all men are". other variations include getting me to depend on them for my perceptive conditions and then causing a crash and burn (much like raquel).without access to abraham and if I have a special relativity (impactors, collisions, and propultion) view of reality, it may take me quite a while to remember how things really work.
+
+I welcome the challenge. I believe I've talked myself into it. even though other people don't have plans for anything past 2050, I'm excited to try this reality out. the worst that could happen is that he doesn't stop me from finding my alignment the next time :)
+
+---
+
+the last thing to think of was why I mentioned that the structure should be tuned to have a fixed improvement. that was because if it were done like the great pyramid was done with an inverse feedback loop, where the more harmful earth energies put into it produces more enlightenment, then it rewards a worse perception. naturally, the body will learn this feedback, and notice that the more focus on unwanted, the more expanded the perception.
+
+another idea would be to create a feedback loop where a group of females were given stronger perception the more harmful earth energies there are, and the males are given stronger perception as a function of the females' harmful energies.
+
+there are various ideas to be brainstormed for sure, but a positive reward for negative effects sounds like recipe for a disaster.
