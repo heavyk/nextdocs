@@ -2112,3 +2112,61 @@ so I have no idea what is in store for my stay at becky's house... I guess we'll
 one thing is that I am thinking it may be kind of best to start small. then, there are a few paths: if the girls can create replicas, then we can do that other invite-only type network (this direction has an exclusive feel to it) or to expand slowly creating something similar to the "cultures" idea from a long time ago (also feels pretty exclusive).
 
 personally, because I want to find my connection, I'm just going to keep holding back and expanding. I want to hang out with becky cause that sounds fun, but I don't really want to make anything happen. it'll happen probably whenever it becomes inevitable.
+
+### 2021-10-03 16:55 - some more thinking
+
+I think there was some reactions to what I said last night about dad. first of all, I think there is a difficulty in society around the perception of death. there's nothing bad about it. the person just leaves our physically perceivable frequency range; that's it. the other thing is our society wants us to hold on to people that are dying and not let them die, probably because it's a hugely profitable industry keeping people who's bodies don't want to be here for longer. it costs a lot of money to keep them alive and almost all illness close to is pure profit. they don't want heath remedies that actually solve the problem, cause that would be a loss of profit.
+
+I have been wanting a system where people can pick the parents of a baby that's about to be born, and then when the waters break, they have a little bit of time to get ready for their transition into the baby's body. I feel like that would be a whole lot more effective way to deal with death and also would be hugely profitable for the system that makes this possible.
+
+besides that though, the direction that dad's body is taking (the conditions of his manifestation) are just that -- conditions. his only job is to find a way to feel good about the conditions that he finds himself in.
+
+the feeling of good or bad is an emotional reaction to perception. whenever something feels bad, then that means the underlying perception is not in alignment with the way the "higer self" inner divinity, source or whatever sees the same set of conditions.
+
+---
+
+I mentioned this because that's the same thing I'm going through right now. after I wrote that long ramble, I went outside and started to think about it. an image popped into my head reminding me of the scene in the matrix where trinity brings neo back to life when she kisses him. he had died in the matrix to agent smith. later on he defeates agent smith when he becomes agent.
+
+however, the idea of being saved by someone seems repulsive to me. I have gone to great extents to learn how to not rely on other people for a manifestation that this feels counter-intuitive to me.
+
+the reality is, I'm getting very good at what I do. like, really really good -- and, I don't think it would take more than a year or so to be able to accomplish it myself.
+
+---
+
+the obvious connection between these two concepts is that just like I was saying about dad that the conditions are just that, and I too have to find a way to perceive those conditions in a way that feels good.
+
+that's it really. I went to sleep pretty distraught about this because it feels like I'm completely out of control and I'm sort of just going with the flow. that really is the aquarian man. it's a guy that feels so strongly that feeling is primary reality, and he navigates based on how he feels, not the physical manifestations that are happening. a sort of "go with the flow and find a way to feel good about it anyway" guy.
+
+that really is the way that I perceive myself: stick me into any situation and no matter what it is, I find my way back to feeling good about it, and nevermind the physical conditions.
+
+this is a nearly perfect host for parasites, and I think a lot of people have used me to create the things that they want. I have recognised this, and is the whole concept behind the galaxy/mars idea. they can just use my energy to feel good. obviusly when dependent on someone else, it inspires them to feel worse because they feel like they can't control it -- but, they have no other choice. if they don't depend on someone else to create their reality for them, everything will come crashing down. this is fine though because I continue to feel better, so it doesn't matter how much worse they feel, I'll feel better so it's like a net zero, and I think I actually more of a net gain. it's the whole concept behind going for the worst manifestation.
+
+I always shoot for the best manifestation, but they will constantly prevent that and ensure that it's not the best. well, eventually, the "worst" manifestation isn't that bad, even though it could be so much more. I just have to constantly find a way to feel good anyway.
+
+---
+
+I was thinking about this as a sequence of changes, and each time that I wait (or walk away) from the manifestation that I don't want, then it builds up to a bigger manifestation. this is good right now while I'm still quite physically oriented. the longer I wait, the bigger and better the manifestation becomes.
+
+it's like compound interest. however when I withdrawl that money I begin to incur losses from the physical manifestation (like homes deteriorate, need repairs, etc). the ideal would be have a continuous stream of incremental manifestations, never with any of them too strong that they catch my attention too much, and each leaving the most to be desired. I don't believe that can be done physically. instead, if manifestations become more frequent, it has to be perception that keeps me from getting caught in the manifestation[^1].
+
+so the way this looks to me is a good way to practise to become much more interested in how I feel than what is happening physically around me. the better I get at that, the more I will gain that perception.
+
+---
+
+finally, a tale of two earths. the other thing I noticed in all of this when I thought about the old "cultures" idea, is that I may have been more cancer-like back then, but now I am basically very capricorn. I want to do things my own way, yet it appears that I'm going to find myself in a much more cancer-like manifestation.
+
+the effect I think this has is a slight shift in the split that's going to happen. I actually don't believe there will be a cataclysm (unless we come back to sabotage it, that is). I think there are two major lines of expression here, one being the aquarian (go with the flow) man. and the lion man. the way I see it, the aquarian man will not have a cataclysm because there are ways to fix that problem, and it feels like there are people who want to actually go toward wanted. I will label this group the "let's min/max us and our conditions". it's conditional sure, but they know what they want and they know how to get it. it feels to me like they have a much more softness to female in that they think they are important.
+
+the other group is the lion man group, and this is largely the "I want to know my receptive side and girls are the ones that need improving". I kind of fit into both of those categories, actually. not only do I like the idea of being a lot more receptive to my reality as a reflection of how I perceive/feel, but I also like min/maxing all aspects of myself.
+
+it occurred to me that it's likely that both of these realities may take place, and we'll just be separated by time, rather than space. it may even be the case that we have contact between the two planets and even trade between them too.
+
+so, in that sense, there is no need to try and figure out how to separate us physically. we can instead just go different ways. more on that idea later, but I don't think either will experience a cataclysm.
+
+btw, providing a way for people to conveniently upgrade their bodies solves the over-population issue, maintains profit for those wanting to continue to capitalise on that, and other things, too :)
+
+this likely isn't the final plan. I have a way of flip-flopping back and fourth, meanwhile moving the centre in the direction that feels best. so expect further ideas.
+
+no matter what anybody tells you, words and ideas can change the world.
+
+[1]: as time goes on, in order to escape these constant physical manifestations, I'll manifest bodies that have less and less interest in the physical and become more and more conceptual. so, like source is basically non-physical on one end and they keep becoming more non-physical being so much further out ahead (as a function of frequency of perception), than we are. a planet would be more. a star even more... the higher up you go, the less physical things are and the more conceptual they become.
