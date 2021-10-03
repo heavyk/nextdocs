@@ -2043,3 +2043,72 @@ the last thing to think of was why I mentioned that the structure should be tune
 another idea would be to create a feedback loop where a group of females were given stronger perception the more harmful earth energies there are, and the males are given stronger perception as a function of the females' harmful energies.
 
 there are various ideas to be brainstormed for sure, but a positive reward for negative effects sounds like recipe for a disaster.
+
+
+### 2021-10-03 00:40 - not sure how I feel about this
+
+a number of interesting things happened today which have left me not so sure what I feel. mom told me that she thinks dad's heath is deteriorating very rapidly and it's not likely he'll last much longer. I didn't feel like I wanted to go to LA anyway so I declined to go even still.
+
+then, mom asked me if I was OK going to becky's house. I agreed to go. that produced a lot of reactions, and then I went to sleep for a bit. when I woke up, I had a lot of different ideas in my head about how to try and use the girls to manipulate me and other attempts to try and make it as difficult as possible for me to find my connection with the girls. reason is, if I'm going over there before I've found my connection, then we're sort of on the rocky style storyline where it's training and improvements.
+
+I honestly like that idea the best because I like steady improvements more than I like big manifestations, so this seems like a pretty good idea for me. especially if there is going to be efforts to try and use the girls to try and keep me from my connection. there will be all sorts of difficulties and things which we'll have to figure out.
+
+there are two problems with that. first, it's kind of a system that rewards problems (the squeaky wheel gets the grease). so, the girls with the most difficulties gets the most attention. great for ratings I guess. the other problem is that almost always my solution to the difficulty will be to find a way to perceive the same thing in a way which feels OK to good. we'll practise getting good at that. however, it doesn't actually incentivise them to actually *want* to feel good.
+
+for example, yesterday jerrica was perfectly content to feel terrible. she'd rather continue to believe that kyle is misbehaving and needs to be punished for it. she has no disire to feel good, because she quite notably felt terrible.
+
+I don't know how nasty any of the disagreements could possibly get, but there is little incentive for any of them to want to feel good. they can just use the condition (me or whatever situation) to feel good. rewarding the most problematic is going to produce the opposite of what I want to convey. in fact, the audience will benefit a lot more from the interactions than they will just because the audience has a greater desire to want to find a way to perceive their reality in a way which feels good (so they can attract a better feeling reality). man, I don't know how to explain this concept very well.
+
+the whole thing of what I've been doing is finding a way to perceive my reality in a way which is constantly feeling better. by getting better and better at this, I'm able to essentially see right through a lot of the mechanical illusion presented by the "facts".
+
+I really enjoy continuing on my journey getting better and better at that. I really cannot explain (though I'm going to try in my next entry) to explain what it's like to be able to do what I'm doing. I'm clearly not there yet because I'm still not able yet to feel the way I want to feel about anything. if I felt like a tiger, I would appear like a tiger to you all. if I felt light, I could float. if I felt like I could pee, I could pee.
+
+obviously, I still have a little ways to go. I estimate I still have at least a few months until I'm quite practised at feeling how I want to feel.
+
+from my perspective, there really is no rush. I want to figure out a way to produce a situation where I can be with the girls, but that it won't be an easy one, and they'll simply have to find a way to perceive the situation in a way which feels good to them. I don't know how to do that.
+
+---
+
+the thing is too, that it's none of my business what any of the girls do. if they wish to become very conditional and try and find ways to utilise conditions rather than perception to feel the way they want, that's entirely their decision. that has nothing to do with me.
+
+this is essentially the problem with all manifestations -- they are conditions, and obviously I don't have anything to do with how other people perceive those conditions. like dad: he has condittons around him and it's his decision to perceive those conditions however he chooses. this has nothing to do with me.
+
+speaking of which, one of the thoughts that passed through my mind today was the possibility of transferring dad's consciousness into jackson's body on birth. that idea felt very good to me, and strangely enough it sort of fits with that one idea where I noticed that I was experiencing both sides of the monomyth simultaneously -- with the exception of "attonement with the father" I thought maybe would be something perhaps to do with mr. motor, but I imagine that I'll know jackson at least once in the future, and if that's dad, then maybe that's that. who knows. I look for symbolic patterns everywhere I go. I can't help it.
+
+---
+
+the last major hurdle for me is that I'm kind of ho-hum about the whole thing. it doesn't feel at all like something that I feel comfortable being able to accomplish. I know there will be tons of failures, so I guess we'll just have to get used to that. it's definitely going to have to be a thing where it's OK to fail. I'm pretty good at failing though so this really isn't a problem for me. I just don't like dragging other people into my failures.
+
+it's not performance anxiety because I just do my best no matter what I'm doing. that has to be good enough, but I do already know that measured physically it won't be good enough. however, I do know that I'll be able to feel good about it no matter what. I think that's what makes me popular to people is that I don't have any miraculous physical skills. I only show capability to perceive things in a way which feels good, about thing most people would be embarrassed or feel bad about. I am good at that, true.
+
+---
+
+when it comes to the idea of creating a structure (or various structures) capable of transforming earth's vibrations into higher frequency vibrations, is actually my main subject of interest right now.
+
+ever since I talked about the difference between temporally resonant energies (electrons) and spatially resonant energies (protons), I've been thinking a lot about how to use hydrogen to transform earth's energies like earthquakes into high frequency protons, which I associate with consciousness and perception. I really think there is something to the "giza power plant" idea, cept I don't think that chemicals were used as the source of hydrogen. I think the hydrogen was pulled in from the environment, and the queen's chamber shafts were tuning mechanisms.
+
+it feels like I can see how the whole thing fits together if I could play around with it a bit more in my mind. it feels like there are missing pieces to my understanding of the thing, but I feel like I'm starting to get close. it shouldn't be too long before I attract the understanding I need for those missing pieces.
+
+I figure that this structure needs to go up rather soon, and definitely 2038 will be the deadline for that one considering that each 8 solar cycles will be stronger than the last until the gleissberg cycle resets.
+
+I find it interesting to think about what others think of that idea. I have the sense that it's kinda split. some want the disaster and others want the 5d age of aquarius. maybe it's both. I don't really know.
+
+it feels to me like I will want to find my connection before too long so that can happen.
+
+---
+
+there's also a weird thing that I noticed with the magnetic field too. I had an idea in the shower called "making the veil" where large HHO generators are put in the oceans. just assume they have the capacity to generate large portions of power to run these things. the hydrogen will be released up and out of the water. the oxygen will be combined with other oxygen to form O2 and then a carbon added to it, creating CO2, which is then released in mass into the air. this will greatly reduce the magnetic field of the earth because the surface receives less solar energy.
+
+anyway, this idea must have been a gift from YHVH for them because right after having the idea is when the girls thing was proposed. they must feel confident they can quell the effects of a strengthinging magnetic field and slow earth's rotation again.
+
+whatever happened, they must have figured how to regulate it because the field will rise rapidly and then immediately it drops down instantly or flatlines when otherwise it would be a very strong field. this has happened three times now right when I started to feel the girls quite strongly (sat 08:30, sun 09:00, sun 23:10).
+
+so, it appears they can manipulate field strength pretty well which is what I associate with heat, but they can't really reduce the high frequency vibrations. I experience this as more detailed emotions and knowledge, but less intense. it's no longer like a strong knowing, but instead like a small inkling. good for practise.
+
+---
+
+so I have no idea what is in store for my stay at becky's house... I guess we'll have to see.
+
+one thing is that I am thinking it may be kind of best to start small. then, there are a few paths: if the girls can create replicas, then we can do that other invite-only type network (this direction has an exclusive feel to it) or to expand slowly creating something similar to the "cultures" idea from a long time ago (also feels pretty exclusive).
+
+personally, because I want to find my connection, I'm just going to keep holding back and expanding. I want to hang out with becky cause that sounds fun, but I don't really want to make anything happen. it'll happen probably whenever it becomes inevitable.
