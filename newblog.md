@@ -2170,3 +2170,67 @@ this likely isn't the final plan. I have a way of flip-flopping back and fourth,
 no matter what anybody tells you, words and ideas can change the world.
 
 [1]: as time goes on, in order to escape these constant physical manifestations, I'll manifest bodies that have less and less interest in the physical and become more and more conceptual. so, like source is basically non-physical on one end and they keep becoming more non-physical being so much further out ahead (as a function of frequency of perception), than we are. a planet would be more. a star even more... the higher up you go, the less physical things are and the more conceptual they become.
+
+### 2021-10-04 18:05 - the tree of the knowledge of good and evil
+
+@[youtube](https://www.youtube.com/watch?v=3HscbeaOxIc)
+
+I watched this yesterday and I was surprised at how much I enjoyed the clip. I had no idea about the sybyll which told the roman timeline up till 2012. he also talked about spontaneous emergence of life. I first saw this with david puchta's experiments with his "linear paul magnetezium"(?). I obviously have a similar thinking that life can emerge, grow, and thrive in even the harshest of conditions. I have often been fascinated by this resiliance that some lifeform exhibit. they usually appear to be more simple creatures, less complicated lifeforms -- sort of like biological robots.
+
+that video is quite old, so I continued on to see what his latest stuff was about. the only other reference I had was some other guy I saw on youtube making fun of his new ascension 3.0 or something -- as if, the previous two versions weren't very good. I will admit it had enough camera angles and buzzwords to fully qualify for "all flash and no substance" marketing, but I was surprised how coherent he was in that last video.
+
+@[youtube](https://www.youtube.com/watch?v=_YlPx0-ebVU)
+
+this one is totally different. he has fully taken the modern ETs approach to evolution of humankind. now, instead of spontaneous emergence of life each with a connection to source, and no real need for evolution -- just connection, now it's the ETs that want us to evolve, learn our lessons and grow up.
+
+there is one part in the video where the minister (forgot his name) is talking about how jesus was explaining the separating of the wheat from the tares. they're allowed to grow together for a time, then they're harvested separated and then the weeds are thrown into the fire.
+
+like I said, I have long been fascinated with these ultra resiliant organisms that can grow under even the harshest of conditions. I have not wondered how to get rid of them, but how to utilise their resiliance to produce a desirable organism that is capable of thriving in harsh circumstances.
+
+wheat needs a certain set of conditions to grow well. they're much more conditional than the weeds are.
+
+---
+
+anyway, when he was talking about that part where the "deceiver" had planted the weeds in the same field as the wheat, I said, "that's me" -- implying that I am the deceiver, the 7-headed dragon, satan/saturn, etc. now, whether I am actually, is kind of open for debate. say for example I am just a golem that is finding my connection to my source. it doesn't really matter the "identity" that I am. instead, I just follow my instinct considering the conditions.
+
+I've said also previously that I see a lot of similarities between myself and hitler. I could just as easily have been anyone from joan of arc to joseph smith. I really don't know. I found it weird in crowley's invocation of pan, he has all faces, and can take on any form.
+
+---
+
+now, I'd like to talk about the tree of the knowledge of good and evil. I consider these trees to be talking about two major sections of the brain, namely the PFC and the tree of life being the reptile brain.
+
+it's the gods of eden that have perception of the difference between good and evil, and I believe that the fire that enki gave us is the PFC, which right between the lobes is that pinecone, and the fire. I consider the reptile brain to be one's connection to source. it's instinctual and the most primitive part of the brain. the other side is perception, and this is the most complicated part of the brain -- the PFC. the PFC is the tuner and the reptile brain is the instinct.
+
+however, between the two of these lobes is the limbic (mammalian) brain, and this is what enables some mammals to be herded, while herding reptiles is a joke. some mammals have this more active than others: consider sheeps and goats, cats and dogs, etc.
+
+the main reason why I hang a lot of my understanding on a few pillars of perception is because of the power social perception has on the transition between perception and instinct is considerable. it's important to eshtablish a good connection to what you're tuned in to.
+
+if you're swayed by social pressures easily, you're diverting or inhibiting those signals before they can take effect. I mean obviously. you don't want to be like a child and just say whatever comes to your mind. you care about how people perceive you. you need to conform to social expectations, so you need to redirect those unacceptable instincts.
+
+---
+
+ok, now we have a look at perception. there is an idea that things are good or bad. however, that just isn't true. good and bad are constructs that society impose on perception, and other things that you inherit from your culture, parents, or whatever. doesn't really matter where it came from.
+
+what matters is that it's malleable and that you can perceive anything in any way that you want to perceive it. this the foundation of all sales and marketing. the difference is they're trying to sell things, and I'm saying that perception is your tuner. it's easy to notice how much environmental conditions has an effect on perception -- like if you're eating wheat flower or not. however, I'm much more weedlike in the sense that I don't believe that conditions are everything. I think it has to do with perception. so if seemingly undesirable conditions can be perceived in a way which makes them tolerable or desirable, then they stop having a negative effect. as an example, if I brush my teeth with flouride, I get crazy visions and stuff. whereas, for others this apparently calcifies the pineal.
+
+---
+
+so, you have these two trees and they both have their good sides and bad sides. personally, I don't find anything wrong with addictive people, because they're mostly in the reptile brain. a lot have even bypassed the social pressures to be a way and will follow that addiction even though their behaviour has been demonised by someone influential. sure, it's true that these addicted people have the perception that the whatever addiction is their only way to feel good. no big deal. they'll eventually get tired of it theirselves. I definitely don't want to try and influence/shepherd them to go the way I think they should go.
+
+---
+
+responding to the feedback about the weeds being thrown into fire now. energy will continue to rise and and that'll amplify all emotion -- both the good and the bad. you may come to the conclusion that you want to find conditions which produce good results (like the wheat) or you may want to find a way to perceive the conditions in a way which makes them appear tolerable or desirable.
+
+I think the image of the fire is a bit misleading. first of all, fire is what prometheus gave to the humans when we got the PFC, which I believe works directly with the pineal, and this is what produces the fire.
+
+fire is none other than a reality that is moving so fast, that it could be perceived as fire because the way you feel is manifesting your reality rapidly. if you don't feel good, it'll be uncomfortable and bothersome (like a bad trip), but if you feel good, you'll feel good.
+
+in the first video, david described this as a galactic wave. others have said that this galactic wave is the precursor to the mininova. I am of the opinion that all solar activity is a result of the different planet's perceptual differences.
+
+right now, the solar cycle is locked to jupiter and his perception. when other planet's magnetic (emotional/conceptual) interaction with the sun produces incompatible realities, these produce sunspots and even sometimes flares.
+
+I don't know if it is a galactic wave or not. I don't have enough information to tell. whether it's a galactic wave or someone with strong perception like me that's increasing energies, it's a super amplifier, so if you feel bad, you'll feel worse, and if you feel good you'll feel better. you can imagine that will increase the number of incompatible realities on the sun, which will cause that mininova event.
+
+so, whether this fire is a mininova, galactic wave, increase in earth's magnetic field, someone like me's effect on society, or some combination of those is irrelevant to me. clearly this is the time of increased perception (call it ascension if you want) for all.
+
+time to get used to creating your reality at ever increasing speeds.
