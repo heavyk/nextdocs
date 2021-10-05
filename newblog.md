@@ -2234,3 +2234,30 @@ I don't know if it is a galactic wave or not. I don't have enough information to
 so, whether this fire is a mininova, galactic wave, increase in earth's magnetic field, someone like me's effect on society, or some combination of those is irrelevant to me. clearly this is the time of increased perception (call it ascension if you want) for all.
 
 time to get used to creating your reality at ever increasing speeds.
+
+### 2021-10-04 23:34 - I'm getting close
+
+I was out watching stars just now and it was pretty easy to get into the zone. I actually got so close to the edge tonight that I even began to feel the tingling sensation at the bottom of my spine that happens when the "kundalini" energy rises up the spine. I stopped it though.
+
+last night, I totally lost concentration because the feeling was so warm and soothing that I nearly went over the edge also. I came in and tried to go to sleep, but every time that I relaxed, I got the same "swooning" sensation that happens before entering into a full visionary experience. it had the extra effect of feeling weightless and that my perception was also lifting out of my body. again, I stopped it.
+
+my goal is to continue on getting that close but actively stopping it. my goal is to see if I can figure out a way to make that one structure that I was talking about that will transform earth energies into higher frequency ones.
+
+I really have been thinking about this a lot because the structure is actually two part. electricity, like the network can couple with something in space, like a person's nervious system, the retina of the eye or whatever -- and couple with the person's vibrations (emotion, thought, sensation, etc.). however, something like the great pyramid is not dynamic in that sense. it can only resonate with similar proton density things. people come in all shapes and sizes, but the resonance of the earth changes seldomly.
+
+therefore, to create a system that couples with both the earth and also people was previously impossible. it has only been since the invention of tesla's world system that something like this is possible. creating a feedback loop similar to the one I proposed. I still don't know if it's the best idea, but it goes like this:
+
+a group of people are selected (G1), and their perception (G2P) is inversely proprtional to planet's energetic env (PE). a second group's perception (G2P) is inversely proportional to G1E. finally, the earth's perception (conductivity of the air?) is inversely proportional to G2E.
+
+when g2e decreases, pp increases
+when pe decreases, g1p increases
+when g1e decreases, g2p decreases
+
+something like that. it's pretty difficult to try and relate these in maths identiteies, but the idea is that they balance each other out. 
+
+so like imagine I'm a person living on the planet and I'm not in either of those groups. I want better conditons, so that means I desire for g2e to decrease. if I am desiring for someone else to have more disharmonious vibrations, then that means I too am tuned into that so that means that I'll begin to have an effect on the planet. the stronger one's perception, the more effect they have on the planet. therefore, because pe is decreasing, g1p will increase. if g1e decreases as a result, then g2p will increase.
+
+man, I'm getting confused really badly. I can't figure out how to model this in my head and I'm too lazy to run a program. it can be modeled pretty easily though. as a person's perception increases, they have more of an effect on the planet, theirselves and those around them (basic LOA). obviously some will be more affected than others, so there is some dynamic to it and this can be used to determine the hidden variable of that person's perceptive resiliance.
+
+this is too hard. I don't want to figure this out :)
+
