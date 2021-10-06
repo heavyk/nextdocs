@@ -2261,3 +2261,56 @@ man, I'm getting confused really badly. I can't figure out how to model this in 
 
 this is too hard. I don't want to figure this out :)
 
+### 2021-10-05 23:10 - I'm essentially a construct of their perception
+
+I woke up this afternoon with a numbe of different reactions, mostly concerning who I am. I don't know who I am. if I did, I'd be connected. (11:11) all consciousness cascades downward out of its source. this is why the perfectly good brand-new cells in your body orgalise into a structure that appears old.
+
+anyway, on to the reactions... the first one is the observation that if I were put into many different timelines and performed deeds for the custodians, then does that make me bad.
+
+my response to that is, no it just makes me very conditional. depending on the conditions that I'm put in and the circumstances that I'm around I behave different ways. for example, I grew up in a weird christian cult. I could sense that something wasn't quite right -- but, how did I know that? in a previous lifetime almost certainly I just followed blindly believing whatever they say. as usual, the person asking questions is perceived as dangerous. they can't really tell dad that he can't bring one of his kids to church so they just kept an eye on me, most likely noticing that I was becoming a bigger and bigger problem. they left the church early on in my life (think I was like 8-10yo).
+
+what I mean is those conditions no longer got me. I remain pretty naive and can believe people easily, but I learn as I go.
+
+as a kid, I grew up thinking war was a good thing and that it's important to be sure that "God" is always winning. I also liked guns and all sorts of stuff. so, starting there, I could easily see that given the right circumstances and influences, I could easily be someone like hitler or something. I remember distinctly that implements of war made me feel really good. I really liked the idea of creating things that can kill more people.
+
+so what seems to be the case is that I'm directly influenced by how things feel to me. it would have been very easy to get me involved with the military -- that is, until I showed up to boot-camp. there is nothing that feels good about boot-camp. similarly, there was nothing that felt good about the cult we were in either which is why I was asking so many questions. however, for example later on we went to the revival movement. there were a lot of bad vibes I remember from a lot of dudes that wanted to get especially handsy with female church attendents, especially while praying for people. however, I did also notice that I did actually see people getting healed, and there were a lot of genuine moments that felt good.
+
+I used to be very "all or nothing" with my perception too, thinking that something was either pure evil or pure good. I noticed that started to change when I was in paznaz, because again there were a lot of genuinely good-feeling things that happened. I can't just throw away everything just cause some part of it felt bad.
+
+---
+
+so, what I'm trying to say is that I previously ran away or fought against the things that felt bad to me. that makes me very easy to guide. because I'm so naive, using mostly conditions, I can easily be guided toward the things that feel good to me. I can also associate certain emotions with other emotions pretty easily, so for example, you can imagine that someone who associates getting angry with feeling powerful (like every hollywood movie depicts), then one can easily create a hitler if you could reinforce the association of a feeling of power with a good feeling. then, just associate the feeling of power with getting angry. mix in a few more ingredients and you have your power hungry dictator recipe ready to go.
+
+this sort of being guided only based on how I feel, isn't the best way -- though it is better than consciously trying to push through all of the stuff that feels bad. there are also improvements that I can make on the conceptual associations that are made in my mind -- though, I don't know yet what they are.
+
+so, instead of just being purely guided by how things feel now, I take a new approach. this is sort of like LOA-2.0... the idea is that instead of tryign to go away from or go toward things that don't and do feel good, instead, I have learned to simply lower my resistance to whatever the manifestation may be, and if it feels bad, instead of running from or avoiding it, to instead perceive it in a way which feels good.
+
+this is essentially the difference between the tree of life and the tree of the knowledge of what feels good and what feels bad. in the tree of life, things are no longer perceived as being either good or bad anymore. they're all attracted based on a perception that I have, so I can either feel good (or not bad) about the manifestation -- or, I can change the perception which is attracting that manifestation.
+
+that's all there is to it; it really is that easy...
+
+---
+
+ok, now the other reaction was around why when I'm watching stars don't I just push through? just a few years ago I was talking about how eventually their machines would no longer be able to hold me back from getting connected and so I could get it anyway no matter what they're doing.
+
+that is true. I don't feel it necessary to get the manifestation. I prefer the practise. if they really wanted me to be connected, they would let go. you could also consider that they're actually slowing me down by not pushing so hard against me. I'm not really all that interested in trying to push through, so I'm actually self-limiting.
+
+what this means, in the bigger picture is that I'm construct of their perception. my reaction to them previously was illustrative of how they were going about things. they were pushing really hard and trying to make things happen, and I mirrored that.
+
+now, they must be much more chilled out about things and so therefore, I again mirror that too.
+
+I'm not trying to figure out how to get to the manifestation/conditions that I think will make me feel good. instead, I'm getting better at perceiving my present situation in a way that feels good.
+
+this is also being mirrored in other things around the subject of science. I noticed last night that there are two extremes that are notable. one is how rapidly something oscillates (the frequency) and the other is the amplitude. take a galaxy for example. the wavelength is millions of lightyears in time length. it's amplitude is also millions of lightyears in distance. however, at the same time that a galaxy has produces frequencies that are faster than gamma waves (this I believe is what allows elements to exist). those amplitudes are not likely very high.
+
+so, when it comes to science, I personally prefer the most simple most rapid high frequency form of perception (this is my these high frequency waves being the carrier wave for all elements). however, there are other branches of science that prefer the most complicated form of explanation. this is perfectly fine. I don't have any resistance to the idea that someone else perfers the complicated.
+
+I think of this like going on a walk. you could go on a walk, and if you only traveled a planck distance from the chair, I could take a zillion walks a second, but not get very much satisfaction out of any of them. to really get a good walk in, I want to travel a long distance before returning home. you could say the universe does this every (pick a number) billion years. that's a really long walk.
+
+so, when I think of this in the bigger scheme of life, consider that I was hitler for a moment. I think of this like the step leaders from lightning. those are different attempts that appear to be useless, but I would guess that if someone did the math on it, each step leader is like a correction for the next ones to get closer to the destination. the lightning rod is attracting a bunch of electrons back home, but it has to find its way back. each attempt gets closer and closer. the bigger the distance, the bigger the potential.
+
+so often, I want to tell people trying to direct my path, "just let me go my own way for a while. even if you think it's not the right way, let me do the course correction and find my way toward where I want to go."
+
+in the bigger picture of things, a timeline in the life of hitler would just give me a better sense of direction.
+
+there really is no good or evil; it's all attraction.
