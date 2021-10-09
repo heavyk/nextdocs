@@ -2314,3 +2314,82 @@ so often, I want to tell people trying to direct my path, "just let me go my own
 in the bigger picture of things, a timeline in the life of hitler would just give me a better sense of direction.
 
 there really is no good or evil; it's all attraction.
+
+
+### 2021-10-08 16:17 - cow guy vs elephant guy
+
+@[youtube](https://www.youtube.com/watch?v=NDWxLxh6dWQ)
+
+when watching this guy's videos on indian temples, I noticed a few things. first of all, the process that's used is a subtractive process. they start with a giant solid peice of stone, then carve out the basic shapes, often into rough or blocky sections to get the basic shape, then removing more and more matter to create finer and finer detail. interestingly virtually all of these temples, I can identify parts that are not quite finished. all over, it seems to me like there were thousands of people working on these temples all over the place, and then all of a sudden somebody cut off the power.
+
+the other thing I notice is similar to the inca in that there are also constructions made of brick and mortar built in the same style. if they had the capacity to remove stone with such relative ease, why did they all stop so suddenly? I belive the stone temples are a lot older.
+
+---
+
+looking at the symbols in the carvings, I notice a few progressions. there is a cow guy and also an elephant guy that are often depicted there.
+
+I think they are the same guy, and there was a bit of a decision which timeline to take. it appears that cow guy won.
+
+I postulate that the announced of the next era symbolically appears to people as a symbol representing the era that is one ahead[^1]. so, for example, in taurus after some event a fish guy shows up to people all over the planet and brings civilisation and farming techniques.
+
+the other really visible one that directly mirrors this is the notable confict in people's perception whether he was the son of man (the aquarian man) or the lion of judah (leo). it states very specifically that he was the stone that the builders rejected, and so therefore cannot be the lion of judah. if he were the lion of judah, then it would appear our trajectory would be toward leo.
+
+what this all amounts to is that these two conflicting symbols create a split in perception and something dramatic happens as a result. I believe it likely that these carvings would be from a time around 6-8kya at the end of saggitarius.
+
+interestingly, I think this was about the time that the great pyramid broke. that may have been the power source for all of these temples. additionally, I find it interesting that there are two major styles of constructing things -- the addative process, and the subtractive process. pre-dynastic egypt has a very interesting mix of these two. on one side you have these massive pyramids built with the addative process (cutting, stacking, and arranging blocks) while at the centre there are these stone boxes and obelisks which are created using the subtractive process. start with a single piece of stone and then remove material until the resonant dimensions are created.
+
+---
+
+I roughly put the zodiac axis as going between the galactic centre and taurus (aldebaron?). the left side of the zodiac I consider to be the masculine side. I also notice that the upper half has seems to be different as well. for example, though the left is masculine, there is a difference between the upper half and the lower half. in the upper half, there is where you have the stories of the amazonas. consider the upper half to be something more of a matriarchy and the lower to be more of a patriarchy.
+
+during the time these temples were being carved, there was a lot of goddess worship and "divine feminine" energy present. I find it likely that the majority of the carvings (if not all) were done by girls. they must be doing most of the carvings with their mental energy (maybe channeled through a copper instrument) and so then if that's the case, these carvings would be a sort of insight into their outlook. 
+
+they seem to have a whole different perspective on things, in that it appears that there is an iterative process that they're taking to decorating these temples. it seems also that they're quite scattered, leaving a part doing another idea they have, then coming back to it later. it definitely looks like they're going around just working on whatever "tickles their fancy" -- not too dissimilar to the way I do things[^2]. it's this idea of only working on the things that interest you and that you want to do. this keeps things interesting and avoids burnout because you're only working on the things that interest you. this is the opposite perspective of having some top-down mandated list of tasks that needs to be accomplished.
+
+---
+
+this appears to me to be somewhat similar to what is beginning to take place today. yesterday, when I woke up, I had a lot of things in my mind that gave me the impression that we were going to aquarius. it seems like the plan is to get a number of things in place that will keep energies from getting out of control.
+
+I believe that this time, it will be exactly the opposite of the last time. this time we're going toward sirius, not away.. and so the structure that's being built to keep energies balanced has the opposite goal. since energies are rising, this structure will be used more to prevent anyone from having too much of an effect on the planet. it's a bit of a thing to solve. consider for a moment how large of an effect I have on the planet. it's because I have such a strong emotional capacity. the more I feel, the more I attract a reality.
+
+I have this theory that there is a "probability management group" that has invested a lot of time and resources into ensuring that there are no improbable circemstances that take place. I notice this happening all the time when I'm playing hearthstone. if I start feeling too good (doesn't matter if I'm winning or not), it seems like there is effort to put bad-feeling thoughts into my head to ensure that I don't feel too good. I've noticed that if I take a very stable and consistent feeling, never feeling too good or too bad, then I seem to be better. however, the minute I start feeling really bad (and my wins are low), then miraculous events start happening in my favour. likewise, if I start feeling too good (and my wins are not low), then it seems like the opponent gets these ridiculous things. I think mattchmaking has more to do with feels than it has to do with MMR at this point (at least in my case).
+
+this isn't the only place that I notice this effect. for example, if I'm joking with jaron for breakfast and I'm feeling pretty good, something will happen (mom comes down or dramatic subject change) which will try and normalise the feels. likewise, if I plunge head-first into a bad-feeling topic with jaron (or at the harbor or whatever), again there seems to be a tremendous amount of effort that is taken to try and neutralise this. someone will interrupt me, change the subject or whatever. from my perspective. from my perspective, this appears to me like a bunch of people turn into agent smith whenever things are getting "off track".
+
+I think there is considerable effort that has been taken to ensure that feels are maintained at a certain level. so if you find a way to feel really good, then there must be a relatively equal amount of bad feeling. some people are getting on these roller-coasters that are going WAYYY up and then coming WAYYY down later.
+
+my goal is not to try and see how long I can sustain a good feeling, but instead "keep it in the centre" -- never feeling too good or too bad either. I oscillate there and stay pretty consistent now. what that allows me to do is to feel pretty good emotionally, though physically things are pretty drab.
+
+this capacity to feel emotion so consistently means that the moment that I start to feel good physically, I begin to "cross over to the other side".
+
+I think that my goal is not to cross over anytime soon. I think I want to allow them to get their full system into place. this is the next great pyramid like system that will completely regulate all of our experiences so that we don't ever have too many experiences that feel too good (and therefore have too noticable of an impact on the planet). this system I think will continue to expand out to include automatic manipulation of a person's timeline so that they never feel too good (much like how it is for me now).
+
+---
+
+so, this is just a temporary detour. eventually in 6ky, there will be another elephant man vs cow man episode, and if they want to remain in the masculine side of things, the machine will have to break and the world turn over again to get back down to taurus. or, keep the machine and go to libra. so, in the bigger scheme of things, it all works out. this is so far into the future, none of us will see this, so it's not even worth it to worry about it. they want to kick the can down the road a little further and I'm totally fine with that. it gives me a whole lot more of an opportuninty to keep doing what I do which is to find a way to feel good no matter the circumstances.
+
+now, from my perspective this appears to be quite desirable. they have to try and figure out how to keep me physically focused for as long as possible. what that means is feeling sensation as a physical manifestation rather than an emotion. their machine will be able to control physical manifestations (the way you feel physically when you feel good), which because it's a much stronger signal can easily drown out the way you really feel.
+
+the sense that I had when waking up was that they wanted to keep me as far away from being able to feel that physical/conceptual feeling. to describe this difference, I'd like to use an example. when I create something I am not at all like tesla, in that I usually don't have the final result idea in my head. most of the time, I have no idea what the final result will look like or any of its implementation aspects. I just have an idea of how it will feel. as I go, I get an idea which leads me to a thing which makes the creation feel more like how I want it to feel. if I get stuck too much on a difficult spot, I start to feel the difficulty which creates more difficulty. I then have to take a break and get back to how the creation feels, not the difficulty feels. when I do that I typically can see where the bug is or know the solution -- and it's because I can feel the created thing.
+
+extend that out a bit further and notice that the stronger I can feel something becoming a reality (without noticing the reality of its present state), then the faster the creation manifests. 
+
+going back to the creation of these temples, it appears that there are multiple phases. the first is that the rough or blocky shape is created. this has sharp edges, and then those sharp edges are refined and smoothed out until they are smooth and perfect. I don't know who made the blocky shapes that were then intricately detailed, but personally, I don't see intricate details. I see blocky shapes that have a function, design, meaning, or purpose. later, when the details are added, they give it a unique and specific feel that the artist imbues into it.
+
+mental disturbances. I'll come back to this later.
+
+---
+
+anyway, it seems obvious to me that eventually I'll make my transition and have to start over again. it seems obvious to me that this time and in future lives, they'll have to keep me constantly distracted with shiny fun physical things. this will, in this sense, be another week of lovemaking for enkidu (symbolically speaking). what I mean is that I'll continue to find more and more ways to optimise my experience so that emotion is what I perceive to be real and more significant than the physical.
+
+it appears to me to be like a really unique challenge that I don't think many will understand. they'll just see a mix of seemingly "good" physical manifestations, and I'm appearing to have less and less of a reaction to them the whole time. I'm optimising out the roller-coaster so that I can oscillate more and more rapidly around the centre. this is a pretty good stability platform for someone who wants to try and see how long they they can experience only good-feeling manifestations.
+
+this reminds me very much of the galaxy, with wavelengths hundreds of thousands of light years across, while also emitting a (magnetic?) carrier wave outward at such a high frequency that it maintains the existance of physical elements.
+
+pretty cool, I guess.
+
+[1]: the one that I can't really figure out is that there had to have been someone in scorpio that symbolically appeared as a ram which brought us into taurus. I get the sense that this may be connected to the mithras cult which was the roman version. though, now that I think of it, this may have been in aries and he looked like the aquarian man. the ophiuchus guy that mathisson talks about. dunno these all so well. I'd love to figure this out better.
+
+[2]: it also reminds me of the way andreas approaches creating tasks for SerenityOS.
+
+### 2021-10-08 ??:?? - redefinition of the zone
