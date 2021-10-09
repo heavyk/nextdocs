@@ -2393,3 +2393,56 @@ pretty cool, I guess.
 [2]: it also reminds me of the way andreas approaches creating tasks for SerenityOS.
 
 ### 2021-10-08 ??:?? - redefinition of the zone
+### 2021-10-09 05:56 - theory for the origin of the longheads
+
+I've often been fasccinated by the longheads (18th dynasty, paracas, caspian sea). they are this enigmatic peaceful civilsation that appears out of nowhere in history, and then they just get run over by these aggressive factions [watching curtis' docementary series](https://www.youtube.com/watch?v=Vj84EeXAeMI&list=PLu4Nza39ZZYWXv2cwsmlK9VZ4Neb7msYi), I started to really explore this idea because the 18th dynasty is this strange thing that happens when all of a sudden the amun priesthood is abolished by some longheads, and replaced with "atem" -- which, I don't think is monotheiesm, but the idea that there is this "aten" energy present in everything and it is radiated outward most predominantly from the sun.
+
+this idea that the source is present in everyone would be extremely unpopular to a priesthood with the economic strength founded on the fear of death and one's capacity to enter the afterlife. if everyone has built-in access to this "aten" source ("the sun gives warmth to the just and unjust alike") then, there's no need for a priesthood. they're not the sales middleman helping you to get into the afterlife.
+
+you can see how that would be perceived as a pretty big threat to them. btw, these priests are seen throughout history attempting to prevent humans from realising that we are eternal beings in a physical body. they can only sell you something you already have, if you're convinced you don't have it or are scared that only some elite few have access to it...
+
+however, I believe that whole establishing of the amarna and aten was a distraction to hide what was really happening.
+
+---
+
+there are three major colour groups that is written about by moses as the "sons of noah". we all know that the noah story (and the reed basket on the nile) is directly lifted from the akkadians, so we know that moses is talking about the younger dryas, and the three sons of noah are three population groups that he is identifying.
+
+- shem: (red) these are the atlantians, semites, gilgamesh, the ones originating from mars. they seem to be the progenitors of the babylonians, akkadians, etc.
+- ham: (black) these are the khemit, the original goddess worshipping inhabitants. nubians, kush, etc.
+- japheth: (white) these are the cro magnon, adamites, the sons of man, enkidu, etc. the new breed of hybrid humans built by mixing the red ones with primates.
+
+so it seems that these are the original warring factions in egypt. in upper (southern) egypt, they hae the white crown, and osiris is always seen wearing the crown, plus the feathers. the north part of egypt, cairo, the subduer mars is the red part and they invade south egypt. those two hats are interesting, but then I noticed another hat show up. it's blue and it looks like a longhead, the "khepresh". it's weird because I see this crown also making its debut in the 18th dynasty. I will now associate blue with the longheads.
+
+it's also interesting to note the crown starts with "kh" -- a prefix for khemet, knum, (and I think also associated with akhet, sekhmet). the letter k is an interesting one... just saying.
+
+as an another interesting sidenote, I also notice that often times osiris, khnum, and sobek are depicted as having green skin. I think this is another association with those that bring green (water, rain, lush), as opposed to the god of the desert and chaos, set -- the enemy that osiris fought, and produced horus. I also associate horus as the egyptian version of enkidu. anyway, I think there may be a relation between these green martians and perhaps the viracocha/quetokoatl are all different cultures interpretations of the same thing. they knew how to make things green...
+
+---
+
+anyway, now on to the theory of the longheads: I think they were a genetic upgrade for humankind. just as I believe the spacecraft in area 51 was designed to be shot down and reverse engineered, I think the longheads were designed to be conquered and get their genetics introduced into the gene pool.
+
+when I watched curtis' [documentary on nefertari](https://www.youtube.com/watch?v=bEr1vWsobDw), I had the sense that ramses "usurped" so many statues of so many things that were clearly not built by him, because he actually believed himself to be the reincarnation of the people in the the statues that he usurped. I also had this sense that he held nefertari to be the source of his perception. he says in a poem to her "the one for whom the sun doth shine" (@[youtube](https://www.youtube.com/watch?v=oe5iTs4INFQ)) -- an image very invoking of the aten imagery with the rays (of the sun/aten) decending.
+
+I think the [amarna tomb 1](https://en.wikipedia.org/wiki/Amarna_Tomb_1) tells the story visually. the main players are nefertiti, tiye, akhenaten and his dauthter, beketaten (meaning handmaid of aten).
+
+```
+The Lintel on the North Wall shows a depiction of the two royal families. On the left hand side Akhenaten and Nefertiti are shown seated. Nefertiti turns toward Akhenaten. Before them four royal daughters are shown: Meritaten, Meketaten, Ankhesenpaaten and Neferneferuaten Tasherit. All four girls are holding plume shaped wands. On the right side Amenhotep III is shown seated opposite Queen Tiye who is accompanied by the princess Baketaten. Three female attendants are shown behind Tiye.
+```
+
+this is showing that "aten" is being transferred from one royal family to another -- IMO, from akhenaten and nefertiti (who's father is ay?) to amenhotep III -- through queen tiye (passing through the daughter baketaten).
+
+I made this realisation when I started to look at the statue of queen tuya in the vatican. [on their page](https://www.museivaticani.va/content/museivaticani/en/collezioni/musei/museo-gregoriano-egizio/sala-v--statuario/statua-della-regina-tuia.html), they say:
+
+```
+This work, sculpted during Dynasty XVIII with the features of Queen Tiye, wife of Amenhotep III, was “usurped” and reused during the Dynasty XIX by Ramesses II, who dedicated it to his mother Tuya. This queen, who had an important political and court role, received after her death a funerary cult associated with that of her son in the so-called Ramesseum, the burial site of Ramesses situated in West Thebes, where this statue would originally have been erected.
+On the left side of the dorsal pillar the princess Henutmire is depicted, described in the brief inscription as the “royal daughter” or the “royal wife”. Considered in the past to have been one of the daughters of Ramesses II, Henutmire has now been identified as one of the pharaoh’s sisters, possibly the daughter of the same father Seti I. Her statue would have been brought to Rome and placed in the “Gardens of Sallust” of the emperor Caligula, along with the statues of Ptolemy II, Arsinoë II and Drusilla-Arsinoë.
+```
+
+---
+
+ramses was red haired (eg. white), and was also born in the hyxsos capital of avara, so he must have been on the amun priesthood's radar. he was cunning and knew to let them have their silly priesthood and to just keep quiet about the things. I think ramses knew this but couldn't say anything. learning from the amarna fail that trying to push against the amun priesthood isn't a good idea, I find it very likely that rameses II knew this and left these clues behind telling people that he knew what was up.
+
+also, strangely enough, hollywood has depicted queen tiye as the adopting mother of moses. since moses clearly preddates her by a lot, this seems to be an intentional mistake. she has the famous line, "Bithiah could charm tears from a crocodile" -- which is likely a reference to sobek a green skinned crocodile, which also makes an appearance in nefertari's tomb.
+
+that's my theory so far, but someone in hollywood must also know something about this... for sure :)
+
