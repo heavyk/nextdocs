@@ -2388,7 +2388,7 @@ this reminds me very much of the galaxy, with wavelengths hundreds of thousands 
 
 pretty cool, I guess.
 
-[1]: the one that I can't really figure out is that there had to have been someone in scorpio that symbolically appeared as a ram which brought us into taurus. I get the sense that this may be connected to the mithras cult which was the roman version. though, now that I think of it, this may have been in aries and he looked like the aquarian man. the ophiuchus guy that mathisson talks about. dunno these all so well. I'd love to figure this out better.
+[1]: the one that I can't really figure out is that there had to have been someone in scorpio that symbolically appeared as a ram which brought us into taurus (khnum?). I get the sense that this may be connected to the mithras cult which was the roman version. though, now that I think of it, mithras may have been in aries (having slayed the bull), so he is the first prototype for the aquarian man. this may have something to do with the ophiuchus guy that mathisson talks about. dunno these all so well. I'd love to figure this out better.
 
 [2]: it also reminds me of the way andreas approaches creating tasks for SerenityOS.
 
