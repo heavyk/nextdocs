@@ -2423,7 +2423,7 @@ anyway, now on to the theory of the longheads: I think they were a genetic upgra
 
 when I watched curtis' [documentary on nefertari](https://www.youtube.com/watch?v=bEr1vWsobDw), I had the sense that ramses "usurped" so many statues of so many things that were clearly not built by him, because he actually believed himself to be the reincarnation of the people in the the statues that he usurped. I also had this sense that he held nefertari to be the source of his perception. he says in a poem to her "the one for whom the sun doth shine" (@[youtube](https://www.youtube.com/watch?v=oe5iTs4INFQ)) -- an image very invoking of the aten imagery with the rays (of the sun/aten) decending.
 
-I think the [amarna tomb 1](https://en.wikipedia.org/wiki/Amarna_Tomb_1) tells the story visually. the main players are nefertiti, tiye, akhenaten and his dauthter, beketaten (meaning handmaid of aten).
+I think the [amarna tomb 1](https://en.wikipedia.org/wiki/Amarna_Tomb_1) tells the story visually. the main players are nefertiti, tiye, akhenaten and his daughter, [beketaten](https://en.wikipedia.org/wiki/Beketaten) (meaning handmaid of aten).
 
 ```
 The Lintel on the North Wall shows a depiction of the two royal families. On the left hand side Akhenaten and Nefertiti are shown seated. Nefertiti turns toward Akhenaten. Before them four royal daughters are shown: Meritaten, Meketaten, Ankhesenpaaten and Neferneferuaten Tasherit. All four girls are holding plume shaped wands. On the right side Amenhotep III is shown seated opposite Queen Tiye who is accompanied by the princess Baketaten. Three female attendants are shown behind Tiye.
@@ -2458,7 +2458,7 @@ at that time, the star sirius is beginning to go from red to white. the goddess 
 
 I think this was causing an escallating amount of war and division. "we want to do it our way (and not have to depend on the girls)" almost certainly was their ethos at that time. these incompatible realities are, I believe the source of extreme solar activity. I think khnum was also from mars but he was one of the ones on enki's side of things (hence the green skin). I find it likely that he or ptah created the great pyramid to maintain stability for long enough time for the adam/enkidu to repopulate the earth. this time from capricorn to saggitarius is what I'm calling the week (6ky) of lovemaking that enkidu went through to begin to become civilised.
 
-further, khnum has the ram's head meaning he has the symbol of the following era. so, if we're in the end of saggitarius, and he's perceived as a ram, that means in 2ky, we're entering into picsis. the graffiti inside of the pyramid identifies khnum-khufu. it's hard to get a read on khufu, but we know that the amun priesthood destroyed as much as they could about him (just like akhenaten), because he also supposedly interrupted their priesthood a bit as well.
+further, khnum has the ram's head meaning he has the symbol of the following era. so, if we're in the end of saggitarius, and he's perceived as a ram, that means in 2ky, we're entering into picsis.
 
 ---
 
