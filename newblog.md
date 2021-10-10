@@ -2446,3 +2446,55 @@ also, strangely enough, hollywood has depicted queen tiye as the adopting mother
 
 that's my theory so far, but someone in hollywood must also know something about this... for sure :)
 
+### 2021-10-09 16:39 - khnum's event, moses, the colour blue, and the enkidu's second week of lovemaking
+
+one of the reactions that I had was wondering about noah's event. I think that there was an event that happenned roughly 5-6kya but I don't think that it was noah's flood. noah's flood must be referring to the younger dryas period ~12kya, because that is the flood myth that utnapishtim is the star of. he tells the same story, but instead of using the god enki as the protagonist for the humans, I believe that moses was referring to aten as YHVH (source). that would have been the maverick version but then got custodialised.
+
+before we get into that, I just want to say that moses was the slayer of the cow (taurus) and so therefore would have the symbol of aquarius which may be why he has the story of YHVH punishing moses for striking the stone instead of speaking to it. assuming that the stone always symbolises the current paradigm, this is likely a reference to moses having the symbol of the aquarian man, and using force (eg. the exodus) instead of speaking with the rock.
+
+khnum however I believe has the correct symbols for this event 6kya. we know that the reboot of egypt covilisation started with a lot of cow goddess worship. I think goddess worship would have been retained from the end of saggitarius. so, right as we get to the sun rising with the galactic centre something major happens roughly 6kya that puts us at the beginning of taurus. I believe this was a solar outburst produced by increasingly incompatible realities.
+
+at that time, the star sirius is beginning to go from red to white. the goddess divine feminine "hunter gatherer" culture was in full swing and the shepherd kings were begginning to not want to have to depend on females anymore for their perception. sirius is no longer in the waning phase so energies are beginning to rise up again. they wanted a male-dominated society, but not a lot of people were wanting to change.
+
+I think this was causing an escallating amount of war and division. "we want to do it our way (and not have to depend on the girls)" almost certainly was their ethos at that time. these incompatible realities are, I believe the source of extreme solar activity. I think khnum was also from mars but he was one of the ones on enki's side of things (hence the green skin). I find it likely that he or ptah created the great pyramid to maintain stability for long enough time for the adam/enkidu to repopulate the earth. this time from capricorn to saggitarius is what I'm calling the week (6ky) of lovemaking that enkidu went through to begin to become civilised.
+
+further, khnum has the ram's head meaning he has the symbol of the following era. so, if we're in the end of saggitarius, and he's perceived as a ram, that means in 2ky, we're entering into picsis. the graffiti inside of the pyramid identifies khnum-khufu. it's hard to get a read on khufu, but we know that the amun priesthood destroyed as much as they could about him (just like akhenaten), because he also supposedly interrupted their priesthood a bit as well.
+
+---
+
+jumping back to the 18th dynasty, I these longheads were a return back to the osirian way of doing things (goddess worship) and they must have had some mental capabilites that angered the amun priesthood. they are selling a bunch of potions, perfumes, and other useless stuff. they must have had psychic and telekinesis capabilities. I believe that these "superpowers" were the genetic upgrade that they added.
+
+also during this time sirius is now beginning to transition from white to blue as well. this is conjecture, but blue was not a colour that people could see in ancient antiquity. this (re?)discovery of the colour blue must have been significant -- a sort of sign of a coming new golden age.
+
+---
+
+what may actually be the case for moses is that actually the exodus was getting the goddess worshipping aten priesthood out of egypt. there is this thing with aaron and the cow statue. this is highly symbolic because it's presumed that venus was causing havoc in the solar system and so when moses got angry with them for going back to hathor worship (aaron was supposedly a priest in the temple of hathor). this event is symbolically saying, "no the goddess worship is done. we're doing it our own way now."
+
+there is some ideas that the ark of the covenant was an item that used to be in the great pyramid and that was what was removed. there is also this strange thing with the isreal flag being the star of david in blue and white. this, to me is symbolic of the breaking away from the red atlantian oppression.
+
+again, I think that originally moses was a maverick but the latest ufo custodians (eg. germans) severly distorted the timeline and through illusion they took over the YHVH role, giving them signs and wonders for them to marvel at so that they could believe that YHVH was the true god for them to serve.
+
+the colurs of blue and white tell me that they were leaving behind (running away from) unwanted, but LOA works in such a way that you cannot fight against something and expect it not to follow you. you're only fighting yourself and your own perception. well, it turns out that YHVH is a whole lot like the amun priesthood.
+
+for as long as they continue to need the manifestation to be able to believe it, then they will forever be duped by any sales person coming with a nice sounding imagery and a "good" message.
+
+---
+
+in the previouus entry, I made the mistake of confusing moses with senmut/joseph when I said that tiye predated moses. I am now of the opinion that may have been put into there actually to illustrate that moses actually had this longhead divine feminine in his genetics. I think this is important because having this genetic upgrade allows one greater psychic capabilities if it's unlocked.
+
+this lineage must be important that it's tracable to moses. if israel was the sole contributer to improved genetics, then ismael and the arab population as a whole would have this capabilitiy. I think it's the blue and the white that's so important.
+
+white (I think sepehr says this is loosly r1a) and red (I think sepehr said this is r1b) have been battling for quite a while now and are quite intermixed. the statue of queen tuya being venerated since the time of caligula means that they must know about the importance of this blue influnce.
+
+this brings us to the significance of the nazi party. when the aryan (white) revolution begins, they have the flag of red (mars), white (aryan), and a black (khem) swastika, which symbolises the change of the age and a major event which will change the direction of the sun. the romans has the sybil prophecy of the coming start of the golden age and a return back to the goddess and saturnian times -- and here are the nazi's that are saying they're white, but behaving like the reds and forcing a change of age.
+
+for the blue and whites, this would appear to be a total disaster.
+
+---
+
+what I think all of this amounts to is that originally the semites believed a story of enkidu spending a week leaving his animal nature behind, but then the conditions of earth (distance to sirius) allowed people to return back to their animal nature quite easily. this transformed and a series of timeline edits by the aryan custodians caused the "lion of judah" to be missed. instead, now enkidu (humankind) has to go back for another week (6ky) of lovemaking again.
+
+I guess the sybil's prophecy for the roman empire was actually correct. perhaps it's one of those pygmalian effects, I suppose.
+
+I think I was trying to hit as many racial tropes as I can in this one. lol...
+
