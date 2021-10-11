@@ -2498,3 +2498,96 @@ I guess the sybil's prophecy for the roman empire was actually correct. perhaps 
 
 I think I was trying to hit as many racial tropes as I can in this one. lol...
 
+### 2021-10-11 11:28 - quick update, I guess
+
+I sometimes dislike writing these because I feel like I'm just repeating myself so many times... the concepts are probably useful for them to try and block them, so in the interest of getting more practise, here goes...
+
+the last few days, especially after writing those crazy theories, I felt attraction to want to go into the snake-force discord. that idea came to me and it felt good, but then later there was a lot of chaos around the idea.
+
+the reality is, I don't really want to be public yet. I enjoy the quiet capability of just doing things at my own pace here. it is true that I do want to have some people shoot down some of my crazy ideas, as that often times fuels me to find out more. however, there is a niceness to the solo effort.
+
+I really am optimised for self-discovery. I don't really know how to work with other people anyway. all of my life, I've never gotten too far telling people my ideas. like, if I were to bring up some ideas to dani or to daniel, they would always be met with difficulty. I prefer to expand my ideas by myself. I'm really not afraid to get things wrong. I've almost certainly got a whole bunch of stuff wrong.
+
+also, my ideas are so far out there that it's really difficult to try even be on the same ... like, for example, I was watching another matthew la croix podcast and they were talking about stuff and I get it -- but I feel there is such a huge difference between our perceptions still. they're identifying a lot of conditions and stuff still and I get that some things are better than others, but I'm looking at things a whole new way now: I don't see good or bad anymore.
+
+I've sort of begun a whole new form of perception where I see perception now. like, I started out seeing a lot of conditions, but then I stopped seeing conditions and trained my heart to *feel* the way I wanted to feel, despite whatever signals my brain is telling me. this made it so that I could think something in my mind, feel something in my stomach, but something entirely differently in my heart. I gained a lot of stability that way. not a whole lot bothers my anymore.
+
+in fact so few things bother me now that I feel extremely comfortable just doing what I'm doing. there's no reason to try and feel better or to feel worse. I'm just getting really good at this stuff. there are tons of small things that are now apparent to me which were previously unperceived -- like it seems that I have some sort of forward looking dejavu..
+
+before I get into that, I want to finish my previous thought. first I saw condintions and instead of just unconsciously reacting to them, I gained the ability to notice that something doesn't feel good to me. I called them interrupts. then, I started to distinguish what the difference between my own bad-feeling and a bad feeling coming from an external source.
+
+after that I really began to consciously find new ways ways to perceive the same thing in another way which feels good. while doing that, I really began to learn the difference between origin of perception (focus) -- like from what vantage point am I looking at it from -- like, my own, a group's, the planet's, the solar system, etc.
+
+now, that I'm getting that pretty well down, I'm perceiving perception. I have begun to notice a lot how other people perceive the same thing. I first started to really notice how different circumstances in mr. motor's life would cause him to come to conclusions about things like why he never wants to feel good or why he thinks that everyone is out to dupe him. the simple answer is that it's all a reflection, and we are really all only fighting ourselves.
+
+reality is like the dual of our perception, and this allows me to perceive perception now. it's as if the whole thing makes logical sense to me now. the best way to describe this sensation would be something like implications, but more like feeling/perception implications instead of facts and data implications.
+
+---
+
+ok, going back to the deja vu thing. I was listening to @[youtube](https://www.youtube.com/watch?v=1V0pkZjiJq4), and in it russ is talking about how he can feel the deja vu and it's this recognition of something familiar, but he can't sense what's coming next. I can't either, but I noticed that I do have new beginning sense where it feels like I can *feel* what is coming next. I don't know what is coming next. I have had premonition where I *know* what is coming. I also sometimes have a sense of what is coming -- like a forboding -- but this is a bit different.
+
+it's still in it's very infant stages, so the feeling is still quite faint, but I would describe it something like how I experience music in an altered (stoned, etc) or quiet state. the music feels vibrant and more tangible. I don't know what is coming next, but the passage of the music feels so satifying. reality is becoming a landscape of sensation -- though more like concept. I can see the rolling hills in the distance, but everywhere that I am now feels different than out there.
+
+listing to music when I'm stoned, for example, I don't know what's coming next -- instead it feels novel and unique (even if I've heard the song many times before). it's only possible because my perception is becoming so fluid.
+
+---
+
+ok, so here's the only subject remaining, and it's another repeat. when it comes to the subject of girls, I have this serious flip-flopping action going on. mostly I find the whole thing so overwhelming that I don't really want to do anything. I'm going through such a radical transformation mentally that I find all of that completely unnecessary. obviously, I want to try and delay for as long as possible.
+
+I think there are countless timelines where I find my connection with the girls. there are not likely very many where I find it without them.
+
+I realise this kind of creates a bit of an issue because if I'm coming into the relationsship from a position of inferiority, then I work my way toward the goal with other people and we accomplish it together.
+
+I'm most optimal when I'm by myself though. I want to find my own perception, not hers. I want to figure it out for me. I got to the place that I'm at now being "selfish". I really like the idea of doing it all my own way.
+
+what I mean is this... imagine I'm running a marathon and some guy keeps asking me if I want a ride. I tell him no a bunch of times. I get right up to the finish line 10 metres away and decide to jump in the van and cross the finish line in the van. doesn't that seem weird?
+
+it's a pretty bad example though, but I don't know how to describe it. just, the idea of trying to figure out how to interact with some girls or one girl feels about as stressful(?) -- un poco coñazo. I just don't want to have to deal with others' perception yet. I'm just starting to get used to the idea that my own perception is fluid. adding other variables into the equation feels like it's complicating things. I don't want to have to try and integrate someone else's. I really want to get good at this.
+
+it's like asking an achemist who just discovered how to make gold, if he wants a job.
+
+---
+
+as a slight sidenote, yesterday I felt a desire to want to go out to the front of the house, but I ignored it. then, I felt a desire to want go to the side-yard and see the moon's relation to venus. when I did, I saw remi's car, and I had a noticable reaction to even the thought of trying to talk to her.
+
+in a recent entry, I talked about how instead of just being guided by feelings, I should follow desire and just find a way to feel good about the same thing. so, I should have paused, rearranged my mind to want to talk and then went out to the front, right? I mean, that is what I supposed I should do -- start to follow through on all of those ideas that felt good to me.
+
+the thing is, there really isn't any reason to talk to her. I don't have anything to say anyway. if I wanted to talk, I'd join the skake-bros discord, but I don't want to really talk. I enjoy the stability of doing nothing. when I have significant control over my reality, I'll be more congenial.
+
+---
+
+(all the pictures, inside my head)
+
+there's another huge problem that really makes me want to interact with others as well. I get a lot of really offensive/uncool images and thoughts popping into my head. I really am a huge problem. I don't really want to deal with that stuff. like, it's almost as if people's insecurities pop into my head, and whether they're visual or thoughts doesn't matter. they are really problematic.
+
+there was this thing that I really dislike when I'm around people -- and it's as if they feel they need to prove to me their insecurities are valid.
+
+I receive people's insecuries because I too have my own insecurities. the more my perception becomes fluid, the more I notice how other people perceive me. oviously, there's not a lot I can do about anything anyone perceives about me, so the fact that it feels bad is obvious evidence that I have that perception wrong.
+
+---
+
+next topic is the idea of whether there will or won't be a cataclysm or not. I don't think there will be -- at least not from my perspective. if there are people that think there will be one, then that means there is desire to go back and sabotage this timeline. I find that basically 100% probable, so yes there will be, but also no there won't be. if you need a cataclysm, it's coming. you're already on that timeline. I just need to get to a point where that timeline becomes desirable to me again.
+
+---
+
+next topic is that it feels like there are two groups forming. there is one group that wants to use technology to create the required conditions for the desired manifestation. the other group is the one that I'm in.
+
+neither group will experience a cataclysm, and that's fine. that's not the problem. the problem is the idea of there being a group. man, I just want to go at it myself.
+
+so, like take the cultures idea, and it requires that a whole bunch of me's are there doing stuff. if I'm connected, then I believe I will outsource that to another me. if I'm not, then I don't want to do it. see what I mean?
+
+so, you could say that my not wanting to do it is rooted in others' perception of me, but it's not really that. let's just say it is though. what I need to do then is to find a way to no longer perceive others' perception of me. that's what I'm doing right now, and when I get there I'll be connected.
+
+so it's sort of like saying, "I don't want to get there until I'm there". what I'm saying is that when I'm ready for the group, I'm also ready for many groups. there's no difference. my connection, in that sense, is inevitable, and once I'm connected, then as many groups can form as want to form. there isn't a limit. I am now a sort of species rather than an individual person. I'll be able to move my perception around between parts just like I can't continue to breathe naturally when I focus my attention to my breathing.
+
+fluidity of perception.
+
+---
+
+I really am learning very fast, and I believe I'll have all of this down pretty well very soon. the rest, I'll learn as I go.
+
+I would say that right now the trajectory I'm on is that I'm just going to keep getting better and better at what I'm doing. eventually, I'll get connected. I don't have any idea what that feels like, so I can't really say what that'll be like.
+
+we'll just have to see how it goes. nosebook could let go if they wanted to. they don't want to though, so I'm just going to keep going.
+
+
