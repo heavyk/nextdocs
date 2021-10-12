@@ -2649,3 +2649,59 @@ the symbol following that one is the twins. this is a major change because now t
 maybe you can try to figure out how to make it both. this ties into the "tale of two earths" idea, that we're divided by time rather than by space. there are some symbolic hurdles though.
 
 @[youtube](https://www.youtube.com/watch?v=rF9YvT8pTgw)
+
+### 2021-10-12 03:32 - a bit of a followup
+
+#### did I mean that I'm stuck sabotaging timelines for as long as people still want a cataclysm?
+
+yes, I think that is how time works. they will experience the sabotaged timeline directly, even if I only tune into it at a later time.
+
+thinking on that creates a huge problem because of a perception of linear time. if I go and do say hundreds of years in a timeline, then go back to tune into the timeline, were those people waiting for me to show up? or, was it something like sleep, where you only assume that the place you wake up in is the same place that you left behind and only the difference in the hours that changed on the clock has passed. in reality thousands of years could have passed in that 8hr time that I was asleep. it only appears like those two time segments are connected, when in reality they are not.
+
+then, the second problem that it creates is if I go back and I alter the timeline to sabotage it worse than the one that people already perceived, or is the one that they perceived the one that I sabotaged? which one did they see? then, who is me? what I mean is, if I'm source having a physical experience, why do I see this timeline? what is it that makes this reality the desired one to be perceived?
+
+surely I cannot go back and force someone else to perceive a different timeline if it's only attraction.
+
+maybe then, the other people in the altered version of the timeline are also me? it would seem that way, and the fact that I am perceiving this timeline means that it is the one that I (source) most desires to perceive.
+
+it's kind of crazy to think about, so I'll stop there.
+
+#### what did I mean about finding a way to feel good about conversing with remi?
+
+I also had a small desire to go on to the snake-bros discord but then later it was turned into chaos and stopped feeling so good. this is the same event. I had a feeling that I wanted to go look at the moon's relation to venus, then upon seeing remi's car, I suddenly felt as if I didn't want to go any further.
+
+same event; different people. so, why then don't I find a way to feel good about talking with people on the discord? because I don't want to. I want to go my own way. I don't want to jump in the van 10 metres from the finish line.
+
+#### more about crabs
+
+the change in my symbolism from crab to symbolism is likely a recent change. I believe I contained a lot of the crab symbolism because that is what I did with my left-side after the haemorrhage. I had to protect, nurture, and care for my left side. because it behaves so much more differently than my right side, I had to learn a lot and we had to learn to work together to create the things that I wanted to make.
+
+this is not how I am today, at all. my left-side is very disabled and I'm very much right-sided. I don't have interest in working together with anyone. I want to go my own way and stuff. I'm definitely the goat.
+
+#### a new way to look at the zodiac
+
+as I have been paying attention to the zodiac, I have noticed that people have noticed that I see the zodiac very differently than others do. I want to get more of it down soon, but here's a preview because it's relevant to the previous section.
+
+it appears to me that each of the four quadrants have four triads in them. two MMF and two MFF. each gender is ruled by the opposite gender. the top left one is MMF. the two boys are aquaman and goat. these represent the two extremes of male tendency. one is "go with the flow" (aquaman) and the other one is "I'm doin it my way" (goat). the reason why I intro'd the last entry with the "american way" is because that very much is the theme of the USA. whether it's colombus and the crypto jews or the breakaway british colonies or tesla's trek to the land of dreams:
+
+> I wish that I could put in words my first impressions of this country. In the Arabian Tales I read how genii transported people into a land of dreams to live thru delightful adventures. My case was just the reverse. The genii had carried me from a world of dreams into one of realities. What I had left was beautiful, artistic and fascinating in every way; what I saw here was machined, rough and unattractive. A burly policeman was twirling his stick which looked to me as big as a log. I approached him politely with the request to direct me. "Six blocks down, then to the left,"he said, with murder in his eyes. "Is this America?" I asked myself in painful surprise. "It is a century behind Europe in civilization." When I went abroad in 1889 - five years having elapsed 
+since my arrival here - I became convinced that it was more than one hundred years AHEAD of Europe and nothing has happened to this day to change my opinion.
+
+that passage didn't actually capture what I wanted to get across, because I cannot remember the part. however, this very much is the wild west -- the land of cowboys and "make your own rules" style of conduct. in spain it's all about who you know. here, it's not so much who you know (though some people think so), it's much more about making your own rules and then giving others or pretending you follow a different set of rules. hard to describe.
+
+anyway, this is clearly the goat in every way shape and form. it's quite possible that the major change really begun to take place as soon as I left spain, now that I think about it. I think that was definitely the major change.
+
+#### how to have both?
+
+I dunno. I really don't. there needs to be separation though because the incompatible realities will still continue to collide and cause things to accelerate out of control. if it's not now, it will be later.
+
+on a more abstract level, I'm fine just going with the flow. I think it's really the only way. there's no way to fight against anything anyone else is doing anything but a reflection of that.
+
+the way that I envisioned this was the idea that the martians could be the lions that are all tring to prove their awsomeness by representation of the pride they're in or leading. it's very american football btw. then, the people here have a lot less control over our conditions. nosebook has to ensure that we never get the technical or whatever capabilities that could allow us to leave the planet. the martians would have to play the puppet strings to try and figure out what is actually the best direction that they want for humankind.
+
+we'll be here and we'll be here and having fun. our planet will begin to lose a lot of its density and spin really rapidly. we'll interact with each other in countless realities here, becoming more and more attractive as we go. to us, this place will become more and more of a paradise where things become more and more a thought manifestation and less of a physical manifestation.
+
+that's literally the best idea I've come up with so far. beyond that, I dunno. at the rate things are going, something will show up for sure. I will constantly be a construct of your perception[^1], whether that's a cataclysm or something else. I'm fairly certain I was summoned for that reason (for those who know what I'm talking about).
+
+[1]: which is essentially desire, just like fear is a negative desire.
+
