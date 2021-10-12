@@ -2590,4 +2590,62 @@ I would say that right now the trajectory I'm on is that I'm just going to keep 
 
 we'll just have to see how it goes. nosebook could let go if they wanted to. they don't want to though, so I'm just going to keep going.
 
+### 2021-10-11 19:58 - the aquarian way
 
+@[youtube](https://www.youtube.com/watch?v=D_X8O3_MlWc)
+
+I woke up this evening with an interesting idea in my mind. you know that one entry where I wrote about cow guy vs elephant guy (@[newblog](2021-10-08 16:17))? the whole premise of that was to explain that I am a construct of your perception. I reflect (and so therefore we take the timeline) that matches that perception.
+
+I was meaning that to kind of say, choose how you see me. do I appear like a goat or a crab?
+
+the other day I woke up thinking about structure of entities. a crab or a turtle has it's structure on the outside (probably for protection). a crab does, but I had turtles when I was younger and they're very fragile. rigid structures can only take repeated impacts on the same place if the structure is harder that the impact; otherwise, there's damage to the structural integrity.
+
+in an organisational structure, I've found that rigid structures are very fragile and they become slow too, kind of like a turtle in that it takes a lot of effort to carry around such a rigid protective structure. there's a reason why our bones are on the inside of our body. snakes and octopi don't really have structure and I prefer this model much more for an organisation than a rigid one. in general, the lighter the structure, the more agile it is, but also the more fragile.
+
+a crab is literally the opposite of what I want to do. in that sense, I'm much more of a goat than a crab.
+
+---
+
+each set of symbols has an opposite and also is part of a progression. consider the way that I believe that the last time things happened like this. there is a cataclysm at the end of lion, and we find ourselves in goat. this is all about the feminine side nurturing the masculine side. the goat is all about doing things his way. in order to do something one's own way, there has to be a group paradigm that one has to reject.
+
+there are two very interesting zones of two amounts of heating in the greenland oxygen isotopes (@[youtube](https://youtu.be/G0Cp7DrvNLQ?t=2883)), which I think corresponds to basically the time in leo things warm up considerably. that was the hight of the atlantian civilisation, then things happen and we find ourselves in capricorn. humans get this "rebellous" idea that we're going to do it our way and build a big tower to reestablish the energetic conditions on earth again. again temperature rises there again, but then the tower is destroyed. I don't think the world turned over that time -- just minor stuff like a huge rise in sea level and stuff like that.
+
+this may be why there is such a huge scare happening around the global warming thing -- because someone knows somewhere that when energies are higher, then our thoughts carry more power and things manifest more rapidly.
+
+---
+
+ok, so getting back to the progression thing here. to me, it's clear that aquarius is all about going with the flow of things. leo however is all about showing everyone who's boss and the expression of selfishness from within the group. lions are very different cats from our small cats. I don't believe that our domestic cats organise into groups too much. the lion's "pride" is much more symbolically relevant to the "cultures" idea, with each culture being more similar to a pride.
+
+keep that in mind as we imagine the last time we were there. previous to that was virgo which is the self improvement of one's feminine side by their feminine side. so, the lion appears as a very dramatic change.
+
+or, imagine how different of a mindset it is for us to go from picsis into aquarius. aquarius is all about going with the flow. to understand, look at it as the opposite of leo. instead of selfish expression in a group, it's instead about individual expression while going with the flow. so imagine that you're on a giant river. you learn to navigate on top of the river rather than trying to change the course of the river.
+
+this is the capacity that I have accomplished and is why I consider myself to be a sort of symbol of the aquarian man. that is also the ojective of the game I want to create. I think it's also the same as the teachings of the tao and perhaps some hindu teachings as well.
+
+in the end, I'm just sort of going with the flow of things. I personally don't care how you guys choose to perceive me, as I don't really care.
+
+---
+
+let's just say that I retain the image of the goat, which will take us to aquarius. that means that the "stone" that is left behind is the piscean group-think mentality. there are certainly those that want to be in control of that. humankind's objective will then be to learn how to go with the flow because it's sort of like how I am now. I didn't get to the place I'm at now by fighting them. I just learned to go with the flow and find a way to perceive the dangerous rapids and sharp rocks as something fun and enjoyable, rather than something fearful or dangerous.
+
+so, looking at it from that perspective, things are defininitely looking pretty aquarian. what that means is that I have the imazge of the goat. I'm doing things my way -- and it may end up with meltwater pulse 1b as a result. not my problem :)
+
+---
+
+it feels to me that the direction that we're going is toward aquarius. there are a lot of efforts by a lot of people to ensure that all of us are put into a situation similar to the one that I'm in right now, where I don't have the economic control to get the conditions that I want (eg. great reset) -- thereby forcing humankind to begin to go with the flow and not fight it. your success is a result of your perception, not all of the people you defeated along the way get there.
+
+I mentioned two groups, and in that sense, the group that I'm in is actually more the aquarian group. the group that the techno-manifesters are in is much more the lion group, actually. they are not wanting to go with the flow. they want to get a bunch of people and use intention and other powerful forms of attraction to create the reality that they want.
+
+so, I guess it's kind of a bit of both as the ones wanting to go to aquaman are acting like lions, and the lions are being forced to go with the flow.
+
+---
+
+now, let's look at the crab. crab is opposite the goat. it's all about internalising and protecting. it's the masculine side nurturing and protecting the feminine so that it gets a chance to grow up.
+
+the symbol following that one is the twins. this is a major change because now these two forces have to be separated again. they can no longer be unified in the same rigid structure. even though they appear similar now, they must now learn to operate separately and become their own person.
+
+---
+
+maybe you can try to figure out how to make it both. this ties into the "tale of two earths" idea, that we're divided by time rather than by space. there are some symbolic hurdles though.
+
+@[youtube](https://www.youtube.com/watch?v=rF9YvT8pTgw)
