@@ -2705,3 +2705,51 @@ that's literally the best idea I've come up with so far. beyond that, I dunno. a
 
 [1]: which is essentially desire, just like fear is a negative desire.
 
+
+### 2021-10-13 23:28 - being a product of others' perception
+
+yesterday I watched the latest [SNL with kim kardashian](https://www.youtube.com/playlist?list=PLS_gQd8UB-hLgW28JScimD5RMz1gECwFK). I made the comment when I woke up that I was surprised to find out that she does actually know what she's doing, and has a lot more brains than is what I had gathered from hearing only others' opinions of her.
+
+I then made the comment that we're both products of peoples' perception, and she (like me) exists because that is what a lot of people are wanting to focus more of their attention on. I can't really say much about her cause I don't know. however, it is certainly the case that I'm figuring out things as fast as I am right now because I'm sharing them and people desire (as I do) to know more on the subjects.
+
+for me, this is the most incredible time of mental expansion for me and you guys are largely a part of that. if people didn't attract that from me, I would have to produce all of that desire myself.
+
+---
+
+there's an interesting problem that I notice for so many famous people, and that is they get locked into people's expectations for them, and if they try to become their own person, change, or be different than people expect them to be, everything sort of falls apart.
+
+in order to break away from people's expectations, they often resort to doing something very extreme like cutting all their hair off or something which changes their physical image dramatically.
+
+---
+
+I wrote all of that and I realised I don't really have a conclusion. I want to talk more about the attraction process because it may illuminate something.
+
+if a famous person is the product of their audience's perception, then they will feel obligated to continue to feed the audience what the audience is attracting from them. if the person decideds to go another way, it causes a lot of friction and problems.
+
+I wanted to write that in first-person, cause I have noticed for myself that instead of trying to push forward going the way I want to go, instead attract the things into my life that I do want.
+
+this is the hard part because by things, I don't mean physical objects. things for me are just ways that I feel. like, if I feel like I can understand the solar wind's interaction with the magnetic field, that's a "thing" I am attracting into my life. it's not tangible though. it's just a feeling. it's a knowledge that I feel like I get it. along the way there is evidence that shows up and helps me to come to the conclusion that I feel like I understand that.
+
+the next one I want to figure out is magnetism. it seems like it shouldn't be a problem. I bet it's all just a "monopole" and the dipole is just a perceived effect based on orientation. but, enough about that. I don't yet feel like I get it yet.
+
+---
+
+back on track here... if I want to alter my trajectory, I've found it difficult to just "go toward what I want". there are too many of people's perceptions in the way of that. so instead, I just let it come to me. it's the same process. I just allow myself to begin feeling a certain way (even though there's no evidence of it). then, evidence of the way that I feel starts to show up.
+
+so, how would someone else use this to attract what it and avoid the pushback from people's perception? well, it's to do with feeling. if you feel a way and others don't feel the same way, they won't feel as attracted to you, so they'll go somewhere else. you have to follow the way you want to feel.
+
+that's what I do. I just find a way to feel the way I want to feel. if some people don't feel that way, they will naturally find someone else that feels the way they want to feel. they'll produce another "influencer" to guide them to feel the way they want to feel.
+
+> I just wanna feel [someone] tell me where to go
+
+that really is all there is to it. you may lose some people along the way, but they'll find another influencer that they jive with.
+
+the word, "influencer" is a funny one, because there never is an imbalance of influence. both are attracting in proportion to their desire to feel that way.
+
+in that sense, the audience probably has more desire invested than I do.
+
+I think that's good. I may pick up on this again. it's a very interesting idea.
+
+---
+
+real quick, before I go, there is something to be said about the idea of trying to change my trajectory too much. if I am a good source of mental expansion for a lot of people, trying to take that away and silence that with a bunch of girls and mundane stuff, will only produce another influencer to fill my place. if that's the route that you're going, I'd recommend getting the right replacement ready.
