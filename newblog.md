@@ -2753,3 +2753,25 @@ I think that's good. I may pick up on this again. it's a very interesting idea.
 ---
 
 real quick, before I go, there is something to be said about the idea of trying to change my trajectory too much. if I am a good source of mental expansion for a lot of people, trying to take that away and silence that with a bunch of girls and mundane stuff, will only produce another influencer to fill my place. if that's the route that you're going, I'd recommend getting the right replacement ready.
+
+### 2021-10-15 12:37 - perception of good and evil
+
+as I've been making my transition to no longer perceiving beneficial/good or bad/evil, I noticed that a key component of the identification of good/evil is rooted in perception. the way that I perceive something has a lot to do with what others believe is good/evil as well.
+
+I have noticed that a lot of unwanted thoughts pop into my head and I can feel their dissonance because they're about taboo topics. like, for example, if I think about something like how gay people have sex for example. it's because I honestly have never seen someone have gay sex or had gay sex myself so I would wonder how it works, just like I would wonder how anything works. you may have noticed that I have a very inquizitive mind, and I'm constantly trying to figure out how things work and why people think, feel, and do things.
+
+the reason why those thoughts feel dissonant to me is because I can feel other people's reactions to those thoughts. they have an idea that those thoughts are good or bad and I should not be thinking them or something like that. to me however, they mean nothing. I'm constantly trying to identify patterns and I want to try and put everything into a nice category box so I can get better at knowing what to expect.
+
+---
+
+I noticed that as I'm perceiving good/evil less and less, I'm feeling less of these reactions, and so therefore I'm likely thinking a lot more "crazy" things these days. I just don't care. it's going to get worse, btw.
+
+another example is I have often times pondered male fertility. in the past there were something like 20x more females than males, as few males were being born. I watched a thing on this (@[youtube](https://www.youtube.com/watch?v=Uo-kSxHNSDQ)), and she says that the default is female and unless there is enough testosterone, the fetus will not become male. that means that for whatever reason some 18kya women were not producing enough testosterone.
+
+I also had noticed that a lot of strong women tend to produce more females. it also gives me the feeling like there is a battle that happens early on for the gender of the fetus. whoever is stronger (the male or female desire) will win and that will decide the gender of the baby.
+
+so, for example, I was trying to sort out a lot of different examples in my mind of people that I knew that got pregnant and what the results were. some interesting data would be to see how many sexual assult victims had boys and how many girls. I would guess mostly boys, and only girls in the case where the mother wasn't that bothered by the assault. I would also want to know stats on gay men. do they produce more boys than girls, and does the gender of the child match their top/bottom preference? also, if the mother hates a certain gender does she tend to give birth to that gender more often?
+
+---
+
+it's really nice no longer perceiving so many of these things as good or bad anymore. you'll really notice me start to losen up on a lot of these taboos as I'm influenced less and less by the reactions. it's soooooooo nice not having to worry about what others think, I'm tellin' ya.
