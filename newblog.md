@@ -2838,4 +2838,139 @@ you gonna optimise that, bro?
 
 [1]: getting some reactions as to why I don't come back and re-read these documents. it's because by the time I come back to them, the concept has changed so much that I don't perceive the concept but instead the edits that nosebook has made to the concept. I would rather rewrite/rebuild the concept from the ground up again than to try and sort through edits. a sound recording does not do this. hearing myself, I tune into my own thoughts instead of the reaction. this is why I repeat things I said to myself -- to tune back into the original and compare it to the reaction. text does not do that at all because I'm not really hearing this in my head. I'm hearing words, not ideas. the idea is somewhere else.
 
-last night while st
+### 2021-10-17 13:31 - the writing on the wall
+
+I've been singing the [stairway to heaven](https://genius.com/Led-zeppelin-stairway-to-heaven-lyrics) since last night. I wented to look up the lyrics because I found them fascinating. reading them, I noticed some things. I'm going to break them down here.
+
+
+> There's a lady who's sure all that glitters is gold
+> And she's buying a stairway to Heaven
+
+reading the genius annotations, it's clear that this is a reference to both a poem by tolkien and also a materialistic woman. she thinks that she can buy her entrance into heaven. I interpret heaven as enlightenment, but it may also have to do with the upper half of the zodiac, when considering the world tree image.
+
+> When she gets there she knows, if the stores are all closed
+> With a word she can get what she came for
+> Ooh, ooh, and she's buying a stairway to Heaven
+
+this picture of heaven having stores (that are closed) seems weird to me. point is, it's saying that once she gets to "heaven" (enlighenment or a higher state of consciousness), then she can still get what she's looking for. the thing that puzzles me is this part about getting what she came for. what is she coming for?
+
+in revelation 12, the whore of babylon is taken to heaven and she will give birth to the man who will rule the earth with an iron rod. I find this to be the most likely of the symbols. I dunno. maybe, "all that she wants, is *another* baby", yeah.
+
+> There's a sign on the wall, but she wants to be sure
+> 'Cause you know sometimes words have two meanings
+
+this part is very interesting. we're clearly talking about a sign on "the wall" -- so this is the anti-establishment sort of thing their album, "the wall" is talking about (we don't need no education .. thought control, etc.). it's also likely a reference to the sign of the writing on the wall in babylon that daniel helped the king of babylon interpret for him.
+
+it looks to me like, "count, count, weigh, divide" but the book of daniel tells us what they mean. essentially that there is a quanificaton of something, it didn't measure up, and so then the kingdom of babylon is going to be divided between the persians and medes.
+
+babylon is the semitic origin of humankind. this is gilgamesh. the persians and medes are an aryan empire. these are the new aryan rivals, so daniel is saying that the semites will lose to the aryans, which will then be divided between two different factions of aryans.
+
+this is a huge disaster. it says that the king feared and tben was conquered right after hearing that prophecy. it sounds to me eerily similar to the fall of constantanople, and I'm alredy getting some serious custodial vibes here. any time you see a "prophecy" creating fear in a ruler which spells the end of his kingdom, this is very certainly the "unseen hand" (seen, however in this case).
+
+the sign is evident. she wants to be sure the sign is real though... cause you know, maybe the words have another meaning (way to be be seen)...
+
+> In a tree by the brook, there's a songbird who sings
+> Sometimes all of our thoughts are misgiven
+
+> Ooh, makes me wonder
+> Ooh, makes me wonder
+
+same.
+
+> There's a feeling I get when I look to the west
+> And my spirit is crying for leaving
+> In my thoughts I have seen rings of smoke through the trees 
+> And the voices of those who stand looking
+
+just yesterday I was considering the idea of "westing" -- which is death.
+
+westinghouse in that sense literally means "dying-house". I found it interesting that tesla had worked for them. they later became CBS and viacom.
+
+> Ooh, it makes me wonder
+> Ooh, really makes me wonder
+
+what does that writing *really* mean?
+
+> And it's whispered that soon if we all call the tune
+> Then the piper will lead us to reason
+
+so, assume for a moment that the piper is the one from the proberb where he leads all of the children away. this gives the image of the "rapture" or the separation/division of those that are found to be heavier than the other ones. my plainly, this gives me the image of a desfase between children and adults. the less resistant ones are led away by the piper.
+
+so what it's saying here is, "you call the tune". decide what it is that you want, and that's the direction we'll go. interestingly, that is what I was saying in @[newblog](2021-10-16 19:52). all that's needed to be done is to decide what direction that we want to go and it's possible to make it happen.
+
+> And a new day will dawn for those who stand long
+> And the forests will echo with laughter
+
+this is clearly talking about "a new day" dawning, so I don't feel like my interpretation is too far off.
+
+> Remember laughter?
+> Oh-oh-oh-oh-woahhh
+
+fun??? we take ourselves too seriously to have fun... duh. no forest fun.
+
+> If there's a bustle in your hedgerow, don't be alarmed, now
+> It's just a spring clean for the May queen
+
+bustle in your hedgerow means boundaries and borders. I would imagine a lot of border problems an a complete dissolution of "nations" in a rapid manner.
+
+> Yes, there are two paths you can go by, but in the long run
+> There's still time to change the road you're on
+
+message from the future.
+
+> And it makes me wonder
+> Ohh, woah
+
+what does that text mean?
+
+> Your head is humming and it won't go
+
+probably means the piper's tune is stuck in your head like a mind virus...
+
+> In case you don't know
+> The piper's calling you to join him
+
+probably a messsage from now.
+
+> Dear lady, can you hear the wind blow? And did you know
+> Your stairway lies on the whispering wind?
+
+I have no idea what this means. genius has the following top rated annotation:
+
+```
+This section needs to be analyzed backward. “The whispering wind” is likely used as an analogy for popular opinion, as it was often used in lyrics around this time. “Whispering wind” acts as something everyone can feel and experience, just as everyone experiences actual wind.
+
+The author is then asking the lady if she can hear the popular opinion around her. This is likely in reference to her greed and use of money. It’s popular opinion that money, something the lady often uses, is worth value. But this line reveals the flaw in materialism. Her money is only good BECAUSE the popular opinion is that it’s worth something. Her reliance on the money she has, has resulted in her cutting off her closest friends and family to the point where she may not be able to “hear” them anymore.
+```
+
+so, going by that, the ones that are buying their stairway to heaven (people paying for usage of my perception?) should consult the public opinion and figure out which tune to tell the piper to play.
+
+she who pays [for the stairway to heaven], plays the tune.
+
+> And as we wind on down the road
+> Our shadows taller than our soul
+> There walks a lady we all know
+> Who shines white light and wants to show
+> How everything still turns to gold
+
+wait, maybe I'm the lady. maybe I'm the whore of babylon... anyway,
+
+> And if you listen very hard
+> The tune will come to you at last
+
+don't stress. the tune will come gradually.
+
+> When all are one and one is all
+> To be a *rock* and not to roll
+
+so, straight ahead, and not flipped over. aquarius, not leo.
+
+> And she's buying a stairway to Heaven
+
+---
+
+weird song... it seems pretty relevant...
+
+@[youtube](https://www.youtube.com/watch?v=uFytiAek8k8)
+
+still time to change the road we're on, indeed.
