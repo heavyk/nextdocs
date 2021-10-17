@@ -2775,3 +2775,67 @@ so, for example, I was trying to sort out a lot of different examples in my mind
 ---
 
 it's really nice no longer perceiving so many of these things as good or bad anymore. you'll really notice me start to losen up on a lot of these taboos as I'm influenced less and less by the reactions. it's soooooooo nice not having to worry about what others think, I'm tellin' ya.
+
+### 2021-10-16 19:52 - thoughtfulness
+
+- back on track for cataclysm???
+  - I was getting the feeling that the last thing that these guys want is to have to try and figure out how to deal with billions of humans. we know too much now. it seems I've corrupted you guys with too many thought viruses and they can't keep their charade going, the way it's presently carried out.
+  - therefore, they simply must resort to resetting us back and trying to keep everything secret using this new technology. most humans will be like me. it will appear as if there isn't a "network", and though it is obvious to those that are sensitive to others reactions to your thoughts, they will continue to claim that it does not exist and all of those reactions are just your imagination.
+  - obviously that isn't possible without a cataclysm. there needs to be a disaster which makes it appear that technology is gone.
+  - I'm going to assume that we've decided that is the way to go.
+what needs to be done to cause a cataclysm?
+- does me finding my alignment mean cataclysm?
+  - I think so. the way I see it happening is the huge peak happening at the edge of a square wave. it begins that rapid rise upward when I get my alignment. that means that there will be a brief period where the magnetic field gets really really strong.
+  - I believe an increase in magnetic field strength means increased intensity of emotion (hence the increase in cardiac failure during solar storms)
+  - I also belive an increase in magnetic field strength leads to faster rotation speed of the planet.
+  - almost certainly they are exerting force to try and slow down the earth from increasing its rotation speed, and that extra desire created by things appearing to spiral out of control will also continue to rise.
+  - at some point, I/we will make my transitition out of here, and when that happens, the environment earth will appear to lose a lot of brightness (the shining effect my aura has illuminating everything). it's the same effect that you have when going from dream reality where everything feels like it's going well into the waking state where it does not feel that good. it's like waking up from a good dream, and it'll appear as if everything suddenly all starts to fall apart as the earth rotation rapidly slows and then reverses.
+  - this essentially happens because I'm getting better and better at giving feeling what I want to feel and so more and more wanted things are coming to me. they do not want that though. wanted for me is unwanted for them. they don't want me/us knowing how electricity works, how LOA works or anything good. they only perceive good/evil and have to try and make sure certain people get good and others that will figure out their charade get the bad. etc. to the rest of the world that feels like going more and more toward wanted, that is until I go away. then, the source of that feeling leaves and all that is left is the strong feeling of unwanted.
+  - this is completely unavoidable. I can't go back to perceiving "bad" things in a way which feels bad to me. it does not matter how awful or terrible whatever it is, those things are just conditions. good and evil are the perceptual result of thought leading to a manifestation. therefore, I'm going to continue to feel better and better automatically
+- so, if they want the cataclysm so badly, and to try and reset us back to a place where they think they can control it all, why not just let them give it their best shot?
+  - this appears to me as ridiculous, but I don't have to live their agony. why they're so hell-bent on fighting battles to near extinction only to want another bail-out again is totally out of my realm of comprehension in this format. however, I do see that I could imagine myself coming to a similar conclusion if I didn't know how powerless I am to ever manifest anything of value when I'm so certain of my failure.
+  - I don't decide what others should or shouldn't do. they can do whatever they feel is the right way to go. they will *eventually* find their way. I can't label one path good and the other paths as bad or evil.
+  - from my perspective, there isn't such a thing as good and bad.
+    - imagine for a minute that I make my transition and leave all unwanted behind. eventually, I want to come back and experience unwanted again.
+    - from the bigger picture of things, when I take on the perspective of source, not only am I the "bad guys" but I am also the "good guys" too. at the most these "bad guys" don't appear to be any larger of an event than a common cold/flu. from this perspective, the details of this experience appear to be a really big deal, but I assure you that from a planetary or solar perspective this is nothing more than reading comic books in bed while waiting for the fever to subside.
+    - this whole thing really is just business as usual. I like to think of it as nothing more than a genetic algorithm.
+      - I am now 100% certain that both enki and enlil have the same source.
+      - if you want to create an evolution, there needs to be desire for it. so someone needs to show up and build desire to have something. this is the dime bag. once you have it, you want more. this is enki.
+      - then there needs to be someone that tries to prevent you from having the thing that you want. this is enlil.
+      - then, you have to find a way around his devices to get it for yourself. this is the fitness function.
+      - the top performers create their own reality and the rest create their own destruction and start another generation. this is the cataclysm.
+      - the evolution is stored in the gnome, so a mechanism needs to be put into place for the enlil function to survive and improve his system of oppression.
+
+something like that...
+
+### 2021-10-16 20:36 - an interesting way to view time
+
+yesterday I watched a joe rogan clip and the news host commenting on joe's demeanor said that getting interviewed by him is a very intense thing because you're in there for so long with him and he's a human lie detector, so he just shreds your ideas to pieces.
+
+I can imagine if you have things you want to protect, that could be very mentally draining. however, for me that is quite the opposite. I'm actually fairly certain that I would tire joe out first, anyway. I also don't have anything to hide so it feels like a mental explosion when someone is trying to get something out of my head. this is why I enjoy talking to so many people about these things -- because their desire to extract information out of my head allows it to flow out much easier. also, the fact that it would be recorded is also really nice too because I can go back and listen to it again later. I love listening to myself[^1]. I always learn so much hearing myself talk vocalise things different ways to different people.
+
+---
+
+so, I was imagining conversations and topics that I could talk about with joe, trying to guess his sorts of replies and questions. I came to a question about time, perception, and you're always in the now. I can't remember how it went exactly but the explanation was brilliant.
+
+imagine that the way you perceive reality now is an inflection point (kind of like a fret is to a guitar string) or perhaps an entire game. I perceive a world with a lot of people out to get me, difficult to find food, etc. and this is the game I'm playing now. I can play it for as long as I want to play it and it's the same game. eventually, I tire of the game and start to want something new so I desire a little bit different game. I want a game with beautiful cars in it, and I can believe that other people can drive these cars, so in this version, I watch other people driving these cars. I continue on doing that for as long as I believe that those cars are only for other people.
+
+finally maybe some day I may actually make another version of the game where I drive the cars. I can continue to drive those cars for as long as I want. that is "now" and I do the things that I believe I need to do to be able to drive those cars, etc.
+
+you can see how the game that you play is the version of now that you're playing in. each time you sleep you wake up to a slightly different version of that game. each time you make a conscious choice to alter your perception of reality, again you move from one version to another. it doesn't matter how long you play those games for, they are all "now" -- and they're all just enough to get you to create the next version of now that you want to live.
+
+some species have a very long running version of now. many species of cockroaches, for example, have been running the same version of now for probably millions of years. they don't need to update their RealityOS. it's still working just fine.
+
+obviously genetics, epigenetics, culture, language, and other things definitely affect how the now game is played.
+
+---
+
+there is a presently implemented now game in your physical body (genome), but that one is always out of date. your "source" always has the latest version, and you're trying to figure out how to accomplish those newer forms of perception (versions of now).
+
+you navigate toward a new version by changing your perception. the way you perceive things is directly related to how you conceptualise your reality. the way you conceptualise your reality is always anchored in emotion. how you feel affects how you perceive the world.
+
+you gonna optimise that, bro?
+
+[1]: getting some reactions as to why I don't come back and re-read these documents. it's because by the time I come back to them, the concept has changed so much that I don't perceive the concept but instead the edits that nosebook has made to the concept. I would rather rewrite/rebuild the concept from the ground up again than to try and sort through edits. a sound recording does not do this. hearing myself, I tune into my own thoughts instead of the reaction. this is why I repeat things I said to myself -- to tune back into the original and compare it to the reaction. text does not do that at all because I'm not really hearing this in my head. I'm hearing words, not ideas. the idea is somewhere else.
+
+last night while st
