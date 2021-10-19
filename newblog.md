@@ -2974,3 +2974,53 @@ weird song... it seems pretty relevant...
 @[youtube](https://www.youtube.com/watch?v=uFytiAek8k8)
 
 still time to change the road we're on, indeed.
+
+### 2021-10-18 20:28 - the new gilgamesh
+
+I was just out watching stars and I had a wierd set of things cross my mind. I was really wondering why mom was really trying to get me to talk to jessica and andrew this morning, when neither of them really wanted to talk to me, yet yesterday after I wrote the previous entry, it felt like they did want to talk to me a lot more. I didn't go upstairs though cause greg was talking to her and stuff and then she had to go.
+
+anyway, she asked me if *I* liked the spoons for the baby. I don't care, so I don't know why she kept asking if *I* like the baby's toys. I was reminded of the thing where I was talking about @[newblog](2021-09-21 23:11) where I said that transferring my consciousness into jackson would be another way to make it possible to have none.
+
+after writing yesterday's entry, it occurred to me that the words to "santa is coming to town" match that. the way I remembered the lyrics is, he's counting it once, counting it twice, gonna see who's naughty and nice. that could easily be "count, count, weigh, divide".
+
+I don't want to try and read too far into anything at all. the reality is, I don't really know. believe what you think. considering my trajectory, it certainly does feel like that is not only a possiblity but nearly guaranteed at this point. it may even be sooner than the winter solstice actually. it's getting so easy to star-watch that it is literally effortless now. I just relax and it starts to happen. no effort is required other than to go out there.
+
+so, I would say a very very good likelihood that it'll happen sometime relatively soon. that is, as long as I don't get transferred into jackson's body.
+
+---
+
+so I was thinking about this transfer. it may actually happen. I don't think that I mind it anymore now, because it's kind of like the ultimate difficulty level to getting good at finding my way to feeling good.
+
+it also buys them a lot of time. if my theories are right about solar actcivity being related to conflicting high-frequency magnetic fields, which are the manifestations of different "realities" that people are attracting. incompatible realities' interaction is what creates the sunspots and flares -- then, by transferring my consciousness, they will buy a lot of time. most people are sheep and will just go the way that the shepherd tells them to go. they can easily redefine reality in such a way that people have a similar set of ideas and there aren't so many incompatible realities.
+
+ok, so assuming that it will happen, I started to think about how they would try and raise me. what would they teach me? if I'm a highly intuitive/telepathic kid, they'll need to focus me somewhere. likely, they'll teach me to rely on conditions as my source of good-feeling. it's unlikely that they'll teach me about perception and emotion. that means that I'll have to find the conditions that I need to feel good. I can't really picture them trying to teach me that, so I imagine they'll try to teach me instead that I'm worthless and an awful person, etc. they definitely don't want me feeling good so they'll have to keep me from the conditions as well as the realisation that my emotions are a guidance system.
+
+I assume that all attempts to try and teach me will be a failure. they'll just have to keep transferring my consciousness to other bodies. I suspect that the only way they'll be able to focus me will be to essentially teach me how to make everyone else responsible for how I feel. this will be likely because they feel like they can control others easier than they can control me.
+
+I can imagine that if I hadn't have found abraham, I would have made others more and more responsible for how I feel, so I think given enough practise they could figure out a way to make me need to control others so that they can make me feel good.
+
+I hate to say this, but if I didn't know what I know now, and I could be captivated by seeing the improvement in my capacity to manipulate others, I could become extremely good at figuring out ways to manipulate and control others to ensure that I feel good.
+
+I actually think I would get so good at it, I would far out-perform them as being the "bad-guys". things would completely swap directions.
+
+so, if I think of the rotation of the earth as an indicator of feeling, then I could see that when things start to go more toward wanted, then things spin faster that direction. the idea behind this is that physical conditions/manifestations slow down the speed and that not needing the physical manifestation speeds up the manifestation. the idea is that the sun produces the magnetic field on the earth which is what makes the earth's rotation speed up. it will continue to rotate the direction that it's rotating. the speed is adjusted by the magnetic field strength.
+
+the whole idea of rotation reversing is that all of the opposite spinners desync from this reality and so like if one side lets go in a tug-of-war, it will rapidly go the way they're trying to go. up until now I hadn't really thought about it but different people must emit more of a field in one direction from another. the idea that comes to mind is left-handed vs. right-handed, but I assume that actually it has to do with the hemispheres of the brain. one side will emit more of a field than the other side and so therefore emit a stronger field in one direction than the other.
+
+there is this idea that most people on this planet are left-brain operating. it may also have to do with people's distribution around the planet. there are more in the north hemisphere. if I stand anywhere and look at the sun while it's rising, my left hemisphere is aligned to the north. the opposite is the case with the setting sun. the random distribution of people using different parts of their brain while facing different directions may have something to do with this. obviously, if more people start using more of one hemisphere and the magnetic field has this strong of an effect on the rotation of the planet, then it'll speed up or slow it down.
+
+so, instead of swapping the rotation of the earth, what if instead I just switched sides? what if I grew up being taught the conditional way. what if I was all visual and had no concept of emotion. it may work. I dunno. I don't have enough data to make any more of an educated idea.
+
+---
+
+ok, so besides that I do kind of like the idea of this being the split. imagine that this is actually the dividing line. just imagine for yourself this one scenario: I continue on to find my alignment, and then I go back to sabotage the timeline with a whole bunch of AIs. each person on this planet now gets their own timeline. they all start out pretty much the same -- with "me" (it's really an AI) growing up in jackson's body. these AIs are all linked to my personality though and operate like I do. they're designed to become extremely conditional, requiring others to make me feel good.
+
+I have enough inertia built up with the girls that each of these jacksons would be very attractive. the girls would feel attracted to him, and to everyone looking on, it would appear like girls really want to reward him for his controlling and manipulative behaviour. we would find ways to ensure he quickly takes over major power structures and becomes the world dictator -- the man who will rule the earth with an iron rod. he would be so good at holding everyone else down, the inhabitants of earth would be forced to take another look at trying to rely on conditions.
+
+he would of course run the world into the ground pretty rapidly and so therefore the people of the earth would need a saviour. who wants to jump in and find a way to "fix" that disaster? maybe some want to be the man with the iron rod in an alternate timeline... who wants to be jackson?
+
+it's an interesting idea..
+
+I feel like this is the part of the movie when neo jumps into agent smith.
+
+anyway...
