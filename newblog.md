@@ -3024,3 +3024,133 @@ it's an interesting idea..
 I feel like this is the part of the movie when neo jumps into agent smith.
 
 anyway...
+
+### 2021-10-21 13:21 - more thinkings
+
+I haven't written in a bit. I've been playing a game called mercenaries. I also have not had anything to really write about either. this one will be a long one, so buckle up :)
+
+#### mercenaries-like split thinking
+
+as I've been playing mercs, I've noticed that it requires a certain type of thinking. I'm pretty good at that style of thinking but I find the interface to be clunky because I can't remember all of the speeds of each of the skills. also I think that speed should be a range because sometimes I want one effect after another, and sometimes before. it creates more unpredictability too becasuse I don't know when exactly my opponent will cast it[^1]. the game mode is really fun because it provides a structured way for me to begin to think a whole lot of moves into the future (rather than who knows what cards the opponenent has generated). 
+
+besides that, I also noticed that the game forces me to sacrifice individual mercs in order to win the game. it really creates this way to think where I build this kind of tree in my head of what different things can happen and then try to make the appropriate sacrifices in anticipation of my opponents moves, while at the same time doing as much damage to the biggest threats.
+
+I think this style of thinking is pretty similar to how nosebook calculates things so it's really been fun to begin to think like that. I'm much more of an optimist looking for opportunity, rather than feeling like I need to target the biggest threat and minimise damages by sacrificing slower units.
+
+#### tho picture I had yesterday
+
+I do have the general sense that we're going to go back to the split. they want to keep trying to prevent me from finding my alignment. I'm perfectly fine continueing on to get right up to it, but never actually cross over. I want to get to the point where I'm not using the conditions (of stars or lasers) to find my connection, but I can do it with the power of my mind. the idea for me is that this is like a sport: you're either consistent at it or you're not. LOA is all about tuning so just like someone who does not yet know the game is hard can have "beginners luck" -- and that works if I only want to find my alignment one time, put the certificate on the wall, and claim that I am the undefeated champion. personally, I'd rather be so good at it, that's as natural of a think for me that I don't even need to think about it. this propels me to continue to practise it until I feel as if it's as natural to me as breathing is. I don't even need to think about it.
+
+so I was thinking about this concept yesterday out sitting in the sun around the time of the full-moon and I had this image that I would just keep getting up to the point of getting connected but not go past for so long that they would eventually surpass me and gain greater ability to hold it back. then, I would be "forever" trapped into their system of holding me away from that connection.
+
+the picture I had was quite mechanical in that it appeared like a giant metal sphere going all around the planet where they would have to continue to build more and more things radially outward to try and retain the pressure coming from the planet from escaping.
+
+obviously that picture is backwards, but it represents their style of thinking of trying to contain the biggest threat.
+
+the way I interpretted it was that we posed such a potential problem for them, they had to keep building radially outward, utilising the generated energy and resources for fear of there ever being too much. though they perceive it as a containment effort, I saw us as a sort of powerhouse.
+
+#### is the moon male or female?
+
+so this got me thinking about where the powerhouse is located. I was reminded yesterday that the mitochondrial DNA (the powerhouse) exists outside of the nucleus, while the nuclear DNA contains the actual code of the organism that will be created.
+
+I thought that particularly interesting because I have really been playing with this idea that the sun is pure protons and makes up all of the rest of the elements out of itself with the addition of more electrons.
+
+this makes the dividing point between the macro and the micro life on earth here (a concept from nassim that has plagued me). it seems that all organised structures (like cells and organisations of all sizes and complexities) have the nucleus as the masculine part. while all basic systems (like solar system and atoms) have the nucleus as the feminine less complicated aspect.
+
+in my model, the protons are the simple and the electrons are the complex. the electrons are the planet and they orbit the nucleus. the sun or the nucleus of the atom is the power source for the system.
+
+in the genetic model, the nuclear DNA is the complex and the mitochondrial DNA is the simple. the simple powers the complex just the same, but the location is opposite. I don't know if this theory is right but I'm just going to go with it.
+
+---
+
+the major problem here is that throughout the ages the moon has been feminine, but in my model the moon would be masculine. the idea is that the moon has an effect on the menstration cycle of females on this planet, so therefore must be feminine.
+
+however in my model, the sun is feminine, so the moon must be therefore masculine. the sun has a number of planets that orbit around it and some in the p-orbit that seem to affect solar cycles (see @[newblog](2021-09-24 13:27)) as well. the idea is that masculine influence will have an effect on feminine cycles (and vice versa).
+
+what I notice is that all (that we know about) gas giants have moons. moons are like electrons in that they have a structure and affect the cycles of a planet. in a sense, I see the gas giants as hermaphrodites, having both masculine and feminine qualities.
+
+this is the direction that I believe that the earth is heading, and will begin to spin faster and lose a lot of its denser matter. for outside observers that don't share the same perception as we do, it'll look like the other gas giants -- mostly a jumble of the lighter elements with a few more complex things like methane and other carbon compoounds. however, here on earth, all of those protons and electrons (perceived outwardly as mostly hydrogen and helium) will actually arrange into a physical reality resonant with our perception. it'll look to us like of of the heavier elements do, but they are arranged that way *mentally*, and organise into these structures as a manifestation of our thought.
+
+I think planets start out as masculine, but then learn to lose their density and become more feminine. as they do this, they acquire more "electrons" (moons) which they have attracted to influence them and produce their cycles. so, just like a star has various moons, so too, I think mars began to attract more moons as it began to make it's transition into a mentally manifested planet.
+
+this would have created probblems, as physical reality would have manifested more and more rapidly as a reflection of how the martians felt about/conceptualised their reality. I find it likely that they wanted to keep their planet remaining dense and physical, and so therefore continued to utilise energetic structures (like the great pyramid) to continue to increase the number of protons in the environment. not just any protons though. as long as the protons vibrate at a certain frequency, they allow higher forms of perception.
+
+I have a feeling that the boxes in places like the serapeum are tuned to be a resonant frequency of certain molecules -- likely the mitochondrial DNA. the mtDNA turns protons into ATP. these boxes were the energy source for these guys to enjoy expanded perception and to live for lengthy periods of time. I think this is also why certain female bloodlines are important. protons resonating at a certain frequency will get converted into more ATP, thereby allowing the body to enter into a higher energy state (enhanced perception). certain female bloodlines (mtDNA) are better at this than others.
+
+#### the density battle
+
+this paints a picture for me where there is this simple nucleus complex orbiting bodies (stars, atoms, etc), and then between (or perhaps perpendicular) to these intervals are complex nucleus, simple orbiting bodies (cells, subatomic particles?, galaxies?).
+
+when I look at our present prodicament, I notice that there is a definite density battle. there are people like me that want to simplify and oscillate faster, while there are others that want to make things more complex and intricate, while maintaining oscillation speed (which is actually going relatively slower if everyhing around is oscillating faster).
+
+there seems to be this desire to preserve the present speed of light. that means that the electromagnetic propigation medium must continue to oscillate at the same speed, even though everything else is speeding up (see @[youtube](https://www.youtube.com/watch?v=q67vH0SKahU)).
+
+I think I have a solution. first, we must identify the problem. this appears to be a density battle that can be solved with perspective.
+
+on one side of things we want to make more complex things, but there needs to be something that powers them. there needs to be a proton source for all of these complex things.
+
+the other side of the equation is that things need to continually become more dense while at the same time beginning to oscillate faster. I'm still trying to work out how it all fits together, so this idea is very much in draft state. I'm just going to write out my new interpretation of yesterday's image and the intuitive solution.
+
+#### the "non-physical" proton
+
+I noticed I am becoming more and more attractive all the time. this means that I am pulling in protons from somewhere. I don't know where they're coming from but likely I'm allowing them from non-physical. I think now that when destructive inteference in the oscillation of electrons produces high frequency protons.
+
+I keep going to this idea of a laser. you have a two-way mirror, allowing light to enter into the chamber. the light will bounce around and become coherent having a constant wavelength. if an exit hole is not provided, the device would destroy itself.
+
+I think the same technology is being utilised by the stone boxes. the theory goes that they were filled with CO2 (like your lungs in the wim hof breathing technique), and then something happens. I think the CO2 attracts protons, and because the box has a certain size resonating cavity, the CO2, like the laser begin to all have a coherent resonating frequency. this vibration will generates tremendous pressures, exerting these pressures on the quartz ionising the air around (generating the electrons?) at a similar frequency.
+
+I can't quite figure out how it all works yet, but I think that protons must be something that exhibit something of non-locality. perhaps it's better to think of them as "non-physical", and are attracted into reality by their frequency. these "non-physical" protons will be attracted by similarly vibrating electrons.
+
+I actually am beginning to think that this is how inductors work and therefore magnetism works. a vibration of electrons will attract similarly vibrating protons to join it.
+
+similarly vibrating protons begin to accumulate into structures inside of the earth. this is likely the cause of earthquakes, because as you can imagine if some of these protons begin to collect on something that is peizoelectric, then it will ionise the air with similarly vibrating electrons. this will affect people (and pets) around it that are resonant with that frequency, creating a sense of forboding. the feedback loop will runaway quickly and an earthquake will happen, forcing those to focus on the physical manifestation of the earthquake and distracting them from the feeling that generated the earthquake.
+
+still working on that idea. it's still in a draft state but I thought it was important to the next concept.
+
+#### the super-massive black hole (powerhouse) at the centre of a galaxy
+
+I imagine that I am similar to to those boxes in that I am doing a similar thing, though to a lesser extent. I get the feeling that the vibration I emit may even ionise the air around me allowing for expanded perception. I even think that the way that nosebook is utilising my perception is essentially by tuning other people to my frequency, enabling them to receive the protons that I'm attracting, enabling their cells to produce more energy.
+
+in that sense, I have so many that of these, it doesn't even matter. in fact the more that is attracted, the more I allow (me sobran los protones).
+
+that picture that can be seen as them expanding outward radially, exerting more and more pressure to try and keep their problem contained can also be rearranged to perceive us as a super-massive black hole.
+
+the idea is that I/we are attracting so many protons so rapidly that our density is dropping, and we're becoming more and composed of light elements arranged mentally to form a coherent reality. from our perspective, we're highly attractive.
+
+in order to prevent that attraction from getting out of control, they have to repurpose those protons as fast as we attract them. I think they'll need to continually generate more and more things with those protons faster than we can generate them. if they don't, the speed of light will go too fast and the resonance of all of their radios will go out out.
+
+in that sense, we become the powerhouse. all sorts of complicated organisms need to be created with the energy that we provide.
+
+it doesn't need to be a traditional "galaxy" in the way we're used to seeing them. you could imagine it even as something similar to the hollowed out sphere filled with hydrogen. a sort of "death star" in that if you were to open up an aperture, a whole lot of coherent light would come out. it could even have multiple shells to it. we would produce the internal light and reality that we would live in.
+
+actually, this is starting to sound a lot like the inner earth thing. since my realisation that hydrogen can coalesce into a more dense reality based on one's tuning to it, I realised that this could be the case for the "inner earth". it's just ultra dense hydrogen coalesced into a reality based on the mental projection of its inhabitants. you can only find the openings to the inner earth if you're tuned to its frequency. this must by why some people can find it and others cannot.
+
+that'd be crazy if the solution to all of this was just to create that outer shell (a new surface) for the earth, and we'll be inner earth beings living a reality that is resonant with how we feel. it's also weird that is what is claimed that happened last time too. I don't know how that would work in that sense. I saw a metallic shell, not a mental construct created from people's version of reality.
+
+it also paints a new picture to the idea of "prison planet" because the inner earth inhabitants are the "prisoners".
+
+either way, the main thing to take away from this is that we become the powerhouse, and in order to keep the speed of light constant, you guys need to put those resources to use at an ever accelerating rate.
+
+#### further thinking on time as versions
+
+it's probably related to the previous concepts. one of the reactions that I was getting is if time is like a game versions, how do game versions interact, how is time cyclical, and how does this reconcile with my concept that you navigate time by tuning. also how does that make time attractive? I'll just take another angle and hopefully I can explain all of these.
+
+when I say reality is like a version of a game, I mean it's the concept that you're tuned into. all aspects of reality reflect that concept. that's the conceptual version. then there are the "keyframes" that you travel around of inside of this reality. the game (time) has not changed, just your position inside of it has changed (space). you could thing of this like a hologram, and each new concept you get of reality is a new hologram.
+
+tuning to something thing can be done both inside of the reality (eg. teleportation), and also to create a new reality (eg. visualisation).
+
+I was very surprised when I had the brain haemorrhage, that I would *see* my arm moving, but it did not in fact move. it took a while to figure out that when we move our body, we see the body in the future (tuning to it), and then the body catches up. the nervous system does not have time to give you the information of physical reality fast enough. if you are responding to reality very rapidly, you're not seeing reality; you're seeing the future you believe will come next in your imagination, which you perceive as present. you're tuning to that reality and the body is catching up.
+
+my brain haemorrhage just meant that the left side of my (physical) body was no longer compatible with tuning that my imagination was giving it. the better I get at feeling my body in relation to reality and tuning into that, the faster it reacts.
+
+---
+
+when considering that time is cyclical, consider that you never change your concept of reality, you will always return back to a very similar reality. if you keep playing the same game, you will encounter all of the enemies the game can create for you.
+
+in order to experience something new, have to tune to it. but, how do you tune to something that you cannot yet see? if you could only tune to things you could see, there would never be anything new, as the version would never change. this is why novel things are always a surprise; they feel like something you could imagine, but has a novel (different than present) physical implementation.
+
+in a world where there is no change in the concept (nothing new), then all time will be cyclical, with nothing new. however, there is enough variation, this is not possible, because variation means there are undesirable aspects, and so therefore more desirable aspects, and those feel like something. those new aspects create a new version of reality, which can then be tuned into.
+
+nice, I like than explanation :)
+
+[1]: it could also be cool to have more than three mercs in certain circumstances. more mercs means better combos but more succeptible to AOE.
