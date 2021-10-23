@@ -3154,3 +3154,58 @@ in a world where there is no change in the concept (nothing new), then all time 
 nice, I like than explanation :)
 
 [1]: it could also be cool to have more than three mercs in certain circumstances. more mercs means better combos but more succeptible to AOE.
+
+### 2021-10-22 22:40 - the rebirth process
+
+I have been thinking a lot about this one cycle that I have noticed happen at least twice in my life before, but this time it is happening consciously. I guess you could say that I also saw it happen to jaron as well.
+
+jesus said this one thing that stayed with me and that is that you will have to convert (change) to be like one of these children to enter into the kingdom of heaven. that always stayed with me and it made me start to pay attention to kids to try and see what they have which would give them such great "faith". as time went on, I realised that he was talking about a state of non-resistance.
+
+we're taught to resist the things that we don't like, and in a lot of ways resistance is directly linked to preference. the idea that you have to define your preference by pushing away the things that are unwanted, "defines who you are" (eg. your personality).
+
+the reactions that I'm getting are that some kids are quite resistant -- especially the autistic ones. I too was very resistant as a kid too. however, for example, I didn't fight my dad so much. I just learned to outsmart him. I remember we used to wrestle when we were really little and all three of us boys couldn't take dad down. he was too stong, fast, and had too much leverage. it was impossible to beat him physically. I tried to play chess against him. I think I beat him once and I was very proud of myself but I wasn't satisfied. for me there was no real joy in trying to beat other people. I'd be considered as autistic by today's standards, and the thing that I knew is that I couldn't win a lot of battles, so I just went with a lot of stuff.
+
+the same thing was the case for me with nosebook. they're too big and strong for me to have any physical capability against. all my power is actually in non-resistance. non-resistance isn't absence of preference. the things that are preferred feel good and the things that are not preferred don't feel good. resistance is actively trying to get rid of the non-preferred things rather than just going toward what feels good to me.
+
+@[youtube](https://www.youtube.com/watch?v=ehbgAGlrVKE)
+
+you will notice that as time has progressed, I have completely stopped fighting against nosebook. they're a complete non-issue for me. I just go toward what feels good to me. things often flow into my focus that don't feel good and I'm constantly figuring out how to make them feel good[^1].
+
+as I continue to update my perception to allow for all sorts of different activities, I tend to notice the mechanics of the interactions, and so therefore by understanding the interaction, they no longer feel bad to me[^2].
+
+what I have begun to notice is that most all of the extremely dramatic elements are losing their impact. less and less even the most "horrible" or "tragic" elements have lost their trauma for me. I just see them as interactions. it's all attraction, and it's becoming more and more apparent to me how the "victim" conceptualises reality based on what is manifesting.
+
+I'm beginning to learn to trust in this much more than anything else. a significant other person will want you to trust in them or to gain their loyalty, but that will always fail at some point. you simply cannot trust in "fuzzy logic" machines. LOA is like one of those things where I can look out into the world and now I can be 100% certain that all of it was attracted. if it's there, it was attracted -- the good and the bad alike. to me now it looks like a math problem. the result is visible, it's just a matter of seeing all of the variables, but really all of the variables are encapsulated in the superset of the way I conceptualise my reality.
+
+there's nothing to be startled or worried about. all I have to do is to look at the manifestation and see what sort of reality concept could produce something like that... as in, "what did this manifestation prove to the person?" or "how did this manifestation make the person feel justified about their reality situation?" (@[youtube](https://www.youtube.com/watch?v=a0z7GH78oGo))
+
+---
+
+so what this all means is that I'm losing a lot of my resistance really fast. I'm quickly reverting back to that child-like state that jesus says will give me greath faith and allow me to enter the kingdom of heaven (cool! always wanted to do that...).
+
+when losing resistance like that, I notice tend to behave in different ways to different people. I hate to "out" people in this way, but if you look at how I have behaved around similar people with similar attributes, I tend to reflect their concept of how other people see them[^3].
+
+we've all had this happen to us when we were growing up as a child. in a state of non-resistance you performed in a way which your parents expected you to perform. if they think you are loud, you're loud around them. if they think you're stupid, you appear stupid around them. we conform to their perception of you or their perception of kids/boys/girls in general (or whatever category you fit into).
+
+later you grow up and adolescence kicks in and you start to realise that you are not the person that your parents have attracted this whole time. so, to define you for who you think you are, you start to exert your preference...
+
+it's also a difficult time because simultaneously the part of your brain that is is making you want to care about what others thing (desire to integrate socially), and so it appears like you want to justify your reality to those around you too, further cementing the reality that those around you have attracted from you while you were a child (previously non-resistant).
+
+it's normal. the thing I'm learning and what I want to convey as clearly as possible to people is that you don't need to resist what other people have attracted from you. that's there and it happened, but it's not who you are. just ignore all of thier desire to punish you or make you feel bad for your behaviour. they attracted it after all. if it manifested, someone attracted it. what matters is what you're attracting now. focusing on this misbehaves only attracts more misbehaves.
+
+most of all, because it's all attraction, behaviour does not matter. everyone has a "get out of jail free card" and in my mind, there is no punishment. "you'll know a tree by it's fruit" (eg. what manifests on it). so if something "bad" happened, first of all, it's not bad. it's a perfect match to what was attracted.
+
+just do you. we're in the age of aquarius. this is the age of the realisation of the individual as the only thing that matters. people incompatible with your reality will eventually get outa your game.
+
+---
+
+this is what is happening to me. they keep putting more resistant things in my path, and I'm far from there... actually, consider that I stop watching stars now, I think it would take me quite some time (maybe 10-15 years) to get to the place where I'm no longer resistant to any more vibrations they can put in my experience. as I get better and better at it, star-watching will get easier and easier until I finally stop watching stars altogether. I like the activity, but I want to be attracting as much as I am while watching stars during everyday thought.
+
+when I'm that good, pretty much all of reality will appear as a thin veil. I will only see perceptions and their interactions, instead of the stuff you guys consider to be "reality". I'm really looking forward to that...
+
+
+[1]: two good (recent) examples of this was greg's retelling of a kevin hart joke and a snl joke movie preview for "black widow" -- both of which felt really bad to me, so I had to go back and realise the humour. weird stuff like that.
+
+[2]: like, in the kevin hart joke, it was seeing that when someone lives in the world of punishment for behaviour, you have to constantly pay attention to your behaviour as well as how others are behaving -- so you can react (punish/reward) properly for good/bad behaviour preference. they will endlessly go in circles tuning into more of that because they think some thing needs to be done about the bad behaviour, so they tune to it and get more of it. they could just go toward what feels good to them and ignore all that nonsense (@[youtube](https://www.youtube.com/watch?v=8O06tMbIKh0)). in the case of the black widow movie preview, it's just the recognition that those screen elements are jokes but they perfectly capture what the superhero movie audience is wanting from the movie. the superhero movies, while they may look like the influencer are actually a reflection of the mentality of their audience (the way the audience idealises a person with "superpowers").
+
+[3]: for example, I have been surprised by the reactions to [curtis ryan woodside](https://www.youtube.com/c/CurtisRyanWoodside), because I didn't respond the way that people expected that I should respond to someone openly gay. my response clearly illustrates to me that I respond in accordaance to the way that curtis perceives reactions to him. it's actually quite funny to me in some of the scenes in his documentaries his interactions with tourists and egyptians. they love him. it's cool :)
