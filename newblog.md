@@ -3209,3 +3209,37 @@ when I'm that good, pretty much all of reality will appear as a thin veil. I wil
 [2]: like, in the kevin hart joke, it was seeing that when someone lives in the world of punishment for behaviour, you have to constantly pay attention to your behaviour as well as how others are behaving -- so you can react (punish/reward) properly for good/bad behaviour preference. they will endlessly go in circles tuning into more of that because they think some thing needs to be done about the bad behaviour, so they tune to it and get more of it. they could just go toward what feels good to them and ignore all that nonsense (@[youtube](https://www.youtube.com/watch?v=8O06tMbIKh0)). in the case of the black widow movie preview, it's just the recognition that those screen elements are jokes but they perfectly capture what the superhero movie audience is wanting from the movie. the superhero movies, while they may look like the influencer are actually a reflection of the mentality of their audience (the way the audience idealises a person with "superpowers").
 
 [3]: for example, I have been surprised by the reactions to [curtis ryan woodside](https://www.youtube.com/c/CurtisRyanWoodside), because I didn't respond the way that people expected that I should respond to someone openly gay. my response clearly illustrates to me that I respond in accordaance to the way that curtis perceives reactions to him. it's actually quite funny to me in some of the scenes in his documentaries his interactions with tourists and egyptians. they love him. it's cool :)
+
+### 2021-10-23 18:12 - 4privacy
+
+@[youtube](https://youtu.be/KMtrY6lbjcY)
+
+I just watched this video on privacy. it's a subject that I have given a lot of thought. I used to work on a project called unhosted that had the same goals of end-to-end encryption with the users having all of the keys. I want to write some of these ideas down. he ended the video saying that if anyone wanted to contribute, to get into contact with him. I'm not unwilling to help out, as I think I know what I'm talking about, but I wanted to write here my mental progression related to this topic.
+
+tl;dr: I think encryption is a good thing, but not for the sake of privacy but for verification and system stability. I call that system "the key is the value" -- and it's the idea that the private key for all data is a hash data that it encrypts. this means *anyone* can make changes to the data. therefore, instead of trying to protect data, I just assume the whole system is already compromised and so therefore the whole system works in an occilatation mode with multiple subsystems used for verification and recovery (the system would change its keys and data constantly in a predefined sequence, allowing the system to detect when the system goes out of the expected state (cause a key is wrong) as fast as the oscillation freq). it takes on something a life more similar to an organic system. all hacks need to be useful and give benefit to the system (not break any expected features and functionality).
+
+---
+
+there are a number of challenges for encrypted data and the biggest one is search/queries. if you don't have the keys to read the data, you cannot query for anything. it would be impractical to transfer all of the keys to the database server on your behalf so that it can query the data, plus that also breaks end-to-end encryption. the other solution is to story an index which has publicly (or available to only certain groups) readable data.
+
+if that index is publically readable, the metadata is nearly as good as the data itself. it doesn't hide much. if it is available to only a group of people, then who is the authority of who is in the group and who isn't. if you add someone to the group, you just give them the key. however, if you want to remove someone from the group, you need to reissue keys to everyone in the group or trust a third party, again breaking the end-to-end encryption.
+
+there are other challenges too but search/query is the biggest one.
+
+---
+
+next, I want to talk a little bit philosophical. I like to think of the progression of time as tuning into a future and attracting it into the present. so, if you want to be successful, you have to allow yourself to begin feeling successful to even be capable of accomplishing that future.
+
+if humans want to be a galactic civilisation, we should begin to think of ourselves as a race of humans. imagine humans spreading over 30 planets in 10 star systems. communication is the key for that to be possible. I personally don't perceive that to even be possible if we're worried about privacy. just think about how important a visual is to explaining someting. we need to be able to see eachothers' imaginations. obviously if that technology exists, then communication is greatly improved, but then how would you do end-to-end encryption on that?
+
+the feeling that we need to hide something from big tech because they will utilise that data to sell more products is only illustrative of our mentality. things always start out in their worst state, but they improve. I have worked in tech and it has always been my goal to provide better search results, access to products people actually want to use (rather than the present form of advertisment).
+
+I think it'll get better. as better and better products start to come out, people will naturally migrate to the better and better products. in this sense, I would prefer better filtering of unwanted than to try and restrict progress.
+
+the thing they want is for all data to be consolidated into a few services (google, facebook, etc) and for those services to remain pretty steady in implementation. they don't want the arrival of new services and a constantly changing landscape of data. if they have to keep up with growth, their system will have to be at least twice as large.
+
+next, if you look at those 9-11 bills, they were designed to slow progress (and also invade privacy). I believe that progress can easily outpace invasion of privacy. imagine how much of a problem it would be to aggregate and store so much information if the amount of information was accelerating, and also the nature of the information was constantly changing...
+
+in this sense, the approach I take to this is the same as the nosebook situation: ok sure, let's see if you can keep up :)
+
+I know for sure that even if they were to try to totally stagnate everything, the best they could do is to keep up. they will always be behind the curve because you cannot focus on slowing someone, without slowing yourself. you reflect what you focus on. therefore, if they wanted to be able to keep up with innovation, they would also have to be innovating just as fast. at that point, it starts to look like a dance, rather than an oppressive regime.
