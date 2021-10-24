@@ -3243,3 +3243,65 @@ next, if you look at those 9-11 bills, they were designed to slow progress (and 
 in this sense, the approach I take to this is the same as the nosebook situation: ok sure, let's see if you can keep up :)
 
 I know for sure that even if they were to try to totally stagnate everything, the best they could do is to keep up. they will always be behind the curve because you cannot focus on slowing someone, without slowing yourself. you reflect what you focus on. therefore, if they wanted to be able to keep up with innovation, they would also have to be innovating just as fast. at that point, it starts to look like a dance, rather than an oppressive regime.
+
+### 2021-10-23 21:00 - privacy, protection, and punishment (who do you trust?)
+
+in the previous entry I made reference to how I want to live in a world where we can see each others' imaginations. well, if the technology exists where you can see someone's thoughts, then passwords are pretty easy to discover and therfore have no relevance.
+
+in fact the way this universe is designed, you can tune into *anything* -- you just need to know where to find it. therefore, any and every thing can be tuned into. the only thing creating a system of privacy is a system which limits communication.
+
+I prefer to have everything open and just recover quickly from any problems. if you have privacy, then you must trust someone else to ensure that the information that you're receiving is the information you requested. if everything is open, and I'm getting all the information exactly as it's presented to me (fraudulent or not), then I don't have to trust anyone other than myself and my ability to attract what you want. I am responsible for how I interpret all information that I tune into. the only person I need to trust is myself.
+
+obviously, there are a lot of people that do not wish to trust theirself. many people want privacy.
+
+---
+
+this really is the same discussion as punishment. when you have privacy, then you have restriction of information, but what if that information is "bad" information. that information needs to be accessable by someone -- typically those that are "law enforcement". they need to ensure that the right people are punished for bad behaviour. you need to trust law enforcement.
+
+however, we all know how well that goes..
+
+---
+
+in my system, the whole thing is open, and the bad guys are built into the system. so, maybe this is just a problem of perspective.
+
+here's what I mean: in a system where everything is open, there will inevitably be parasites. a parasite is just something that utilises someone else's resources for their own benefit.
+
+knowing what I know about LOA now, I know that the more parasites there are, the more desire there is, and so therefore more parasites actually means more growth and expansion.
+
+if the system is growing and optimising at such a rapid rate, there are still too many resources for them to utilise. when I say optimising, I mean repurposing unnecessary code.
+
+if everything is open, then imagine a parasite "hacks" the system and installs a bunch of code that hogs system resources (think of this like a trauma). when it becomes known that is occupying a lot of resources, that code is rewritten to provide some benefit. the worst-case scenario is that the hackers find a way to sustain rewriting that code over and over for an extended period of time. it would be impractical to rewrite the whole system to something new and malicious. parasites don't have that much creativity. if they did, they would just make their own system instead of trying to use someone else's.
+
+I'm modeling these systems after my perception. when an idea is recognised as something that isn't productive to me, I mark it as unhelpful and those things feel bad to me. when implementing a system, it has to pass the checks, any code that feels bad gets another look taken at it. the code needs to do the desired operation, so it can't be faulty. a hacker would have to find infinite novel ways to implement the functionality while also finding ways to obfuscate the malicious behaviour.
+
+so attack the checkers first. yep that would work a few times. there will always be failures, so recovery is the key. every failure would rebuild the system rapidly to perform the functions that it desires. unsuccessful system die and that's not a problem. everything is redundant and easily able to be reconstructed. a parasite that gets integrated into the system function must provide a function.
+
+---
+
+so here's where I think this is a perspective issue: the system needs to be constantly under attack to continue to improve itself. in abraham-speak, contrast is a good thing. there needs to be a force that is constantly trying to prevent the system from growing. the more successful this system is, the more things get improved.
+
+this system must be a parasitic entity that depends on the system for it's continued survival. in a computer system, this parasitic system will continue to try and occupy the resources for its own continuation. the improvement system is constantly finding these poor allocations of resources and optimising them out. the optimisation doesn't perceive good or evil. it just gets better and better at recognising inefficiencies and improving them (how to shorten this jump, tighten this, etc).
+
+in my case, I visualise this as the martians. their job is to continue to try and figure out how to use our perception for their benefit. obviously, as we continue to improve our perception, we'll keep getting faster and more efficient at updating our perceptions. they fuel our expansion by trying to constantly take over control of the whole system.
+
+this can only be possible if you have someone like me who is expanding faster than others can repurpose my resources. I have so many, that it's actually a challenge for them to remain the larger entity. visually, this will look like the size difference between the sun and mercury/venus. the sun will continue to grow in size (where does all of that hydrogen come from?) meanwhile mercury will grow at a much slower rate, relying mostly on the sun for its material composition.
+
+---
+
+so, what I'm essentially saying here is actually there is not really a conflict of interest. my system wants to be open. open isn't for everyone. some people need privacy, protection and needs a parasitic entity to operate properly
+
+it wasn't until I wrote this that it occurred to me that this "parasitic entity" is nothing more than a planet is to a star, and would actually have all of these qualities.
+
+---
+
+just now I was reminded of this thing that I saw in @[youtube](https://youtu.be/_YlPx0-ebVU?t=2039), and that was this bizarre claim that the moon has a whole bunch of caverns in it with giant screens and control terminals for monitoring humans that died in a solar flash. apparently, dead humans are strewn all about and the caverns have a stench of rotting flesh.
+
+I found that story pretty unlikely because how can you smell with a space suit on. also, if the flesh is rotting, have they been rotting for tens of thousands of years? I find that very improbable. next, screens? if they're such an advancd race, why are they using screens? wouldn't they just project images into 3d space? this sounds like a movie set. I could just imagine iron man in there flailing his arms about in front of the screen trying to keep the humans under control.
+
+so, as normal, I assume the story is true. let's say it is. if there really are all those caverns in there it sounds like this is a setup for the next act where the new controllers of the earth "return" to their position of control.
+
+though, I think that the moon is an artificial sattellite, and was put here by the "custodians" (eg. the "galactic federation") to keep the earth from spinning too fast. when we first got it, it slowed the earth down energetically so much, it slowed the earth's rotation by 5.25 days.
+
+that's a pretty big difference; that's a 5.25 days difference!! these guys are freaking out over the energetic difference between a few hundred ms shorter year length, not *5.25 days* shorter... it must have been magical how energetic everything was back then.
+
+why not move to the moon?? if that story is real, it's clearly a sort of movie set just waiting for som new occupants..
