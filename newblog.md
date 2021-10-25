@@ -3305,3 +3305,79 @@ though, I think that the moon is an artificial sattellite, and was put here by t
 that's a pretty big difference; that's a 5.25 days difference!! these guys are freaking out over the energetic difference between a few hundred ms shorter year length, not *5.25 days* shorter... it must have been magical how energetic everything was back then.
 
 why not move to the moon?? if that story is real, it's clearly a sort of movie set just waiting for som new occupants..
+
+### 2021-10-25 14:48 - the titanic dream
+
+yesterday morning I had this dream where the captain of the a boat (I assumed it was the titanic) was ordering the crew to maintain course. the crew perceived imminent disaster cause there is a giant iceberg in the way. the captain gave me the feeling that he was going to power through the iceberg. it was his will against the iceberg's, and he was determmined to make it through.
+
+I woke up with a strong sense like, man just because the captain says to do sometthing doesn't mean you have to follow orders... though, I understand from a military standpoint, you're trained to have unwaivering trust in the command. so I get that, but I don't think that is really the thing. I think it has more to do with expectations and status quo.
+
+like for example, when I was running out of money in spain, I thought that if I just powered through my tasks, then I would make it through. I obviously didn't make it through. I ran out of money and had a series of events fall on me which put me in the position that I'm at now where I'm actually in the space that I wanted be in back then. I did make it through -- just not the obvious way.
+
+what happens is in the process of staring at the imminent iceberg, one generates a lot of desire -- in my case, to feel like I can make anything I want to make and those creations are a reflection of me and my desire -- and that desire eventually does manifest -- just, not the obvious/intended/imagined way.
+
+I didn't get those projects done, and I can see now that if I had've got them, they wouldn't have even been what I was looking for. it was what I *thought* I wanted, but it wasn't what I actually wanted. I much prefer where I'm at now and I would not at all even consider to go back and try to change that past.
+
+the only thing that I would want to do is to reassure myself that things are always working out for me, whether they appear that way or not.
+
+it feels like I'm writing something bigger than I know I'm writing here. the rections are going something like, "ok, so he recommends we run into the iceberg" -- and that is kind of what I'm saying, yes.
+
+there's a reason why I've been carrying on for a while about going for max disaster. the longer the disaster happens, the more evolved the desire can become.
+
+I even desire for the disaster to carry on indefinitely. this is why I'm only watching stars up until I get to the point of no return, but not wanting to pass it.
+
+... that's kind of funny. I gave the illusion that watching stars is like the disaster, and it's also kind of like sex in the sense that you want to keep it going so you get up to the point of no return but don't cross over -- essentially, equating sex with disaster. they actually have very similar qualities, I think.
+
+that's an interesting image because both sex and disaster are approached with trepidation if the person isn't ready or has fear of the unknown.
+
+I guess it's just a shift in perception. this is why I want to continue on to feel as if I'm ready and that it's just a natural step. I have no rush. I want to continue to feel more and more ready. the desire will continue to evolve. (line 3333 and this is the song playing while I wrote that: @[youtube](https://youtu.be/vx406nNIee8?t=1515) <-- synchronicities bro. that's second 1515, and another one is that skake-bros said yesterday, "when synchronicities happen you just have to push through them")
+
+---
+
+@[youtube](https://www.youtube.com/watch?v=nazu0x5upbM)
+
+(time is the healer)
+
+watch it slowly cave in(?)
+and we're beginning to see the pleasures we've been craving
+uplanding(?) us from reality
+
+we thought it didn't matter, until the fog disappeared
+the world beneith the shadows, and now we're seeing it clear
+
+addiction has got us clouded
+we're living in denial
+
+we've been cought up in this world, and it's taken a while
+
+addiction will pave the way
+we're living in denial
+
+changing our perceptions is a hard thing to do
+but once you wake up too the truth
+you gatta see it through
+
+time is the healer
+take it day by day
+
+time is the answer
+don't look back the other way
+
+addiction will pave the way
+we're living in denial
+
+---
+
+I have a lot to say about all of this but most importantly, I don't really understand what all of this means in the bigger scheme of things. it seems that people must know something that I don't know about what is happening here.
+
+I was telling jaron that it felt to me like jessica's waiting felt somehow related to me and also to dad somehow. as I was saying that, I thought of perhaps the possibility that dad would make his transition into jackson and this was the last opportunity I had to see him.
+
+if that's the case, don't worry. I don't mind if I don't see him again in his present format. that really doesn't bother me. I'll get better and better at what I'm doing and our interactions will be far more meaningful from his new perspective than the one he has now. we'll be much more on the same frequency.
+
+the other sense/reaction that I had was the "let the dead bury the dead" concept that jesus said to his mother. maybe people think I'm repeating that -- dunno.
+
+---
+
+anyway, I think that was enough weird synchronicities for me to know that I want to keep doing what I'm doing, making this new absence of perception of good and evil such a normal thing.
+
+will we all crash into an iceberg together? probably.. afterall, I too have the same attributes as the captain as well. I want to just keep going straight ahead even it it's slighty/very annoying/inconvenient for some people...
