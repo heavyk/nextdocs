@@ -3381,3 +3381,82 @@ the other sense/reaction that I had was the "let the dead bury the dead" concept
 anyway, I think that was enough weird synchronicities for me to know that I want to keep doing what I'm doing, making this new absence of perception of good and evil such a normal thing.
 
 will we all crash into an iceberg together? probably.. afterall, I too have the same attributes as the captain as well. I want to just keep going straight ahead even it it's slighty/very annoying/inconvenient for some people...
+
+### 2021-10-26 14:59 - remember the laughter? what's going on???
+
+there are a zillion reactions right now, the sun is really bright and suddenly woke yesterday after writing that last entry. it's sending very large CMEs off toward saturn.
+
+mr. motor is super frustated with me (noted by the car sounds) and it feels like everyone is waiting for me to go to sleep. I mentioned this and mr. motor really roared. I said, "OK, just for you, I'll stay awake extra long"
+
+I really don't understand what is the reason for all of these weird feelings. I think I got a lot of vision upgrades last night and as a result, I feel particularly more numb than usual. because I'm not feeling so much, I decided to write this to start to try and figure stuff out...
+
+---
+
+that was the intro. before that though, I turnd on the song I had open wanting to write this (@[youtube](https://www.youtube.com/watch?v=_ffaD1lw8rg)), and it stars off with with a poem:
+
+```
+Do not go gentle into that good night,
+Old age should burn and rave at close of day;
+Rage, rage against the dying of the light.
+
+Though wise men at their end know dark is right,
+Because their words had forked no lightning they
+Do not go gentle into that good night.
+
+Good men, the last wave by, crying how bright
+Their frail deeds might have danced in a green bay,
+Rage, rage against the dying of the light.
+
+Wild men who caught and sang the sun in flight,
+And learn, too late, they grieved it on its way,
+Do not go gentle into that good night.
+
+Grave men, near death, who see with blinding sight
+Blind eyes could blaze like meteors and be gay,
+Rage, rage against the dying of the light.
+
+And you, my father, there on the sad height,
+Curse, bless, me now with your fierce tears, I pray.
+Do not go gentle into that good night.
+Rage, rage against the dying of the light.
+```
+
+weird. OK, so I should just follow the syncs as snake-bros were saying? seems strange. it's times like these when I really wish I knew what was happening...
+
+as I read the poem, I originally interpretted it as "don't go to sleep" -- but then, when I read it in its entirety, it seems to be talking of death. the dying of the light is that spirit or spark that people have and it's has diminished.
+
+I mean this really is giving me the impression that this is the end for this version of dad. no big deal. I don't think it's a big deal. once you've died, you don't fear death.
+
+---
+
+the other thing that was framing this message was another conflict that I have which is that I don't really know what is the way that we're going.
+
+I thought that we were not going to go for a catacysm and stuff. that all seemed fine to me. it felt like there were at least some people that simply didn't like the idea that I would get connected. that's why the titanic dream was significant, because I think that's what's happening. I think the captain of the ship wants to keep going forward even though it's not going to lead to a good outcome.
+
+I came away from yesterday's entry thinking that actually *I* am the captain. I keep insisting that I want to find my connection and I'm unwilling to try and go another way. I know that I released resistance to the whole girls thing, but I'm right back to insisting that I want to find my connection again.
+
+I want to keep going until I'm so good at maintaining my ability to feel that I'm super solid at it. like, for example today, I noticed that it was possible to influence me when I was playing hearthstone. it's such a stupid thing, I should be a lot better at it. I did well for a while, but I was especially on-edge today shouting at the screen even watching other people play. I clearly have a long way to go and I really want to improve further.
+
+so, for me, this is a clear indicator that I'm not doing as well as I think I am. I really want to be in much more control and also I want to continue to expand my grasp of the new ideas of how atoms are structured. last night, I had the first glimpse into seeing how induction produces magnetic fields from movement of electrons..
+
+so, for me, it's steady as she goes.. I'm not ready to do other things than what I'm doing right now.
+
+as I was writing that, it occerred to me that the poem also can be seen from my perspective too. I frequently get the idea that if I continue to push further up, that mr. motor has the device set to exert maximum pressure to prevent me from going up[^1]. I think that may very well be possible. that's a minor reason why I don't want to go all the way -- but I really don't want the manifestation. I know what I'm playing with and it's real easy to shoot oneself in the foots by feeling poorly when a lot of energy is moving... so, until I'm there and I feel comfortable, I don't want to go up.
+
+so, I also look at the poem in the sense that if I go continue to fight and I star watch while not feeling as good as I should, I'm the one that's making the transition.
+
+I'm not really staying awake because I want to spite mr. motor. instead, it's more that everything feels so strange that I tend not to stay put if I don't know what to do.
+
+---
+
+so man, I dunno wtf is going on. from the looks of it, it gives me the impression that dad is transferring his consciousness into jackson. the part about me doesn't make sense though. I don't have anything to do with that.
+
+the one possibility though that I can think of is that perhaps the others aboard the titanic are putting the captain on his own boat. if that's the case then does that mean that jaron will go that route with them and mom, jackson/dad, and jaron will grow up in the alternate timeline, potentially finding a way to steer the boat out of the obstacles?
+
+wait so does that mean mr. motor is a "stand-in" for andrew?
+
+man that would be craziest writing I can think of for this drama, if that's the case :) seriously, if that's the case, *mind blown!!*!!
+
+at any rate, I'm just going to keep doing me... one day, I'll figure out what is the world is happening, but prolly not before I die.
+
+[1]: I don't know why I think of it as going up, but it feels like all of a sudden all the weight leaves and I begin to lose what's teathering me to the ground. maybe that's why they call it "ascension"; it does feel like going up
