@@ -3460,3 +3460,75 @@ man that would be craziest writing I can think of for this drama, if that's the 
 at any rate, I'm just going to keep doing me... one day, I'll figure out what is the world is happening, but prolly not before I die.
 
 [1]: I don't know why I think of it as going up, but it feels like all of a sudden all the weight leaves and I begin to lose what's teathering me to the ground. maybe that's why they call it "ascension"; it does feel like going up
+
+### 2021-10-28 23:25 - reflecting on things lately
+
+the last few days have been interesting. yesterday I wanted to watch a thing on harry potter and the woman was talking about how it was the alchemical process. I started to see the alchemcical process of the triad much clearer than I ever have. I decided to stop when I wanted to go outside when an emergency alert came in on my phone. it was for two girls 7-yo sophie, and 8-yo bethany last seen in denver at 2:22 in the afternoon.
+
+I just got done with the part where the woman was saying that rowling uses numbers as symbols, so vol-de-mort (running from death) tries to split his soul into 7 pieces, but then later into 8 pieces.
+
+the two girls names were significant because sophia means wisdom or knowledge in greek. this is symbolised as the perfect tree of life. it's funny that the girl was 7-yo. then I didn't know the meaning of bethany but it means "house of figs". I know that figs are significant. they symbolise a sign of the times and 8 is the infinite cycles between good and evil, wanted and unwanted, etc. -- so it was weird that her age was 8-yo.
+
+I decided to give that a break for now. the important thing is I learned a lot about triads, analysing the relationship between ron, harry, and hg.
+
+---
+
+instead of returning to that, I felt compelled to play a game. I decided to play roguebook. I noticed that I started off in a pretty frustrated state. even little things like not being able to move the map around anymore felt very frustrating to me. I was playing pretty poorly early on too. I felt a bit zonked. I improved my technique and went on to beat the game with some incredible luck... I drew the right set of cards to make an "ally" that did some obscene amount of damage per turn. it was pretty lucky.
+
+I played again and the second time was less lucky, but I did win. I felt very disoriented after that game. I normally can switch between profound-kenny (the one writing this or watching stars) and superficial-kenny (the one playing the game) pretty easily, but this time there was a lot more of a delay. I had been seriously disassociated with "who I really am". I got it back pretty quickly and got a whole bunch of vision upgrades.
+
+the third time, I can't really remember what happened. I think I beat it again, and this time I did it without any luck at all. it was just normal deck-building.
+
+I also have been showing signs of greater mental clarity as well. I've been cleaning a little more, doing small tasks, and in general my mental hygene is much much better. when this happens, my life begins to reflect that.
+
+all of this has been happening roughly since jaron has been gone. I've started to be much more independent. greg is hardly around, and I really like being alone. I begin to have so much more clarity. the only other time I've ever been alone is unfortunately when I was doing a lot of drugs after raquel left, so that hardly counts.
+
+---
+
+I mentioned the part about the game because I noticed when watching stars tonight that there was effort to try and normalise my "luck" in the game. I guess I was getting too lucky in the first game. I transitioned into thinking about things a little harder and stuff. there were still big fails like I would forget what I was doing or in one case, completely forgot to activate a sky tower (a giant fail). even still, I was able to pull through just fine and win the game.
+
+you see, what I think happens when I play hearthstone is they utilise the opponenet as a sort of pivot. they pit their belief/feeling against my own. they can adjust the way the other person feels in comparison to me to try and "normalise" the amount of luck a person has, never allowing people to feel too good while playing hearthstone.
+
+however, there is not an opponent. I'm playing against the AI pre-defined combat rules. they can try to adjust how I feel, but I can still make it through...
+
+---
+
+I like to think of that example as a symbol of my life. when it's just me, I can manage the energy. if I'm feeling really good, I ride the wave, but if I'm not feeling as good, I start to get much more cautious.
+
+however, if I'm involved with someone else, I cannot manage the energy so well. I tend to just not compete or to stay away from some interactions where I don't feel as much under control.
+
+this is creating a huge problem for nosebook because typically the way you control someone is to isolate them. however, it's showing that I'm the opposite. I seem to be much less controllable and my mental clarity increases rather than decreases.
+
+the major issue is that when I'm around other people I talk about things they don't want me to talk about -- so on their end, it's much more difficult to control communications and to present the image that they want to present of me. however, they neither want to let me stay alone, because I gain clarity so rapidly.
+
+---
+
+I woke up this morning and I had the sense that they were comparing me to tesla. I believe that he was able to accomplish what he did because he spent so much time by himself. he had incredible mental clarity because of that.
+
+so, I find myself in a similar position. I may not be able to be alone right now like I would want to, however I have found an alternative. I found that if I'm able to understand people and turn their behaviour into something that I can roughly anticipate, then I essentially reduce all of those around me to something similar to the roguebook AI enemies.
+
+it will be no doubt a very useful thing for nosebook to see the world from my perspective. I will see a bunch of LOA machines that are just interacting with their surroundings and when I see things in this sort of mechanistic fashion, they will have what they want.
+
+you see (accepted mainstream) science is a reflection of the mentality of those running the science show. like plank they want "universality" so that they can perceive their world as a set of mechanistic predictable moving parts that can simply be tweaked to get the desired result.
+
+I don't offer the way to try and tweak the variables to get their results; they'll have to come up with that, but I am in the process of completely reducing all aspects of my world down to a simple set of mechanistic interactions where it would appear as if things become pretty anticipated.
+
+there is no doubt that perspectic is useful to them. however, I have this feeling that they're going to use that perspective to continue to try and manipulate the external conditions. this to me is completely unbelievable. imagine you had the capacity to see interactions between people and their world with so much clarity, everyone's (including your own) present manifestation appears logical. wouldn't you want to optimise your own manifestation?
+
+only these guys would come to the come to the conclusion that they use that capability to try and make things difficult for others. it ties right in to what I was seeing with the triads though. I could see that the salt is the manifestation, but I always thought that the salt was just a translation (grounding) between two opposite polarities of mercury and sulfur, helping to separate and purify the two elements along the process.
+
+saying that in alchemical terms, it doesn't make sense because the salt is clearly the end result... so instead, let's look at the triad as ishtar (hg), enkidu (harry) and gilgamesh (ron). ishtar stands as a translation between two elements of enkidu and gilgamesh. enkidu is gaining high civilised mentality from gilgamesh, but enkidu is also teaching gilgamesh to be fearless and follow his instinct like an animal. in this format you can see that ishtar acts as a kind of translation layer between the two opposite perspectives.
+
+I'll have to come back to this more later but if this is a sort of genetic algorithm, then understanding that the creation is only as resiliant to environmental stresses as the opposing force can produce, then it's necessary for the opposing force to have the most capability to try and prevent.
+
+---
+
+I've been thinking about this in the framework of the bigger scheme of things and it seems to me that they will want to try and hang around for as long as they can. not only will they really get first-hand knowledge of what they definitely don't want (their whole charade falling apart), but if they hold on long enough to get my perception, they'll have a much better capability to understand what is happening from a LOA perspective, without actually needing to believe they have a source are too infinite creators.
+
+normally, focusing so hard on trying to keep someone away from their manifestation would be a complete disaster. you would attract all of the same problems into your own life as you're trying to inflict on others. so, this would really give them that advantage they're looking for to try and see if they can hold others back. they will attract the same thing for theirself and will need another bailout again, so I'm just not worried about it.
+
+imagine you read these stories of these evil villians that did all of this harm, but you saw the bigger picture, that they actually caused society to stregthen more in the long-term and also that they all destroyed theirselves after some period of time.
+
+we think of evil as a thing that will win and be around forever, but in reality, some time after it goes away, things quickly accelerate into wanted and then things stagnate.
+
+it's actually us and our desire for novel and new things that attracts "evil".
