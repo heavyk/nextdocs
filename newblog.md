@@ -3592,3 +3592,39 @@ for now, they may be able to keep all of that tree of life (the "perfect" high q
 we'll see how it turns out, I guess.
 
 [1]: the idea of superconductivity is interesting to note at lower and lower temperatures, though I don't think that we understand temperature. I think something can have strong vibrations, indicative of high heat, but if those vibrations are of sinusoidal form, it won't feel hot. it's only when high intensity chaotic motion causes the sensation of heat (radio burns?). anyway, another thing to note is that some electrical components have negative resistance in some parts of the cycle, which means they're pulling in energy from their environment (in the form of heat?) rather than dissipating the energy as heat from resistance.
+
+### 2021-10-29 15:12 - the "best" is an illusion
+
+I had a reaction about the objectivfication of women being related to the advertisment, and I think the objectification of women is absolutely something that was *attracted* by them. in a world where perceived value is worth more than value as a function/utility[^1], because all items are functionally equivalant, then it requires that value be inferred based on certain qualities. like, most all women are capable of birthing children. so, if you want children, there are a lot of options. if you want a baby machine that's also pretty, less options, but still most of the younger ones fall into this category.
+
+therefore, for a women to stand out from the rest, she needs to have perceived qualities which make her appear better or best -- though, she is still functionally equivalant to the others as a baby machine. these qualities require that their buyers are objectifying them in a way wmich makes them appear better than the rest (and therefore more attractive).
+
+---
+
+I maintain that "best" is in illusion because everything is relative to the perceiver. because not everyone perceives the same way, best cannot exist. instead everything is just different, and you experience different things.
+
+imagine trying to figure out which genre of music is the best, or trying to figure out which artist is the best, which number is the best, which colour is the best, etc. these are things that are different, and I suppose that within the genre there are better and worse, but if you ask anyone what the best rock song is, you'll get different answers. even if you ask the same person in different periods of their life, you'll get different answers.
+
+there is no best or worst. there are just perceived best and perceived worst, and everything is different.
+
+---
+
+you can imagine that the further that one gets from eating from the tree of the knowledge of good and evil, the less that person believes things to be good or evil, best or worst, etc.
+
+this tree of good and evil is a kind of two-edged sword in the sense that your knowledge of good and evil can be imposed on you through society, culture, your parents, etc. -- or, in the case which I'm demonstrating, that by no longer playing the game of what is good and bad, or better and worse, then one begins to perceive the interactions between the components. when the interactions are perceived, the entire illusion of good and evil falls down. every thing is just a *different* thing (neither better or worse) interacting with other things in a way which produces their reflective results.
+
+so, if you can impose that knowledge of what is good/best or bad/evil/worst, then you can program the illusion how you want it to appear.
+
+---
+
+you must have contrast to create new things, however that contrast does not need to always be a competition to determine who is good and evil, or best and worst.
+
+imagine a world where this concept was understood and all things were just perceived as different, some more suitable and others less suitable (relative to you). you attract what you want and that's it.
+
+obviously that sounds like a far distance from the future. it may happen briefly here for a while as people begin to see through the illusion.
+
+however, to really create that kind of reality, there needs to be a force that cannot allow things to just be different. they feel so insignificant that they must be/do/have the perceived best, in order to maintain their superiority.
+
+eventually and naturally, people will grow tired of the advertised "best", considering that maybe the people with the best are miserable people. maybe something else is the answer. maybe it's not something external that they're looking for. maybe they're wanting to feel something or a state of mind -- something that cannot be determined with the "best" label.
+
+[1]: like a $1000 t-shirt is not usually a better t-shirt than a $5 t-shirt is
