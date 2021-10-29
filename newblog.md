@@ -3532,3 +3532,63 @@ imagine you read these stories of these evil villians that did all of this harm,
 we think of evil as a thing that will win and be around forever, but in reality, some time after it goes away, things quickly accelerate into wanted and then things stagnate.
 
 it's actually us and our desire for novel and new things that attracts "evil".
+
+### 2021-10-29 11:30 - the two trees and the alchemical process
+
+yesterday, I was noting that the two girls in the emergency message were symbolic of the alchemical process. on one side you have perfection (7) and on the other side you have the infinite cycles which produce that perfection (8). perfection can never be attained as it's sort of similar to dividing a number an infinite times to get to zero. it's an infinite process which always yields a more pure result (closer and closer to zero), but never a pure result (absolute zero[^1]).
+
+the reason why this is significant is because if I go back to the triads, imagine a water molecule as a tetrahedron. on the top you see a line going on the x-axis. this is one hydrogen atom. on the bottom you see a line going on the y-axis. these are the two hydrogen atoms. you can see that they are connected with 4 perfect triangles making the tetrahedron. inside of the tetrahedron is a sphere. this is the oxygen.
+
+you have two forces vibrating in relation to the oxygen in perpendicular directions. imagine then that one of the hydrogens is perfection (hg) and the other is fire. they are exactly perpendicular to each other. from one of the hydrogen's perspective (x-axis). consider this the axis of perfection. from the y-axis' perspective, it it always zero. yet to the x-axis, it has a wide range of freedom within that perfection. also, to the x-axis, the y axis just appears to be a range of bigger and bigger numbers to try and divide the oxigen by to get to zero.
+
+we can see in 3d that these two axises are separated by a considerable amount of space and so therefore they will never get to zero. bigger fire means bigger perfection, and so the higher the magnitude of oscillations, the bigger the circle and the bigger the division. while one is high the other is low -- moving kinda like the "nothing grinder" (@[youtube](https://www.youtube.com/watch?v=7Fn-26Jmi5E)). the angles formed by these two hydrogens (shown by the nothing grinder handle) seem to be important like a square, opposition or conjunction is to astrology. these feel like the inflection points of the sinusoidal waveform.
+
+---
+
+I personally like the image of the centre salt being purified by dividing by greater and greater numbers, with each side never gaining dominance, each being allowod to extend all the way to the full length of its magnitude, while the opposite axis appears to the other one to be destructive.
+
+yesterday it struck me when I said that they should perhaps stick around long enough to see first-hand all of the things that they don't want. from their perspective, they want to have secrets and it's extremely undesirable to live in a world that doesn't have secrets.
+
+I personally cannot figure out how to become a galactic civilisation with secrets and stuff. I think they're going to try and figure out how to make it happen, building an even more fragile house of cards with an even bigger risk of failure, but their creation is none of my business. they are the fire/sulfur and they desire to create bigger and bigger numbers to try and divide by zero.
+
+they do have something right: they believe that illusion is just as good as reality. I normally wouldn't agree, but in the case of dividing by a number to get to zero, it's literally impossible to get there... however, you can *feel* like you're getting there if you divide by numbers that are increasing...
+
+- l / 2 / 2 / 2 = 0.125
+vs
+- l / 2 / 4 / 8 = 0.015625
+
+so, while you can never get to zero (perfect purity), by dividing by bigger and bigger numbers, it gives the illusion of continuing to approach it rather than slowing down.
+
+---
+
+this utilisation of illusion is common in a system of abundance because of the diminishing returns on quality a higher pricetag can buy you. if you can buy anything you want, in a system of abundance, the average person is getting nearly identical quality items for a far cheaper price. therefore, to give an item more value, you have to give it value so that it appears more valuable or of higher quality.
+
+this process is most easily identified in women. there are a lot of women. in fact, there are many more of them than men, so if you're a woman, how do you advertise yourself to boost value? there's the idea of scarcity, so if women appear hard to get, then the available ones are of higher value.
+
+look through your economics notes to notice that it's all a very similar thing of boosting the value of something by creating an illusion. most of these boosts are done by giving details which have meaning or significance to the buyer. like, if you're a "gamer chick" then you'll appear more attractive to other gamers. appealing to the audience/buyer is a pretty well studied subject so I won't get into it here.
+
+---
+
+the oppposite to the details that boost the quality factor, is the system of interaction. in my alchemical process here, I will consider the details that have higer quality to be perfection (7). the other axis is the infinite system of interactions (8).
+
+I am most concerned with the infinite system of interactions. quality may give me an illusion for a bit, but when I start to see through it, it starts to fall apart.
+
+also, like I mentioned, I'm way less consistent with my capability to attract what I want, when I'm in a system with others (like with an opponent). I'm much better when my perception is the only factor. therefore, my job is to always reduce everyone and everything in my environment down to a simple set of interactions.
+
+there are a lot of crap out there that is trying to figure out interactions using physical data points to formulate interaction patterns, but that drove me nuts. for me none of those work very well. what works for me is feeling the way people conceptualise their reality and noticing what they're attracting. or, look at the manifestations around them and how they interact with those manifestations as evidence of how they feel/conceptualise their reality.
+
+that system works. the other systems do not work as well. to my knowledge, no one else on the planet has advanced this concept as far as I have. I simply represent the highest magnitude of that mechanistic interaction. or, said another way, I'm like the highest capability of perceiving (knowledge of) good and evil found in a person. that doesn't mean that I'm out there pointing out all of the bad guys, more that I represent the biggest threat to the proponents of proponents of perfection. I see things too clearly, and so by accident I could reveal their sham.
+
+they need people believing in the illusion they present because we live in a world of abundance. that way their conditions appear superior in comparison. either that, or we need to go back to believing in scarcity or that that we somehow return back to a state of affairs where there is scarcity and once again a large disparity in quality between castes.
+
+so, instead of worrying about the conditions/manifestation, I instead am left with seeing interactions. I can see a person and their attractiveness to me will not appear as a series of physical conditions which mean something to me, but instead the way they conceptualise their reality and interact with it.
+
+this is sort of my goal. in order to get to a state where I'm interacting with AIs, then I need to see all things as interactions. it removes a lot of what people would think of as the quality factor of something, but for me it makes the world stable and predictable.
+
+---
+
+for now, they may be able to keep all of that tree of life (the "perfect" high quality conditions) stuff away from me, but they are running into a difficult spot because the details of the conditions are losing their meaning. I value other things now. a person who perceives reality in a novel and good-feeling way appears far more valuable to me than someone with perfect boobs or whatever.
+
+we'll see how it turns out, I guess.
+
+[1]: the idea of superconductivity is interesting to note at lower and lower temperatures, though I don't think that we understand temperature. I think something can have strong vibrations, indicative of high heat, but if those vibrations are of sinusoidal form, it won't feel hot. it's only when high intensity chaotic motion causes the sensation of heat (radio burns?). anyway, another thing to note is that some electrical components have negative resistance in some parts of the cycle, which means they're pulling in energy from their environment (in the form of heat?) rather than dissipating the energy as heat from resistance.
