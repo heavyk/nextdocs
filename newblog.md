@@ -3674,3 +3674,42 @@ you gatta fight, fight the hydra...
 I really don't know what'll happen, and unfortunately I wrote a lot, but the main thing I wanted to say is that I don't feel as if anything "bad" is approaching.
 
 good and bad are illusions relative to the perceiver, anyway.
+
+### 2021-10-30 16:30 - not a killshot
+
+@[youtube](https://www.youtube.com/watch?v=x-rFsDDlmf8)
+
+I started watching the intro to the above video and I was reminded of this morning's news where ben was saying that this CME would *not* be a killshot (@[youtube](https://www.youtube.com/watch?v=GtEoWyrdBL0)). in my previous entry, I was talking about the magnetic field strength. it will take a much larger CME to wipe out the power grid. I fully agree with ben.
+
+in fact, after watching that intro I think it may be more of what I postulate -- which is that the sun is going to force me to go up.
+
+I base this idea on my theory that earth's magnetic field is sort of like an emotions amplifier. the stronger the magnetic field, the stronger you can feel things -- or move around your chi/prana/vril energy. I believe that the magnetic field was much stronger in antiquity (and the year were shorter cause the earth rotated faster), and this is what allowed people to use their chi energy to levitate large stones with ease.
+
+I also believe that this was the tipping point which caused the splitting of timelines. the sun pumped up the magnetic field even further to where the realities of the inhabitants were so incompatible with each other that LOA had to essentially create two realities -- one where the earth entered into a higher energy state, and the other where it didn't[^1].
+
+---
+
+he starts out that video by saying that halloween is special because it marks 40 days after the equinox and is the eve of all saints day -- the day where all souls become saints. I interpret this to mean that the whole earth enters into a higher energy state. I mean, that is the only way I know of that could allow all souls to become saints.
+
+NASA's ENLIL spiral predicts it hitting on halloween (@[youtube](https://youtu.be/KIvHrwVg7uA?t=115))... enlll predicts it hitting on halloween, huh?
+
+so, no not a killshot. I dunno if it means that I'm going up and it's going to be all saints day or not. I guess we'll have to wait and see.
+
+---
+
+also I had some reactions to the concept of a split that I presented this morning, and they were like, how do I know what side of the split I'm on... the one that matches how you conceptualise reality.
+
+the answer you're probably looking for is: lean into it, and having a positive expectation about something despite the physical evidence is exactly how to navigate toward wanted. fearing it is exactly the way to navigate toward a reality reflective of how that fear feels.
+
+there's nothing to be scared of. it only means that in a more energetic environment (as created by the CME impact) reality will be created faster, that's all.
+
+if it's not this time, it'll happen again for sure as the sun begins to ramp up into solar maximum. this sort of energetic state is inevitable. the only alternative is disaster, or maybe the one that I postulated yesterday of me dying (slowing dramatically the rotation of the earth) and allowing them time more time to try and prepare.
+
+though, I am sure, that tomorrow will shed new insight on just how much the sun's activity has on our consciousness (at least since 2017).
+
+---
+
+finally, I find it weird that enlil predicts it hitting on halloween, while NOAA (pronounced "noah") predicts it hitting later tonight. I thought that was a strange coincidence...
+
+
+[1]: I think this is probably how cells divide as well, and when they divide like this, one cell probably emits a small amount of light while the other will not.
