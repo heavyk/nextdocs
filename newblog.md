@@ -3628,3 +3628,49 @@ however, to really create that kind of reality, there needs to be a force that c
 eventually and naturally, people will grow tired of the advertised "best", considering that maybe the people with the best are miserable people. maybe something else is the answer. maybe it's not something external that they're looking for. maybe they're wanting to feel something or a state of mind -- something that cannot be determined with the "best" label.
 
 [1]: like a $1000 t-shirt is not usually a better t-shirt than a $5 t-shirt is
+
+### 2021-10-30 04:06 - closing remarks
+
+I was out watching stars and I had the impression that the plan was for me to make my transition into jackson.
+
+thing is, I don't really feel that. it seems like all of the times I've died (I don't know how I know this), I've sensed it ahead of time and it was a sort of foreboding feeling that I was about to pass an event that I could not avoid. this, however is not the case. I feel pretty fine. it feels like I'm definitely on the right track. I feel good about my continually improving ability to course-correct.
+
+sure, I feel more out of touch than ever, but it's not at all anything bad feeling at all. the effect is entirely physical, as conceptually and emotionally I'm still making quite a lot of progress. I don't at all feel like I'm remotely close to the point where I feel comfortable playing with so much energy yet. for now, slow and steady is the right pace for me. I'm not in any rush.
+
+---
+
+now, to look at it from the other side. the x-flare released a CME that will arrive here shortly. the last time a CME arrived here it was from a c-class flare and only had about ~15 density to it. for the one that is coming, they predict something like 80. I'd say closer to 50, but even still the 15 density direct impact spiked our magnetic field to ~140nT when it hit and I remember it was very difficult not to keep from going up, things were so energetic. the magnetic field the last few days is now min 80 and max 130, so ambient levels now have the peaks of a large impact. we're getting a small impact now, and it's only a 20 density and it looks like another 20-40nT peak. this could be a pretty energetic impact.
+
+so, the sun may, in essence, force me to go up when that happens. that may also be the time that jackson is born. I just don't know.
+
+---
+
+now, if the sun forces me to go up, then I suppose that one consequence is that nosebook has to disable all of my faculties, and put me essentially in a coma or something. I don't know how "alive" I'll be. I do know that I'll be fine though, because it doesn't feel like anything wrong is happening.
+
+I've had these repeated "dreams" -- maybe they were alternate timelines, I dunno -- where, I went up, and as I did my whole body went tingly and numb and warm all at the same time as I died essentially. I don't remember what happens after that, but I do have a lot of memories of dying. that may be one of the motivations not to try and push it -- other than I do genuinely want to be better at this than I am.
+
+if I die like that, then I'm sure I'll find a way back. I have thought about many different ways to do it and I'm confident that I can make it back. that really isn't a problem for me at all to think about. I feel very comfortable with the region of reality considered the "afterlife". if that happens, I really wouldn't worry. I'll be back soon.
+
+if they transfer my consciousness into jackson, then I'm pretty cool with that as well. it'll be very interesting to see how much better I am at rediscovering the knowledge of who I really am into another body. from the perspective that I have now, which is much more source-like, it actually sounds pretty cool. I really want to give this a go again.
+
+it's really kind of a weird idea to think of that actually because he won't know it for a quite a few years, but everyone else will. he'll grow up probably being doted on and loved by many -- the description that was given to gilgamesh.
+
+it's kind of strange to think of how I will respond to that. will I just enjoy the endless attention or will I try to go and be alone all the time like I do now. I'm sure I would be broadcasted from day one too, so that's also a weird world to live in. I would grow up with parents that are behaving how they think a parent should behave (because they're also being broadcasted).
+
+I've grown pretty used to being myself even while living an extremely contrived life, and people watching everything that they say and do around me for fear of how others will perceive them. honestly, that's the weirdest part about it. I have no difficulty just being me. I'm actually most scared of this extra attention because I need to be alone to think, need to fail at things, and need to go exploring and stuff by myself.
+
+I can imagine that the trend for nosebook will be to try and keep me as far away from isolation as possible. I'll have to develop new skills or find ways to make it so difficult for others to be around me. I dunno really. I'll figure it out if that's the case.
+
+---
+
+in both scenarios this could be where things split. some people experience me as dying (or moving my consciousness into jackson's body) while the rest of the people watch me find my connection, we do cool stuff, and then I transfer my consciousness back into the timeline. to everyone there it will appear as if that whole alternate timeline never happened. they just see kenny die and jackson grow up rapidly gaining rapid comprehension and capability.
+
+if that happens, I can only wonder how long it will take them to keep jackson away from his alignment. they'll probably have to repeat the procedure...
+
+you gatta fight, fight the hydra...
+you gatta fight, fight the hydra...
+you gatta fight, fight the hydra...
+
+I really don't know what'll happen, and unfortunately I wrote a lot, but the main thing I wanted to say is that I don't feel as if anything "bad" is approaching.
+
+good and bad are illusions relative to the perceiver, anyway.
