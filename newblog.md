@@ -3711,5 +3711,96 @@ though, I am sure, that tomorrow will shed new insight on just how much the sun'
 
 finally, I find it weird that enlil predicts it hitting on halloween, while NOAA (pronounced "noah") predicts it hitting later tonight. I thought that was a strange coincidence...
 
-
 [1]: I think this is probably how cells divide as well, and when they divide like this, one cell probably emits a small amount of light while the other will not.
+
+### 2021-10-30 22:56 - the hero twins
+
+@[youtube](https://www.youtube.com/watch?v=x-rFsDDlmf8)
+
+I when watching that I had some thoughts which I can't really figure out how to put into an organised form. so, here are some thoughts in no pardticular order..
+.
+
+#### lazarus of bethany
+
+he starts by saying that both twins are you. one is your source or higher self and the other one is the physical you. I totally agree. he mentioned the shortest verse in the bible being part of this greater myth of one of the twins weeping for the other and saving the one that had fell down.
+
+for whatever reason, I always thought that verse was in the garden after his bettrayal, so it was a surprise to find this verse in john 11 about lazarus.
+
+he mentioned that was a twin story which I had never considered until now. I started to read it in the NIV and it felt like I was missing something so I went to my homeboy de vere and the old (authorised) 1611 KJV.
+
+I noticed immediately that there was a distinction that the author of the KJV was putting across when referring to jesus. modern bibles capitalise He and Him when referring to jesus. vere (I'm just going to assume from now on he wrote it) here is using lower-cased "he" and "hee" when referring to jesus and "she" and "shee" when referring to martha.
+
+he's clearly doing this on purpose. consider verse 25:
+
+> Iesus said vnto her, I am the resurrection, and the life: hee that beleeueth in me, though he were dead, yet shall he liue.
+
+as I read through it, I notice that when vere is referring to the soul/essence/source (whatever) -- the non-physical part of jesus (or martha), he adds an extra "e". I now read that sentence a bit differently...
+
+---
+
+I just want to go on a tangent a bit here because that verse has a note to john 6:35 too which says something similar... I really dislike that rendering a whole whole lot. this whole, "jesus is the way, truth and life" nonsense is a bothersome to me. I don't know if it's because jesus really was that arrogant. it's cool to know who you are and to see yourself from the perspective of source, but the idea of trying to be someone else's source for them really is a big problem.
+
+if I could identify one failure of the last era, it would be this one.. no one else is your way, truth, or life. you are your own saviour. the thing you're looking for is not outside of you but it is inside of you. you are both the prodical son and the father.
+
+this idea that we need to "be there" for others is something that I think we've really taken beyond what is necessary and that that reliance on someone or something else outside of yourself for your stability is actually the source of every person's "trauma" (or disconnection) either directly or indirectly.
+
+tangent done.
+
+---
+
+so, armed with the knowledge that vere is saying hee for the source of jesus when writing "hee" illuminates the book in a new light. this resurrection of lazarus is symbolic of something bigger happenning, which I will consider that these hero twins show up as a symbolic archetype through the ages. consider verse 17 and 39:
+
+> (17) Then when Iesus came, hee found that hee had lien in the graue foure dayes already.
+
+> (39) Iesus said, Take yee away the stone. Martha, the sister of him that was dead, sayth vnto him, Lord, by this time he stinketh: for he hath beene dead foure dayes.
+
+when jesus showed up on the scene, spirit of jesus saw that the spirit of lazarus had been dead for four days now.
+
+I think this first half of this story is symbolic of the hero twins (hee), while the second one is the literal guy (he). I think this is the case because of verse 9:
+
+> Iesus answered, Are there not twelue houres in the day? If any man walke in the day, he stumbleth not, because he seeth the light of this world.
+
+I arrange the zodiac a little bit differently when talking about precession. noon is between scorpion and archer, midnight is between taurus and twins. dawn is between fish and aquaman. dusk is between virgin and lion. he's talking about a day with 12 hours in it, wich I will consider the upper half of that zodiac where it is day time, each hour corresponding to 1000 years.
+
+I know it's considered the great year, but I am saying that the part of the mind being illuminated (eyes can see) for 12 hours of the day sounds like the idea of going through the underworld. he's clearly talking cycles, where the underworld half one stumbles about. it's symbolic.
+
+#### lazarus as a hero twin
+
+why is it significant that lazarus has been in the grave for 4 days? I think that is because it's the 4000 years he's been in the grave. I just realised that these two twins play a sort of tag team, which the one that falls/fails symbolically creates the archetype of the evolution for the next era of the human race.
+
+btw, all of this is just an idea. I'm working it out as I go here. so, if jesus is the lamb that will fail, then jesus is the repeat performance of the last guy that came through and put us into taurus...
+
+---
+
+ok, I'm just going to write my ideas down the way I imagined them while watching stars and then I'll figure out what they mean later...
+
+I also just now discovered this other mesopotamian myth where a guy named adapa caused an upset. anu summoned him to question him. enki (lizzy) advised adapa (laura) not to touch the bread and water that would be offered him (just like lizzy). adapa (which was the first human that enki created) did not accept immortality and so was sent back to earth to live without immortality.
+
+that may explain why jesus was saying that he is the bread and water of eternal life. I contend that "immortality" is simply the ability to consciously incarnate into a body at will. there is no apparent separation between death and life. in times past the earth was so energetic of an environment, there was not such a separation as there is now, and so people did not die -- they just moved from body. jesus is basically saying that his form of perception will grant remove the separation between the physical and the astral planes.
+
+I say the same thing, but not that *I* personally give that form of perception -- instead that it will happen naturally to everyone on this planet. incarnate enough times here and you *will* combat your dual -- your twin, and no longer will that perceived separation happen.
+
+---
+
+ok, now on to what I was thinking about while watching stars... it looked to me like there are two sets of twins. one of them is predominantly female (I don't mean body shape) in character and the other is male (again not physically). you can represent these with male and female bodied archetypes. so like enlil is obviously the male to the enki female. sekhmet is obviously male to the female hathor -- etc. consider these in the triads as the fire (male) and mercury (female), with the between salt. both of these twins have a divine and and a mortal version of theirselves. so two sets of twins one mortal and the other divine representing fire or water.
+
+it appeared to me that jesus was resurrecting lazarus from 4kya, becoming the completion of the fallen 4kya event (whatever that was). he resurrects and completes that.
+
+however, he will create another split/failure again, where the mortal version of jesus will fall/die/fail (the sacrifice). this will allow for the next one (in this case fire) to show up and be successful. they play leapfrog... I postulate that lazarus would have had the symbol of a ram/lamb and failed.
+
+what I mean by this is that the two twins that are tag-teaming have the image of ram, aquaman, archer, scales, lion, and twins. I label this as the "female" twins. the other twin has the symbols of bull, fish, goat, scorpion, virgin, crab. that is the "male" twins.
+
+also, I'm pretty sure that when they say father, or anu, they are referring to source. I don't think they had a way to abstractly quantify a conceptual world. everything needed a physical/visual identification to be able to exist. I think they saw energy and vibration and referred to it symbolically as animals or plants. in their primitive minds, they needed a powerful sky god to represent the unbreakable *law* of attraction.
+
+---
+
+so, in the myths, one set of twins plunges into the underworld/trouble/death/mortality, and then the other has to come to save him. in the process of trying to save his twin, he himself fails and switches places. then, the opposite aspect (of fire or water) shows up. the fire represents the destructive purifying force, while the water is the nurturing force. too much fire (purification/optimisation) or too much water (nurture/care) will cause these polarities to swap and start over again. these two sets of twins are responsible for the cycles.
+
+that's the gist of what all of those are trying to say. basically, there is an auto-correcting feedback loop. there are two axises: extreme/mundane and male/female (as defined above). plot any point on the graph and you can get the value of the cycle.
+
+---
+
+I'm very unsatisfied with my definitions above. there are so many problems because I cannot say something is always one thing, because it's relative to the perceiver. also, gender is a huge problem because we think of it as real physical gender. if I use black and white, then it appears more binary than it should. if I say positive or negative (or left/right), then it has a good/bad connotation. there really is no good way to describe this in english. I'm beginning to really appreciate the hot and cold medias of mcluhan. I need to think of a neutral way to begin to describe these that does not invoke these polarised concepts...
+
+talking about cycles is such a difficult thing. if I look at the wheel one way it looks to be coming at me or going away. another perspective makes it appear to rotate clockwise and another perspective it's rotating anti-clockwise -- yet they are all the same wheel spinning the same direction. only the observer has changed.
+
