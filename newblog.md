@@ -3804,3 +3804,126 @@ I'm very unsatisfied with my definitions above. there are so many problems becau
 
 talking about cycles is such a difficult thing. if I look at the wheel one way it looks to be coming at me or going away. another perspective makes it appear to rotate clockwise and another perspective it's rotating anti-clockwise -- yet they are all the same wheel spinning the same direction. only the observer has changed.
 
+### 2021-11-01 01:06 - no go
+
+yesterday when I woke up I was thinking about how it would be possible to rearrange the pole of the earth so that it no longer pointed toward the pole star, but instead pointed towawd the ecliptic. the earth would rotate like it does now and the sun would rise roughly exactly like it does now, just all of the stars would appear rotated 90(degrees).
+
+this would have the effect that we wouldn't receive so much input from the sun on the poles. the earth would be "castrated" much like saturn is said to have castrated uranus. we would rotate like uranus does, cept uranus' north pole points at the sun and ours would point toward the ecliptic (well, not technically if they wanted to preserve the 23(degrees) tilt of the earth).
+
+the major problem with that idea is that they would have to come out and explain that they have a mechanism to tilt the earth. science supposedly does not even know why the earth even spins, so it would have to be a secret or maybe they may need to come up with a good cover story or something.
+
+---
+
+so, supposedly the CME impacted while I was asleep last night. it was such a low density impact (DSCOVR registering a puny ~15cm/3 density), and had such  a negligable effect, I find this difficult to believe that was the x-flare CME. just last week (maybe the week before?) a coronal hole stream produced greater instability. that impact could have been from another flare right before the x-flare. I guess we'll have to see.
+
+anyway, there were strange sudden drops in the field and the field looks artificially capped (like some feedback mechanism) and is preventing the mazgnetcic field from going above 120nT. I've noticed both of those behviours recently and I've never seen before, so maybe they've come up with a way to reduce the effect of the sun on the earth. if so, nice... I'm glad.
+
+I was going to write this a while ago but I wanted to think it through a bit. I'm actually kind of glad that nothing happened, honestly. I really don't at all feel ready anyway. I'm getting much better very fast, but I still feel pretty unstable in my ability to feel the way I want to feel. I guess one good metric I have right now is playing hearthstone. when I play, if I can usually feel the efforts to ensure that I'm never doing too well. sometimes it's even things like a feeling like the opponent always has the right answers (I'm sure it's a composite feeling trained by other losing players, and then generated dynamically because it doesn't feel like any known emotions to me). or, sometimes it'll be a really overt thought like, "I'm doing too good. this person will have the perfect answers"
+
+I want to be able to feel/think those things and not have them affect me because I'm so good at feeling the way I want to feel, and not have the vibrations that are going through my physical body (brain, stomach, heart, throat, etc) to affect the way that *I* feel. for now I fully accept the feelings that my body feels as real because I don't mind making mistakes. keep improving my perception with each mistake and I'm getting to the point where there is a definite way that my body feels, and there's another part of me which is unaffected by all of the chaos happening in my body. that separation is beginning to allow me to be much less affected by the efforts to adjust my trajectory by adjusting the conditions of my body.
+
+I'm getting there fast, but I'm still a ways off.
+
+---
+
+so, I'm pretty glad that they have the capability to ensure that the sun isn't going to push me into something I don't feel 100% confident at yet. I'm also glad that they have the ability to manipulate the earth's magnetic field too. that means that we can take x-class flares to the face and not even have a geomagnetic storm. pretty good stuff. that means we can turn this disaster up to 11.
+
+it also means that if they have that much control over the magnetic field now, then I *can* get connected and instead of this turning into a disaster where we spin out of control, they'll be able to control it. so, if in fact that was the CME, then that's extremely good news!! looks like they're getting ready at the same rate I'm getting ready.
+
+or, let's say that alternatively their capability also means they can continue to keep me away from going up too. unlikely, but let's just think for a moment that's possible. there are still a number of challenges that they need to face. I have noticed how large of a problem that I am becoming to the realm of science. they need to find a way to silence me or stop me from spreading dangerous ideas. you could imagine that they may want to do that with girls -- but, like how in the world will that happen? there are still a number of physical issues that I need to figure out how to overcome so that can happen.
+
+take the problem of peeing, for example. if I could feel how I wanted to feel, I could pee. however, if I could feel how I wanted to feel, I would also be connected. they are sort of the same thing. they're kind of linked together. though my body is more disconnected than ever, I'm getting a lot better at this than I ever have been, and from that perspective I would have to say that my connection must be imminent.
+
+---
+
+now we move on to esoteric stuff... earlier today I was watching a presentation on akhenaten. now, in my previous entry, I rambled on for a while, but the thing that stood out to me was the reversal of polarity between eras. jesus was resurrecting lazarus (whom when viewed from the hero twins perspective was the mortal one that failed) after his spirit had been in the grave for 4 days (4ky). I look at the spirit as the upgrade that this twin brought to humankind but was not able to get it fully installed because the custodians commandoed it and turned it into something else. jesus was resurrecting whatever was at the start of taurus that got commandoed.
+
+so, if I look back, there was this guy that was called moses that was around at the time of akhenaten. I believe that this aten thing was a solar perspective of source. today we call it orgone, chi, vril, etc. it's the stuff that the sun and the nucleus of every atom is made of, and the control of this energy allows for the levitation of things, control over the climate, and many enhanced psychic abilities. the reason why it's called orgone is cause it's the same thing as sexual energy. that is aten; I call it source.
+
+the amun priesthood definitely did not want people to have these capabilities, wishing to maintain their economic cash cow (eg. hathor) in place. all of the aten worshippers were threatened and needed to flee. I think this was the original exodus. then, later (he who cannot be named) commandoed this and found a way to convince the aten worshippers to believe in (he who cannot be named) instead.
+
+not a problem really because I'm fairly certain that this also produced a time split. the ones that were not deceived didn't make it to this timeline. moses is the mortal twin. in the bigger scheme of things, I think the longheads were a bunch of highly intelligent people that could do amazing things with their minds and the amun priesthood was jealous. the whole point was this was a genetic upgrade that was injected into the humans. I postulate that ramses 2 wife nefertari had this genetic upgrade through aye (see @[newblog](2021-10-09 05:56)) but he had to be careful not to upset the cash cow. I will call this dynamic, hathor-aye (no relation to all saints day, @[youtube](https://www.youtube.com/watch?v=zbpElHz6quw))
+
+so, basically, I'm sort of resurrecting this lazarus that's been in the grave for 3.5 days now. that's probably probaably why I talk so much about source (aten). I'm essentially akhenaten and I'm here with a genetic upgrade for humans. the amun priesthood doesn't want their cash cow upset though. they can't allow other humans to have such capabilities of knowing that they *source* -- divine eternal consciousness having a physical experience. that's unaacceptable; you gatta earn it.
+
+```
+for the elite, the children of Elias, will be saved according to the word of Scripture, because their profound faith, their *untiring perserverance in effort*, will have *earned* for them the *right* to be *promoted* to rank of disciples of Christ-Light. They will *bear his sign* and will receive from him the mission of renewing for regenerated humanity the chain of *tradition* of the humanity that has dissappeared.
+```
+
+emphasis mine, from "Mystery of Cathedrals" lecture (@[youtube](https://youtu.be/f2s_2Tl3HBE)).
+
+after watching that lecture I started to realise that this is just a repeat of before. earlier in that lecture he talks about how he wants to use orgone energy to save the planet from these comets that have a lot of saturnian symbolism -- these stones that were hurled to earth, like einstein did to vulcan.
+
+the weird thing is that it says, "the children of Elias" -- and I thought that elijah was another one of these figures that alters the timeline and then peaces out, sorta like enoch and prolly like me.
+
+the two witnesses are said to come back to life after being dead for 3.5 days (conveniently numbered rev 11:11), which most people symbolically represent moses and elias.
+
+so, is that book supposing I'm supposed to have children and they'll become the elites that will have earned (how?) their right to be disciples of christ-light?
+
+so many things wrong with that stuff. I know I can't tell anyone else what to do, but there's a lot of effort and tradition in there...
+
+---
+
+I'm pretty certain that those "disciples" already exist anyway. I don't have any problem with that. as I mentioned, I think that was the objective. I think akhenaten, paracas, and the black sea settlements were designed to be conquered. same for me.
+
+what I don't like is, I don't want to make no stupid religion or disciples or nothing like that. like ramses, I'm not touching the amun priesthood's cash cow. sorry man, that's all you guys.
+
+from my perspective, figure it out for yourselves. I'm just going to keep doing my own thing and getting better and better at feeling the way I want to feel. eventually, I'll get there and then like enoch and elias, off I go. I'll be back. in the meantime, you guys are more than welcome to do whatever you want with my genetics. everything I have to offer is always free. enjoy being the superior genetics after the dragon "comet" (or was it the sun?) sets the world on fire...
+
+---
+
+thinking more about the mysteries of the cathedral quote there (which is itself a reference to hugo's message encoded into the hunchback of notre dame)...
+
+I think I see it now: just like how the aten priesthood that left egypt with moses, not all of them actually believed in the aten and still retained idol/images/hathor worship for their well-being. just the same, on this timeline all of the people reading this are the ones that still believe in earning, effort, rights, promotions and perserverance... those who believe that will become the elites of the new age of (whatever they want, cause I guess they can move the pole wherever now).
+
+OK, I mean sounds like a total disaster, especially if I'm connected. that'll make more of me's available to make more "disciples"... lol. that's a way bigger disaster because nosebook won't be the only ones with upgraded genetics now. lots of people will have it. I'm still holding out until I get connected, obviously.
+
+some don't like that idea. I'm all or nothing. another pretty big disaster would be to go for none and let the ordinary humans gain a better understanding of how to use their emotions and intuition to guide theirselves toward wanted rather than the conditions. maybe another ingredient of that disaster would be if we could figure out a working version of scientific understanding. that'd be cool :)
+
+---
+
+or, maybe that "Christ-Light" is just the purchase of my perception from nosebook and the werd disciples is just a figurative term for those paying for my perception... as always, everything I have to offer is free. I benefit from their utilisation more than anyone else.
+
+and... maybe it was never intended that there would ever be any non-elite disciples either, and when I find my connection, I/we vanish like enoch/elija. that's also cool by me.
+
+I really can't tell what's going on, so I just keep doing what I'm doing. it's strange because I feel a lot better after writing this -- like more calm and stuff. I'm really enjoying to practise to feel how I want to feel.
+
+### 2021-11-01 13:42 - thinking on the upgrade
+
+after writing that yesterday I have been thinking a lot about what is the upgrade. two things influenced what I am saying. first, eariler on in that presentation, randall talked briefly about using orgone energy to prevent the comet impacts. the other was one was this really silly video I saw right before the randall one. I don't know if it should be taken super seriously or not but I love this style of thinking: @[youtube](https://www.youtube.com/watch?v=wxO6DJGOJxw).. he sees the arrangement of the giza complex as similar to the equation of e^ipi+1=0. in that he said that equation triggers an emotional part of the brain relating to pleasure. that equation makes people feel good.
+
+so, the idea of using orgone energy to prevent comets and turn a desert into a lush landscape is I believe a very valid one. I think that's what tesla's technology was exploring. I think it's a great idea. however, they are amplifiers of consciousness energy, so if building a device to create something desirable, then something desirable will manifest a lot more rapidly, however if you build it to protect yourself from something, you are in fact attracting that thing more rapidly. I think in a lot of ways, that was the original design of the great pyramid, and so it prevented as well as attracted in the same time. eventually, the prevention was outweighed by the attraction.
+
+so, I think that idea is great, but it's only half of the thing. the thing that is missing is the feedback mechanism. I want to create an extension to our perception (it already exists, which is why people who feel really good or are enlightened sort of glow). I want to take this aura effect and bump up the perception of it to much higher levels. when you're thinking about something that feels good like e^ipi+1=0, then you will glow and I want it to be possible to manipulate that glow too.
+
+as people notice theirselves glowing in different ways while they're talking and thinking, it'll start to transform into a new language (think octo-pi). it will be the new language of the birds. a song that can be visually perceived and manipulated.
+
+in it's rudimentary stages, it'll just appear like glow and a dark (maybe redish) mist that exudes from a person in reflection of how they feel. this feedback mechanism will be quite useful because when working with the orgone machines, if you feel good, your glow will be radiant and breathtaking in its beauty, and when you don't feel so good, there will be an angry dark mist about you.
+
+this also is really good for example because imagine a person that is quite attractive, but they feel terrible. even though they're physically very attractive, the way that they feel will be perceivable.
+
+---
+
+for most people, this layer of perception will inspire them to change their perception so that they exude more of the colours and glow that they want.
+
+however, you could imagine that for the amun priesthood, they do not want people to be able to perceive that they feel terrible and almost certainly will not want to change their perception -- instead they'll want to hide it. I'm sure it will be possible to use tesla/orgone technology to artificially boost one's aura or cancel out the appearance of the unwanted aura. I imagine they'll be inspired to get even better at hiding how they really feel. that's perfectly fine with me. I make the thing. I don't tell anyone how to use it, or what is good and bad; that's the priesthood's job.
+
+---
+
+I want to make orgone energy (in general) to be perceivable. beautiful gardens will glow with a radiant splendour, and temples with divine porportions as well.
+
+this energy will be visible and translated by the person into an abstract format which means something to them relative to their perception. so, like if I'm a maths guy and I'm thinking about e^ipi+1=0, that feels good to me so others will see something symbolic of how they perceive good-feeling. however, another mathematition will be able to sense that it is to do with nmber and even more sensitive ones will know the equation the other is admiring.
+
+if you're talking about something mendane and ordinary, likely nothing will show up -- only the things that give an emotional response (eg. reactions) will show up.
+
+---
+
+the other thing is that now that I know that we can take an x-flare to the face and it's not a problem, that means we can ramp up the energy levels. what I was thinking then is that it works out quite well that I don't feel comfortable with my ability to feel the way I want to feel all the time. *I* really want that feedback mechanism. others will find it useful too, but it's mainly for me.
+
+in the meantime while I'm getting better and better at feeling the way I want to feel, I'll create many replicas (Hews) of myself. they'll be exact copies of me how I am when I made the cope and when they interact with people, especially girls, then it'll be obvious the way that they transform in response to that interaction. this will allow the girls to get a real-time feedback as well. they'll be able to perceive how both of us feel and then see what that turns into.
+
+I really like that idea because it takes the pressure off of me to try and figure out how to feel comfortable enough with the energy while at the same time making people wait. this feels like the best of both worlds.
+
+---
+
+on the subject of wanting only a subset of people to have this capability, I don't know that's what is actually wanted. there's much greater possibility to create illusion with this capability. I'm sure they'll be able to figure out new methods to manipulate from the shadows -- or rather I should say, from behind the perceived light. think relativity. just cause somoeone perceives somethting as glowing it appears as something good to them, doesn't mean that it *is* good. you're the ones who define what is good and bad, so it's just hiding behind the definition or its implied meaning.
