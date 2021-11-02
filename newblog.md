@@ -3958,3 +3958,124 @@ draconids, oct 7,8,9
 
 break time.
 
+### 2021-11-02 13:?? - bloodlines of jesus
+
+@[youtube](https://www.youtube.com/watch?v=oyUOwvmLMm4)
+
+[God Kings: The Descendents Of Jesus (2009) - Feature (Documentary)](https://www.dailymotion.com/video/x20eg2b)
+
+started to get some ideas while watching this
+
+#### thoughts on jesus
+
+jesus was an ordinary guy that figured stuff out, and so then his bloodline will have enhanced perception -- very much like me
+
+that enhanced perception, I believe allows for "immortality" -- that is, the ability to consciously relocate onself after death into another body -- a body that has the proper bloodline
+
+over time after many of these transfers of consciousness into proper bloodline recipients, these bloodlines start to get pretty mangy and disfigured
+
+they need to find someone who will find the way again and produce kids (the sion seed) so they can move their consciousness into that new bloodline.
+
+---
+
+now, the weird thing is these god-kings that keep trying to keep the whole world under their control are constantly making up stories to keep their secrets hidden.
+
+one such story is the "divinity" of jesus. he can't just die on a cross and stuff, no now he needs to be in the grave for 3 days and then rise again.
+
+I have often wondered what is the significance of the 1000y reign of the return of christ.
+
+first of all, I think the returning christ is none other than the man who will rule the earth with an iron rod.
+
+the whore of babylon (ishtar) gives birth to this future king -- aka, this is the new bloodline of ishtar that these guys will move their consciousesses into.
+
+there is a problem though that the dragon is making war on the woman woman who will give birth to this new bloodline. that dragon is the "anti-christ" -- the one that is trying to provent the birth of this new bloodline. he is the dragon that "deceived" humankind (eg. enki the serpent in the garden)
+
+once this man who will rule the earth with an iron rod is born, now "christ" can return and save the world from the deceptions of the dragon. he will reign for 1000 years.
+
+2000 years since christ died + 1000 years reign of christ = the time that they want another guy to figure it out and make a new bloodline for them.
+
+at the same time that the man who will rule the earth with an iron rod (eg. the new bloodline), the two witnesses resurrect after 3500 years (3.5 days) of being in the grave
+
+there is a lot of similarities to the two witnesses, the dragon, and the first beast. the words give the illusion that they are sort of like characters in a play that are controlled by this great deceiver. I consider them of the same type
+
+the second beast emulates the first beast and I think is symbolic of the new bloodline that was born from ishtar (queen of heaven).
+
+#### what did jesus resurrect from 4kya?
+
+I think it was goddess culture, the idea that enhanced perception comes from the female bloodline (x-chromosome), and that is what enables this enhanced perception
+
+#### what am I resurrecting from 3.5kya?
+
+the aten (source) pricipal that everything has at it's core. it's the composition of the sun to the nucleus of atoms, to the "source" of each of us. we all have this built right in.
+
+#### what will eventually happen to me?
+
+of course I'll fail and also succeed. both realities will be created. after all, they are already creating the reality that they need another bloodline another 1000y from now...
+
+if you consider the image of the dragon making war on the woman who will give birth to next bloodline of god-kings, then my reluctance to go with the girls may be a manifestation of that.
+
+so then, it's said that "God" prepared a place for the woman away from everyone else (so she could give birth to more children?). I think that's likely the idea that they have other operations going on out "in the wilderness" where she (likely many women) is giving birth to more children.
+
+it probably behooves them to have quite a wide diversity of genetics in this bloodline so that in-breeding isn't such a problem.
+
+#### what's my perspective on this?
+
+I don't care. sure, the longer I hold out and wait until I feel ready, the more time they have to do their breeding program. I don't mind. you have to remember that from my source perspective, these guys are all incarnating into bodies that are me. I am them. they are me. we are both the "good" and the "evil".
+
+what I'm trying to illustrate now is that good and evil do not exist. they are simply a perception relative to the concept (time) through which you see reality.
+
+they will almost certainly try to suppress that idea because it doesn't fit with their god-king saviour narrative, I'm sure. however, I would imagine that someone will resurrect that idea in a few days time :)
+
+#### so, how can I be "just another guy that figured it out"?
+
+this is going to be a bit of opinion here.
+
+I imagine things in term of frequency and tuning, and that DNA is a physical component to that tuning. we incarnate here on earth because our "souls" are most similar to the DNA of earth (you're like 50% carrot, you know). well, likewise different bloodlines have soul affinities to them. I'm considering the soul to be the same as source, but as perceived from the astral, so there's resistace still. these "fallen angels" perceive very little change in consciousness when they "die" -- instead only moving from body to body.
+
+I think they've been doing this for so long that they are super scared to die for real. they "need" to keep finding a way to incarnate into a compatible bloodline which will allow them to maintain their enhanced (draconic) perception. they're so scared to release their resistance and actually die, they need to keep finding outs, and it's that desire to continue to incarnate and continue their "immortality" (god status), that manifests a person like jesus, tesla or me to figure it out.
+
+they need us to have kids though so they can incarnate into the childrens' bodies.
+
+---
+
+everything is resonant with the source of the universe, so everything is related, but since everything isn't one big blob, there is separation between the things. one thing is different from another because it has a sligtly different or greatly different frequency.
+
+all plants on this planet are like this planet (yet they are not the planet)
+all humans on this planet are like the plants on this planet (yet they are not the planet)
+the planet is a composition of a lot of different components.
+the differentiation between evewything is their "source".
+all members of the same species have a similar source (frequency)
+all members of the same species have their own source which identifies uniquely within the species
+the physical incarnation of that source is always slightly different than its source (which doesn't have age or defects)
+
+same is true for everything...
+all atoms in this galaxy are like the galaxy (yet they are not the galaxy)
+all planets and stars in the galaxy are a part (bloodline decendants) of the galaxy
+
+things begat after their own kind
+diversity is important because it creates new things
+
+---
+
+my source is has the "personality" of someone who is really good at figuring stuff out, and so I desire harder and harder difficulty levels to figure out that I am source.
+
+they provide me with these more difficult opportunities. each time I figure it out, I expand perception considerably in my return "back to the father" (return back to source).
+
+they utilise that enhanced perception to continue on incarnating into physical form because they're so scared of returning back to source (dying).
+
+I don't really have that fear. that's what makes me so dangerous to their charade.
+
+priests need people scared of their return back to source.
+priests need people scared of death
+
+priests need people to be worse than them so they can appear right(eous)
+- you need to believe you are a sinner
+- you have fallen from a high state of consciousness
+- only by your behaviour, deeds, and effort (that the priests determine which is good and right) can you be saved
+
+you are all eternal and divine beings. you can be *anything* you want to be, including who the god-kings tell you you are.
+
+is that who you *really* are?
+are you not source?
+I assure you, you are.
+you have only to realise it
