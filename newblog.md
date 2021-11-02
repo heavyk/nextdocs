@@ -3927,3 +3927,34 @@ I really like that idea because it takes the pressure off of me to try and figur
 ---
 
 on the subject of wanting only a subset of people to have this capability, I don't know that's what is actually wanted. there's much greater possibility to create illusion with this capability. I'm sure they'll be able to figure out new methods to manipulate from the shadows -- or rather I should say, from behind the perceived light. think relativity. just cause somoeone perceives somethting as glowing it appears as something good to them, doesn't mean that it *is* good. you're the ones who define what is good and bad, so it's just hiding behind the definition or its implied meaning.
+
+### 2021-11-01 17:20 - thougthts on comets/meteors
+
+I just watched a thinkg on the queen of heaven (@[youtube](https://www.youtube.com/watch?v=3CD_1Hy962s)), and now I'm watching @[youtube](https://youtu.be/g1K1s8ZSuxc) and I'm having a lot of thoughts and ideas come to me...
+
+#### how do comets/meteors work in the tychos solar system?
+
+I noticed that a lot of the symbols that referred to the meteors either had saturnian, jupiter, or venus symbolism to them. in his presentation there he shows the cross for the taurids meteors where the earth passes through the meteor stream twice a year because these are fragments that have broken up and their orbit intersects the orbit of the earth twice.
+
+in the tychos model (which I'm pretty much fully on-board with now), how does this work? the earth barely moves in the tychos system.
+
+the picture I get is that these asteroids orbit the outer planets and the earth, kind of like the hydroxyl bond does. the hydrogen will bounce between the two oxygens. the earth is negatively charged and so will jupiter or saturn, so a positively charged hydrogen (or meteor) will create a resonance.
+
+being positively charged, this is likely why the peak of these meteors is associated with fires, apparitions and visions, and also of psychosis. their presence is simply charging the environment allowing for the easier reception of these visions.
+
+it also solves the problem of jupiter throwing his thunderbolts (meteors) at earth and this being the cause of great upheaval and changes in power structures. it's quite possible that saturn also has meteors in resonance with the earth too.
+
+#### leonids meteor shower
+
+@[youtube](https://youtu.be/qMRqlAFxorA?t=204)
+
+I was reminded of that one picture of the last supper where da vinci draws himself into the picture in the place of peter. peter means stone and leonardo means lion man. that picture always had significance to me of leonado fortelling himself as the next stone for the next world age. the meteors appear to radiate out of regulus, the heart of the lion. see robert grant's stuff on the painting, "salvatore mundi" for more on that thinking...
+
+#### key asteroid streams
+
+taurids, halloween
+leonids, nov 17
+draconids, oct 7,8,9
+
+break time.
+
