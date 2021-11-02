@@ -4059,9 +4059,13 @@ diversity is important because it creates new things
 
 my source is has the "personality" of someone who is really good at figuring stuff out, and so I desire harder and harder difficulty levels to figure out that I am source.
 
-they provide me with these more difficult opportunities. each time I figure it out, I expand perception considerably in my return "back to the father" (return back to source).
+there are many types of DNA that are compatible with my source. I think actually the goal is to make it possible for me to incarnate into *all* human DNA. we will eventually gain the ability to perceive on a bigger and bigger scale, traversing our way up the heierarchy of sources until I/we are universe.
 
-they utilise that enhanced perception to continue on incarnating into physical form because they're so scared of returning back to source (dying).
+along the way, they provide me with more and more difficult challenges of environments that are less and less conducive to me making my (conscious) return back to source. each time I figure it out though, I expand that perception considerably in my return "back to the father" (return back to source).
+
+that enhanced perception remains a part of my source and can be tuned into by anyone, but is likely easier for people with similar DNA (probably maternal) to mine (hence the female bloodlines thing).
+
+they utilise various techniques (pranayama, etc) to acivate that enhanced perception and allow them to move into the astral upon death (that's why they're "gods") and continue incarnating into physical form because they're so scared of releasing their resistance and returning back to source (dying).
 
 I don't really have that fear. that's what makes me so dangerous to their charade.
 
