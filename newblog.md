@@ -4083,3 +4083,68 @@ is that who you *really* are?
 are you not source?
 I assure you, you are.
 you have only to realise it
+
+### 2021-11-02 16:53 - more thinking
+
+#### why did I mention tesla?
+
+tesla (and others) figured it out, but they didn't have any children, so ultimately they didn't become the new bloodline.
+
+they believe they can't get that perception on their own because it would require too much restructuring of their existing paradigm to release enough resistance to get it. so, to get that expanded form of perception, they need a bloodline.
+
+tesla almost certainly created a time split, because in his timeline he would have gone up without having kids and that would have left the rulers of the world up a creek without a bloodline. if they have to resort to normal human bodies (imagine everyone has expanded perception), then everyone else would would be more perceptive than them, because they've accumulated so much more resistance.
+
+if they have expanded perception, then they're still ahead of the kids that are being born and can transfer their consciousness into the kids. however, if the kids are less resistant and have more perception than they do, they cannot "take over" the perception that body has. kids being born naturally with a strong connection to their source (instinct or perception of good and evil), then they cannot continue to incarnate and it would mean their extinction.
+
+the thing they fear is for children to be born with a stroner connection to their source (knowledge of who they are) than these god kings have, they *must* finally die. at first, it'll start out with the upper and middle class kids having more connection than them, leaving them to only incarnate into the lower class kids until finally there are no kids with less connection than they have, and they finally have to die.
+
+from my perspective, which I likely share with tesla, I notice that the thing they fear the most is also the thing that we desire for our kids. we want them to be born with a strong drive to become who they know theirselves to be, rather than who society (or those that have power over them) tells them they are.
+
+therefore, our desire is the same as the god-kings' desire (fear is just desire for something unwanted). so, it makes a whole lot of sense to give them more and more capability to try and keep kids away from their connection. eventually, they will realise their greatest fear/desire and cause their own extinction.
+
+I believe that tesla figured that out and then from the future, and realised that their strong desire to continue to incarnate creates a reality too -- a split, and so therefore if he's anything like me, he came back and sabotaged his own timeline to make sure that they had a bloodline to incarnate into.
+
+however, in typical tesla fashion, he probably optimised the hell out of the timeline to ensure that they would get what they were looking for (their bloodline).
+
+wait, I'm not sure if I'm implying that I'm tesla and this is his sabotaged timeline or not...
+
+anyway, what I am sure of is that they'll get what they're looking for and I'll carry on to make what it is that I want to make...
+
+#### so, what do I have to offer this time??
+
+if you have only expeienced physical reality for thousands(?) of years, and have seen so much death and destruction, you may come to think that the material world and its physical experience is the only experience to be had.
+
+it would also feel pretty normal to feel terrible, because no resistance has ever been released. they're still holding on to these ancient artifacts and other physical things as their source for feeling good.
+
+I would imagine that the belief in power, wealth, and accumulation of valuable possions would be their highest priority. they want the best land, the best women, the best, etc. and make sure no one else has access to it.
+
+they are not one big happy family. they have forged alliances amongst theirselves to try and keep the priesthood going, but they divide into factions and war amonst theirselves over these material posessions.
+
+what I provide is access to a new reality which allows them to begin to make the acquisition and retention of their possessions a more stable process. if they can perceive how another person feels, they'll be able to manipulate the person a whole lot easier. they'll also be able to use technology to cancel out off of the feelings that repeatedly attract their destruction.
+
+I postulate that the great pyramid (and many of the stone coffers) took in physical vibrations in a compressed CO2 gas (which I think attracts protons and other positively charged things -- like comets?), then because of the size of the resonant chamber, that gas would begin to resonate at harmonics of that box's resonantc frequency, which I think was tuned to the DNA of the "gods" thereby transforming chaotic vibrations of protons in the environment into ordered and coherent vibrations resonant allowing the "gods".
+
+as I mentioned, this is a negative feedback loop because the more chaotic vibrations in the environment, the more enhanced their perception became, thereby *rewarding* them for having more resistant thoughts. this may be why mars is the god of war. the more confusion, anger, and fear they created, the better they would feel and see.
+
+eventually the chaotic vibrations began to accumulate so much that the devices broke and everything fell apart. they rebuilt their devices without changing their perception, so it happened again (the double cataclysm).
+
+I believe what makes jesus so special is that he figured out how to have enhanced perception even without those conditions. thus making it possible to use maternal bloodlines instead of resonant boxes for their perception.
+
+I figured it out too, and so did tesla. I think perhaps newton may have as well -- though, I'm not 100% sure there.
+
+what I offer is that feedback mechanism that allowing for the perception of that energy. they can do what they want with that. they can change the source of that dischord or they can be their own great pyramid, and transform it into whatever they want. they can use it to feel the way they want to feel.
+
+#### who were the two builders of solomon's temple?
+
+@[youtube](https://youtu.be/oyUOwvmLMm4?t=2289)
+
+this guy claims that the pharoah of egypt akhenaten was moses and he took the israelites out of egypt, probably from pressures from amun priesthood. anyway, he talks about how the two pillars that akhenaten erected are symbolic of solomon's temple, and that solomon's temple probably was likely never built and just existed as an archetype.
+
+considering the last section there, this could be the start of the realisation that external temples to boost this orgone energy are not a good thing, but rather it should be carried through the bloodline of moses/akhenaten (remember he's a longhead).
+
+anyway, I was thinking that perhaps this is again another time split. it's quite possible that like tesla's world system, it was built on an alternate timeline, but then from the future when gaining more control over their ability to tune into realities, they realised that this priesthood had created their own reality where the temple was not built or destroyed (to prevent another double cataclysm?), and so then moses himself came back and sabotaged the timeline leaving them a bloodline through akhenaten's daughters that can be incarnated into.
+
+so, in order to sabotage the timeline, the thing (solomon's temple) had to become a symbolic thing rather than a real thing, and because this symbolic thing *is* attracting the reality that they want, they moved over to the USA and setup to get solomon's temple built.
+
+this must have something to do with 9/11 where the two pillars fell, and building 7, the salomon brothers building fell without any damage having been done to it -- like the head of john the baptist.
+
