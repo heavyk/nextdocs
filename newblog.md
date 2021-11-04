@@ -4148,3 +4148,66 @@ so, in order to sabotage the timeline, the thing (solomon's temple) had to becom
 
 this must have something to do with 9/11 where the two pillars fell, and building 7, the salomon brothers building fell without any damage having been done to it -- like the head of john the baptist.
 
+### 2021-11-04 16:18 - I want to write but I don't know what about...
+
+so I decided that I would just start writing and see where I end up.
+
+the last two days I woke up thinking about the subject of whether this is the sabotage or not, and I've come to the conclusion that it is. now, whether it's aquarius or leo is completely irrelevant at this point because clearly they now have the capability to point the pole any way that they want.
+
+following the tychos model, the "year" is an orbital period determined by the sun pretty much. it's so difficult to describe, I had a look just now and I still don't know how to explain it. however, it appears that the sun has three moons (mercury, venus, and mars) and they spin around us like balerina dancers spinning around in wider circles.
+
+anyway, it's really cool. that gives them the complete control to set the "year" to be however long they want it to be. they cannot change the speed of the three moons of the sun, but they can change the rotation speed and the tilt of the earth.
+
+I've been thinking about this 4th T thing, where gemini represents the final phase of the zodiac and how three of them would be symbolic of a pregnancy. you're not supposed to stay inside of the womb for the full 12 months. there is a moment where the size starts to get too uncomfortable and the body provides the opportunity for the baby to finish it's 4th trimester out in the real world without the stomach dictating the orientation (could you imagine floating upside down for another 3 months straight?) in a lot of ways, I think the baby is ready to get out too.
+
+---
+
+so, in the same way that they're now able to move the pole to wherever they want to, I think of this more like a birth rather than a disaster. they get the chance to take it any way that they want to go.
+
+I've been carrying on about a bunch of very (likely) uncomfortable subjects for a fair bit now -- like race, colour, religious orientation, bloodlines, and breeding -- and I'm sure that it's all pretty annoying for people.
+
+I'm sorry, I suppose. I like to throw a bunch of stuff out there and then see what starts to stick. like, imagine you had a pot of spaghetti and you threw up up at the ceiling and see which strings got stuck. it makes a huge mess, but it's good at getting a bigger picture of what the pasta looks like.
+
+the thing is, I think there's a lot of truth of it in there -- like maybe even more than half of it is true. there are a lot of conflicting stuff, like why do they believe that jesus did not die but went to india, yet at the same time the cloth of turin is considered a valuable relic.
+
+personally, none of that stuff makes any sense to me at all. it seems to me like they're giving far too much importance to the least effective steff. it's like trying to get high only from second-hand smoke. I mean you could in the air was highly concentrated, but why not just smoke for yourself? another analogy I can think of would be trying to become the richest person in the world by stealing others' inheritances. why not just become the richest person by receiving payment from many others? why steal? and why limit yourself to other people's things...
+
+none of it makes any sense to me until I put together the part that this all about the "immortal" god-kings. they're "gods", not because the are any more divine than any of the rest of us, but because they utilise these higher states of consciousness to move their consciousness between bodies after death.
+
+I find it quite likely that I can do something similar as well, but I think the major difference is that they just continue to perceive the "astral" world, never seeing further, however, I "see" (rather feel/know/perceive) a much more conceptual reality that is a lot more symbolic and abstract, not too much more different than a mushroom or DMT esperience and I perceive a new thing and then jump back in and watch reality unfold over the years. I think I either fairly regularly or definitely find my way back to that perspective before I die, and sometimes a much prior to death (like now for example).
+
+I believe this common, natural and everyone has it, just few people actually *realise* that is what is happening when they die. they tend to interpret those "near-death" (or actual death) experiences with far too many tangible details that it feels strange and foreign (and therefore scary) to them.
+
+for me, death is getting to pretty close to the same way that I perceive. when I say that, I don't mean this physical perception -- like not with my eyes and senses and stuff, but the emotions that I can't feel, the thoughts I don't become aware of until later, the sensations that I don't physically feel, and the very tini-tiny voice (it's more like a knowing) that everything is going fine.
+
+I maintain a very normal 3d human body that looks and sounds just like a normal person, but I'm so much more than that. I'm only getting used to giving that practically imperceptible sense more importance to that the physical stuff. the physical world is very convincing so that's why I can perceive it so well.
+
+when I watch stars, I can feel myself going off into that between death and life space. to you guys, it likely appears as incohrerent symbols and/or fractal visuals, but to me in that moment everything makes sense and I am perfecly navigating my present circumstances. from that perspective there aren't any mistakes.
+
+in fact, the knowing there is so clear it's often concers me that the passage of time *only* occurs because we remember discordant "notes". the more harmonious and clear it gets, the less time seems to pass and the less memorable it is. I almost never can remember any of it when I get back.
+
+---
+
+so, if these guys are moving their consciousness between bodies and maintaining a perception of the physical world and *remembering* things, they released very little resistance. they just shifted their perspective slightly going into a new body, but no matter how hard they try, they'll get the same results because their perception never changed. it's exactly like the double catastrophe, but repeating every lifetime.
+
+when I realised that, it all made sense to me. I understand them perfectly at this point. I see what they're trying to do. I think I have a better way, and hopefully that can of some use.
+
+---
+
+I also got to thinking about the difference between me, jesus, and akhenaten and I noticed a progression.
+
+akhenaten had all of the good conditions. the egyptians know how to create energetic environments, and so did he. he also had the space alien heads. I'm now beginning to believe that some of the carvings were actually from the 18th dynasty, because they were. it's quite possible that these "foreign ruler" hyxos were actually longheads. some had it more than others and I would guess that they injected theirselves into the pharonic system with a series of demonstrations that angered the amun priesthood. they likely did very elijah-like things like levitating rocks, moving fire (energy) around and carving stones -- something that the amun priesthood definitely could not do.
+
+the amun priesthood was a giant scam to reuse old artifacts and put a whole bunch of religion around it all to keep people scared of death. it was a giant con-game to use people's fear of death to make money off of them and install theirselves into positions of power. so, you could imagine that when a group of guys shows up (these would be the early hebrews coming from abraham) that had the believable conditions like larger heads and the actual capability to move rocks and energy around with their mind -- something that the amun priesthood were just pretending to do -- that would have greatly angered them and they would have sought to get rid of them at all costs.
+
+my present situation is very similar to that one. there is no no fakery. I am 100% who I am. I no longer have anything to prove or an axe to grind, so all of the difficulty at this point is their own. the major difference is that this time I *don't* have the visible conditions. I'm very much a normal guy that belives he can figure anything out. I just need time and to relax a bit to allow it to come. there's no visuals, no super mind-blowing displays; it's just this. this is how I figure it out. I listen to myself.
+
+jesus was a bit of a step between. he still had the right bloodline to get the perception, but it was *him* and his form of perception that figured it out. if you believe that thomas (didimus) was his twin brother, it's almost as if it were planned to show with evidence that bloodline alone does not automatically grant you expanded perception. there is an element of preparation of the spiritual vessel for the reception of this liquid.
+
+IMO, most people missed the point though and thought that it was all about the works -- the preparation, rather than the perception. after all, this is likely the result of jesus pushing so hard against the pharisees about their action/works and economic orientation to spirituality. this pushing against must have been so strong that not only did it get him killed (the romans needed to get rid of him like amun priesthood needed to get rid of aten) that every church and religion that has modeled itself after christianity since then has had a stumbling block of going too far toward action/works or economic gain, that this clearly is the vibrational legacy[^1] of jesus if you ask me.
+
+now, we're back to aten again and they need to get rid of me. however, this time it's called source, it's much more programatic, technical, and understandable.
+
+this is a good mix: @[youtube](https://www.youtube.com/watch?v=dFX1byJWOJU)
+
+[1]: along with many other good things, but remember good and bad are the same thing looked at from different perspectives, which I think is why there are so many cheritable christian organisations and revival movements.
