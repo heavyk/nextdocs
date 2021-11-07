@@ -4211,3 +4211,71 @@ now, we're back to aten again and they need to get rid of me. however, this time
 this is a good mix: @[youtube](https://www.youtube.com/watch?v=dFX1byJWOJU)
 
 [1]: along with many other good things, but remember good and bad are the same thing looked at from different perspectives, which I think is why there are so many cheritable christian organisations and revival movements.
+
+### 2021-11-06 17:33 - a bit more on the progression (between akhenaten and me)
+
+I kind of skipped over a few parts the last time which I thought I wanted to mention.
+
+first, like I said akhenaten had all of the physical conditions, and I also believe that he displayed them as well. he had the longhead and I think he used his superpowers to get himself into power -- which is a prediction based on the reflective property of the amun priesthood doing the same thing, but giving the *illusion* that they have superpowers, and people's belief in their fraud is what gives them legitamacy to power. it must have been so annoying to be "beat" by someone using their same technique to rise to power, however he actually demonstrated the capabilities he demonstrated.
+
+even the whole 10 plagues thing is a display of power. all you have to do is swap "pharoah" with "amun priesthood" and realise that their tricks like turning staff into a snake or the control of weather and such were just not working. I could really imagine the scene of challenging the power structure with a "my god can beat up your god" sort of rivalry a theme that continues all the way up to vere's time as a way of establishing dominance. it's "throat" chakra (structure) form of creation[^1] all the way.
+
+so after many demonstrations of power, the priesthood finally lets akhenaten leave with the "israelites" -- which I believe was actually the aten priesthood, which later became the israelites.
+
+what I'm trying to illustrate is that the pivot upon which this change of era occurred was arounnd who would see and believe the manifestation. moses/akhenaten left egypt with the people who needed a display of power (miracle) in order to believe -- something that jesus references in other places in the gospel. here he refers to the past (eg. moses)
+
+> Then said Iesus vnto him, Except ye see signes and wonders, yee will not beleeue. (john 4:48)
+
+then he predicts the future...
+
+> For there shall arise false Christs, and false prophets, and shal shew great signes and wonders: insomuch that (if it were possible,) they shall deceiue the very elect. (matt 24:24)
+
+even in the heavily modified narrative of jesus, this still remains that the crux of the next pivot will again be around whether or not the elect or deceived ones need to see signs and wonders in order to believe. aka, "do you *need* the manifestation in order to feel good?"
+
+jesus, in his attempt to avoid the unwanted manifestation of the pharisees, attracted it right to him. the power in his "death" was the realisation that he is not the physical conditions of his body. who jesus *really* is, is not that broken and mangled body.
+
+---
+
+that's one angle to look at it. another angle is to note that in moses/akhenaten times, the conditions needed to be controlled. good conditions meant good things (prosperity and good fortune -- the gods are pleased) and bad conditions (plagues etc) were a sign of (difficult times and misfortune -- the gods are displeased). in those times, it was believed that a sacrifice needed to be made in order to appease the gods. this is the whole symbolism of the sacrificial lamb and stuff, but on a much bigger picture, notice the progression: in moses time, good conditions meant good favour. threfore, go toward good conditions and avoid the bad ones.
+
+jesus, would push against the pharisees, and I'm sure that there was always someone there telling him he was attracting his own destruction. even notice in the story of lazarus, (according to montgomery) his twin brother even says:
+
+> Then said Thomas, which is called Didymus, vnto his fellow disciples, Let vs also goe, that we may die with him. (john 11:16)
+
+in my early life, this voice of thomas was mom telling me that I am not invincible -- and that it's not what I believe, but what others proclaim to be the reality which will happen. that's the that throat chakra (manifesters) showing up again. jaron also played this role a lot, telling me what would happen, and then because I believed him, it would.
+
+I gradually learned to take a more feeling approach to things because no matter what anyone else says or does, reality will manifest as a refection of how I feel/conceptualise my environment. this always trumps the manifestation.
+
+from their perspective, after these manifestors proclaim their future, they then "need to be right" (righteousness) and then have to find a way to ensure their future is the one that they experience.
+
+therein lies the major differences. on one side you can see that you have these manifestors that proclaim (or visualise) the conditions that they want and then need to find a way to be right about those conditions. they need the manifestation to feel good. if things don't happen the way they need them to happen then, it all falls apart.
+
+---
+
+so, where the split is happening is basically between the feelers and the manifestors.
+
+as I showed in the last entry, they're now capable of altering the conditions of the planet so as to pump up the conditions in order to manifest some things that they want (my favourite visual? demonstration of this is hearthstone games), and reduce the conditions to keep unwanted manifestations from occurring.
+
+they can let go and create their own reality whenever they want, but I think they'll use that capacity to adjust the conditions to continue to keep me away from the manifestation they don't want me to have...
+
+---
+
+so, what comes next? I dunno. I don't really care so much. I just keep doing what I'm doing which is getting better and better at getting right up to going up but not trying to push it. I'm sticking to the not needing the manifestation bit. they can do whatever they want.
+
+---
+
+following the progression, the next era will likely be defined by this era. let's look at the pattern. for moses, he used displays of power and ended up with the very thing that he was fighting against. for jesus, he avoided the unwanted conditions and by doing so attracted the unwanted conditions he was trying to avoid.
+
+because the amun priesthood is always lagging an era behind, this is likely the manifestation that present-day nosebook will experience -- of attracting the very conditions they're trying to avoid.
+
+consider also that my whole thing is being able to feel the way that I want to feel no matter what the conditions are. so, no matter what manifests (whatever they're trying to avoid), then I'll want to keep trying to figure out how to feel the way I want to feel. what that means in practicality, I don't really know.
+
+therefore, I would say that the next era will probably be, just like this one is the opposite of moses (needing the condition/manifestation) the next will be opposite of jesus (which is avoiding unwated conditions) -- so the purposeful attraction of unwanted.
+
+the only way in which this could work is if society was living in such a state of beneficial conditions, that everyone is out there worrying so hard about having all of the perfect conditions, that someone(s) show up that are purposefully trying to get unwanted conditions for the express purpose of expansion -- someone like me that wants to go for the disaster, but *wayyyy worse*, lol.
+
+that's my prediction, following the pattern anyway.
+
+remember, thes are illusory trajectories of transformation. they're only as real as you believe them to be; create your own reality.
+
+[1]: I'm reminded of a youtube I saw a long time ago with robert grant talking with an astrologer about how she and he both are "manifesters" -- where what they proclaim becomes reality (the example was fortelling people's deaths).
