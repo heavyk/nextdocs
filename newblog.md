@@ -4266,7 +4266,7 @@ so, what comes next? I dunno. I don't really care so much. I just keep doing wha
 
 following the progression, the next era will likely be defined by this era. let's look at the pattern. for moses, he used displays of power and ended up with the very thing that he was fighting against. for jesus, he avoided the unwanted conditions and by doing so attracted the unwanted conditions he was trying to avoid.
 
-because the amun priesthood is always lagging an era behind, this is likely the manifestation that present-day nosebook will experience -- of attracting the very conditions they're trying to avoid.
+because the amun priesthood is always lagging an era behind, this is likely the manifestation that present-day nosebook will experience -- of being stuck with all of the people that need the good-feeling conditions (manifestation) to feel good -- the moses manifestation. the rest of the people are the ones are on target with me for the jesus manifestation -- attracting the very conditions they're trying to avoid. so, call me thomas if you want, but, this attracting the very thing we're trying to avoid could actually be a theme for us. remember, the goal is to realise that who we really are is not the conditions that we attracted by trying avoid them[^2].
 
 consider also that my whole thing is being able to feel the way that I want to feel no matter what the conditions are. so, no matter what manifests (whatever they're trying to avoid), then I'll want to keep trying to figure out how to feel the way I want to feel. what that means in practicality, I don't really know.
 
@@ -4279,3 +4279,5 @@ that's my prediction, following the pattern anyway.
 remember, thes are illusory trajectories of transformation. they're only as real as you believe them to be; create your own reality.
 
 [1]: I'm reminded of a youtube I saw a long time ago with robert grant talking with an astrologer about how she and he both are "manifesters" -- where what they proclaim becomes reality (the example was fortelling people's deaths).
+
+[2]: consider also that I have been trying to avoid the situation where I feel uncomfortable because I don't have full capability of my physical body. this is a natural instict because discomfort doesn't feel good, and so therefore I try to avoid it. I want to feel stable and physically capable -- which is a mental state, not a physical state of relaxation.
