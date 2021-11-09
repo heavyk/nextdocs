@@ -4281,3 +4281,91 @@ remember, thes are illusory trajectories of transformation. they're only as real
 [1]: I'm reminded of a youtube I saw a long time ago with robert grant talking with an astrologer about how she and he both are "manifesters" -- where what they proclaim becomes reality (the example was fortelling people's deaths).
 
 [2]: consider also that I have been trying to avoid the situation where I feel uncomfortable because I don't have full capability of my physical body. this is a natural instict because discomfort doesn't feel good, and so therefore I try to avoid it. I want to feel stable and physically capable -- which is a mental state, not a physical state of relaxation.
+
+### 2021-11-08 23:49 - an assortment of thoughts
+
+I felt dissatisfied a little bit with the translation of the concept in the previous entry of "attracting the very conditions they're trying to avoid". I've given it a lot of thought and I essentially mean LOA will be hightened. I've said that before so I wanted to expand on the idea of manifesting the things that one is trying to avoid. before I get to that though, a few other thoughts...
+
+#### the jews and the annunaki
+
+tonight I watched two videos:
+
+@[youtube](https://www.youtube.com/watch?v=0XXnA7xmhao)
+@[youtube](https://www.youtube.com/watch?v=gNFDbx-nJNI)
+
+there was a line in the first one where he says that the sumerians were not a semitic peoples prior to some point. that reminded me of the "woke bulshevik revolution" where he ends with a jewish guy talking about mein kampf and how hitler was using the "woke bulshevik revolution" (organised by the jews) as good reason for "doing gods work" to exterminate them. putin did a similar thing in the clip prior to that one, using the "woke bulshevik revolution" as an excuse for enforced gender roles for russia.
+
+it's the same pattern following throughout history. you have this labour or wealth redistribution force that comes and overthrows the structure of a society, and when it comes back, it comes back worse.
+
+I remember that abraham would say that if you were to take all of the dollars and redistribute them evenly to everyone on the planet (a very dollar-centric perspective), that after some period of time, the poor would return to being poor and the rich will return back to being rich -- because it's not the conditions that you have, but what you're attracting (eg. the way you conceptualise yourself and your world).
+
+#### the shining ones (elohim)
+
+that got me thinking. as I have begun to see past the binary perception of good and evil, I have begun to think of these things as processes, which then reflect theirselves into the consciousness of the world around us. just as mcluhan postulates that tools are an extension of human and that games are a reflection of the mentality of their origin, I postulate that social dynamics [^1] is an extension of our perception[^2], and that religion (or spirituality) is a reflection of the mentality of the social dynamics.
+
+what I'm basically saying is that all of these beings and zodiac symbol are all manifestations of one process; think genetic algorithm. next, there is the term "shining ones". when I heard that I suddenly thought about those pictures of jesus where he had this radiant glow around his head. this is the "crown" and it turns out that the ancient symbol for "crown" (used to denote these god-kings) was crown and the ancient symbol was a symbol of bulls horns (@[youtube](https://www.youtube.com/watch?v=XNLsnqGkXOI)).
+
+the sumerian culture sprung into existence in taurus. this crowning of the next god-king to be the next enlightened ruler must have been an instution that came about when sumer went from a non-semitic civilisation to a semitic one[^3].
+
+#### moses and the end of the age of taurus
+
+it is my belief that the aten thing is a real thing and that moses did discover what we now call "source" -- the thing that permiates everything, and is primarily what the sun is composed of. if you're a scientist this would be protons the earth/enki energy, while the air/enlil energy is electrons.
+
+however, as bramley points out, this maverick religion quickly gets commandoed by a 
+"shining one" called YHVH. I doubt that the moses of aten and the moses of YHVH are the same one. the custodians (which I think are none other than the aryans that moved to the south pole) rewrote[^4] the original tablets to give a whole new meaning, meanwhile encoding a number of other hidden meanings -- a very shakesperian sort of effort.
+
+the rewriters of the original 5 books of the torah were good at storytelling formula, and borrowed a number of akkadian stories, which were theirselves adapted from sumeria (garden of eden, flood, etc.).
+
+to illustrate this I want to call attention to the story of "moses" birth which is a ripoff of the akkadian story of sargon. when sargon the akkad conquered sumeria, this may well have been when sumeria became a semitic civilisation. he is the proud governer of enlil. so, by moses telling his birth story as sargon's he is equating himself with this divinely directed guy to conquer these shining ones people. I'm pretty sure that wasn't what the original story, but the custodial rewrite.
+
+"moses" brought in the age of aries (after which the aryans are named).
+
+so, here is a bit of a time-loop or a "what comes first: the chicken or the egg?". if hitler had time-travel and shining saucer technology, would he go back and manipulate the aten priesthood exiles with a YHVH and rewrite history so that the aryans are the conquerers and not the semites? -- and if that hadn't have happened, would the jews felt so inspired to incite the "woke bulshevik revolution"?
+
+I don't really know if we understand the passage of time very well. for these things to be occurring, both the event and the characters must be attracting each other for it to work out. the jews prevented a lot of aryan domination, but clearly the aryans didn't eradicate the jews either. they are clearly quite alive and well and attempting another revolution/redistribution.
+
+#### the moving magnetic pole
+
+I noticed a peculiar trend that the magnetic pole seems to shift in a 5-pointed star pattern. right now the north pole is moving from it's position over the california/canada longitudes over to where ankor wat is located in siberia.
+
+I don't know how often the pole moves, but if I had to guess, I would estimate that it moves from one point on the star to the other every 2ky. this may even be the original reason for the 12 zodiac symbols (considering that each great cycle is ~24ky).
+
+inotherwords, the position of heightened mental capabilities is moving away from the USA and over to china/russia.
+
+as bramley (and others) point out, there may be something to the stories of the angel moroni and the strange occurrances that totally wiped out things like the pueblo culture.
+
+---
+
+I don't really know how to say this, but it seems like the two pillars of solomon's temple have moving out of the USA. we're getting the "woke bulshevic revolution" to happen here in the USA.
+
+it seems that before the next "root race" is setup, the custodial setup must remove all of its opposition.
+
+#### the next root race
+
+I think the next root race is actually a mostly androgynous (not physically though) or hermaphrodite group of people. physically they may have a penis or a vagina but they will contain both male and female aspocts in roughly the same amount. there will be much less "gender roles" like there is now.
+
+so, to bring about such a new root race, you have to build the genetic algoritm. one side is designed to enforce a strong set of approved colour/race/religeous/gender expression, while the other side tries to constantly suppress all extreme expression by being extreme theirselves and fighting for equality by fighting for the underdog.
+
+do *black* lives matter, or do *all* lives matter? if I were to tell you, "black people are poorer than average and therefore need to be bolstered because their lives matter" -- you'd probably call me a racist. if I said, "all people poorer than average and therefore need to be bolstered because their lives matter" you would wonder how all peole can be poorer than the average. they claim that they are equalising, but by singling out a group of people/race/religion/colour, they are theirselves labeling that group as inferior.
+
+by teaching people that some group is disadvantaged, that group believes more and more that they are disadvantaged. even if you equalise things, their own beleif in their disadvantagement will attract a future where they are disadvantaged, creating further disparity, while pretending to be their saviour.
+
+#### the future saviour is your own perception
+
+I have long held the opinion the pineal is the "office of the christ" and that you can only save yourself through your perception of the things that cause pain in a new way. that's the only way to reduce the inefficiencies of one's own perception. I'm certain that someone out there has a statistic on how much more inefficient depression and anger is compared to one of enligtenment. just the manifestation of how exhausting it is to maintain anger frustration or depression should be an indicator of its inefficiency.
+
+many have noted how much much energy one has waking up after having had a NDE or transformative psychedelic experdice. it would seem as if you had tapped in to a cosmic source of energy.
+
+therefore, I propose that the christ is an energy optimisation technique which is *also* responsible for creating our reality, and *is* the manifestation of these enki/enlil forces (created as a reflection of your perception) in reality.
+
+I'm going to leave it there. I have more I want to say, but not yet.
+
+[1]: the limbic/mammalian brain
+
+[2]: perception I believe is produced in the pineal as a convergance of the two hemispheres. this directly acts on the heart which is like the time/space reality tuner
+
+[3]: prior to the institution of the patriarchical god-kings, it must have been a goddesss-worshipping or matriarchical one.
+
+[4]: likely, like doug points out, the letters were not changed because they were engraved into a very hard stone -- a capability that the longheads were capable of doing with ease using only their minds -- including levitation (tribe of levi) and other things that were contained within the capabilities of the "ark of the covenant"[^5]
+
+[5]: which I think was the result of the negotiation with the amun priesthood. they must have wanted a device that could perform magick for them, and so then "god" (aka the pharoah) instructed "moses" the way in which he should build this device so that he could be directed by the custodial "shining ones"
