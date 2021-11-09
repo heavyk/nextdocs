@@ -4368,4 +4368,63 @@ I'm going to leave it there. I have more I want to say, but not yet.
 
 [4]: likely, like doug points out, the letters were not changed because they were engraved into a very hard stone -- a capability that the longheads were capable of doing with ease using only their minds -- including levitation (tribe of levi) and other things that were contained within the capabilities of the "ark of the covenant"[^5]
 
-[5]: which I think was the result of the negotiation with the amun priesthood. they must have wanted a device that could perform magick for them, and so then "god" (aka the pharoah) instructed "moses" the way in which he should build this device so that he could be directed by the custodial "shining ones"
+[5]: which I think was the result of the negotiation with the amun priesthood. they must have wanted a device that could perform magick for them, and so then "god" (aka the pharoah) instructed "moses" the way in which he should build this device so theg could communicate with YHVH
+
+### 2021-11-09 10:21 - continuing the thought train
+
+#### a malfunctioning program
+
+imagine a program that malfunctions when you give it certain types of data. every time it malfunctions, it causes anywhere from 10 minutes to a few days of downtime. the programmer decides that that's just the way things are, and decides the program needs protection from bad data to prevent those downtimes.
+
+external filters designed to identify this bad data and eliminate that data before it even gets to the program.
+
+in other cases where bad data cannot be eliminated, the programmers decide to build more external programs designed to intercept this bad data and transform it into good data before it even reaches the program.
+
+secondary programs are also created to look for users that have entered bad data in the past in order to punish them for entering bad data.
+
+when users found out that they were being punished for entering bad data, they were outraged and wanted to know what is the bad data that causes the malfunction so they can avoid it. the programmers explain that is a privacy concern and that should be kept a secret so that no one exploits this malfunction to cause a DoS.
+
+the progammers *could* fix the program, however the advances in their capability to filter and transform this bad data efficiently and effectively is actually creating new technologies that are capable of identifying the pattern of and transforming bad data more and more effectively
+
+#### a piano with a few keys out of tune
+
+imagine a piano that has a few keys out of tune. the owner could tune the strings properly, but that isn't desired.
+
+instead, it's decided that anyone who wants to play on that piano has to find music which doesn't contain those notes. before any music is played on the piano, the music has to be pre-screened.
+
+this dramatically reduces the number of players and types of music that can be played on the piano, so it is finally decided that a complicated system of resonating chambers will be installed around the piano designed to capture the sounds of the piano and transform them properly before being reaching the audience's ears.
+
+as more and more notes go out of tune, the system is rapidly becoming more and more complex transforming more and more of the sound. eventually, the system will be producing 100% of the sound and the out of tune piano is no longer needed. 
+
+#### toe fungas and a parasite
+
+imagine a guy with a toe fungas. he desires that there is a solution that comes and takes away his fungus. his desire manifests a parasitte that eats toe fungas.
+
+the parasite reproduces (or gets hungrier) and demand for more toe fungas arises. the guy notices that his toe fungas problem is getting worse and more parasites show up to capitalise on the new abundance of toe fungas.
+
+#### who's fault was the flood?
+
+imagine for a moment that LOA is a real thing and the cataclysm was something that was *attracted*. the book of enoch talks about these elohim giving the god-kings of that time technology -- the ability to create weapons, cosmetics, divination and other means of getting what you want by proclaiming it to be true.
+
+so, you can imagine that given their abiligy to manipulate their image and pretend they were more beautiful than they are. they are god-kings afterall, so they would tell the people the way things are going to manifest too.
+
+however, since no one can agree on what is the right way, you can imagine how quickly these conflicting proclamations of what would happen to certain livestock, land, othe r people and valuables quickly got out of control and created a lot of conflicting (disharmonious, bad-feeling emotions).
+
+so they fought wars and eventually the discord was so much they attracted a terrible cataclysm.
+
+you can imagine that other people were like, "yo whaddup why are the gods punishing us?" -- so these god-kings with all of this divinely selected authority need a scape *goat* and they say, "oh, this was because enlil was pissed off at how much noise you were making" and totally side-stepped the whole attraction bit. these *el*-ohim (meaning, IMO replicas of the creator or angels) hust have told them that if you use this technology for material or personal gain (at the expense of others), you will attract the same fate for yourself.
+
+your program will be exploited in the same way that you try to exploit others. it's almost certain that this idea existed. I think it was directly given to them and it remains today as the "eye for an eye" way of thinking.
+
+we don't let LOA do all of the reflecting, instead now we need to punish others committing these crimes. if they take an eye they need to pay their own eye for it. what was originally a LOA concept got turned into a penal code.
+
+#### leaning into it
+
+the idea that we are all attracting the things we are trying to avoid is a feedback loop. you see this bad thing coming and it feels bad so you feel bad, causing it to come even more.
+
+I've found that cycle to be endless, so if I see something coming that doesn't feel good, I need to find a way to feel good so I'm attracting something that feels good and no longer something that feels bad.
+
+distraction works, but only temporarily. that feeling will continue to grow even if you distract yourself from it.
+
+I've found that the best way to feel good about something coming that feels bad is to lean into it and find positive aspects about this unwanted thing -- and by doing so, I attract something wanted rather than something unwanted.
+
