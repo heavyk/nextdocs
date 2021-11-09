@@ -4428,3 +4428,8 @@ distraction works, but only temporarily. that feeling will continue to grow even
 
 I've found that the best way to feel good about something coming that feels bad is to lean into it and find positive aspects about this unwanted thing -- and by doing so, I attract something wanted rather than something unwanted.
 
+you create your own reality. don't let others tell you, you are responsible for their attraction. if it has manifested, you *did* attract it in some way. there are both good and bad aspects in everything.
+
+conceptualise the world in a way that makes it feel like everything is working out for you.
+
+if you can't, it's prolly best to find someone else to blame for why it's not working out for you. that's what the atlantians did, anyway
