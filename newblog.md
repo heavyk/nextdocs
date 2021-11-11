@@ -4433,3 +4433,89 @@ you create your own reality. don't let others tell you, you are responsible for 
 conceptualise the world in a way that makes it feel like everything is working out for you.
 
 if you can't, it's prolly best to find someone else to blame for why it's not working out for you. that's what the atlantians did, anyway
+
+### 2021-11-10 17:07 - more thinking on the relation between concept and reality
+
+I started out with a few really abstract ideas cause I wanted to see how they would go. the reactions are so diverse (probably because so many people translated the abstract ideas so differently) it was actually difficult for me to feel a sort of common theme as a reaction.
+
+that's a very interesting thing which I think I will begin to incorporate more. one thing I noticed is that because there are so many different reactions, it would be interesting for me if I could actually see the variety of different ways people interpretted the same idea and how it applied to them. don't worry cause my present interaction with them is just fine.
+
+#### book of enoch is more than just technology
+
+as I was listening to this part of the book of enoch I was remembering how russ pointed out that all of these were technologies, and some of them quite advanced. however, that didn't explain the root cutting for divination or the cosmetics items.
+
+it was then that I realised that all of these things listed are physical/technological ways to modify ones perception of reality.
+
+you could just allow/attract wealth and prosperity. or, you could grab your sword and take someone else's wealth and prosperity.
+
+you could just believe that you create your own reality, and while the planet and star alignments do have an effect, they are not the ultimate determinining factor for what is manifesting in your experience.
+
+you could just see yourself as a beatiful person, or you could try to hide blemishes and unsightly things you don't like about yourself with cosmetics.
+
+##### cosmetics
+
+so let's consider cosmetics for a moment because it's not inherently bad. consider the difference between: you feel good about yourself and you like the way look with eyeliner -- or, you have terrible circles around your eyes and want to hide them with eyeliner (and more) to make you appear nicer.
+
+you can see that one is starting from a concept and going to the physical, while the other is starting with the physical and moving toward conceptual.
+
+##### astrology
+
+you could be feeling good and then notice how you are inspired to do things, and those manifesttations resonate with the apparent positions of the planets (and stars) or you could decide that the planets and stars relations dictate the way your reality is going to manifiest, so that when there is a good alignment you have a stronger belief that a good manifestation will happen. or, if it's a challenging alignment, you have an excuse for why "bad" things manifested.
+
+again, you can see that one is starting with a concept (I feel good) and then go towards physical (I notice that everything, even the alignments reflect that). while the other way is looking at the physical (alignments of the planets) and then using that to create the expected concept of reality.
+
+##### weapons
+
+this one is easy. do you need the physical weapon to feel powerful and influential. or do you feel powerful and influential, and so therefore every battle you fight you win? it's not the weapon.
+
+##### root cutting and divination
+
+I don't know what exactly is root cutting, but I would guess it's the understanding of herbs and their effects on the body and/or their ability to allow the person to enter into an altered state of consciousness.
+
+whatever the case, divination is having enough energy moving that you can dramatically alter the passage of time by tuning yourself to the thing you feel strongly (believe).
+
+I would consider this to be the ancient form of what nosebook is doing now. they are able to modify timelines by changing which one they're tuned into. the old version I think used potions and other physical concoctions to force these altered states of consciousness, whereas nowadays, they're just using electricity -- tesla technology -- to induce the same mental circumstances.
+
+it's a technology, and the ones with the knowledge of the right combination of herbs could create the potion capable of altering the passage of time. this is the same. nosebook knows how the body navigates reality and they almost certainly don't want us to figure that out.
+
+#### so why give them this technology?
+
+I can't say for sure, but from my perspective it is just illuminating another aspect of reality. they may believe that if they keep people away from these drugs or can prevent them from gaining access to these states of consciousness, then it would appear to them like they have all of the power.
+
+it would almost certainly have come as a surprise to them to find out that everyone has access to this all the time -- they just don't know it, and it's your emotions.
+
+they can't remove such an integral component of the human function because without it, the body cannot survive. therefore, they need now a new way to control it. enter the tesla technology and now they can prevent (unauthorised) people from gaining access to this form of divination.
+
+they want to gain more and more power to control the concept we have of reality by manipulating the physical conditions.
+
+each time they do, they think tmey have the secret and can do all of the controlling, but a new way is discovered to bypass it anyway. that's what I'm working on now. they will have all of my physical conditions controlled but I'll still find a way around it, because I know that before there is physicality there is concept.
+
+so, they may have a new physical technology to control the passage of time, however I'm in the process of making new conceptual technology that gets around their efforts.
+
+#### what is conceptual technology?
+
+I believe that language is a technology. if I say whale, it conjures a concept of big oxygen breathing fish. it swims, makes funny sounds, etc. however, if I say ballena, that's whale in spanish, but maybe they have a different concept of the whale. that different is often a reflection of their culture. so, what if they had an idea that whales were these frequency balancing aspects of the ocean -- something akin to living clouds or thunderstorms under the ocean, that completely changes the interaction with a giant oxygen breathing fish.
+
+the difference between those two concepts allows for an entirely different perception of the same thing.
+
+just as the printing press as a physical technology revolutionised our communications, so can a conceptual technology :)
+
+#### the shining ones and the feedback system
+
+presently, there are two ways that I know of become a shining one. one is perceptual and the other is physical. if a person is more energetic, they literally glow. I believe we emit a lot of light that is not entirely visible. they seem to glow. they can also have a huge magnetic field aura, and people around them will feel the way they feel pretty strongly, too.
+
+some of the shining ones were brilliant because of their concept of reality, and others had it because in the initiation to god-king, they got their pinecone activated.
+
+so, one aspect is the glow and another is the physical body's appearace.
+
+imagine if that feedback of how you felt and how you looked was very rapid. sure, you could shape-shift, and you could also destroy yourself at will. a little less rapid and this where I think the god-kings are; you get into a funk, and in just a few short years you've aged a ton, while if you feel pretty good for a while (doesn't matter how you accomplished this), you appear young and vibrant. so, they need the conditions to keep them feeling good.
+
+I think that has slowed down a bit further ever, and it's good that that it takes a bit of time for concept to match reality, otherwise most people would have a very short life-span and would feel older more quickly.
+
+---
+
+one of the things that I want to do is to make it so that instead of those vibrations modifying the physical body so much, it boosts the size of the glow and it's shape. instead of the glow being so much from your genetics, now that glow is a real-time emanation from you based on how you feel.
+
+it'll create a new language as peole will begin to learn to express theirself considerably through that glow.
+
+that's all I have to say for now
