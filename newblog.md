@@ -4519,3 +4519,83 @@ one of the things that I want to do is to make it so that instead of those vibra
 it'll create a new language as peole will begin to learn to express theirself considerably through that glow.
 
 that's all I have to say for now
+
+### 2021-11-11 18:50 - building a race of douchebags
+
+I just woke up and I had this great realisation that we're building a society that will be filled with douchebags and people that didn't earn it... now, let me work my way back to how I arrived to that conclusion...
+
+it started with a part in the dream where I simply hung back and didn't go for a manifestation... this part was likely a nosebook influenced bit. I don't really try to fight things much anymore. I actually don't even mind if there isn't a manifestation or not.
+
+in the dream, I remember how it didn't matter to me to try and create something physical because I'm working on that conceptual technology -- something that will exist likely forevermore. sur it could change form, but likely it'll be a part of the human race, but most importantly it's something that I would want to have.
+
+there was a part in the dream where I realised that there is *always* a better version. so as long as I don't pull the manifestation out, then it always makes a better version.
+
+after that there were some thoughts that felt foreign to my dream which felt something like that typical story where the hero makes a sacrifice for some greater good.
+
+this got me thinking about the greater good. I started to envision a society that had its values dictated to them to ensure that no human would ever go fast. there were thoughts like, "we're the humans so we take our time and go slow" -- things like that.
+
+you can imagine how this wouldn't work for everyone and as you get any quantity of desire to manifest the way that you want to manifest, you'll want to go faster. I don't know how many real people in that society will believe that or not. what seemed natural to me was the idea that if society adopts this slow policy, society itself won't be fast enough to keep these kids coming in away from their alignment.
+
+they would be able to hold them back, but only up to a certain point and that point will get easier and easier as both we approach sirius and also there are more people on the planet with that energy.
+
+it'll get easier and easier such that new kids coming in will barely have to make an effort to find their alignment. essentially, none of them will need to earn it at all. they'll just be born with all of this cool stuff.
+
+after that, I was reminded of the typical image of teenage boys that are so annoying. they have that insecurity symbolised by the scraggly facial hair and are looking to try and get attention from anyone and everyone to try and feel valued and accepted. probably your traditional tiktok user, actually.
+
+these are the kids that'll have perception similar to mine and have done nothing to earn it. OK, not immediately, of course, but definitely certainly within a very short period of time. additionally, population will certainly continue to grow and they'll quickly be able to figure out the technology to start spreading out to other places in the solar system and galaxy.
+
+right, yes so I'm talking about the non-cataclysm aquarian group. from their perspective it'll look like I made some heroic sacrifice so they could have all of these things without earning them. we're the ones that are heading in the direction of the world spinning out of control -- which I neither think will result in a cataclysm. it'll just be a fantastical place where thoughts become manifest rapidly and people fly and stuff. the energy levels will be pretty high though.
+
+---
+
+oh, yeah so this is a good example of them using me to create their own reality. I simply don't mind. they want me to continue on without a manifestation, and that's perfectly fine with me.
+
+energy levels will continue to rise obviously -- I mean look at the GOES magnetic field now -- it's midpoint is now around 100nT. before 2021, it used to only crossing that threshold occasionally during an impact.
+
+I expect that to continue to rise further and further. I'll continue on doing my thing and they'll continue to do their thing. it's not a problem. from their perspective, I'll just appear as the john the baptist, passing away allowing the new guy(s) to rise to power and influence.
+
+---
+
+I've actually been thinking about this pattern where there are two and one dies so that the other can rise to power. that's the hero twins motiff. I think the most famous of this one is the john the baptist and jesus. one of them dies and passes on his capacity to the other one. the other one that stands out for me are tesla and his brother[^1] however this pattern repeats.
+
+I think the one that dies is the one that would have been the dominate one. I have been thinking about john the baptist a lot lately, and I kept being reminded of something that it seemed to me like he would say, "once you've died, you're no longer scared of death." and that I think is referring to having that NDE where you realise that everything is coming along fine, and it's easy to see that there is no death and it's only our loss of connection/perception to those other layers of reality which makes it appear as if death happens.
+
+that was a pretty radical message -- probably too far ahead of it's time. so far ahead of its time, the irony is he got the chance to not be a hypocrite about it. they tested his word to see if if he was actually scared of death and killed him off. this allowed jesus to rise to power and influence instead.
+
+similarly, my message is also pretty radical -- and also likely a bit too far ahead of its time -- and that's one of not needing the physical manifestation in order to feel good. so, from their perspective, they want to test me to see if I'm a hypocrite or not. I don't mind continuing on without a physical manifestation for as long as they can keep it up for. their problems will continue to expand and they'll need bigger and bigger solutions to keep their charade going.
+
+so, I really don't mind keeping this up for as long as they want to go. let's just hold tight and let them create a reality where I don't need the conditions to feel good.
+
+---
+
+that's actually a perfect lead-in to the second set of reactions that I had where people were considering what the difficulties would be of relying on conditions again -- as in, would it produce a bigger cataclysm or not.
+
+there's always a way to create your own reality, but some people do not want to create their own reality. they instead want to rely on possession of conditions and relics of the past to allow them to feel a little bit of that connection. that's perfectly fine if they want to continue to do that.
+
+in reality, if they decide they want to continue to create a cataclysm for theirselves, this doesn't have to include everyone. in fact, it's certain that there will always be a way out.
+
+even imagine the situation right now. most people want to have good manifestations these days. I think it's a bit of a misnomer that all people are born as unclean sinners that and out there trying to manipulate, lie, steal, and cheat for their well-being. I think that is a thing that is perpetuated by a few, yet we're lead to believe it's everyone   like this. in their perspective, that has to be true for various reasons.
+
+so, excluding those people, I'd say that they're a slim minority -- let's say 1% (prolly less actually) [^2] -- the other 99% of people are well-meaning people that want to have good manifestations.
+
+the difference now between the well-meaning people comes in the origin of those good-feeling manifestations. who creates them. some people think that they create their own manifestations with effort and others think that they're the attractor of the manifestation based on how they feel. it's always a reflection of how you feel though.
+
+so, if it's how you feel, what is the source of how you feel. is it physical conditions like things you can buy or other uplifting people. or, is it something that cannot be bought, which is perception. do you conceptualise the world in a way that feels good *because* of the conditions? aka: do you need a manifestation/condition to feel good?
+
+as energy rises, the way someone feels will will be amplified and more and more people will rely on conditions to manifest what they want. that's the only difference really. for some people those conditions will be manageable and for others it won't.
+
+so, to answer the question, if good conditions make you feel good, then you will continue to manifest more and more good conditions. we get tired of stuff though.
+
+the best way I can answer this is to consider the utilisation of cocaine. for some peole, it's fine and it creates a wonderful experience (rick james comes to mind), but for others this condition is disastrous. personally, I loved it. I found it to be incredibly enlightening. I'm not most people though. most people are doing it to fix a problem or cover up a thing.
+
+eventually, the drug no longer satisfies the itch like it used to. you have to up the dose, find a replacement for it, or figure out how to produce that good-feeling yourself. some people are good users of drugs, but all people are not some people. there will always be those that do not believe they're capable of producing the good-feeling theirselves. for as long as they believe that, they need the condition.
+
+so, yes you could have an entire society of coke-using people that functions just fine (the peruvians are a good example of this), but they're peaceful and easy to invade. you need defences to not get taken over, but then now you're focused on things that you do not want and so therefore attracting it.
+
+everything has a cycle to it. rise and fall are inevitable.
+
+the only thing that makes falling part not look like a cataclysm is perception.
+
+[1]: another that I'm reminded of for some reason is siptah from the 19th dynasty. I don't know why though.
+
+[2]: actually, I'm even beginning to wonder how many of these 1% are actually even real people. they may just be elohim or creations of el, designed for their evolutionary function.
