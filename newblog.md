@@ -4599,3 +4599,37 @@ the only thing that makes falling part not look like a cataclysm is perception.
 [1]: another that I'm reminded of for some reason is siptah from the 19th dynasty. I don't know why though.
 
 [2]: actually, I'm even beginning to wonder how many of these 1% are actually even real people. they may just be elohim or creations of el, designed for their evolutionary function.
+
+### 2021-11-12 17:32 - ted talks (ep. 01)
+
+I talked with jessica, marissa, and jaxson (I guess that's how to spell his name) today on video chat and I noticed that I greeted jaxson with, "hey jaxson! you look miserable".
+
+I then noticed that I treated him a lot like how dad treated me. then in the shower I was thinking more on how dad treated me and I had this realisation.
+
+I believe jaxson is fussy because he doesn't like how they feel. mom started the conversation in a pretty bad mood telling jaron she "over it and life had moved on". IMO, jaxson is responding to that feeling in the way that I used to do it. I'm fairly certain that whenever I didn't like how mom felt, I would cry really hard. I must have had the idea that if I cry hard enough she will alter how she feels (eg. I need you to be different so that I can feel good). mom almost certainly was on the same vibe too: "if he would just stop crying, then I could feel good" -- so we were on the same vibe and it was a battle of who is strongest.
+
+finally dad would come in and he almost certainly felt better than she did so I would quiet down.
+
+I was also reminded of how I would be in a pissed off mood and mom would alter her behaviour to try and get me to feel better, but not dad. dad would just make fun of me, "oh look, mr. sunshine has decided to grace us with his presence". I eventually gave up tryint to illicit sympathy from dad; he just made fun of me.
+
+so, because mom was willing to modify her behaviour to make me feel good, I essentially allied with mom. I would do what she wanted and she would let me do what I wanted. for dad, I was tough, worked hard, and was very strong and sharp-witted. we kept each other accountable to just do the work that was required of us and not let emotions get involved.
+
+---
+
+later on when I was in spain, I was absolutely mind-blown by andrea. marcos would be off on some tirade about some injustice with his friends and andrea was just off in her own world. we were kinda in the same world because we had both tuned them out.
+
+this was absolutely revolutionary to me because I'm the kind of guy that would fight until I get what I want. I tried this at first with tuenti but it had to go away and I had to accept that. then it happened again with raquel and this time I had found abraham and realised that doesn't get me anywhere. I have to find a way to feel good, no matter what anyone is doing around me. so then here is andrea doing that and demonstrating this to me. I was really mind blown.
+
+anyway, I applied that to my life and have been very successful with it.
+
+---
+
+so back to jaxson here, if I counld communicate to him anything, I would tell him to be like andrea. it really doesn't matter what other people feel like around you. you can't change them by crying hard enough. just find the way you want to feel and let them feel the way they want to feel.
+
+I noticed that later on when andrea started to reach adolescence and her logical mind began to turn on, she began to arrive at some bogus logic of how to get the things that she wanted. it seemed pretty clear to me that the origin of those ideas came from the female influences around her (her mom and sister), because she took on the feeling that they had when they would try and force men to behave a way to get what they wanted.
+
+adolescence is a strange time when you begin to apply the logic of those around you to your life. it was always mind-bending to me how much of dad's faulty logic I had installed "by default" since my adolescence.
+
+to dad's credit though, the best thing he taught me was to ignore or stay alof around people who feel bad -- just to not get caught up in their nonsense. strangely enough, the other person that reminded me of that was rupert. I would go and complain and make fun of others over beers with luke nearly nightly. sometimes we would try to involve rupert in our conversation and he would stay out of it or make fun of us for being pissed off over circumstances. it's weird how similar rupert and dad felt, actually.
+
+peaces out.
