@@ -4633,3 +4633,79 @@ adolescence is a strange time when you begin to apply the logic of those around 
 to dad's credit though, the best thing he taught me was to ignore or stay alof around people who feel bad -- just to not get caught up in their nonsense. strangely enough, the other person that reminded me of that was rupert. I would go and complain and make fun of others over beers with luke nearly nightly. sometimes we would try to involve rupert in our conversation and he would stay out of it or make fun of us for being pissed off over circumstances. it's weird how similar rupert and dad felt, actually.
 
 peaces out.
+
+### 2021-11-13 23:28 - thinking about logic
+
+the last entry had A LOT of rnactions to it. most were about the part where I mentioned that I think that girls get their logic from their mother. when I wrote it, I didn't know how to word it. I've given it some more thought since then. this is a result of that.
+
+in tesla's autobiography he states that be believes he gets his inventivness from his mother. he also states that his inventive nature is rooted in his ability to visualise his creations in his mind. when I heard this, I noticed that I thought similar of my mom. she was always optimising our grocery bills and other financial things to try and make the money go as far as it can. in the process of optimising things like that you have to take a look at the things that are inefficient or more "value" can be gotten from them.
+
+I am very much certain that I got that optimising nature from mom. I certainly didn't get it from dad. mom had the "let's find a way to make it work" attitude while dad's solution was to just reduce spending and go more frugal. dad just saw income and expendatures numbers that didn't add and tried to reduce expendatures or boost income. mom was more about optimising what we had to make "ends meet".
+
+---
+
+so besides the connection between tesla's inventiveness and his capacity to visualise, there are other connections too which if you want to find them, they're there, but the basic concept is that tesla has a backward way of noting that (for him at least) he believes that perception comes from the mom, while logic comes from the father. this is why it was such a struggle for tesla to be able to go a technical direction. he had to convince his father, because his father set the logic for the way things were going to work out.
+
+in additiion to this, I have noticed that there seems to be an empasis on the female bloodline allowing for a much more expanded perception (you literally see more and higher detailed). this can be obtained from birth, and then activated using breathing techniques and stuff (pranayama, yoga, etc) to get the chi force moving. personally, I have come to realise that the way that you *conceptualise* your world allows for expanded perception. it then needs to be activated energetically, but that seems to come from the female.
+
+I can't say for other people, but my experience is that men conceptualise their world like their mother (and other female influences), while they get their logic preinstalled from their father and heavily influenced by other males. that's how it for me anyway.
+
+in contrary, based on my experience, it seems to me that girls conceptualise their world like their father does (or other male influences) and derive their logic mostly from their mother (or other female influences).
+
+---
+
+so, now I need to define what I mean by logic and concept. logic is the path, and concept are all then entities in the world. logic is the meaning derived from the objects' interaction, while concept is the idea of what their ideal form is.
+
+the things can go both directions. if you have a person that perceives great importance (concept) in wealth and power (logic), then you can also have a person with that same logic that perceives very little importance (concept) in the wealth and power (logic). 
+
+as an example of this, I seem to understand human psychology pretty well and I suppose if I wanted to try and manipulate people, I would be pretty good at it. I see its value in understanding how it works, not so that I can manipulate other people, but so that I can manipulate myself. to me it seems very inefficient to expend so much effort to manipulate other people, when I can just manipulate myself and my own perception. this is because I place a lot of importance on perception because I believe it's the precursor to reality, and literally it alters how you *see* that reality. manipulating people won't improve the way *I* perceive my world -- rather the opposite[^1].
+
+these things are kind of the same thing but perceived from opposite directions. so let's look at a few more examples. if I see physical things in my experience, those are all concepts. dollars are one, people are another, and these are defined by the label they're given (wife, husband, child, friend). these interact with other concepts and that results in meaning. that meaning is defined by the logic of their interaction.
+
+so for example, if I see we have -100 on the balance sheet, then that means many things to many people. that is perception. so, maybe one thinks that we need to reduce spending (logic), or boost income (logic), but maybe another doesn't see either of those. they recognise that there are always ups and downs, so it's fine to be where we're at now. everything is OK. that feels a lot better, and that will produce a world that appears more vibrant. another will say, "oh, this is the end it always ends like this" (logic), and that's because they're seeing the things conceptualised in a way which feels bad, which results in logic that feels bad.
+
+logic creates feeling and feeling creates logic. they're rooted in associations. if I see a problem in code I'm working on, it's not really a problem because I know that it can be fixed and there is always a way to have something operate in the intended way. this is always true, so bugs don't feel impossible to fix. it's possible that the intended operation hasn't been fully realised, but the bug is not impossible to fix (concept). now, the actual logic to fix the problem can then later be arrived to.
+
+the inventive nature is the concept that everything has a solution and so there's no reason to worry there not being a solution -- just the logic has to be found to get there. you could start with a faulty logic like all programs (men) are inherently flawed/sinners and need a rewrite/saviour -- which then produces a concept out of which you will produce your code, and all future code/science/ideology produced will reflect that logic.
+
+a bit more than I wanted to write on that..
+
+---
+
+so now, the next reaction is hard to put into words well, but the idea hangs around the part that a wrote about john the baptist and not having the manifestation. because it's difficult to articulate, I'll just talk about it.
+
+at the moment, I'm finding better and better ways to feel the way I want to feel. the moment I start to feel good, I want to start doing things. so for example, I'll start to feel good and naturally I'll want to plant the red plants in the kitchen window, and then almost as quickly as that idea felt good to me, it no longer feels good to me. this seems to affect almost all aspects of my life[^3].
+
+I'm constantly getting better and better at feeling the way I want to feel. I suppose I could use logic to try and affect the things I want to do by making it a routine to start doing things that *need* to be done, rather than waiting until I feel like doing them. I'm not sure yet on that. however, this is great practise to continue getting better and better at feeling how I want to feel.
+
+if I continue on this way, I'm going to keep getting better and better at it until their efforts are no longer enough to keep me from feeling the way I want to feel, and then I'll go up. there won't be any way to stop it.
+
+I believe at that time, they'll be forced to make the split. they won't have any other choice.
+
+their whole charade hinges on the fact that they know more than we do and so in our ignorance we can be controlled. if I go up, there will be a huge expansion of knowledge and understanding and they can't have that.
+
+---
+
+the other reaction was around the part where I said that I don't believe either of us will have a cataclysm. it seems that they really need a cataclysm. they really need humans to have to restart from a primitive stage. not having a cataclysm is a much larger disaster for them.
+
+if there isn't a cataclysm, then there will be a lot of really smart humans that will find their own way and that way will appear superior to theirs. imagine for a moment that humans figure out that their sciences are greatly impaired and begin to create their own thories of how the universe works, and these theories are greatly superior to the ones that we have now and are based on energy, frequency, vibration, and tuning.
+
+now, all of a sudden humans will be able to tune into anything that they want to -- including other people's thoughts and nervous system. suddenly now there are no more secrets that can't be found out and no more privacy to speak of either.
+
+obviously this is an enormous disaster for those wanting to try and run the show and to stay in shadow (the amun priesthood runs the show. the pharaoh is just the figurehead). as such, they simply can't allow humans to figure out how energy, frequency, and vibration works. you can imagine how big of a problem this is for them if there isn't a catastrophe.
+
+remember the part about the genetic function? I think the objevctive is to evolve more and more advanced amun priesthoods. this will force them to find a way to continue to hide in plain sight. evolution :)
+
+---
+
+another way to look at the split is that they cannot take anyone on their super elite earth that has any knowledge of these things. we know too much now, so they'll have to quietly depart to their own timeline where this disaster doesn't happen.
+
+if the elites take any humans with them, it almost certainly won't be anyone reading this. you know too much already. they need dumb subordinates that don't know the secrets to the universe.
+
+they'll go when they're ready (forced) to go. there's no need to rush it.
+
+[1]: in my experience, it actually reduces the capacity for one to see well[^2], because little by little I'm reorienting my perception of reality to determined by something outside of my control. by feeling more out of control, my vision will narrow and it feels like everything is closing in.
+
+[2]: the reason why I think the double cataclysm happened, is because the more narrow their perception became, the better they perceived -- because of the technology they were using to expand their perception.
+
+[3]: I was thinking just now about this. if they had such a way to affect my behaviour so much with how I feel, then how come I still watch stars, and I hadn't thought of it until now, but the way I got around this in the past was to instead of be directed by the way I feel, instead direct myself with logic. I watch stars, because it's just what I do. often times I don't even feel especially like it, but it's such a routine that I do it anyway. I suppose I don't do it if it feels bad, but I like this conversation on logic because I remembered how to just do things that don't necessarily feel good, but then once I get started on it, it's fine and I feel good. interesting. I may or may not want to do this... dunno yet
