@@ -4709,3 +4709,103 @@ they'll go when they're ready (forced) to go. there's no need to rush it.
 [2]: the reason why I think the double cataclysm happened, is because the more narrow their perception became, the better they perceived -- because of the technology they were using to expand their perception.
 
 [3]: I was thinking just now about this. if they had such a way to affect my behaviour so much with how I feel, then how come I still watch stars, and I hadn't thought of it until now, but the way I got around this in the past was to instead of be directed by the way I feel, instead direct myself with logic. I watch stars, because it's just what I do. often times I don't even feel especially like it, but it's such a routine that I do it anyway. I suppose I don't do it if it feels bad, but I like this conversation on logic because I remembered how to just do things that don't necessarily feel good, but then once I get started on it, it's fine and I feel good. interesting. I may or may not want to do this... dunno yet
+
+### 2021-11-18 02:46 - a cumination of a number of ideas
+
+I have not been drinking coffee really since my last entry and I haven't noticed any real change in energy levels (I feel about the same), however I haven't noticed the feeling of "inspiration" very much and I think that's also related to how I've noticed that my heart isn't beating as hard. I actually am beginning to think they're related.
+
+I was just out watching stars and I did notice that my heart was beating a lot harder (not sure about faster), and I decided to take the time to write down here some events. I could make some coffee, but I want to see how it'll go without it.
+
+#### mediocrity principle and evolution
+
+@[youtube](https://www.youtube.com/watch?v=-ixuftVYC5o)
+
+that video got me thinking a lot because I too belive that our solar system is not only very unique in comparison to the other universe but, I also think that we're actually the most energetic thing happening in the universe right now.
+
+the universe is a very big place so that's a pretty big claim, I'm aware, but it doesn't really matter because no one can neither prove me or disprove me right. so it's just me and my delusion and my reality that I'm creating.
+
+there certainly will be more energetic things after us, but consider just this galaxy for a moment and realise that there are certainly more primitive societies than us and also more advanced -- but there will statistically be virtually zero at the same level of advancement than we are. if every society's evolution is plotted on a simple y = x^n + mx + b graph each society with different coefficients, then statistically it's very unlikely that there are any other societies even close to nearby to us. everyone else will be either much lower or much higher, but not similar.
+
+the next thing that I believe, but I have no way to prove, and that is that I think all other societies are societies that go toward wanted. they determine what is the best thing for their society and go toward that.
+
+I belive that the earth is an experiment where instead of everyone determinining what is most wanted and then the whole society goes toward that, we are to determine what it is that we want, not by group agreement, but by individual attraction.
+
+it's hard to explain this idea, so I'll just give an example. imagine a world in which there are two basic forces: good and evil -- however, we know because of LOA that the evil side of things will eventually destroy itself. if the world is a reflection of the way you conceptualise reality, then they will attract the same destruction for theirselves that they are trying to inflict on to others.
+
+in general, I think no matter how difficult the circumstances are, nature finds a way to be successful (think extremophiles), so if the difficulty level of the circumstances is continually increased, nature will always find a way.
+
+so, start out with very harsh environmental conditions, like an ice age and numerous cataclysms and something will evolve, then as they master their physical conditions, gradually increase the difficulty by introducing more complex difficulty. next is social pressures that they need to overcome to try and live in a harmonious way (as a group). after that, introduce pressures which threaten the individual's definition of oneself (like the situation we're in today) -- etc.
+
+the whole point is not to evolve the species, but to evolve and continue to give bailouts to the opposition force, so that they can continue to offer more and more pressure. we know because of LOA that each upgrade that they're given, they eventually pass that on to the species. they will use those upgrades, not to find out their connection to the universe, but to try and prevent the species from gaining that, yet whatever you fight against (or fear), you make more likely to happen.
+
+our evolution is the sequence of the opposition realising their greatest fears and we figuring out something they're trying to keep us away from.
+
+this effort has been so successful in my own life, I'm kind of like a living example of the method of evolution that I just talked about. each time the opposition is given another bailout, this results in more technology -- whether that's language or some other thing technology that they develop to try and prevent us from figuring out that we are much more than this physical body. however eventually that technology is no longer enough each breakthrough, and eventually their whole scheme will be so ineffective, it'll completely fall apart.
+
+this results in a very energetic progression; just look at how fast I'm progressing. I don't know if we're the first ones in the universe to do this, but I think we're definitely the most energetic ones right now; I'm probably biased though.
+
+#### logic and the transfer of conceptualisation
+
+one of the nice things about writing those sorts of entries is that I get reactions from people trying to use what I say to take advantage of me/us/others.
+
+so, if logic remains untransferred in interactions, like let's say a boy and a girl have sex, then there will be a mixing of how they feel and conceptualise reality (like, all resonant parts will be amplified -- just like adding two sounds together). that means the girl will still retain the logic of how reality work impressed upon her by her mom and her female friends, while the boy, no matter how much the girl wants him to see things the way she does will continue to perceive the actions and logic in a way meaningful to him and his male influences.
+
+I hadn't really thought about it before then but that made a lot of my interactions with raquel make a lot more sence. I can't really ask her about what her experience with me was like, but I did notice that I feel pretty good, and that was largely because I had reworked a lot of the logic that I had started with. I had to learn to believe in myself and my importance/value. if I didn't, I didn't feel good, so I found ways to see myself as being someone that actually can contribute. I knew my value and I had to give up on the "mediocrity principle". there's a lot more I can discuss on that, but I worked a lot with raquel to try and help her to see that she is not mediocre and *is* valuable.
+
+she used to think some of the things I would say were ridiculous, but I didn't. I actually believed them, and that's why they were so funny/baffling to her. little by little I noticed that she started to believe in herself a little more. I did notice that often times right after talking to her mom (or someone from where she grew up), I noticed that she would revert back to thinking that she was mediocre and that she was indebted to the world for something. I really didn't get it, and having grown up in a cult, I knew that it would be very inappropriate behaviour to suggest that she try and cut contact with those influences.
+
+I didn't really know what to do and I couldn't figure out how to feel good. every time that I would feel good, she didn't like that I was there and wanted me to come down to feeling like she did (logic) which was insignificant. or, she would assume that I was doing something with someone else behind her back to feel that good (logic). it was very bad.
+
+I realised a few days that she was conceptualising the world like I do now, but still with logic that won't work. she probably got the faulty logic of thinking that someone else is responsible for me feeling good perhaps from her mom and dad. I don't know who kept telling her she's insignificant though.
+
+it also explains a whole lot of other things like how "energy" gets transferred in sex and stuff too. if a woman has sex with another guy, she will take on the way he feels (and this appears to me visually). it was a pretty serious "aha!" moment for me realising that logic remains, only feeling changes.
+
+#### conceptualisation vs logic
+
+conceptualisation is everything that robert says in this one minus the interview part on women's liberation (@[youtube](https://www.youtube.com/watch?v=_hI5vbwEt8o)). in general: emotion, concept, feeling, knowing, understanding
+
+for logic: think action, words, structure, paths, formulas, guides, procedures.
+
+#### interesting implications and the effort
+
+the next set of implications that I felt as reactions were that they think it's a great idea to try and use the girls to keep me feeling worse. the idea would be to cycle a number of girls out there that feel worse than I do to intruduce their feeling vibration into mine -- and if it's something that I haven't yet built up logic for, it'll cause me to feel worse.
+
+that sounds great, but it could have the opposite effect too. when I was with raquel, her feeling of insignificance didn't cause me to feel more insigficicant, but actually to feel like I was very significant. insignificance and significance are the same thing, just looking at them from opposite directions, much like concept and logic. together, we amplified those feelings both in me and herself.
+
+so, I think in order for their plan to work, they need to find a bunch of girls that have negative feelings for things I don't have logic for -- which will cause me to feel worse.
+
+#### zero effort
+
+there are other problems with this idea of putting me with girls that feel bad. I'm willing to do it I suppose, but I have the same problem with it that I have with the girls that feel good: it feels like a lot of effort.
+
+I noticed that when I start to feel better, I tend to want to do tasks that require some effort, but other than that, I prefer the effortless path. if I feel good, I want to make effort, but if I don't feel good, the last thing I'm going to try and do is to make a girl that doesn't feel good, feel good. I'll stay away because I have my own problems to sort out.
+
+if I'm connected, then I'm fine to exert energy because I have so much to spare. I really don't mind using the opportunity of feeling like a bunch of bad-feeling people to sort out and improve my logic. I just want to be connected first.
+
+#### back to the cataclysm
+
+so it feels like we've gone back to wanting the cataclysm again. that's perfectly fine with me.
+
+the picture that I get is that I want to get connected. once I'm connected, then I'll be able to make unlimited copies of myself, and then a lot of people will be able to experience that.
+
+there were a number of items that I outlined in past entries about my ideas for the cataclysm. the most notable of these was this idea to have a really ridiculous female power structure that would eventually destroy itself.
+
+I thought of a way that could happen.
+
+first, there is a gap between me getting connected by surpassing the limits of the technology that they have to hold me back, and the point where environmental conditions (sun, etc) and my own frequency rises to where I'm no longer capable of retaining physical form here (sorta like elijah).
+
+in order to accomplish this, I think I'll just stick to being creative and creaating replicas of myself for others. eventually, I'll pass that point and I'll peace out leaving behind all of the things that I create.
+
+on the subject of the replicas, I think nosebook will have a policy that they cannot allow any of the replicas to go unoperated, so in a sense, they will retain my logic, which will constantly be improving all the time, while at the same time the operator and girl will mix concepts of reality.
+
+assuming that only noseboys will do this operation, they'll pass on their form of conceptualisation on to the girls. some girls will update or write new logic, while others will filter that concept through their own existing logic. some of that logic will be of the form "I need X manfestation to feel good" which will be perfect way to seed that female power structure -- by transferring the energy of the present power structure into them.
+
+obviously not all girls will have this happen to them. for some with appropriate logic, it'll be a really good-feeling experience. others will improve their logic, so good stuff.
+
+#### I think it'll happen when I can't watch stars anymore
+
+I don't think that I will need to worry too much about things. watching stars is, I think, a way to release tension. I was reminded of when it was cloudy for a few weeks and I couldn't watch stars. energy built up and then one day I noticed the world looked a bit different.
+
+it's starting to get pretty cold, but still not unbearable. I can continue to ease tensions with the laser, but the inablity to watch stars may be the reason why I go up.
+
+I could keep using the laser though. I wonder how high I can get before it's too much?
