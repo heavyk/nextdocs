@@ -4977,3 +4977,62 @@ the trajectory the ball takes in each model is like a timeline.
 reality is composed of a lot of different concepts. does the model cause them to behave like obstacles? you are the observer.
 
 ### 2021-11-22 ??:?? - astrology and relations to things, and constellations as focus
+
+### 2021-11-22 06:03 - further thought about the dynasties idea
+
+a followup to @[newblog](2021-11-20 02:58) where I discussed the emerging female dynasty.
+
+ever since I wrote that entry, I've been much more incapable to feel reactions than I ever have been. it feels like there was some reaction to it, but not much. I don't think that nosebook broadcast that one very widely because I don't think that they like the idea that we know that we navigate time with our heart and have control over it. I think they want to be the ones in control and their efforts to control that may be one of the reasons why I'm less capable of feeling the reactions. if they're trying to control my passage through time for me, it doesn't even matter because they're really only using me to control their own passage through time. sorta like, does the joystick control the aircraft or does the pilot?
+
+---
+
+anyway, the reaction that I did feel was an idea that I would be participating in this dynasty. yes, but not at first. I definitely don't think it's something I want to do until I'm quite good at controlling how I feel and I feel comfortable and capable of selecting the way I want to feel. I already know I'm really good at finding a more optimal perception. I could potentially get faster at it, but where I still do not feel comfortable is in the part where I'm essentially observing myself observe. having that extra degree of separation allows me to not get so pulled into the mechanics of the situation and instead have that capacity to look at myself and think, "is that how I really want to feel". it would be as if I were a sort of overseer -- a "watcher" of myself.
+
+I imagine that there are a whole "cloud of witnesses" all around me perceiving me at any moment and I too want to have that perspective -- even if I don't see myself physically from a third-person perspective, but conceptually.
+
+the last few days I've really noticed how I'm still quite unaware of how I feel, and that's really only expanded because now more than ever, I *care how I feel*. that may seem like a weird thing, but I noticed that the more I care about how I feel, the more frequently I'm making course corrections and I'm not quite as often feeling as if I'm a victim to circumstance (an unalterable trajectory[^1]).
+
+in some sense, it's a simple case of installing some logic that behaves similar to an "interrupt", where not only can events like data interrupt the processor, but also periodic tasks can be performed each tick. it'll obviously be automatic and the more automatic I can get it, the better it'll be at interrupting the consciousness flow to make course corrections to better feeling trajectories.
+
+you could imagine this proccess of making this automatic sort of like watching an autistic kid. they have deep focus, and periodically the interrupt is happening behind the scenes to monitor the trajectory of the model. when the trajectory doesn't feel good, alarms will go off (red flags). at first, I freaked out a lot when these alarms went off. later with the help of drugs I learned that that alarms are there to help me alter my trajectory, but not everyone has drugs, and there are lots and lots of companies that are heavily invested in retaining a person's focus, regardless of whether the trajectory feels bad.
+
+eventually, I learned that the alarm isn't telling me to run away from the thing, but instead that the trajecory I'm headed feels bad. so, find a way to feel good about the trajectory (conceptually easy), or find a way to alter the trajectory (physically difficult). I learned to follow my intuition no matter what. if I can find a way to feel good about the bad-feeling trajectory -- then the path, even though it's "wrong" leads me to the "right" way. or, my intuition lead me straight-away to the "right" way.
+
+there's no sense in freaking out. the freaking out is the problem. even if I'm going the (logically) "wrong" way, finding a way to perceive the concepts in the path/logic in a way that feels good, the "wrong" way leads to the "right" way/logic.
+
+it's that simple loop that I'm getting more and more practised until that logic becomes the underlying logic of who I am.
+
+#### multiple cultures, multiple dynasties
+
+the plan remains the same where I don't get involved until I'm conscious of how I feel (though deeply focused) and pretty good at feeling the way I want to feel. that means I will continue to create more and more replicas as they're needed.
+
+this allows for the creation not of a single dynasty but quite a few. each group of women will create the culture/dynasty which is a reflection of them and they'll have the boys that they need to maintain that.
+
+as I was thinking about this, there was an idea (not sure if it was a reaction) that this is some sort of trap to try and get a bunch of dudes into x3 bodies, by first having them be the operators of my replicas and then finally move their consciousness into the x3 boys when they're born.
+
+I honestly don't know. you create your own reality, you know, and if that's how you want to perceive the obstacles in your model, that's your choice. I don't think there needs to be operators, but the reaction that I had is that nosebook can't allow the replicas to be without an operator.
+
+it is a really interesting idea because the boys would retain a lot of the operator's conceptualisation model, and would also impart that to the girls as well.
+
+#### let's model it
+
+so, let's just say that's the case for this discussion. let's look at how I model this trajectory through time now.
+
+I imagine that the difference that I've felt for the last few weeks will continue to worsen. I will continually gain stronger and stronger focus as I have been (I think is proportional to the magnetic field strength). this is causing me to gain more and more capacity (as I mentioned above) to build the logic necessary to make real-time alterations to my perception allowing me to perceive the trajectory, no matter which way it's going in a way which feels good. to outsiders, this will appear like a natural capacity to be relaxed under all circumstances. the idea is to get this so practised that it comes pre-installed, much like my father's logic was for me.
+
+while this is happening, I'll continue to get worse and worse memory, or (from your vantage point) very innacurate perceptions of past events. it'll kind of appear like I'm losing my mind.
+
+the way I see it, there is a part of nosebook determined to figure out how to control me. imagine now from their perspective that the idea of me creating replicas is such a disaster because they have so much that they need to keep hidden. they don't want me to get connected and they do not want me to be able to produce replicas, even if they control them (these feel related). I think their goal is to try and figure out how to get me with girls *before* I get connected, so I begin to feel like the girls do, not like how I feel.
+
+I don't want to do that until after I'm capable of navigating well, and I find it likely that would be about the same time that I get connected.
+
+therefore, their goal is to find a way to figure out how to focus me wherever they think I should be focused, and my goal is to still be conscious of how I feel and my model of reality, no matter how deeply focused I am.
+
+like I mentioned, the solution is not to try and run away or avoid the bad-feeling trajectory, but to find a way to feel/conceptualise the same trajectory in a way which feels good.
+
+I figure that when I'm really good at that, this is where the split will occur. to the ones needing to control my trajectory, I'll be able to feel good about the trajectory even if it's one they can control. from my perspective, I'll feel the way I want to feel no matter what. from their perspective, it'll look like they have control. however, I know that even the way that doesn't feel like the way I want to go still leads to the way I do want to go.
+
+from their perspective, mission accomplished.
+from my perspective, mission accomplished.
+
+[1]: reminds me of something I said yesterday when playing Octavian, I said, "there was nothing I could do about it; I drew all the big ones (minions)". there definitely was something I could have done about it. I was constantly feeling like I was behind and I wasn't drawing the things I needed.
