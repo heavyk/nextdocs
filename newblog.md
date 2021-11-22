@@ -4970,6 +4970,10 @@ if the model determines the way that a ball is thrown at an obstacle, then I run
 
 ---
 
-mechanistic thought does not want it to be possible to change the model while the ball is in mid-flight.
+mechanistic thought does not want it to be possible to change the model while the ball is in mid-flight because then anything would be possible.
+
+the trajectory the ball takes in each model is like a timeline.
+
+reality is composed of a lot of different concepts. does the model cause them to behave like obstacles? you are the observer.
 
 ### 2021-11-22 ??:?? - astrology and relations to things, and constellations as focus
