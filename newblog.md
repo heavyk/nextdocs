@@ -5036,3 +5036,16 @@ from their perspective, mission accomplished.
 from my perspective, mission accomplished.
 
 [1]: reminds me of something I said yesterday when playing Octavian, I said, "there was nothing I could do about it; I drew all the big ones (minions)". there definitely was something I could have done about it. I was constantly feeling like I was behind and I wasn't drawing the things I needed.
+
+### 2021-11-22 13:19 - followup
+
+yeah, the implied part at the end there is that the other side that wants to control me, transfers their consciousness into the replicas and the boys here to make sure everything stays under control.
+
+as speculation, I would guess that in addition to that, the version of me that remains on that timeline likely dies too. I don't really see it happening any other way because if I start to get connected, then I believe that their instruments will apply a lot of pressure to me and I don't imagine that's a good thing. I don't really know enough to comment really, but if that's the case, you're going to need to find a way to make a replica of me (operated of course), so that to the public it doesn't appear as if I've died.
+
+---
+
+in all seriousness, I don't understand what the reactions are so much. I just take things as they come. my only goal is to be able to navigate really well. I don't have any intention to do other things. you guys make all the plans anyway. I just do my thing.
+
+whatever you decide on, it's cool with me. I just keep finding a way to feel good about whatever the trajectory is.
+
