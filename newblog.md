@@ -4925,3 +4925,51 @@ finally, from the perspective of nosebook, they'll have ultimate control, being 
 so that was my thinking after the eclipse. they have 17 years to think about it. they may reject the idea now, but we'll see how things change in some time.
 
 whatever the case, it was really fun to think about how they may try to sabotage me and what techniques they'll use to get information to their alternate
+
+### 2021-11-22 03:57 - model or reflection?
+
+@[youtube](https://www.youtube.com/watch?v=j6GMNpJbU5Q)
+
+I that video had a life-changing concept for me. one of the interviews talks about how constiousness is like a *model* that mind creates to *observe* reality, and it's that model which "collapses the wave function" or determines what will manifest.
+
+I called this a "reflection" because I had been hearing this idea questioning if the universe is a simulation as if we're living inside of some sort of universal model that exists somewhere, yet I want to say that the model is actually self-constructed, which determines the nature of reality.
+
+---
+
+this got me thinking about the internal vs external experience. I had previously tried to make this distinction saying that solar perception is looking outward, while planetary perception is looking inward. that's one way to look at it. however, consider the other idea presented in that video where we're all parts of the universe experiencing itself.
+
+when we're awake and conscious, we're exploring the external universe (what we call physical reality). however, when we're asleep and dreaming we're exploring internal reality.
+
+the universe is doing the opposite. when it's conscious, it's exploring the internal reality through various dream-like experiences, so I suppose that when it's unconscious, it's now exploring its external reality. I have no idea what what that could possibly be.
+
+so, if I can think of the universe's conscious experience as being similar to planetary perception, then when the universe is unconscious, it lives inside of an environment and is actively interacting with it -- like we do. that environment would also be a *model* of reality that it has constructed to experience a reflection of how it feels.
+
+---
+
+both this inward and outward exploration of the model seems to happen in cycles. when we're alive, we are conscious of the external experdience while awake. while asleep or in altered states of consciousness we experience the inward experience, and only retain vague memories of this dream-like experience. once we die however, this swaps and the default is to be conscious of the inward experience while occasionally taking trips out into the outward experience and coming only with vague memories of it (time and memories are usually based on points of resistance, and all that is left behind when returning back to the inward experience).
+
+it's kind of funny to me to think of the concept of "tripping" from a non-physical perspective -- dropping into a physical body to experience some resistance. just as we think of somoene permanently on psychedellic as being crazy, they probably think of someone permanently experiencing the physical experience as being equally as crazy.
+
+#### gaining clarity while losing my mind
+
+I include this last thing here because it's related and a good physical exaple.
+
+the last week or so I've begun to gain considerable mental clarity. the way I experience it is that I'm much more conscious of how I feel. the problem with being more conscious of how I feel is that I focus so hard on everything that I'm doing, it's like the whole world fades. I completely lose all memory of what just happened and I'm not really thinking of what's coming next either.
+
+I think this is the idea of "living in the now" -- but it's really annoying because I can't remember (or am not aware of) mundane tasks. they completely fade from my experience. one can see how that's both a good thing and also a bad thing.
+
+as an example, yesterday I was playing hearthstone, and I was so focused on the game, I completely forgot or was unaware of how I felt. after the match ended, I noticed that I would be feeling things like, "wow this is so cool" or, "I'm not drawing the cards that I need" -- and the game would shape up to turn out just how I felt.
+
+so, while at the surface of the model, I see pixels on the screen and I see my computer and mouse and stuff, my model then turns those pixels into a concept like, "I'm not drawing the cards I need" and then that observation influences how I experience the nature of that reality.
+
+---
+
+so, on one side it looks like I'm losing my mind, not being able to remember or notice things that are outside of my focus, at the same time I'm gaining consciousness because more and more frequently I'm noticing the way that I feel and am able to shift it.
+
+if the model determines the way that a ball is thrown at an obstacle, then I run the model forward and the ball bounce off just as predicted. however, if while the ball is in mid-flight, I no longer perceive the obstacle and so therefore change the model, the trajectory of the ball will no longer collide with the obstacle.
+
+---
+
+mechanistic thought does not want it to be possible to change the model while the ball is in mid-flight.
+
+### 2021-11-22 ??:?? - astrology and relations to things, and constellations as focus
