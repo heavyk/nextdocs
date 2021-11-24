@@ -5089,4 +5089,54 @@ when "God" (pick your diety) spoke the world into being, do you suppose they act
 
 [1]: I'm not being hard on the last host of SNL (forgot his name). I can use my own example here many times or zaryn repeating that facebook will translate and take over the spanish market. it's just that this repetition of things that other celebrities (or even game characters) say happens so much, it's embedded into our reality. our brains learn from experience and watching others repeat ideas (whether they're your parents or movie stars), gives our brain that these repeated concepts are "facts".
 
-### 2021-11-24 ??:?? - the squeaky wheel gets the grease
+### 2021-11-24 15:24 - the squeaky wheel gets the grease
+
+I've been thinking about this a little bit since the events that happened this morning.
+
+I believe that jesus produced a time split, and the defining attribute which defined jesus' sabotaged timeline was him fighting against the pharisees and their monetisation of spirituality, casting out the money changers and stuff like that, pretty much defined the power structure that would arise after his death (the holy roman church) -- an advanced version of watered-down spirituality even more heavily monitised than the money changers in the temple.
+
+so, that means that if we're on the sabotaged timeline, then that means I need to find something to fight against which will define the power structure which will arise in the years after my departure.
+
+---
+
+I've decided that the best one for this will be the concept, "the squeaky wheel gets the grease". the idea is that many of the young people are living such a mundane life devoid of meaning (synchronicity), that they feel their life will be given meaning if more people notice them.
+
+honestly, I can't think of a better population group where this is the case than russia and china. I get the feeling like there are so many people and everyone has been reduced to being consumers of media, that it feels like to give their life meaning, they need to be noticed by others in this media.
+
+I've not used the tiktok app or even know much about it, but I mentioned it in passing in @[newblog](2021-11-11 18:50) and the reactions that I got were interesting.
+
+the whole premise of that entry was inspired by a dream in which I waited so long to get the manifestation that it enabled essentially everyone on the planet to have what many people would consider now to be super powers (like flight, telepathy, capacity to levitate things, etc.) and none of them did anything for that capacity. they did nothing to earn it and because not everyone believed they had the capability, the ones that did have it turned out to be quite ridiculous set of douchebags -- the same kind of douchebacks that economics allows one to have now -- but instead this time it's belief in oneself that enables this douchebaggery, rather than economic capacity.
+
+I'm sure that some of it will be largely inherited, so people that have certain genetic qualities are more likely to naturally have these capacities, while others who don't have these genetic qualities will be left out. in reality, everyone is capable, but I think that the thrust here is to affect technological advances in genetic engineering.
+
+---
+
+so back to tiktok concept (btw, I like how its name sounds like time passing). the idea here is that I want to begin to fight against the establishment position of using marketing and advertising to give something meaning. what I hope to perpetuate is a world where the loudest and most obnoxious are the ones that get the attention that they want. they will have the most capacity to attract the concept of reality that the believe and also the most influence over others.
+
+you may say that actually no, the influencers don't directly influence nearly as much as the creators who offer the framework for these influencers to express theirselves (like instagram or tiktok). I would agree, but in a world where you are the manifestation of the belief that others and you have of yourself, these companies will have to generate belief in theirselves just as their successful users do.
+
+may the company that people believe is the best win. and then, what's there to win? you may say it's economics -- but it's not that -- it's more belief. just as economis is designed to be a self-perpetuating feedback loop, so too will this be a self-perpetuating feedback lopp. you're only as successful as people think you are.
+
+it's going to be marketing from top to bottom.
+
+---
+
+so, how can I possibly do something like this? well, there was a pretty big clue this morning.
+
+the other reaction that was significant was the one where I was talking about interaction and the transfer of conceptualisation through interaction -- and I said something like I will want to optimise for having the most diversity -- implying that I should actually be looking for, not the easiest ones to love, but instead for the ones with all of the bad-feeling concepts of reality, forcing me to build up more and more logic of better ways to perceive and navigate those concepts. basically, I'm saying that I should go, not for the perfect little girls, but instead for the mangy ones. the worse they feel about reality, the more opportunity I have to optimise my logic.
+
+lol, they don't have to be physically mangy -- I mean emotionally mangy. I mean they have to have some really awful ways of conceptualising reality, beliefs like maybe everyone loves me, but I only find people that want to take advantage of me (something I had also believed myself) -- and other strange deranged ideas.
+
+the idea here, probably works as a result to last night's dream. they want me to find someone physically attractive, and so therefore begin to interact with them. I don't really want to fight against them. I'm just going to lean into it because the more opportunity that I have to hang out with these "attention whores" -- people who derive their value from the attention that others give them, the worse I can make it.
+
+anyway, the same rules apply: I'm still looking to find my connection before any interaction happens. they don't want that, so they're designed to try to prevent that from happening. same thing though. they'll probably find a way to keep me away from my connection though. maybe this dream was a sign. maybe the girl in the dream is buying a stairway to heaven...
+
+---
+
+maybe it's actually the other thing that happened this morning. I had a weird experience of incompatible realities. the incompatible reality turned out to be the solution rather than the problem. when it happened, there were two versions of earth -- one where I didn't get connected (presumably I died), and the other where I did.
+
+they found out that they can still utilise our conceptual resources from the other earth and being in another location, they could much easier hide. because the planet eventually begins to reflect their form of perception, gradually things would begin to fall apart, but instead of it being the end of the world for them, they realised that they could force another incompatible reality making another time split and move over to the new earth each time.
+
+each split advanced a bit further from the previous and so not everyone would want to be a part of the new group and so some would lag behind. so like at first there were two timelines, but then they couldn't agree again on how many of our ideas they wanted to implement, and so therefore another split..
+
+it appeared to me like there was a whole chain of timelines each one depending on the next. any time that anyone wanted to upgrade, they would just choose to be born into the timeline ahead of them. advance at your own pace.
