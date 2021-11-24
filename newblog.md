@@ -5049,3 +5049,44 @@ in all seriousness, I don't understand what the reactions are so much. I just ta
 
 whatever you decide on, it's cool with me. I just keep finding a way to feel good about whatever the trajectory is.
 
+### 2021-11-24 13:55 - omens, symbols and divination
+
+@[youtube](https://www.youtube.com/watch?v=35Mo8rw7MAA)
+
+watching that video there on the symbolic nature of reality and how synchronicities can both happen naturally and also be invoked.
+
+it was reminding me of a dream last night where I would tell a person that I think they're hot (attractive), and then it felt as if something wasn't quite right, some things would happen, and then again I would tell this person that I think they're hot.
+
+I don't know who the person was. it felt like it was a girl and it felt like I was supposed to really like her and be attracted to her physically, and because I wasn't overwhelmed with attraction to her, that's why it was sort of like not working.
+
+it's not uncommon that I look at someone (male or female) and I think to myself, "wow they're hot/attractive" -- but that's about as far as it goes.
+
+---
+
+anyway, so this guy's explanation of using these symbols as a form of divination was reminding me of this dream. I think it was supposed to practise a response to probably a girl, so that it would feel like a sign that I find them so attractive.
+
+let's get the definitions out of the way here. first, there are synchronicities, which are two (or more) things that attract their coincidence in time. they happen naturally and are attracted. the symbols involved have specific meaning to the observers.
+
+the second form of divination is "testing the spirits" which is something I did all the time as a kid was to pose a true/false question and then wait for a sign to confirm or deny it. I eventually found out that I could just *feel* the resonance of the question and no longer needed a sign. I could just "know" how I really feel about that question. these questions are manifesting meaning relative to the observer into reality.
+
+the third form here is the one that I'm experiencing in the dream -- and I would largely place into the same category as "facts" -- which is to practise a response to a topic by having a person observe that response. for example, if people I assign value to (like a celebrity) repeats an idea like idris is hot (or CO2 is bad), then I'm more likely to perceive him as being attractive. this is basic marketing and is the foundation of propaganda and advertising.
+
+so while it may seem very unrelated to lump in marketing with a symbolic interpretation of reality, I contend that they are very related. when (symbol of thirst), then enjoy (product). it's pretty basic logic.
+
+---
+
+so now let's look at these three things as a gradient of concept to logic. desire is the motivating force, but notice from where is the desire coming from.
+
+first you have something that is attracted. the more attention you give to a concept, it begins to attract things which will prove its reality. often times before it manifests itself physically, that concept manifests itself into a symbolic event which *means* something to you. you attracted that meaning (and therefore the manifestation) based on how you feel/conceptualise reality, and so therefore it confirms your model of reality.
+
+next, there is the neutral position where you pose a question, which generates desire for a manifestation of a confirmation of your concept of reality. the stronger your desire (how strongly you want the confirmation), the more meaningful the manifestation. it could be anythting as simple as a forboding feeling or some large pmysical manifestation (like watching a crash or animal/bird antics) to prove to you the way you feel.
+
+finally, there is the practising feeling responses to a subject in effort to attract a manifestation. we build up logic by repitition. so, saying things (or watching others say things) like "I'm not as attractive as idris" so that concept begins to prove itself to you as reality[^1].
+
+just saying things isn't enough. if you're saying things that you don't actually believe, you won't notice much energy movement. I do my best to say only things that I actually believe. more and more I'm getting rid of repeating things that I don't actually believe because I like the idea of the creative power in actually believing the things I say.
+
+when "God" (pick your diety) spoke the world into being, do you suppose they actually believed what they spoke would be created? maybe they were just saying things. maybe they were just repeating what they saw their parents doing and accidentally created the universe...
+
+[1]: I'm not being hard on the last host of SNL (forgot his name). I can use my own example here many times or zaryn repeating that facebook will translate and take over the spanish market. it's just that this repetition of things that other celebrities (or even game characters) say happens so much, it's embedded into our reality. our brains learn from experience and watching others repeat ideas (whether they're your parents or movie stars), gives our brain that these repeated concepts are "facts".
+
+### 2021-11-24 ??:?? - the squeaky wheel gets the grease
