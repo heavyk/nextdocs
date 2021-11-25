@@ -5198,3 +5198,43 @@ the thing I do know is that I'm doing quite fine and everything is coming along 
 final bit of speculation: it could also possibly be that they actually intended to allow me to go up because someone (with enough power to allow that accident to happen) felt that they didn't like the alternative I presented in the previous entry.
 
 who knows. my point is, the time is soon. I wish I had more time honestly
+
+### 2021-11-25 13:15 - enjoy getting taught how to react to things
+
+it's hard to summarise last night and this morning into text like this but the much shortened version is that I've decided that I'm going to begin to point out and illustrate (ie. push against) the wide-spread effort to try and teach people how to react to various subjects.
+
+this has the effect of making it worse. just like jesus did nothing to get rid of religion and spirituality capitalising on those seeking to find a connection, so this will be the same.
+
+I've been paying a lot of attention to how marketing is done, and I'm beginning to use some of the techniques myself. for example, I chose to use the SNL host as an example because it seems obvious to me that the whole idris thing is clearly a promotional thing. I don't know much about it, but I think he was named the next james bond or something like that. james bond is always attractive so they have to ensure that he's attractive. I had heard the programmed reaction a few times before that he is supposedly attractive. it may even have been on SNL, but I don't remember. either way, it's there for the same reason that trump repeated "drain the swamp". it's a trigger to some other promotional thing.
+
+I'd have to ask him myself to be sure, but I figure the SNL host is just repeating something he had had practised. I don't know if he wrote that part of his monologue script or not, but I figure it was inserted on purpose by the same people who put in the bit about joe rogan taking horse medicine (and how you're supposed to react to that). I think joe is a bit of a threat to them and that was the same reaction that CNN had to the same event. there's a common source between the CNN script and the SNL script.
+
+---
+
+there's nothing really that can be done about this. my fighting against them will only make them stronger. there's no need to try and bring them down or correct them. they'll shoot theirselves in the foot just fine. I predict that it'll be a "double cataclysm" where they push the reactions that they want until it blows up on them. they'll rebuild and try again, making sure that they're more careful, but again it'll spiral out of their control.
+
+this is when I think that various russian and asian (maybe india too?) -- places with large marginalised populations will have a media outlet where the younger people can begin to define the reactions to things the way that they want to react to them.
+
+this will force them to rebrand theirselves and rebuild once again (it may be more until they get it, but third time is the charm). I imagine that in this rebuilding, they'll have to figure out how to guide the manifestation of reality, not with symbols like they have been doing in the television era, but this time with emotion. if you can quantify and determine how a person conceptualises reality and who they are allowing to influence that, then that person's reality can be guided by influencing them to feel certain ways (like those games of hearthstone).
+
+this will bring ultimately great advancements to our knowledge and understanding of emotion and its effects on reality. it's quite likely that knowledge and technology needs to be kept absolutely secret, so they have to remain hidden.
+
+it was then decided that the idea of using the time splits as a method of keeping hidden is a good one. I will be the first to do this. I will likely also be the last.
+
+the way it works is I will keep doing what I'm doing where I continue to get better and better at feeling the way that I want to feel. this creates an incompatible reality because take for example even the subject of girls. I don't really feel anything attractive about trying to do things with girls. it feels like a lot of work. there isn't anything that they have to offer which I want, therefore it's not really easy to pull me into a reality which feels worse than I feel now.
+
+let's say they manage to trick me and find a way to get me setup on a bad-feeling reality -- I just improve my logic and perception and I'm back where I started.
+
+all I have to do is to just keep going toward what I want, and it creates an incompatible reality for them. the only option that they have left over is to allow me to go toward a better feeling reality. they must make a split because they can't live in a world where someone is connected like that because it'll reveal all of their secrets.
+
+what you can then begin to see happening is that each reality has a reality which they split off from. as soon as someone on that reality creates another incompatible reality, then another split happens. you can't really go backward because imagine that a nosebook is going to be the last one and that will be filled with all of their technology and secrets. there's no reason to ever go backward either.
+
+if you could choose to downgrade your reality and go to live in a place that feels worse, would you? I very much doubt that this will happen.
+
+instead, what I think will happen is that there will be nosebook hq at the very end of the chain, then going up from there, there will be better and better feeling realities above that, each a reflection of the person that accomplished the incompatible reality and forced the split.
+
+for example, after the split, I could imagine some of the elites that decide they don't want to continue on in their reality, and instead would rather be born into my reality. they'll "invade us" and try to take over, I'm sure, but then it'll eventually create another incompatible reality and therefore a split.
+
+because nosebook can't possibly allow anyone to ever be unsupervised, I think of them as the sort of backbone to this. they have to maintain a presence in every link of the chain in order to retain access to every split that happens.
+
+we'll see how it goes. I'll try and figure out a better way to communicate how I see this better.
