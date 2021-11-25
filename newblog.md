@@ -5140,3 +5140,61 @@ they found out that they can still utilise our conceptual resources from the oth
 each split advanced a bit further from the previous and so not everyone would want to be a part of the new group and so some would lag behind. so like at first there were two timelines, but then they couldn't agree again on how many of our ideas they wanted to implement, and so therefore another split..
 
 it appeared to me like there was a whole chain of timelines each one depending on the next. any time that anyone wanted to upgrade, they would just choose to be born into the timeline ahead of them. advance at your own pace.
+
+### 2021-11-24 11:44 - I'm too close
+
+I was watching a documentary on how there is likely 1000 years erased from history and vast empires existed in the americas, but history was rewritten. it may also be the case that the egyptian dynasties existed in far more recent times as well -- almost as if to make it seem like all of these large things that were constructed were in the distant past, when in fact they were more recent.
+
+the way it was presented gave the impression that humans are victims to these parasitic forces and are denying us good conditions and spiritual connection.
+
+I hear what the narrator is saying, and I agree that most things would be nicer if conditions were nicer, but spiritual connection isn't gained from being the victim to parasitic forces. you create your reality. they only exposed a weakness, really is all that it is.
+
+following on to the last documentary about the omens and synchronicities, I'm certain that on the macro scale these empires were victims to circumstance, but on the micro scale, I'm certain that many individuals inside of the collapsing empire saw the "writing on the wall" or the signs of the the time that was ahead -- sort of symbolic omens of the future.
+
+the empire is only as strong as it can collectively be. each individual in the empire is seeing these omens for theirselves and it's either causing them to feel fear and forboding of the arriving doom -- or, it's not.
+
+the way that a person interprets those symbols largely has to do with how they feel in the moment and their logic. one person may see an eagle going down in flames as an omen of disaster, but another could see this as the baptism of fire that inevitably happens before the kundalini rises. you get to decide the way that you attract your future. the only thing that is certain is that something big will happen, but how it manifests depends largely on their working model of reality.
+
+---
+
+all of this ties into the bigger subject here and that really is that while it may be nice to perceive me as some sort of saviour, I am not. the way that I see it, humans on this earth are coming to their *own* conclusions about what they want individually and creating that reality *theirselves*. any reliance a condition (any person, place, or thing) to manifest that reality, is ultimately going to fail because one cannot ensure that you retain those conditions -- whether it's your land, your medicine (or lack thereof), or whatever. all of that is illusory anyway.
+
+every condition that is manifested is the effect of your focus, instead of the cause of your focus (in a cause/effect framework). it's the mechanistic and materialistic perspective that says that only conditions and the physical substance that compose them are what creates consciousness and everything experienced.
+
+so, while it may appear as if I'm doing something great, I am not really actually doing anything other than showing that it is possible to find a way to conceptualise your reality in a way that feels good no matter the conditions.
+
+in reality, many of the ideas that I have will not be heard by most people. the people listening to me and the ones that actually believe in me the most are my "oppressors". they know more than anyone else that I have much more power than I appear to have. they also know how hard they are having to work to keep my reality from reflecting how good I feel.
+
+since I need to continually give more and more ideas to my oppressors to keep me from getting connected, they're learning how to influence our ability to symbolically create our reality (like with divination or words). the better they can control my conditions, the longer I can stay here. what that means is, the better they can control my conditions, that means they also have the capability to try and control others' conditions as well. the longer I can stay, the more capability the parasites have to "victimise" humankind by controlling our conditions. personally, I think it's fine because they can't control how you react to those conditions.
+
+eventually, everyone who figures out how to feel the way they want to feel, will find theirselves in the situation I'm in now. there's literally no way for them to stop it. the only one that can prevent me from that connection, is me.
+
+it's true that I still feel like I have a long way to go, so I'm not really in a hurry to get there. I really wish I had more time actually. I'm just now starting to really get a hang of all of this stuff I'm talking about.
+
+---
+
+I don't think I have much time left. after watching those documentaries, I laid down cause I felt tired. there were also a lot of reactions since my last entry, too. I lost consciousness. I don't think I was gone long but I was flying around in a dark room when all of a sudden my physical body started to feel very light and my vision was filled with light as the kundalini started to rise up my spine. I was very lucid and decided that I didn't want it to happen yet, so I woke myself up.
+
+I laid there with my eyes closed and every time that I started to relax, it would start again and I would snap myself out of it. if I stay relaxed, the light would continue to intensify and I would go up.
+
+---
+
+I deduced that what is happening is right now things are more energetic than normal. last night, it was exceptionally warm outside (like a summer night actually) and my feet were hot all day too, so I think that it's just energetic enough for that to happen.
+
+when I lose consciousness or fall asleep, there is a period where they have to relax my body so that they can begin to do their stuff while I'm asleep. if I listen to binaural beats or am very stressed out, they can't do that thing (I guess it's like "channeling" my source or something) while I'm asleep, so they have to "meditate me" for a bit so I can get tuned into it.
+
+I think what happened is they did that so they could have a conversation with my higher self, and it was in that instant when my body was relaxed enough that I started to get connected. I don't think there's much that they can do to stop it, otherwise they would have. I was the one who woke me up stopped the process just like I do when I'm watching stars.
+
+I think they tried it again a few more times after that and each time I started to go up. I felt the reaction that possibly this may mean that they've lost communication to my higher self while in the secrecy of my dreams. if they want to talk to my higher self, they can do it in person now, or just accept that I'm the same higher self guy awake and asleep.
+
+---
+
+I still don't want to go up just yet. I still feel like I have a lot more to learn and practise still before I do that. I really am not in a rush, but like I said, perhaps the sun will force me to go up soon. I don't know if they're going to "kill" me though.
+
+the thing I do know is that I'm doing quite fine and everything is coming along well.
+
+---
+
+final bit of speculation: it could also possibly be that they actually intended to allow me to go up because someone (with enough power to allow that accident to happen) felt that they didn't like the alternative I presented in the previous entry.
+
+who knows. my point is, the time is soon. I wish I had more time honestly
