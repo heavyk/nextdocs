@@ -5362,3 +5362,15 @@ so, we'll have to see what happens. maybe there was a reason why I chose to go w
 let's just wait it out. let's give the kid time to grow up and think about what he wants.
 
 create your own reality. a zombie will replace you if you disappear.
+
+---
+
+oh, that reminded me. the concept of zombification can easily be explained. it's not really a bad thing. you notice how in a dream, all sorts of things are happening, which if they were happening in reality, you would be very upset about? I believe that's because the elevated levels of DMT make everything feel "normal" -- inotherwords, you don't have any resistance to them. otrok mentions that zombies will be naked without shame.
+
+I imagine if the protons are collecting too much, they'll have to convert a lot of that into DMT. people will begin to feel a lot less resistant, much as if they were going back to being like a child. as always, to others, their reaction will be the opposite and they'll feel a lot more resistance. if that happens, you will destroy yourself (ie. die) or begin to feel non-resistance.
+
+this is the state that the early humans (adam and eve) were in. it's a dream-like state where logic is disabled (non-resistance), and it's perfectly fine. there's nothing bad about it. in fact if you could have that state while conscious, then you would attract a good-feeling reality. however people in that state are usually not very conscious (much like me when I sleep -- a kind of hypnosis). eventually, all of those people will gradually "fall" back to where they are as the planet decends back toward the kali yuga and this repeats.
+
+so, I really wouldn't worry about it to much. when becoming conscious of it again, you'll be much much more likely to find the ability to reach non-resistance despite the parasitic regime.
+
+you are your own saviour; don't wait for a christ to save you.
