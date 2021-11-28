@@ -5298,3 +5298,67 @@ I don't yet know how to communicate these concepts very well yet. originally, I 
 [1]: reminds me of the idea that today's lower class standard of living is so much more advanced than a king's standard of living 1000 years ago: @[youtube](https://www.youtube.com/watch?v=kVOTPAxrrP4)
 
 ### 2021-11-27 ??:?? - quasimodo (time) and the archictecture (space)
+
+### 2021-11-28 05:29 - a few thoughts on the "end times" and prophecy
+
+I have been interested to watch a series of videos on the end times, starting with the prophecies of otrok vyacheslav. his prophecies were very interesting to me because they seem to have a lot of truth to them. he touches on a lot of subjects that other prophecies don't -- and that is the expansion in perception and the merging of the physical with the astral realm.
+
+I call the astral realm the imagination (6) layer, because it's just that. you are perceiving your imagination as reality. this happens all the time but we're not aware of it. it takes time for signals to go from your brain to your nervous system. it would be impractical to live life out on a 60ms delay. many sports would be impossible because there simply isn't enough time to react to the stimulus. the brain compensates for this by running a model of reality (which is what you see in your eyes) that the brain updates rapidly and corrects as soon as new information is received. you are literally seeing the way that you imagine the world to be.
+
+so if your model predicts an object coming at you, you will see it doing so and will be able to time the impulse to your arm to reach out to catch it. everything that you see is what your model believes is happening. this is really great for things like hunting and fighting, and works really well. continue to increase the brain power and you will begin to have visions -- altered states of consciousness where you perceive things inside of your eyes, kind of overlaying the world. continue to increase this further and you will begin to see those visions inside of 3d space. you can interact with them and move them around with your mind and stuff.
+
+technically, I think this is related to the creation of ATP in the mitochondria (eg. female bloodline). if you have enough of this energy, I think your body can produce DMT which resonates at a frequency and this tunes you in to a reality and allows you to perceive it inside your eyes as if it were real.
+
+this is directly related to the sun -- which I'm fairly certain has to do with the proton output. as the sun begins to emit more light (protons), then you will have a higher degree of your imagination manifesting inside of your experience as a full blown tactile experience.
+
+that manifestation tunes you to a reality and you will begin to experience a reality more like that.
+
+---
+
+the thing about the rapture is the concept of a "time split". as someone begins to tune more and more into a reality, others will become "incompatible" with your reality, and they will vanish (you've heard those stories about people changing realities -- teleporting to another space or time). I'm pretty sure that's all that is.
+
+what I'm saying is that everyone is going to begin to create their own reality, and as energy increases, the "reality" or intensity of your reality will continue to increase (as in stronger and stronger tuning), and so from your perspective you will lose sight (or forget about) people that are incompatible with your reality.
+
+---
+
+misery loves company though, so the more people that they can get to believe and tune in to their disaster of a reality, the more people they'll bring along with them. therefore, it's in their best interest to try and convince more and more people that the "end times" will be the way that it's prophesied to be.
+
+---
+
+you can see now how my saying that clearly makes me the anti-christ. I'm charismatic, I'm limp, one eye darkened, and very soon I'll have magic capabilities of manifesting things into reality.
+
+the other reason why I'm clearly the anti-christ is that it's my personal opinion that if you need a saviour, you're not creating your own reality.
+
+the bible has been so blatently edited to fit the parasitic agenda that there's no way they would possibly tell the thing exactly how it is. I would imagine that the bible is rewritten, including the revelation of st. john, to fit their narrative, just like the history books have been rewritten.
+
+in their narrative, there are two witnesses that cause all kinds of problems for 42mo and then are killed. a woman is capable of giving birth to the man who will rule with an iron rod, and then a great beast rises up having 7 heads. he "deceives" the people and has all kinds of charisma.
+
+that's about the time where we're at now. the woman has given birth, and the it's time for the fully connected, all 7 heads functioning (that is perception on all 7 layers), to rise up.
+
+this is a huge problem for them if I get connected. I don't plan on personally performing any miracles, but each person exudes an "aura" (a magnetic field) which vibrates similarly to how they feel, and people within my aura will feel really good or really bad (depends on your logic/perception).
+
+this will put everything into ultra high gear on this planet. most people will disappear from my reality as they tune to another reality.
+
+I figure the time between the birth of the child and when they detune is the time it takes the person inhabiting his body to grow up enough to learn to shape-shift (appear how he wants to appear in people's imagination). he'll probably learn to levitate and perform all sorts of other miracles too.
+
+eventually he will grow up to be old enough (I assume at least ~11-18yo) that he'll have enough logical capacity to successfully pull off appearing as the "christ" to everyone still tuned in to his reality.
+
+---
+
+that's my "prophecy" of how it'll happen. supposedly according to "former white hat", that final split will happen in 2038.
+
+there is a bit of a twist to this story though because I don't think it'll happen the way I said it will. to understand why, one needs to think of what I was talking about in the prior entries about the continual splitting. in short, I think there will be a split, but this creates a number of different realities that those in the lower timelines can tune into. in essence, once they've attracted a reality they don't like anymore on their timeline, they'll invade any of the other timelines that have branched off. eventually they'll invade our timeline too and so it'll go on infinitely.
+
+this allows for as many incompatible realities as there are people (so basically infinite), and everyone gets to have a go at creating their own reality the way they want to, whether it's invasion or finding connection despite the circumstances. obviously each invasion, the difficulty will increase because they'll have more understanding of what tricks to play and they'll obviously try to infiltrate the "easy" ones first.
+
+each time they unsuccessfully infiltrate, nothing will happen. however, each time they manage to infiltrate and setup their parasitic regime, eventually that timeline will have it's own "end times". it'll either be successful or destroy itself.
+
+this is clearly optimising for the parasites to get better at infiltrating and for those that can create their own reality to do so, regardless of the circumstances.
+
+---
+
+so, we'll have to see what happens. maybe there was a reason why I chose to go with the worst possible manifestation.
+
+let's just wait it out. let's give the kid time to grow up and think about what he wants.
+
+create your own reality. a zombie will replace you if you disappear.
