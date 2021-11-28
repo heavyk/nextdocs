@@ -5238,3 +5238,63 @@ for example, after the split, I could imagine some of the elites that decide the
 because nosebook can't possibly allow anyone to ever be unsupervised, I think of them as the sort of backbone to this. they have to maintain a presence in every link of the chain in order to retain access to every split that happens.
 
 we'll see how it goes. I'll try and figure out a better way to communicate how I see this better.
+
+### 2021-11-27 22:04 - if I were "God"
+
+a few days ago (maybe it was yesterday, actually), I watched the otrok prophecies...
+
+@[youtube](https://www.youtube.com/watch?v=aYSwlWHtHnQ)
+@[youtube](https://www.youtube.com/watch?v=E_y43yKQ_Kw)
+@[youtube](https://www.youtube.com/watch?v=Dl-KY0SEaB4)
+@[youtube](https://www.youtube.com/watch?v=Sw8xazgR8x4)
+@[youtube](https://www.youtube.com/watch?v=GuEZ0fWj8JE)
+
+after watching the final one, I began to express my thoughts by saying, "if I were 'God', and I wanted to make a fixture (an inflection point) in the timeline to have a future be attracted, then this kid would be perfect"
+
+in this context, when I say "God", I don't mean source -- I mean the creator of the human race.
+
+another really really great description I heard today was the definition of shiva: @[youtube](https://youtu.be/-vkzV3MRNhI?t=1912). the idea is that you have a non-physical consciousness, and then place that consciousness into a physical body like an insect and that consciousness behaves according to the nature of that consciousness, but then put that same consciousness into a human body and now it explores the limits of conscious experience and creative expression. the body behaves in a way which resonates with that parent consciousness.
+
+---
+
+I continued on with the idea that I'm the creator of the human race for a bit because if I'm not, then I will be the creator of another human-like species soon (that's the whole point of my galaxy fantasy). so let's just assume for the sake of this discussion that one day I will be the creator of a human-like species.
+
+well, first of all, I would make them similar to myself. you may have noticed that one very notable quality of me is that I almost never get the perfect, best, or optimal manifestation. I get close sometimes, but it seems that there is a counter force which can never allow me to get the exact perfect manifestation.
+
+it's uncertain from my perspective if I *personally* sabotage the perfect manifestation or if it's just something that's attracted by me.
+
+imagine for a moment this idea of a dual aspect to me -- one that I myself have created to constantly do battle against me. this demiurge aspect that I have created for myself always gets the best manifestation by manipulating and climbing over everyone else to get it. even though he does not believe himself to be capable of getting anything for himself, he does think he's the best at manipulating and if he puts his mind to it, he can find a way to manipulate anyone to get him the manifestation he wants. he has to manipulate/use anyone who rivals his capacity to create what he wants for him because he doesn't think himself capable of creating it himself.
+
+what you end up with is one aspect which is truly psycopathic -- doing anything necessary to resist any progress, while the other aspect of me is so sure that he is capable of finding the way, I always "win" the battle. each time that I do however, that creates an incompatible reality with my own demiurge. both so strongly believe in their capacity to manipulate/create, they both *must* exist and so therefore a timeline split happens.
+
+you could see it as a "curse" that I have literally programmed a malevolent force designed to never allow me to get the manifestation that I desire. however, I like to look at it energetically. each time that a manifestation evolves, it evolves because some set of circumstances prevent it's manifestation and so therefore it produces more desire. each iteration that this happens more energy is added, and soon you realise that the original desire pales in comparison to present conditions[^1].
+
+consider that if I had to pick between right now where I presently am or going back to (what feels now like) ancient history with a manifestation with lyia or andrea -- and without a single bit of hesitation, I'd *much* rather be where I'm at now, than there -- and really it is all thanks to their insistence on trying to control me and not being able to allow me to have any good-feeling conditions.
+
+I would much rather the capacity that is beginning to become normal for me, over some good-feeling conditions. I can pretty easily steer my reality at this point with just how I feel. if I notice a problem, I can rearrange my perception pretty rapidly so that it feels good again. this is sooo much better than anything.
+
+---
+
+because I know how amazing it is to actually be able to do this and value this highly, if I were to create a race, I would ensure as much physical inequality as possible -- so like the "rulers" of this race are a malevolent/opposition force, purposefully created to try and disempower and prevent all of the good-feeling conditions that the race can create. they physically cannot assert into anyone's lives though, because the nature (it's ruleset) of the galaxy is that all things perceived are things attracted (tuned into), so no interaction could happen which is not attracted (it's all attraction). each time that the humans create new greater conditions, the opposition force's desire to get their manifestation by manipulation propels them to find a way to manipulate conditions so that the genius creators (who can only disempower theirselves) allow the opposition to corrupt and destroy those conditons. after all, being genius creators, they'll just make new and better ones anyway.
+
+why? obviously, the objective is to create a race of people that are capable of attracting the reality that they want, despite the conditions. I would make it so that each iteration, the opposition force's own desire to control would provide a way for them to find a way to obtain greater and greater control.
+
+because it's all attraction, the opposition force is creating the same thing for theirselves as they are for everyone else. being tuned in to controlling people through tyrany eventually, they too will create a tyranical force even stronger than theirselves which will soon oppress them. the oppressors always become the oppressed.
+
+obviously, an opposition force like that will eventually destroy itself, so no matter how strong they get there's no need to do anything about it. they can only continue to oppress people so long as there are still people who want to oppress other people (it's only attraction). or, let's say you're someone like me who values the people like mr. motor, and I *want* oppressors, because I don't find them actually preventing, but actually adding more energy into the equation. they can continue to be around me because I want them there. they are useful to me, so they exist as a function of my own desire. I create their reality. they don't create their own reality, so in that sense they're like parasites, depending on conditions outside of theirselves for their survival. they do not feel theirseleves capable of creating the reality they want, so they can only exist for as long as they are useful to their host.
+
+you can see how the end-game of such a human-like race would be for the individual to each create their own oppsition force. I predict that both for myself and for this human race as well. I also predict that once humans gain the knowledge of their capacity to attract what they want, they will value the opposition force.
+
+---
+
+lastly, notice that the parasites need others to create their reality for them, so in reality they are 100% dependant on there being people that they can manipulate. one of the funniest things that I've noticed with my interactions with nosebook is that I would have given them so many answers or whatever for free. whenever I offered it for free, they didn't want it. they had to find a way to steal it from me or take it from my by some means of manipulation -- and I think that's because if they can take/steal something it's because of some ineqality, which then makes them feel more physically powerful -- like they have something that I don't. however if I give it to them, then we're equals, but because I had the creativity to come up with it (and they didn't), I appear more powerful. by stealing it, they feel like they did work to earn it.
+
+---
+
+I want to work on my presentation of that idea a little better. I noticed that I now have a new capability to see the really big picture as cycles or patterns, and it feels like it all makes sense to me. like, how do I explain why waxing and waning cycles are so important. a waning cycle, if looking only at the physical conditions, appears bad, but with the power of perception, difficult conditions appear desirable even.
+
+I don't yet know how to communicate these concepts very well yet. originally, I thought that the prophecies of otrok may be a good place to start because there are quite a few disempowering concepts -- however, I'm not so sure now. we'll see, I guess.
+
+[1]: reminds me of the idea that today's lower class standard of living is so much more advanced than a king's standard of living 1000 years ago: @[youtube](https://www.youtube.com/watch?v=kVOTPAxrrP4)
+
+### 2021-11-27 ??:?? - quasimodo (time) and the archictecture (space)
