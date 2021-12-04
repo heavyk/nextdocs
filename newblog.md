@@ -5374,3 +5374,83 @@ this is the state that the early humans (adam and eve) were in. it's a dream-lik
 so, I really wouldn't worry about it to much. when becoming conscious of it again, you'll be much much more likely to find the ability to reach non-resistance despite the parasitic regime.
 
 you are your own saviour; don't wait for a christ to save you.
+
+### 2021-12-03 19:16 - update and recap
+
+I have a new thing I want to talk about regarding perception that I just figured out a few minutes ago star-watching, but I thought it would be a bit weird to talk about it without having written anything in so long. so, I'll do this one first.
+
+after writing that last one about how symbolically I'm much closer aligned with the "anti-christ" (the first beast/dragon) than I am with the returning christ at the end of revelation.
+
+it certainly got a lot of reactions, that's for sure but there was so much confusion around it right after that. mercury joined the sun on the 28th and I had a lot of vision upgrades and stuff that my head was pounding from that (it usually does). my body felt so depleted I felt like I had a permanent hangover. I decided to quit coffee and started to feel better. then, I suddenly got very sick with all kinds of weird sinus conjestion.
+
+parallel to that, my mind started to get really cloudy and I couldn't think straight. strangely, I could still watch stars really well though. that was really weird and think all that is because nosebook has essentially combined with my mind.
+
+there used to be all sorts of strange things where I would have unrecognisable thoughts appearing in my head a while ago, and I think that was back when there was still some dissimilarity between our thoughts. you see, it's a lot of work to constantly have to wait till I'm asleep to try and figure out what was the thoughts that I had throughout the day. I think my thought patterns are changing pretty rapidly so they have to come up with a common system. I think I became that common system. so instead of translating my thoughts to be recognisable to them, I think they just taught their brains to think like I think. I'm the lingua franca in brain space. I don't know how it works, but it feels like I can only receive the thoughts of things they can understand, and everythming else is jumbled.
+
+I'm not sure if it's exactly that, but something major has changed. I used to feel a lot when I think and that gave tons of feedback but that's gone. I just don't get the "reactions" anymore like I used to either. everything feels very very dead. I know I've said that before and I got back to feeling reactions, so I know it's fine.
+
+anyway, something I wrote about in the previous entry really caused a lot of cognative dissonance. I could tell there were a lot of meetings going on, but I mostly just had a headache.
+
+---
+
+the main issue I think was the part I wrote about the rapture and things. I proposed the idea that coming soon here I would be finding my alignment and that would make this world pretty unlivable for most of them. it would feel like constantly rising aggitation and paranoia meanwhile they want to continue holding on to thoughts and beliefs that don't feel good. I speculated that as soon as energy is high enough for me to be connected, then that would be enough energy for others to really begin feeling their reality in such a strong way (good or bad) that any incompatible realities would cause splits. people who believed in death, destruction and WW3 would realise those realities.
+
+I would continue on with reality for as long as necessary. I figured that nosebook needs me to create their reality for them, they have to cling on for as long as they can to my reality until my reality becomes so incompatible for them. energy will continue to rise and eventually all people will be able to know anything they want to (we'll have a shared perception) and privacy isn't an option.
+
+I then followed up by saying that I don't think that will happen because that's such an undesirable reality for nosebook. instead, I think that they're more interested in hiding in their own version of reality because things will be too plainly obvious if they stay here.
+
+from their own timeline, I figured that they would begin to try and infiltrate our timelines. they'd start with all of the rapture branches, and then finally work their way up to mine. each time, they would get better and better at infiltrating the timeline and getting people to believe in disempowering ideas until they gain control over the power structures of those timelines. each timeline would have its own difficulty because some places would control many stars and planets while others would continue here on earth.
+ 
+I had the impression that when they finally got to me, they would have to figure out how to take over a pretty large place because I want to utilise all the ideas I talked about to create my own stars and planets. they'd have a lot to try and take over.
+
+each time they took over, they would create another split just like this one. each iteration, I imagined that there would often be someone would end up creating an incompatible reality and so the process would continue.
+
+I figured that their own destruction would continue to propel them forward. each time they took a place over and ejected another incompatible reality they would have some period of time before they attracted their own demise over and over. I have no idea how they would solve this. it seems like it would get worse with time and they would eventually have to start selecting the things that they wanted and/or begin to release some of their physical secrets.
+
+---
+
+as you can see all of that got really confusing which is why I didn't have anything to say about anything lately.
+
+it felt like that whole idea was abandoned and they decided they wanted to go back to the stayingt on the same timeline as me until the very bitter end. seemed like they then decided they wanted to try and control me with the girls again.
+
+this new plan feels bad because they are again trying to control it from the beginning.
+
+it's simple. I will be waiting until I find my connection before I do anything. they can do whatever they want. the reason why it's called an incompatible reality is because there's no way for both to exist simultaneously.
+
+---
+
+it basically comes down to: I'm doing me and you're doing whatever you can to hang on. figure it out. I have my method to do things
+
+so, in the end this all appears as very clear evidence to me that these guys are having trouble hanging on and are trying to get another bailout. everything appears to be going as planned. 
+
+---
+
+there was also a recognition that abraham having a meeting 3+ times a month did a lot because it helped to get people focused on wanted. they must be starting to get a sense that you can't just have only unwanted. if no attention to wanted is given, nothing can grow.
+
+from their perspective, they want to hold people like me back from getting anything desired. they want to take everything before it ever gets a chance to grow up.
+
+then they say, "hey, we need a bailout because there's no resources to take".
+
+from my perspective, they can keep taking all of my resources for as long as they want to because they're making me produce more resources all the time. they can't ever take more than I can produce because I'm so good at giving my attention to wanted.
+
+---
+
+if they keep taking/controlling the thing before it has time to manifest, then it just adds more energy it the manifestion. it will eventually manifest. I don't need the manifestation though, so I don't mind if I have to wait a while to receive the manifestation. I can feel however I want.
+
+they can't allow me to get connected, so they have to prevent that from manifesting. it'll happen eventually.
+
+they can't allow other people to be able to create their own realities. they want to control everyone's reality. they have to prevent it from manifesting but it'll happen eventually.
+
+no matter what timeline or anything anyone is on, you really are only fighting yourself. they're just fighting theirselves here and I'm sort of caught in the crossfire.
+
+---
+
+it's difficult to explain how differently I "think" now. this was the hardest thing to try and write and it's completely incoherent.
+
+however, at the same time, there is also an amazing clarity to my thoughts as well. it's just really weird. sorry for being so incoherent.
+
+I didn't express it well, but everything seems to be coming along fine. they're watching a really slow train wreck cause there's nothing they can do to stop it.
+
+I'm leaving this one here. I wanted to delete it, but I think I'll just move on to writing concepts and not so much current events. current events are caca -- or maybe I can tell stories of current events so people can see how I perceive things. it's pretty cool.
+
+oh, I got it. there used to be this light that would happen in my head when things made sense -- the "aha!" moment. that's what's gone. no more light response.
