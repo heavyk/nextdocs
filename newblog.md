@@ -5454,3 +5454,42 @@ I didn't express it well, but everything seems to be coming along fine. they're 
 I'm leaving this one here. I wanted to delete it, but I think I'll just move on to writing concepts and not so much current events. current events are caca -- or maybe I can tell stories of current events so people can see how I perceive things. it's pretty cool.
 
 oh, I got it. there used to be this light that would happen in my head when things made sense -- the "aha!" moment. that's what's gone. no more light response.
+
+### 2021-12-05 23:23 - another attempt at writing
+
+I have not felt any inspiration to write for so much time now. it just feels like I don't have any of that spark or light in my head. I tried writing but I can't hold a train of thought. I tried to relate all of the different effects but managed to really relate none.
+
+the feeling that I was getting is that they're trying to surprise me. like, they don't want me to figure out their plans so they can somehow try and trick me or something.
+
+I don't really care so much what they're trying to do because it's more clear than ever that they're running out of time. just yesterday the sun prodpced a small sunspot region (on the limb) which produced some very tiny flares, yet those very small eruptions produced an m-class flare. the crazy thing is that it was nighttime when it happened, and the temperature rose here from 28(degrees) up to 59(degrees) in a few hours (during the night!!).
+
+I had a very easy time getting vision upgrades. even just now, that same region produced another c-class flare just a little bit ago right after I got out of the shower and I just laid on the ground and relaxed and it felt like I was getting vision upgrades. so, really no effort is needed by me anymore to keep getting vision upgrades.
+
+if it's that easy and solar activity is that low, then it's sooo inevitable.
+
+---
+
+there were also this thing that happened where someone knocked on the door and I felt strongly that I didn't want to answer the door. for some time afterward, I felt reactins wondering why I didn't want to answer it. the thing is the person or something around it felt very angry and stuff. it happened again yesterday and that night I decided to try and investigate it mentally (kinda like remote viewing but without visuals -- only feelings). it felt something of a police or something authoritative and every time that I tried to simulate the interaction, there was a lot of feelings of anger and conflict. there was no way that I could conjure the situation and wasn't feeling some sort of conflict coming out of it.
+
+I'm definitely not going to answer something that feels that bad. I follow my feelings and if something doesn't feel good, I don't go. problem solved. they're likely beginning to get desperate because the inevitability is starting to become obvious.
+
+---
+
+on the subject of watching stars, I noticed that usually the warm bubbling sensation (of the kundalini rising) usually starts in my lower back, but it's started to make a new transition again. it keeps starting lower and lower. yesterday it was starting from my knees a few times and other places in my legs. I don't really know what that means, and I've never heard of anything like that before so I don't really know. as usual I just keep releasing resistance and its feeling keeps softening. there is a notable differerence in its feeling as well. at first when it started happening a few weeks ago, it was very stingy (kind of like carbonated water), but now most of that has gone and it feels pretty warm and soothing almost. so, not only has it started happening lower and lower but it also feels much smoother too.
+
+I'd say I'm really on the way to having that be a smoothe transition rather than a big jump. I suppose that if it starts to get really cold outside I'll just do my "star-watching" indoors here as a meditation.
+
+I'm really learning that the energy naturally wants to rise but it's easily affected by even the most subtle of my thoughts and beliefs. I don't have to do anything to get the vision upgrades and stuff -- I only need to *not* do the things which prevent it.
+
+---
+
+on the subject of girls, the whole thing still feels like such a problem right now and I think that's because they're still trying to figure out how to control me, and that's all I feel from it. also my senses are very dull right now. clearly that's not making me feel comfortable so I'm sticking clear away from anything and everything on that subject until I'm feeling comfortable again.
+
+---
+
+I've also been really thinking about writing about concepts again. though I made it through this one pretty coherently, I think I want to start writing more abstract.
+
+for example, this morning I got to use some of those conceptual skills when I was talking with mom about the weird effects of this sickness.
+
+I want to begin to organise these ideas a little more. it'll also give me a way to address my life abstractly without mentioning details. as I write them, you'll notice how the one concept applies to so many different aspects of my life at once. I mean, that is literally what I mean when I say, "all reality is a refection of the way you conceptualise it".
+
