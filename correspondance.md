@@ -64,3 +64,83 @@ likewise, if I have a philosophy that everything is a manifestation of conscious
 I really wouldn't wait for science to change their philosophy. if you need someone to change, that's law of assertion, not attraction. give your attention to what you want to find (the solution), rather than the obstacles (the problem).
 
 every science theory has to prove itself to be believed to be true. once believed, that's how how it expected and believed to be, and so now we live in that paradigm. science theories will always match the philosophy
+
+### 2021-12-07 14:21 - book of revelation reveal
+
+@[youtube](https://www.youtube.com/watch?v=k2qvBPfhxf0)
+
+hey matthew, great show.
+
+so, I watched that moses thing episode that you mentioned like you suggested and I had totally not realised that my intuition about "moses" was spelled out so plainly in the torah. I have further theories on that subject regarding akhenaten and elijah as well...
+
+anyway, after that it was really weird because I stumbled on to another place in the bible where it says very plainly what it's talking about but people have clearly not seen it (personally I've read this at least dozens of times)... it's revelation 17. let's start with the instructions to translate this:
+
+15 And he saith unto me, “The waters which thou sawest, where the whore sitteth, are peoples and multitudes, and nations and tongues.
+
+18 And the woman whom thou sawest is that great city which reigneth over the kings of the earth.”
+
+this great city without a doubt is rome -- the babylon that sacked the second temple. clearly, this is talking about the holy roman empire (see: https://www.youtube.com/watch?v=f_L4_LmqImY for further evidence).
+
+so, now let's do the replacements:
+
+---
+
+And there came one of the seven angels, who had the seven vials, and talked with me, saying unto me, “Come hither; I will show unto thee the judgment upon the [holy roman empire who presides over the people and communications of the earth],
+
+2 with whom the kings of the earth have committed fornication [with the holy roman empire], and the inhabitants of the earth have been made drunk with the wine of [the holy roman empire's] fornication.”
+
+3 So he carried me away in the Spirit into the wilderness; and I saw [holy roman empire] sitting upon a scarlet-colored beast, full of names of blasphemy, and having seven heads and ten horns [-- the "antichrist"].
+
+4 And the [holy roman empire] was arrayed in purple and scarlet color, and bedecked with gold and precious stones and pearls, having a golden cup in her hand full of abominations and filthiness of her fornication;
+
+5 and upon her forehead was a name written: Mystery, Babylon the Great, Mother of Harlots and Abominations of the Earth.
+
+6 And I saw that the [holy roman empire] was drunk with the blood of the saints and with the blood of the martyrs of Jesus. And when I saw [the holy roman empire], I wondered with great amazement.
+
+7 And the angel said unto me, “Why dost thou marvel? I will tell thee the mystery of the [holy roman empire] and of the [antichrist] that [rides on the back of the holy roman empire], which hath the seven heads and ten horns.
+
+8 The [antichrist] that thou sawest was, and is not, and shall ascend out of the bottomless pit and go into perdition; and they that dwell on the earth, whose names were not written in the Book of Life from the foundation of the world, shall wonder when they behold the [antichrist] that was, and is not, and yet is.
+
+9 “And here is the mind which hath wisdom: The seven heads are seven mountains on which the [holy roman empire] sitteth.
+
+[I consider these "mountains" to be seven planes of existence which in rev 13 are the 7 heads or 7 eyes of zech 3,4 and rev 5. so this is a full consciousness enlightenment experience to up to 6d (I can explain this if you want me to). inotherwords, it's saying that the holy roman empire is riding on the back of the perception of this beast/antichrist]
+
+10 And there are seven kings: five are fallen, and one is, and the other has not yet come; and when he cometh, he must continue a short space.
+
+[likely a reference to the five "root races", coined by blavatsky, with the aquarian root race soon to emerge]
+
+11 And the [antichrist] that was, and is not, even he is the eighth, yet is one of the seven and goeth into perdition.
+
+[this is really weird wording because there's rev 1:8: '“I Am Alpha And Omega, The Beginning And The Ending,” saith the Lord, *who is, and who was, and who is to come*, the Almighty.' (eg. everything past, present and future) -- yet this antichrist is the "all that is *not*, was, and is to come" (eg. everything past, not present, and future) -- so like the negative aspect of the alpha and omega.]
+
+12 And the ten horns which thou sawest are ten kings, who have received no kingdom as yet, but will receive power as kings for one hour with the beast.
+
+[so you have a serpent beast that divides his kingdom into 10 peices. this is verbaitem plato's atlantis. just replace beast with posiedon.]
+
+13 These have one mind, and shall give their power and strength unto the beast.
+
+[after 5d consciousness is attained, you are liberated to perceive yourself conceptually from any position from within the creation that you're tuned to. as an example in your body if you focus your attention to your lungs, you perceive from the perspective of your lungs. if you are the planet and your lungs is a person, and your heart is another person, they are of the same mind, from the perspective of the person. this is saying that the "beast" is the planet itself, and those that are harmonious to that frequency are aspects of the same mind just like your lungs and heart knows what to do without you needing to tell them to pump blood or breathe.]
+
+[problem with this, is that privacy and separation is no longer a thing. we are legion. those that want separation will need a saviour from that harmonious form of perception.]
+
+14 These shall make war with the Lamb, and the Lamb shall overcome them; for He is Lord of lords and King of kings, and they that are with Him are called, and chosen, and faithful.”
+
+[energies will continue to increase and reality will be created in the individual's own perception. some see theirselves as called, chosen (you gatta earn it) and faithful to the king of kings.]
+
+[make your own reality, right? if you collapse your own wave function of reality and you need a saviour, you *will* perceive where the great deceiver is defeated. in their perspective, the eagle will defeat the serpent.]
+
+16 And the ten [parts of the beast's divided empire], these shall hate the [holy roman empire], and shall make [the holy roman empire] desolate and naked, and shall eat [consume the] flesh [of the holy roman empire] and burn [the holy roman empire] with fire.
+
+[eg. emperor without clothes]
+
+17 For God hath put into their hearts to fulfill His will and to agree, and to give their kingdom unto the beast, until the words of God shall be fulfilled.
+
+[you are "God" in physical form. let's rewrite that from the perspective of the antichrist: For [the consciousness within you] hath put into [your own] heart to fulfill [your own perception of what you've agreed/attracted to be your reality], and to give [over the power to something outside of yourself], until [your own concepts of reality] shall be fulfilled[/manifested].]
+
+---
+
+I added a lot of extra commentary there because the writer clearly intended this vision to be read from as a commentary of the destruction of the oppressive holy roman empire, however because of the symbolic nature of the way it's written, for many people this this speaks of a still future punishment of the holy roman empire by this "antichrist".
+
+in this episode, you guys brought up a lot of good points about this battle between good and evil, light and dark, serpent vs eagle, etc. and that's fine. that is perceiving things with the knowledge of good and evil (most people ar e oblivious). however, see this instead from the perspective of the cycles of all life. if I were enki, I wouldn't want to interfere with the humans. I would consider it like a genetic algorithm. the fitness function measures the fitness of the human based on the capacity the person has to collapse their wave function the way they want. there infinite solutions to this, obviously some technological and some perceptual. if you're making your own reality you don't need a saviour.
+
+final thing: considering the root races in verse 11: it states that the eighth and IMO final root race is the antichrist. so inotherwords, the future is for all people on this planet to become someone who does not need a saviour. that's the whole point. if the great dragon of old who deceived humankind is the creator, we're made in that image -- and, there are infinite paths to realise that.
