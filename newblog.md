@@ -5493,3 +5493,44 @@ for example, this morning I got to use some of those conceptual skills when I wa
 
 I want to begin to organise these ideas a little more. it'll also give me a way to address my life abstractly without mentioning details. as I write them, you'll notice how the one concept applies to so many different aspects of my life at once. I mean, that is literally what I mean when I say, "all reality is a refection of the way you conceptualise it".
 
+### 2021-12-08 07:36 - the 144000 virgin boys and the no-imagination girls
+
+yesterday while watching stars I was thinking about this concept of the 144k virgin boys elected and chosen by the saviour. I thought about why that may be... I don't have any statistics on how many new boys are being born lately, but it feels to me like it may be a lot. my theory is that when they replace a person with a zombie, that zombie will behave and look like the person (man or woman) and that's because they're just copies of me that have "tuned in" in that person, and so because when I tune into a person I start to behave like they do, these other zombies are just other versions of me, but behave like the original person. thing is, when they reproduce, they will produce x3 children, and so I postulate that a lot more really intuitive boys are being born lately and a lot less girls.
+
+therefore, consider a world in which that wasn't happening, and the 144k were the elite cool kids that transferred their consciousnesses into these fresh new bodies. they would be superior to all normal men (x1) and women (x2), but they would be equal with all other x3 boys, and so the 144k would no longer retain genetic superiority over the entire population. the other difficulty is that all of those x3 boys will only produce x3 boys, so pretty quickly this world will become a pretty big sausage-fest.
+
+the idea here is probably something like keep the x3 boys isolated and prevent them from reproducing. that sounds like a catholic priest problem waiting to repeat. we know that chastity requirements often times fail, so it's only a matter of time.
+
+the way that I proposed to get around this idea in previous entries is for the females to produce a female dynasty and those females could reproduce with the x3 boys and then import any new x2 girls periodically from the general population. the dynasty would be composed of x3 and x2, while the general population would be x1 and x2.
+
+I didn't get much pushback, so this idea seemed to be accepted. the day I wrote that incoherent ramble, the majority of that conversation was focused around the concept that if they did like the x3 dynasty idea, they need to let the girls create it. if they try to create it, it will turn out to be a reflection of their point of attraction which is that they can't do anything right and bungle everything. if they want to stillbirth the idea from the outset (though it's already kind of a decrepit birth), go ahead and try to manipulate it to get it to go the way you want it to go...
+
+this is a pretty big theme that I've been bringing up a lot lately and if the dynasty idea does go through, it's going to be something they'll constantly be having to battle against. as these guys transfer their consciousnesses into these x3 boys, their default nature will be to try and micromanage the girls and run their show. the more influence they exert on these girls, the faster the girls will create a reality that reflects how they conceptualise the world (everything is expendable, decay, deterioration, and keeping all the bad stuff away) -- and then each of these dynasties will become like a mini version of the US govt.
+
+---
+
+as I was thinking about this, I was considering the concept of how I became an x3 in the first place. my entire right hemisphere is turned off. originally, this removed my imagination, but I rebuilt the capacity in my left hemisphere. I have two imaginations now, but one is disabled and the other is destructively interfered with so it always looks black to me. as a result, I can still "see" things inside of a black image. it's actually more like I have a sense of what's there.
+
+though this is a bit of an annoying thing it has a tremendous advantage that I find quite useful. my emotions are able to go very very fast. like really fast. with minimal effort, I can feel pretty good and maintain that high speed for quite a while. for most of last night, the reason why I wasn't so successful watching stars is because I kept feeling so good (I have to get to the centre to make progress).
+
+what normally happens when you feel any strong emotion (good or bad), is that emotion will begin to produce pictures in your imagination, and then you'll get distracted by the manifestation in your imagination and focus down to there (6) rather than staying emotionally focused (5). I don't see my imagination, so often I stay emotionally focused. nosebook likes to distract me with a lot of physical noises and things so try and get me to focus down further into the physical (7). this works often, but I'm getting better at interacting with physical (7), while maintaining consciousness of the emotional (5). when all 7 heads of the dragon are finally activated, that means I'm able to maintain conscious perception of all 7 layers at once.
+
+---
+
+simultaneous to that I was thinking about how when I wrote the response matthew @[correspondance](2021-12-07 14:21), I tuned to their frequency when I was listening to their podcast and I even began to use words like they do and was more hyper and stuff like them. it is much more of a man-oriented energy and form of perception, and I sort of like this. that was concerning to nosebook because multipule times yesterday I tuned to people and wrote a reply to them on youtube with very accurately maching their energy.
+
+they don't want me to do that. best I can tell, they want me distracted with girls, not figuring out how to explain energy, the philosophy of science, or the many pathways to collapsing your wave function. they want me focused on the mundane and the physical (ie. sex). I'm not that interested in that. like I said, I have the advantage of not having an imagination, so I get to stay in a whole nother world that I really enjoy. sure it's not visual and doesn't have body parts or other physically pleasurable things in it, but for me it's real. it's beginning to become more real than than this physical experience.
+
+this is *literally* the message that john the baptist (and then later jesus experienced) of leting the physical image of yourself die so you can be reborn in the spirit. this is mostly the same process a person goes through when they die, but that happens in microseconds, while I'm doing this consciously.
+
+I don't want to be repeatedly tuned to the physical (7) by the girls. I want to continue on the path I'm going. just as I was thinking that a light appeared on the shed in front of me and because that's usually remi pulling out of the garage, I tuned to her.
+
+---
+
+when I tuned to her, my very fast emotion that I was feeling for like half of an hour slowed *wayyyyyy* down to her speed. when that happened, I realised that's how little girls lose their zest for life so rapidly. they lose it every time they tune in to their mom or female influence. the experience would be like the one that I just had tuning into remi. I was reminded of rianne and henrietta.
+
+that is the reason why I think the female dynasty idea can work, but the thing is I realise I really don't want to be doing the girls thing. I don't want to be tuned to the physical. I like my non-visual world out on the emotional plane (5). right then, I had an idea, and it was "OH! if you get a girl that has her imagination disabled then I could interact and communicate with her mostly on the conceptual plane rather than having to be bogged down with all of the physical/visual (7) stuff or the constant slowing of the emotions with perception of the imagination (6)".
+
+the idea would be that if she were really young when her imagination was disabled, she would never have that same problem that I notice with the transfer of conceptal reality between females. the sense that I get is that they share some sort of visual space and transfer pictures between their imaginations. they may not be very aware of this at a young age, just thinking it's the environment (that's what I would think), but when the logic brain turns on (throat, 3), this is the major problem because they had been intuiting all of these images, and now they're seeing their mothers fears and worry visually and turning them into logic which really goes against that really fast emotion I'm used to now.
+
+I can see how it would be a problem.
