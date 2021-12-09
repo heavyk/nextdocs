@@ -144,3 +144,63 @@ I added a lot of extra commentary there because the writer clearly intended this
 in this episode, you guys brought up a lot of good points about this battle between good and evil, light and dark, serpent vs eagle, etc. and that's fine. that is perceiving things with the knowledge of good and evil (most people ar e oblivious). however, see this instead from the perspective of the cycles of all life. if I were enki, I wouldn't want to interfere with the humans. I would consider it like a genetic algorithm. the fitness function measures the fitness of the human based on the capacity the person has to collapse their wave function the way they want. there infinite solutions to this, obviously some technological and some perceptual. if you're making your own reality you don't need a saviour.
 
 final thing: considering the root races in verse 11: it states that the eighth and IMO final root race is the antichrist. so inotherwords, the future is for all people on this planet to become someone who does not need a saviour. that's the whole point. if the great dragon of old who deceived humankind is the creator, we're made in that image -- and, there are infinite paths to realise that.
+
+### 2021-12-09 13:47 - to be or not to be
+
+@[youtube](https://www.youtube.com/watch?v=yblIgxxeMN8)
+
+regarding the "to be or not to be" question, I have some ideas, but before I want to establish some context.
+
+in spanish and latin, the verb "to be" is a very weird thing. I'm most familiar with spanish so I'll use that. there is a big difference between "ser" and "estar". this difference is most pronounced with emotions. in english, you "are" angry, while in spanish (and I think latin too), have the state of enfadado. english really confuses the difference between "I am" "I have" and "I feel". another weird example is "tengo hambre" vs "I am hungry". if you were to say "soy hambre" that's just really weird becasuse you are never a feeling. neither would you ever say "soy eenfadado" or "soy enfadamiento" (lol).
+
+so right away you have this conflict that arisis between the verb "to be" (ser) and the verb "to be" (estar). they are not the same. you are not your emotions in latin/spanish, but in english, you are your emotions.
+
+---
+
+the next connection that I saw was the connection that "to be or not to be" has, is with the concept of the "alpha and the omega" or aleph/tav in hebrew. so the tav (cross) is a symbol for the "last" (rather than the first).
+
+the main place where the alpha/omega symbolism is found in the NT is in in the book of revelation, yet I would contend that it's also found in john 1. I'm going to focus on revelation though because right there it says:
+
+Rev 1:8 “I Am Alpha And Omega, The Beginning And The Ending,” saith the Lord, who is, and who was, and who is to come, the Almighty.
+
+the key part there is the "who is, and who was" part. because this is nearly the same wording found in rev 17 about the beast:
+
+Rev 17:8 The beast that thou sawest was, and is not, and shall ascend out of the bottomless pit and go into perdition; and they that dwell on the earth, whose names were not written in the Book of Life from the foundation of the world, shall wonder when they behold the beast that was, and is not, and yet is.
+
+notice that it calls the beast the "was, and is not". it's almost like it's saying that the alpha "is" (to be), and the omega "is not" (not to be).
+
+that could just be a coincidence. I thought the chapter numbers were weird, and it seems like the numbers of the book of revelation have been heavily massaged to get certain things in certain places. I looked in the 1611 version and the only thing out of place I noticed is that the bottom of rev 17 has the word "where" and the next page has "wherefore". I don't think it's anything though.
+
+---
+
+so it's probably a bit of a stretch for some to make the correlation of the beast being written about in similar form to the alpha and omega, but now, let's look to see what the beast really is. that book tells us plainly what the whore is -- it's basically the holy roman empire, and the holy roman empire is riding on the back of this beast. it's connected to the peoples and languages and tounges (communication media) and the people are intoxicated with the sexual deeds of the holy roman empire. I'll let you use your imagination on what that could mean, and if the holy roman empire still exists today. either way, tbis empire relies on the beast for some reason to control the world's communications.
+
+the part about the communications is the important part because all of this is talking about how we interact with each other and communicate in language. the language itself determines what you can be and what you cannot be. the language has a dramatic influence on how you perceive emotion (do you have rage or *are* you rage?).
+
+---
+
+the last thing I want to point out is that the first mention of the beast is actually in rev 13. it's described in the same way as having 7 heads and ten horns/crowns. that same imagery is also used in rev 12 do describe the serpent of old which deceived humankind (in the garden of eden). it's said that that the dragon empowered the beast.
+
+so the dragon is related to connected to the beast in some way, empowering it. the beast must be a construct or a technology that enables the holy roman empire to control nations and languages. some sort of technology. some sort of communication network.
+
+this description comes right after the "two witnesses" in rev 11, which I believe is the "twice eleven brethren". they are the two pillars, the two lampstands, and are symboically related to moses and elijah.
+
+Rev 11:11 But after three days and a half, the Spirit of life from God entered into them, and they stood upon their feet; and great fear fellupon them that saw them.
+
+this symbolism is very similar to the lazarus symbolism. after 4 days, jesus went to resurrect lazarus from the tomb. I believe that jesus was resurrecting a concept from 4kya back in the age of taurus.
+
+I first noticed this was the case because there is a definite distinction between "he" (physical) and "hee" (spiritual/conceptual) that the editor of the new testament makes between these two. it seems very much on purpose.
+
+in this way, I consider that the two witnesses (twice eleven brethren) are resurrecting a *concept* that died 3.5kya. this is roughly the age of moses and the egyptian 18th dynasty.
+
+---
+
+the way I see it, there is an initial implementation of a concept (stone) that happens (this is the alpha), but then it gets corrupted/rejected by an organisation that prevents it. because the concept is ahead of its time, it has to go underground and be preserved by the people who believe in the concept. later on, enough desire to have that concept realised eventually attracts the destroyer of the system which prevents that concept (the omega).
+
+so now in rev 17:12-16 it talks about how there are 10 kingdoms which will receive power (presumably from the beast) and lay the old system (holy roman empire) desolate and naked. however after revealing her secrets and leaving her upended, the alpha comes in and defeats them and establishes a new system.  remember, the alpha is the one that *is*, and the omega is now the one that *is not*.
+
+---
+
+I believe this to be or not to be is a sort of: pick your side: are you the one that is (alpha), or the one that is not (omega).
+
+the alpha is the first but it'll ultimately rejected by the people and have to go into secrecy to preserve the concepts. the omega is the last and it resurrects the alpha, but is gets defeated right after by the next alpha.
