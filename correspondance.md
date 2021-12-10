@@ -204,3 +204,86 @@ so now in rev 17:12-16 it talks about how there are 10 kingdoms which will recei
 I believe this to be or not to be is a sort of: pick your side: are you the one that is (alpha), or the one that is not (omega).
 
 the alpha is the first but it'll ultimately rejected by the people and have to go into secrecy to preserve the concepts. the omega is the last and it resurrects the alpha, but is gets defeated right after by the next alpha.
+
+### 2021-12-10 12:58 - to be or not to be (part two)
+
+```
+My idea about it is highly speculative. I'm not sure about making a video, so I'll try to explain here.
+It's more based on the homophonic value of TO BE being 22. The words are TO BE, OR NOT, TO BE.
+Consider that the TO BE's are equivalent to 22/crucifixes/crosses.
+Now, focus on OR NOT and the two commas.
+We get the round letter 'O' from the Phoenician AYIN, which was drawn that way to represent an eye. 
+Commas also resemble the Hebrew character, YODH ( I ). I thought it might be a clue that "EYE" and the letter "I" are homophones.
+If the two O's (AYIN/EYE) in OR NOT are switched with the two commas, or YODH's / I's (O/AYIN/EYE for the letter "I"), the letters OR NOT become IR NIT.
+TO BE OR NOT TO BE would be  22  IR NIT  22.
+If TO BE/22's a cross, then the translation would be  T  IR NIT  T.
+Now read that like Hebrew, right to left:
+T   T INRI   T.
+It's Golgotha, with Jesus (INRI) and his cross in the middle, and the crosses of the two thieves on the left and right.
+You seem very familiar with the Bible, so I'm sure you know all about "taking up one's cross."
+Could TO BE, OR NOT, TO BE be a reminder to the Brethren of the choice one makes, everyday, to take up one's cross and follow Christ.
+Simply put, the Cross or not the Cross.
+Like I said, highly speculative.
+```
+
+I think you're on the right track there... the main point I was making last message there is that tav = 22 = cross, so what you say seems perfectly logical. I may have something to add here.
+
+you mentioned the taking up the cross thing (mat 16). the context of that is that jesus announces his death and ressurection right before that -- so we're already talkinga about an ending (cross) and a beginning (resurrection).
+
+I don't know vere's life very well, but what I do know is that he completely changed how we define ourselves. the verb "to be" is like I said a very convoluted verb having the definition of oneself (I am smart), the emotional state (I am frustrated), and the possession of things (tengo hambre). the shakespearean plays completely redefined how we utilise emotion in cases of comedy and tragedy.
+
+you must understand that humans learn how to react to things by watching. I can't tell you how times were before the shakespeare plays but people certainly processed emotion differently. the shakespeare plays taught us a new set of reactions to emotions.
+
+likewise, the 1611 KJV bible completely redefined the way that people processed their connection to the divine. at what cost though?
+
+the whole idea behind the omega/tav/cross symbol is that it terminates the old system and creates a new system. the new system is ultimately rejected by the people because it's too far ahead of its time. not everyone can see the value in the new concept, so its marginalised and kept in secret until the profane masses are capable of adopting it.
+
+the important part to understand is that you're only ever fighting your own perception, so the rejector of the new system is a reflection of the omega's own faulty perception.
+
+to understand this, consider the verse about taking up one's cross:
+
+24 Then Jesus told his disciples, “If anyone would come after me, let him deny himself and take up his cross and follow me.
+25 For whoever would save his life will lose it, but whoever loses his life for my sake will find it. 
+
+when one percieves a new system, one perceives usually only the positive aspects of it. these positive aspects often contain all sorts of amazing things that are clearly an upgrade to the present system (in the creator's eyes). however, this will go against the present system's objectives. the system must maintain it's control so it has to find a way to shut down the new creation and end it (cross).
+
+I belive vere had an idea for society that he wanted to create which revolves around perception (like literally seeing better). this is directly linked to the female bloodline, as it's sexual interaction with these females that allows for this expanded perception (and her progeny).
+
+that whole time around the renaissance there was a lot of cathedral building going on. depending on who you talk to, you will begin to see a theme that sacred geometry (like the one in the pyramid or solomon's temple) has a dramatic effect on the well-being and perceptive capability of the person. to me, it's clear (though it's speculation) that there was an effort to keep ramping up these things which will continue to allow people greater and greater access to the divine.
+
+access to this expanded form of perception which I believe they used to write the works of shakespeare and encode those things (I call it conceptual/emotional perception). the system which needs the majority of people to be ignorant/profane masses, cannot allow people to begin to pertceive theirselves from a divine perspective, so cathedral building had to stop.
+
+the book, hunchback of notre dame is set around that time period (1482) and captures the essence of the idea of these qualities found in the female and divine proportions will continue to exist in the form of architecture even though there is effort to keep the profane masses from gaining this knowledge.
+
+---
+
+what I believe is that vere's plan was unable to go through and so he had to take up his cross and instead follow the light (christ). it says it right there, that whoever loses his life will in fact find it. that's a convoluted way of saying that the end of something is also the beginning of another. it really depends on the way you perceive the ending. sure the perfect manifestation that was originally desired does not come out (deny yourself), but if you just stick to it, you find out that it comes out in the end.
+
+vere is talking about how he is the 4th T. I don't have enough context to know who he thinks the previous three are -- though, I would guess jesus is the third. 
+
+sure, it sounds extremely presumptuous (on his part) to think that vere actually believed himself to be right up there with jesus, but that is in fact what jesus says to do in the taking up of the cross. it's only the disempowering mainstream dribble that tries to keep us from realising this.
+
+I believe that vere had some sort of knowledge that beyond this physical body you are divinity within. he must have known how important the words "I am" are. the verb "to be" is all about this. coming from a guy that spent the majority redefining (through the works of shakespeare) how we define ourseleves in terms of our emotion (a transition from having emotion), this must be very important to him. only someone that writes, "I am that I am" can understand the importance of the verb "to be" in one's definition of oneself.
+
+---
+
+if you "deny yourself", and take up your cross (let the end come), then you will find that the end is only a transition into a new beginning. this links right into the message of john the baptist. I like to think that he often said, "once you've died, you no longer fear death" -- with the correlary to this that once you are able to give up on the physical manifestation of "I am", then you are able to transcend the physical expression and be reborn into something new.
+
+this is a very difficult concept for most people to think of, but what are you? are you this physical body or are you something more that inhabits physical bodies? this separation must have been very little for someone like vere and so it was his constant struggle to not get so caught up in the injustices of the physical experience.
+
+like I said, if you're taking up your cross (omega), then the alpha which defeats you and prevents the establishment of the created system (which has to go underground) is really only a reflection of your own perception. you are your own enemy. you are the alpha and also the omega. you create your own beginning and end cycles.
+
+---
+
+dunno what to do with this, but I find it interesting:
+IAM = 22
+TOBE = 22
+22 THAT 22 (I am that I am)
+22 ORNOT 22 (to be or not to be)
+
+the way that I have also seen "I am that I am" is seen both ways:
+
+I am that (external perspective - recognising oneself externally)
+that I am (internal perspective - recognising oneself internally)
+
+I'll keep thinking more..
