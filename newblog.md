@@ -5534,3 +5534,53 @@ that is the reason why I think the female dynasty idea can work, but the thing i
 the idea would be that if she were really young when her imagination was disabled, she would never have that same problem that I notice with the transfer of conceptal reality between females. the sense that I get is that they share some sort of visual space and transfer pictures between their imaginations. they may not be very aware of this at a young age, just thinking it's the environment (that's what I would think), but when the logic brain turns on (throat, 3), this is the major problem because they had been intuiting all of these images, and now they're seeing their mothers fears and worry visually and turning them into logic which really goes against that really fast emotion I'm used to now.
 
 I can see how it would be a problem.
+
+### 2021-12-15 04:41 - I guess things are going OK
+
+I don't really know what to write about (and neither do I have any topic I want to cover) so I'll just start writing. the last few weeks have been very weird. especially the last one. I have many youtube videos I want to watch but I don't really want to watch youtube more. I want to do things so I find myself playing games. games however leave me feeling very empty inside. I like the idea that I can feel progress in the game, but since I'm not really creating anything I don't really enjoy it. it just feels like I'm performing a task. I don't mind performing tasks now nearly am much as I used to, however I cannot seem to find a way to want to clean my room.
+
+I have these brief moments of noticing that my room feel like it needs cleaning. I think that happens when I feel better, but almost as fast as I notice it, I no longer feel like I want to clean my room. I noticed the same thing when I went outside and notcied that the stars were very nice and vibrant. I really wanted to watch stars, but just like my room, just as fast as I noticed that I wanted to do something, it went away.
+
+the thing is I'm so (it's not really) bored right now. I'm not really bored. in reality it's just that every time I notice that I want to do something, then I don't want to do it. even things like eating. I have to be reminded to eat because everytime I want to eat, then it fades (for example).
+
+it feels like I'm not really doing anything that I want to do. I'm just sort of drifting around between things.
+
+I hate feeling like this. I always have something that I want to be doing. I really want to go back to being creative again and building things.
+
+---
+
+there are a number of other weird things happening too. I have a cough that feels very forced, and I get really tired doing simple things now. I think that I just don't have enough something. however, even though I'm sort of drifting around aimlessly and my body isn't functioning very well, at the same time, I feel very lucid and clear headed. I think I'm entering a phase where I'm learning to gain control over my body. it seems cool.
+
+for example, the I forced myself to go out and watch stars, and I noticed a huge difference in how I feel during/after watching stars and drifting around aimlessly. I've been "watching stars" indoors a lot more the last few days. tonight was warmer than usual (sun is active again) so I went out. however, I've made a note of the difference and I think I can use that as another "template" te feel the way I want to feel when it goes back to being cold again.
+
+---
+
+the last thing I want to mention is that I keep having these weird flip-flops in my head. I've completely given up on trying to figure out the girls thing. I've repeated myself more than enough times now. I just keep going on the way I'm going. once I'm connected, then I'm off and rolling. I feel like there are efforts to angle things in a way where I'm supposed to be sorta like how I am now, but then I have to find a way toward my connection, which doesn't make any sense because I think the girls woudld make the kundalini rise pretty easily. I don't feel like there's much of a barrier now.
+
+also, when I was just watching stars, I kept having these sensations (of what it feels like to be connected) that I recognised and they felt like they had happened recently.
+
+I think I keep finding ways to get connected and they keep trying to find ways to hold me here in a disconnected state. that may be the reason why I keep getting "sick". I think I'm artificially sick because I keep getting better but then after sleeping, I wake up sick again.
+
+I think that they're exhausting every idea to try and keep me in a disconnected state. it's only a matter of time I feel.
+
+more flip-flopping here because sometimes I feel like it's going to like next year or something, but then I wonder how they're going to keep me through the next summer and then I'm back to believing it's just a matter of time.
+
+the sense I have is to just not fight anything and just let them exhaust their options and try to figure out the best way to try and take advantage of me in a connected state.
+
+---
+
+related to question of what happens once I find my connection. I keep remembering this one abe-now broadcast where someone asks something to the effect happens after -- and I can't really remember -- after step 5 -- or, after finding you find your alignment -- and their very curt answer was, "you make your transition". that stuck with me, because it made the impression that once I find my alignment, I'll just instantly make my transition.
+
+I know that there is a very big gap between getting connected and doing an elijah/enoch. once I'm connected, I still have to get quite a bit more energetic before I'm no longer compatible with physical reality.
+
+that answer always felt weird to me, much like the answer to the person asking about the inner earth. they responded with something like, "that's not in alignment with your source". anyway, I think I've figuered out the inner earth thing since then, and the nature of that answer made it seem like they may have said something helpful but then that part of the video was edited out (I didn't look closely).
+
+also related to that, I do believe they have been editing the broadcasts to cover up topics that they don't want discussed -- things like the inner earth. personally, I haven't really felt the brilliance that used to captivate me in the latest episodes. recently they put out a youtube video announcing that they are now accepting video questions. that seemed very weird to me because abraham is constantly interrupting people when they start to get off "into the weeds". even the written ones, they heavily edit what is written and skip over resistant parts. so, to suddenly allow a video question to change the vibration of the broadcastt so much (notice how abrupt it feels to jump from esther to the video question), I think they must have a reason for introducing the video questions.
+
+the most likely reason for introducing video questions is to have cuts. I imagine it would be very difficult to edit a vide that has 60 minutes without a single cut. if they flub a part or need to edit out some information that they don't want like inner earth or whatever, then it's a lot less work to just rerecord a few minutes part between the segments, rather than a 50 minute single cut monstrosity.
+
+if I'm going to listen to abraham, I'm going to listen to their old stuff. the new stuff feels very much watered down and waayyy too focused on conditional stuff. I think there is too much editing happening now for my tastes. they really do only have one message, and once you get it, this edited abraham feels like "vaidation therapy" (people writing in to get validated) without very much new discussion -- again, a sharp contrast to how I used to be always amazed at how they could make the same answer (tune yourself to what you want) feel constantly new and fresh.
+
+---
+
+wow, I got off on to a bit of a thing there with my thoughts on abraham. it felt like there was some reactions there. I'm going to end it here. I wanted to talk more about other girls reactions, but this entry took a different course, instead.
