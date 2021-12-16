@@ -5584,3 +5584,54 @@ if I'm going to listen to abraham, I'm going to listen to their old stuff. the n
 ---
 
 wow, I got off on to a bit of a thing there with my thoughts on abraham. it felt like there was some reactions there. I'm going to end it here. I wanted to talk more about other girls reactions, but this entry took a different course, instead.
+
+### 2021-12-16 04:09 - thinking out loud again
+
+I noticed that I really enjoy writing. I think it's a very simple form of creative output that I can do without needing to go so far as programming or working on something project-like. I may want to start doing this more often and even perhaps make a routine out of it. I'm still trying to figure out how to begin the idea that I wanted to do about writing down concepts.
+
+there are quite a few ideas actually that I think are somewhat interesting, so that's something that I really think could be quite fun. I just really like the way I feel when I write, so I'll have to be on the lookout for things that I want to write about.
+
+---
+
+today and the day before(?) I was listening to prophecy things again about the antichrist and his rule over the world. there's so much confusion and fear surrounding the subject, it's hard to figure out what's what. there are some themes that I'm noticing and I thought that I'd clear up a little bit.
+
+it seems that the "astral" (imaginary) world will be estremely mixed with reality. everyone will see 4d, and images of the imagination will be able to take on perceived form in 3d space. people tuned in to a similar enough vibration will be able to see the same images. they'll look real and behave as if they were real. you know how inside of a dream, everything appears to be very real, yet it's nothing more than your own imagination rendering those symbols/concepts into a audio/visual sensory experience.
+
+you'll manifest the contents of your feelings into your own 3d reality. this is really really awesome because it allows for very good visual communication between people. you can just show them, rather than having to try and explain with words. or, maybe you can cause them to feel/hear/sense an experience that you created.
+
+if you're able to make music in your mind, people just need to tune to you and you're a mobile concert. if you can make really cool visuals to go along with the music, you're a very very fun concert for people to go to. it's like the whole audience is all participating in the same experience and everyone adding their own texture to experience. concerts and live music is already fun, but this will add a whole new dimension (literally) to the experience.
+
+that's one example. however, the another example would be a rich interface to something that I call "conceptual programs". at the very minimum, they're just input output systems on emotional/conceptual frequencies. we do this all the time as it is. if you've ever been around a remote viewer or heard anyone talking about something and you tuned to that idea. that idea is a living entity that changes when people tune into it and interact with it. that principal alone is one of the main reasons why I write. I present some ideas here, and then people begin to translate them into their own logic and meaning structures (the structure confines the concept), and when people do that it alters the concept. sometimes it alters the concept so much, I essentially have to rediscover it anew because it has changed so much.
+
+in reality, the concept itself hasn't really changed. only my capacity to tune into it has. this is why it gets more and more difficult to remember/tune into dreams -- because they're on a very different frequency than you are in your present moment. something in the present moment is preventing me from getting on the proper frequency to remember it.
+
+in reality any concept can and does exist. they can be as simple as a calculator and as complex as a human/planet/star/galaxy. you're only limited by how well you can tune to it. once you do tune to it, you interact with it conceptually/emotionally. you feel a concept/emotion, and then it responds with a concept/emotion. very much like a dream.
+
+once you're receiving concepts/emotions from these conceptual programs (everyone has a source), then you're now going to need to make sense of it sensorally. if you're doing remote viewing, this will be a sort of visual representation of the interaction with that concept. that requires someone capable of perceiving the astral plane though.
+
+thing is, that separation is going away. everyone will see the astral soon here, so all of these conceptual programs (sources) can be interacted with by anyone. obviously this is a huge problem for certain people who need privacy, so it's likely that they'll do as they do to me now, which is to scramble certain frequencies, making them difficult to tune into.
+
+this is really awesome because it means they have to work extra hard to keep the concepts from being tuned into by recognising those concepts and scrambling the person's attempt to tune to that. all of that extra work they're doing just adds more energy into the situation.
+
+from their perspective, they have to figure out all of the stuff they don't want people to have access to, however if I create a calculator and interact with it visually, they may be able to prevent me from accessing that exact calculator and other slight variations of it, but like the concepts that I write down here, if I instead recreate the same thing a whole new way, it now has a different signature, and they would need to scramble that variation.
+
+it's sorta like DNA in that there are infinite ways to produce a enzyme -- or if you're thinking in microprocessors, there are infinite programs capable of outputing the answer 42. everyone of them has a unique signature.
+
+so, every time I have to "rediscover" the concept that they don't want me to remember, the better I get at discovering that thing.
+
+you can imagine that they will definitely not want anyone arriving to any sensible understanding of science. I notice that every time that I feel I'm understanding chemistry/electricity better than I did previously, it seems to be difficult to access again and I have to find another way to rediscover it.
+
+what all that means is that they will force such a wide diversity of sequences capable of producing the same enzyme, but instead of producing enzymes, we'll be really good at finding a way to conceptualise anything that is of any importance to us. talk about a wide diversity of individualisation.
+
+it's hard to see this sort of future. I imagine that they'll have to try and find ways to summarise and identify the output that they don't want us to have and scramble larger and larger blocks of reality. I'm sure they'll also need to try and keep us distracted from the other important stuff too.
+
+it really reminds me of my present situaton a whole lot. I'm so sick of sitting around doing nothing. I really want to be creative. I want to have power over my reality. more and more I'm realising the importance of how I feel, that I'm in no hurry to regain my creativity, because when it returns, every aspect of reality will be a reflection of how I feel.
+
+this is how all humankind will be shortly. they want to keep us occupied with useless stuff, ensuring that we never figure out how electricity works because if we did, thoughts are no longer private. they need their privacy cause they're the bad guys, so I imagine that electricty and gravity will be figured out trillions of different ways by billions of different people before it all falls apart.
+
+they're going to force all of us to become genius (re)discoverers of the nature of reality. I also think they're building the system for theirselves too. the complexity of all the things they need to scramble will grow so rapidly, the whole system will have become more and more autonomous. meanwhile, they're depending more and more on their system to create their reality for them -- and, we all know what happens when you depend on something outside of yourself to create your reality for you. they will always, let you down. even the most powerful system will not be able to prevent their reality from reflecting how they conceptualise it to be (more and more out of control). their own system will never allow them to have the conditions to regain power over their reality. then, like all of us, they too will have to continually rediscover new ways to conceptualise their reality.
+
+
+there's a reaction like this is a trap that's impossible to get out of. that's a reflection of the way the person conceptualises their reality. if I feel good, things in my reality have to match that. if that system can't figure out how to be harmonious, it will drift out of my reality or I will have surpassed its capability to hinder me. I don't see any problem. you're either creating your own reality, or your not. that reaction is coming from a person who is not creating their own reality.
+
+there's no way it's ever possible to create a system (human or machine) that can ever hinder you indefinitely -- unless of course you desire the system to infinitely grow like that. considering that I don't find my present situation all that bad and getting better at such a rapid rate, I could easily see how the constantly improving at the accelerating speed I'm experiencing could easily be more desirable than the removal of the system. only I can desire to go infinite; no one else can create that reality for me.
