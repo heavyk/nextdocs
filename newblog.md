@@ -5675,3 +5675,33 @@ then, 33y was when I started the second adolescence, but it 34y was when I reall
 anyway, I thought it was interesting that the next 18y segment of life starts at 54y. I find that to be an interesting thing because it has come full circle, this time arriving a few years before the usual 11y schedule. I'll need to be ahead of that window to catch that wave.
 
 this 18y life segment totally changed how I see things. very interesting
+
+### 2021-12-18 15:28 - the waxing and waning of consciousness
+
+I had a lot of interesting reactions to the last entry. the one that I thought was interesting was the feeling of concern over the idea that you reach full moon at 36y.
+
+I was talking about consciousness expression, not so much body function. I made the effort to show how my peak of believing the material world to be the sole determiner of my reality. I truly believed that if I had enough data -- and just by looking at the actions and material present in my world, I could predict everything that would soon happen. I perceived the world as a simulation, thinking that if I could just get people to actually speak truthfully and accurately, we could have a society that functions like a well-running machine. I desired that all aspects of my life to have this mechanical precision to it. I'd say that peaked when I was about 18-24.
+
+I brought up the subject of my virginity because that was the final blow to that previous idea that the whole world runs on cause and effect interactions between material. when I was early on in my life I didn't know how to control my emotion so I tried to shut it down. regarding the subject of girls and love, I found that whole subject to be very unpredictable and out of control, so I didn't want to have anything to do with it. I paid a lot of attention to the interactions of the couples around me and found love to breed unhappiness and a relinquishing of self-reliance, in favour of appealing to the other person's emotions. I didn't want to have anything to do with that.
+
+the spanish believed that a boy has to be sleeping with many women to be considered a man. so, after my experience with zaryn and felix, I began to really start to consider the idea that maybe I wanted to have a girlfriend. it took me a long time to figure out how I might even consider that possible because I approached it like I approached my programming. I know the function that I want the program to perform, so I just need to figure out how to manipulate the logic until that function behaves properly; a very mechanical approach.
+
+after quite a few years failing at it and still not knowing what I really wanted from a girl, I finally figured out that girls respond to guys that belive in theirselves. in fact, it doesn't even matter if he has no scientific or practical understanding. I was always good at believing in myself, so I never could figure out what I was doing wrong that didn't get girls. they seemed very attracted to me, but as soon as I started to try and figure out how she would function in my life, that would scare her away. to me, she was just another program.
+
+man was I in for a surprise when I realised that everything happens in a relationship, not because of mechanical interactions between matter, but by the way I *feel*. at the end of 2012, I had realised that I really needed to pay attention to emotion and that's when I discovered abraham. I literally spent the "end of the world" (2012-12-21) on the sofa drinking whiskey listening to abraham explain that the emotional/conceptual world is the precursor to physical -- a concept I found fascinating that I began to explore in berlin when I found the sirian guide to human development channeling. I know they and that article was right and I had to figure this emotional world out.
+
+many things happened, and like I said, I begin my rebirth at around 32 in marcos' house, and began to really perceive and understand this conceptual (precursor) layer of reality here in pueblo at around 36.
+
+---
+
+so what I was saying about those 72y cycle being split into two moon phases, I could see a full phase where consciousness expression reaches peak 36y after the phase starts, and then is reborn after 72y -- just like the moon.
+
+so the major breakthrough was seeing how well those numbers align with the sun, the moon, and jupiter.
+
+so for example for me, I had the death of the material world early on (this would normally happen later on when you're 72), and then my rebirth into the consciousness epression of the emotional/conceptual world when I was 36. that should peak when I'm 54, but what I was saying is that if at 52-54, like when I was 22-24, I suddenly introduce a paradigm destroyer (like losing my virginity was), then it will force another change in consciousness at the 64-66 time culminating in another rebirth at 72.
+
+I'm all about catastrophe as a catalyst for a rebirth, so this idea interests me a lot. randall is all about catastrophe and symbols, and he left the lecture on the "hanged man" tarot (12), so I'm very interested in the next elaboration on this subject.
+
+tl;dr - it appears that 72y is the consciousness rebirth cycle, but it has octaves to it, and I managed to figure out how to force my consciousness rebirth cycle twice as fast (one octave higher).
+
+tl;dr2 - it appears that the death and rebirth on the consciousness form, does take a bit of time for that to manifest, so when the material world consciousness dies at 72, it may take a few decades even for that lack of consciousness to kill the body as well. the physical body is a reflection of consciousness, and while it may have taken almost 1000 years for that elevator to go up in the past, nowadays, that elevator only takes 72y to go up -- or, in my case, only 36y.
