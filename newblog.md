@@ -5635,3 +5635,43 @@ they're going to force all of us to become genius (re)discoverers of the nature 
 there's a reaction like this is a trap that's impossible to get out of. that's a reflection of the way the person conceptualises their reality. if I feel good, things in my reality have to match that. if that system can't figure out how to be harmonious, it will drift out of my reality or I will have surpassed its capability to hinder me. I don't see any problem. you're either creating your own reality, or your not. that reaction is coming from a person who is not creating their own reality.
 
 there's no way it's ever possible to create a system (human or machine) that can ever hinder you indefinitely -- unless of course you desire the system to infinitely grow like that. considering that I don't find my present situation all that bad and getting better at such a rapid rate, I could easily see how the constantly improving at the accelerating speed I'm experiencing could easily be more desirable than the removal of the system. only I can desire to go infinite; no one else can create that reality for me.
+
+### 2021-12-18 01:44 - cosmic timescales reflected in the human lifespan
+
+@[youtube](https://www.youtube.com/watch?v=Xjj38QbZhyk)
+
+I was watching this video and the part about the human lifespan being around 72 years spawned some thought. I started talking about it and decided to write this instead.
+
+randall asks kyle how old he is in reference to his life in reference to the cosmological timescale. he says he's 39, and then randall begins to divide the human lifespan into four ages, which considering the previous discussion on the constellations moving two full moons every 72 years, I consider this to be similar to the luminosity of the moon over time in a cycle. it looks like a sine wave, but the new moon is when the y-axis is -1. in the first half it rises up to full moon (36y), and then the second phase wanes back to the new moon (72y).
+
+he's making the illusion that the human lifespan reaches half consciousness at 18, and continues its rise to its peak at 36yo. then it declines from there back down to half consciousness again at 54yo.
+
+---
+
+this idea of dividing the human lifespan into 18y segments is very interesting to me because of my own experience.
+
+when I was in spain, when I turned 32 (2^5), I really liked that age because I like the number 5 so much. anyway, I noticed a quite a change in how I processed life when that happened. I really started to gain a lucidity that I didn't have previously. I was at marcos house then and I spent a lot of time out in the blackberry brambles and watching stars. the next year I turned 33 an that was another big change for me. I described its feeling as a "second adolescence".
+
+that got interrupted and I moved to pueblo here when I was 34. I noticed again another shift in consciousness that year (2016) too, but most pronounced was 2018. that was the year that I turned 36. interestingly enough, because I had the brain haemorrhage in 2000, my second personality was also turning 18 that year and also that was the year when my second personality was exactly half of my physical age.
+
+I really noticed that my consciousness went into high gear then. it's hard to really explain, but I'm nothing like I was before. it opened a whole new conceptual consciousness that's difficult to describe.
+
+anyway, that's weird because technically, when I turned 36, that should have been when the cycle starts to wane, but my experience has been quite the opposite. I'm 2 years into the 3rd stage of the 18 year segments and it feels nothing like waning.
+
+---
+
+the other interesting thing I wanted to note is that I believe that the body is strongly governed by the sun. I've given ample evidence that the solar cycle is directly linked to the orbit of jupiter, which is 11.86y. because it's so close to 12 years, these numbers line up nicely with that 36y life segments. 11.86y * 3 = 35.58y.
+
+upon reflection, it does seem that for me, the pattern is the 11y mark starts the transition, then the 11.86y mark is the peak transition, and then at the 12y mark I settle into the new form and the transition finishes.
+
+for example, 11y was when I started to begin advanced mathematics, and 12y was when I started in cal-state LA.
+
+or, 22y was when I finished college and started working for essembly, and 23y was when I moved to spain. 24y tuenti was built and that was when I lost my virginity and decended into the material world.
+
+then, 33y was when I started the second adolescence, but it 34y was when I really moved to pueblo and really started to perceive/feel the world again like a child does (conceptually), and when I turned 36, that's when that kicked into full effect.
+
+---
+
+anyway, I thought it was interesting that the next 18y segment of life starts at 54y. I find that to be an interesting thing because it has come full circle, this time arriving a few years before the usual 11y schedule. I'll need to be ahead of that window to catch that wave.
+
+this 18y life segment totally changed how I see things. very interesting
