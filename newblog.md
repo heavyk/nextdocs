@@ -5705,3 +5705,47 @@ I'm all about catastrophe as a catalyst for a rebirth, so this idea interests me
 tl;dr - it appears that 72y is the consciousness rebirth cycle, but it has octaves to it, and I managed to figure out how to force my consciousness rebirth cycle twice as fast (one octave higher).
 
 tl;dr2 - it appears that the death and rebirth on the consciousness form, does take a bit of time for that to manifest, so when the material world consciousness dies at 72, it may take a few decades even for that lack of consciousness to kill the body as well. the physical body is a reflection of consciousness, and while it may have taken almost 1000 years for that elevator to go up in the past, nowadays, that elevator only takes 72y to go up -- or, in my case, only 36y.
+
+### 2021-12-18 17:53 - the number of man and the three phases of femaninity
+
+one of the things that I found interesting is that vere uses the number 36 to define a man. I can't remember the places now, but it seems to be correlated to a rebirthing cross motif. I postuated that 36 is related to the number of a man 666 which empowers the beast, because 1*2*3*...*35*36 = 666.
+
+so I find it interesting that in the last entry I made the claim that I figured out how to do the 72y cycle in 36y. I think that's actually the number of woman right now, too. thinking about it just now while watching stars, it seems women are clocked at twice the speed of men.
+
+in esoteric literature, there are three phases to feminity, the maiden which starts when you're born, then the mother which I think starts around 18 and the hag which starts around 36.
+
+---
+
+in my experience, the first 18 years of life were doiminated by my intention to understand the world physically. everything is appearance based, and I could easily be deceived by something by its appearance.
+
+fortunately I was home schooled and mom refesed to buy me any trendy clothing so I didn't suffer too much from believing my appearance to be the determining factor of reality. I'd say this peaks at 18 and then begins to wane from there.
+
+I think this is the main contributing factor to what happens to women as well. the first 18y their appearance/cuteness (physical expression) determines their reality, and then has to rebirth at 36. if you map the illumination of the moon over those 36y, then when she's 7-9-11, she's gaining that physical consciousness the most rapid, as this is around the half-moon phase. full moon is at 18 and then it's beginning to wane. it's waning the fastest from 25-27-29. a lot of very attractive people realise this rapid waning at the 27 and peace out (it's my profile picture on youtube of morrison and the 27 number -- joplin as well).
+
+by the time 36 hits, the conscious reliance in the physical for the fomation of reality is completely lost. I think many women completely give up on trying to use physical expression to get what they want at this point and begin to explore the manipulation of feelings and desires in theirself and others. I notice that females in sales tend to use their physical bodies more before they're in their 30's and then after that begin to transition into more good feeling and positive sounding good vibes sort of presentation to sell tgheir product.
+
+contrary to this, for men who are still on the 72y program, when they reach 36, their consciousness interpretation of reality is fully physical. I really notice that men in their 30's really start to care more about their appearance than before, starting to do more physical exercise and things. men tend to have the same waning reliance on the physical that women have at 24-27-30 realisation instead in their 50's -- I'd say, 49-54-59.
+
+---
+
+as I was thinking about this entry outside I was contemplating the maiden, mother, and hag stages of feminity and I started to get reactions that I'm just not scared to jump into taboo topics. you see, the reason why a topic is taboo is because you care about what people think about you. you care how you appear to others. this is physical expression. I don't think so much like that anymore. I'm much less concerned about what others think of me or my privacy even. I'd rather know how something works than to be worried of what others think of me andr, get bogged down on a taboo topic.
+
+I have a natural curiosity and I genuinely want to fit together patterns and learn how things work so it doesn't bother me to approach a taboo subject.
+
+anyway, so I was thinking about why young girls are so sought after, and I think it's because between the ages of 7-11 is when her physical consciousness is rising the fastest. so, let's say you're a man who's physical consciousness is waning and wants to try and boost that consciousness, he may try to maintain this consciousness by interacting sexually with young girls.
+
+obviously, it doesn't really work in the long term, and it's sort of like relying on a relying on a pacemaker to keep the heart beating regularly (@[youtube](https://youtu.be/7tpihlei9HI?t=992)).
+
+---
+
+I still have a lot more to think about. the other funny reaction to the last entry was people's realisation that I thought the shortening of the human lifespan was a *good* thing...
+
+let's say the consciousness rebirth cycle was 864y long, then you'd really have to wait a long time before that rebirth happens. 864y is a long time and you're acquire a lot of time to gain some beliefs/expectations about the physical world, so even though the waning process is much longer, taking 432y, it's still quite a lot to undo and begin making a transition into a more conceptual approach to reality. I would say that it's pretty close to impossible, and if you did, you have so much inertia that that kind of transition would be extremely energetic, and likely you would just transition right out of the physical plane (like enoch).
+
+so, to have a much shorter rebirth cycle means that one can accomplish that rebirth much easier. for me, I would think that if I were 72, I would find it much more difficult to transition my material/mechanistic universe ideas and conceptualise it diffrently. it would require a lot of rewriting of my beliefs. fortunately I had access to drugs and quite a lot of time alone so that was pretty easy to do. now that I've done it before, it seems quite easy to do and it'll be easier next time.
+
+---
+
+on that subject, I find it interesting that after that part randall talks about how he no longer gets deja vu, and instead has these sort of "flashbacks" where he tunes into another time and space and finds that has replaced his reality for a while.
+
+if he continues to let that develop and grow, he'll be able to teleport around wherever he feels himself to be and have a more fluid realisation of reality. "you" are not in time or space. you tune into a time and space, and because it changes so gradually, most people don't notice that now feels different than now 10y ago or 10d ago or 10m ago. as sensitivity increases, you can control what you tune into. you can tune into anything you want, and all knowledge is open. there is no longer a separation between the physical (2) and conceptual (3) you. it is the balancing of the 5 and 6.
