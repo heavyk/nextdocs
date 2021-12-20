@@ -228,50 +228,66 @@ Like I said, highly speculative.
 
 I think you're on the right track there... the main point I was making last message there is that tav = 22 = cross, so what you say seems perfectly logical. I may have something to add here.
 
-you mentioned the taking up the cross thing (mat 16). the context of that is that jesus announces his death and ressurection right before that -- so we're already talkinga about an ending (cross) and a beginning (resurrection).
+you mentioned the taking up the cross thing (mat 16:24). matthew groups the text into sections that are logically similar, so the context is important. three verses prior (16:21), jesus announces his death and ressurection -- so we're already talking about an ending (cross) and a beginning (resurrection). the following chapter (17) is the transfiguration.
 
-I don't know vere's life very well, but what I do know is that he completely changed how we define ourselves. the verb "to be" is like I said a very convoluted verb having the definition of oneself (I am smart), the emotional state (I am frustrated), and the possession of things (tengo hambre). the shakespearean plays completely redefined how we utilise emotion in cases of comedy and tragedy.
+I have more to say about the transfiguration, but it's important to note that the resurrection happens after 3 days and the transfiguration happens after 6 days. for this reason, I believe that these are cosmic events. anyway, in the transfiguraton, two appear with him, moses and elijah. so, we have three characters here. the sun, the prophet and the law. I wonder if these are the three T's, and vere was considering himself to be the 4th T. the other thing to note is that in mat 11, it identifies john the baptist with elijah. john the baptist taps out (cross) so that jesus can go.
 
-you must understand that humans learn how to react to things by watching. I can't tell you how times were before the shakespeare plays but people certainly processed emotion differently. the shakespeare plays taught us a new set of reactions to emotions.
+this is a common theme in storytelling where there are two and one sacrifices so that the other can go this produces a third thing. these are the hero twins, gemini twins, john the baptist and jesus, etc. when the immortal twin returns, he resurrects the mortal twin. I believe this is the lazarus reference. the significance of both the resurrection after 3 days, and the transfiguration after 6 days is that he's fortelling that there will be future instances of this sacrifice (cross) and resurrection of the thing that died.
+
+---
+
+I don't know vere's life super well, but what I do know is that he completely changed how we define ourselves. the verb "to be" is like I said a very convoluted verb having the definition of oneself (I am smart), the emotional state (I am frustrated), and the possession of things (tengo hambre). I believe the shakespearean plays completely redefined how we utilise emotion in cases of comedy and tragedy. I am/embody the emotion now. I define myself with my emotion. it's not just a state of being or something I have.
+
+when I read really old stuff, there is a lot of separation -- your majesty the most graceful and merciful, etc. these are descriptions of a person. now, we *are* the emotion that we feel. now, I *am* angry.
+
+humans learn how to react to things by watching others react to things. I can't tell you how times were before the shakespeare plays started to codify our reactions to comedy and tragedy, but I know for certain people processed emotion differently. the shakespeare plays taught us a new set of reactions to emotions.
 
 likewise, the 1611 KJV bible completely redefined the way that people processed their connection to the divine. at what cost though?
 
-the whole idea behind the omega/tav/cross symbol is that it terminates the old system and creates a new system. the new system is ultimately rejected by the people because it's too far ahead of its time. not everyone can see the value in the new concept, so its marginalised and kept in secret until the profane masses are capable of adopting it.
+---
 
-the important part to understand is that you're only ever fighting your own perception, so the rejector of the new system is a reflection of the omega's own faulty perception.
+the concept behind the omega/tav/cross symbol is that it terminates the old system and creates a new system. the new system is ultimately rejected by the people because it's too far ahead of its time. not everyone can see the value in the new concept, so its marginalised and kept in secret until the profane masses are capable of adopting it.
+
+the important part to understand is that you're only ever fighting your own perception, so the rejector of the new system is ultimately a reflection of the omega's own faulty perception.
+
+in this context, vere is only fighting against his own beliefs of what it is to be a king. him being a king is too far ahead of its time. his own perception prevents him from becoming it.
 
 to understand this, consider the verse about taking up one's cross:
 
 24 Then Jesus told his disciples, “If anyone would come after me, let him deny himself and take up his cross and follow me.
 25 For whoever would save his life will lose it, but whoever loses his life for my sake will find it. 
 
-when one percieves a new system, one perceives usually only the positive aspects of it. these positive aspects often contain all sorts of amazing things that are clearly an upgrade to the present system (in the creator's eyes). however, this will go against the present system's objectives. the system must maintain it's control so it has to find a way to shut down the new creation and end it (cross).
+when one percieves a new system, one usually only perceives the positive aspects of it. these positive aspects often contain all sorts of amazing things that are clearly an upgrade to the present system (in the creator's eyes). however, this will go against the present system's objectives. the system must maintain it's control so it has to find a way to shut down the new creation and end it (cross). the present system kills the new system to try and save its own life. however, that system eventually loses its life.
 
-I belive vere had an idea for society that he wanted to create which revolves around perception (like literally seeing better). this is directly linked to the female bloodline, as it's sexual interaction with these females that allows for this expanded perception (and her progeny).
+instead, take up your cross and deny yourself, because ultimately if you're not focused on preservation of your (physical) life, you find your spiritual life/perception.
 
-that whole time around the renaissance there was a lot of cathedral building going on. depending on who you talk to, you will begin to see a theme that sacred geometry (like the one in the pyramid or solomon's temple) has a dramatic effect on the well-being and perceptive capability of the person. to me, it's clear (though it's speculation) that there was an effort to keep ramping up these things which will continue to allow people greater and greater access to the divine.
+I belive vere had an idea for society that he wanted to create which revolves around perception (like literally seeing better). this is directly linked to the female bloodline, as it's sexual interaction with these females that allows for this expanded perception (and her progeny) which is why I think that his interaction with the queen was so important.
 
-access to this expanded form of perception which I believe they used to write the works of shakespeare and encode those things (I call it conceptual/emotional perception). the system which needs the majority of people to be ignorant/profane masses, cannot allow people to begin to pertceive theirselves from a divine perspective, so cathedral building had to stop.
+that whole time around the renaissance there was a lot of cathedral building going on. depending on who you talk to, you will begin to see a theme that sacred geometry (like the one in the pyramid or solomon's temple) has a dramatic effect on the well-being and perceptive capability of the person. to me, it's clear (though it is speculation) that there was an effort to keep ramping up these things allow people greater perception and everyday access to the divine (the same technology that the great pyramid and cathedrals use).
+
+I believe that the writers had access to this expanded (MOAI, IAOM) and used various techniques to enhance their perception, this expansive form of perception is what I believe they used to write the works of shakespeare and encode those things (I call it conceptual/emotional perception) and they worked on these things in a shared mental space.
+
+however, the present system (both then and now) needs the majority of people to remain the ignorant/profane masses. giving the public access to this sort of perception would allow people to begin to pertceive theirselves from a divine perspective, and that would eliminate the need for power structures (like a king and queen) -- therefore, cathedral building and the expansion of the profane masses' consciousness had to stop.
 
 the book, hunchback of notre dame is set around that time period (1482) and captures the essence of the idea of these qualities found in the female and divine proportions will continue to exist in the form of architecture even though there is effort to keep the profane masses from gaining this knowledge.
 
 ---
 
-what I believe is that vere's plan was unable to go through and so he had to take up his cross and instead follow the light (christ). it says it right there, that whoever loses his life will in fact find it. that's a convoluted way of saying that the end of something is also the beginning of another. it really depends on the way you perceive the ending. sure the perfect manifestation that was originally desired does not come out (deny yourself), but if you just stick to it, you find out that it comes out in the end.
+I believe that vere's plan was unable to go through, and so he had to take up his cross and instead follow the light (christ). it says it right there, that whoever loses his life will in fact find it. that's a convoluted way of saying that the end of something is also the beginning of another. it really depends on the way you perceive the ending. sure the perfect manifestation that was originally desired does not come out (deny yourself), but if you just stick to it, you find out that it comes out in the end.
 
-vere is talking about how he is the 4th T. I don't have enough context to know who he thinks the previous three are -- though, I would guess jesus is the third. 
+vere is talking about how he is the 4th T and I think he really believes himself to have made one of those sacrificies. in his mind, he is the 4th T.
 
-sure, it sounds extremely presumptuous (on his part) to think that vere actually believed himself to be right up there with jesus, but that is in fact what jesus says to do in the taking up of the cross. it's only the disempowering mainstream dribble that tries to keep us from realising this.
+sure, it sounds extremely presumptuous (on his part) to think that vere actually believed himself to be right up there with jesus, but that is in fact what jesus says to do in the taking up of the cross. he's saying "be like me". it really is only the disempowering mainstream dribble that tries to keep us from realising this.
 
-I believe that vere had some sort of knowledge that beyond this physical body you are divinity within. he must have known how important the words "I am" are. the verb "to be" is all about this. coming from a guy that spent the majority redefining (through the works of shakespeare) how we define ourseleves in terms of our emotion (a transition from having emotion), this must be very important to him. only someone that writes, "I am that I am" can understand the importance of the verb "to be" in one's definition of oneself.
+I believe that vere had a knowledge that everyone is more than just the physical body you *are* divinity within. he must have known how important the words "I am" are. the verb "to be" is what this is all about. coming from a guy that spent the majority redefining (through the works of shakespeare) how we define ourseleves in terms of our emotion (a transition from having emotion), this sacrifice of the definition of who "I am" is, is expressed in the works of shakspeare. this must be the central axis upon which the whole works revolve around, and only someone that writes, "I am that I am" can understand the importance of the verb "to be" as one's definition of oneself.
 
 ---
 
 if you "deny yourself", and take up your cross (let the end come), then you will find that the end is only a transition into a new beginning. this links right into the message of john the baptist. I like to think that he often said, "once you've died, you no longer fear death" -- with the correlary to this that once you are able to give up on the physical manifestation of "I am", then you are able to transcend the physical expression and be reborn into something new.
 
-this is a very difficult concept for most people to think of, but what are you? are you this physical body or are you something more that inhabits physical bodies? this separation must have been very little for someone like vere and so it was his constant struggle to not get so caught up in the injustices of the physical experience.
+this is a very difficult concept for most people to think of, but what are you? are you this physical body or are you something more that inhabits physical bodies? this separation must have been very little for someone like vere and so it was his constant struggle to not get so caught up in the injustices of the physical experience. if you know you are not this physical body, consider then reading the sonnets from the perspective that vere is referring to the extra-physical perception of himself as "Time" and notice that he's only fighting against himself...
 
-like I said, if you're taking up your cross (omega), then the alpha which defeats you and prevents the establishment of the created system (which has to go underground) is really only a reflection of your own perception. you are your own enemy. you are the alpha and also the omega. you create your own beginning and end cycles.
+so, like I said, if you're taking up your cross (omega), then the alpha which defeats you and prevents the establishment of the created system (which has to go underground) is really only a reflection of your own perception. you are your own enemy. you are the alpha and also the omega. you create your own beginning and end cycles.
 
 ---
 
