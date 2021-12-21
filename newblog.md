@@ -5708,7 +5708,7 @@ tl;dr2 - it appears that the death and rebirth on the consciousness form, does t
 
 ### 2021-12-18 17:53 - the number of man and the three phases of femaninity
 
-one of the things that I found interesting is that vere uses the number 36 to define a man. I can't remember the places now, but it seems to be correlated to a rebirthing cross motif. I postuated that 36 is related to the number of a man 666 which empowers the beast, because 1*2*3*...*35*36 = 666.
+one of the things that I found interesting is that vere uses the number 36 to define a man. I can't remember the places now, but it seems to be correlated to a rebirthing cross motif. I postuated that 36 is related to the number of a man 666 which empowers the beast, because 1+2+3+...+35+36 = 666.
 
 so I find it interesting that in the last entry I made the claim that I figured out how to do the 72y cycle in 36y. I think that's actually the number of woman right now, too. thinking about it just now while watching stars, it seems women are clocked at twice the speed of men.
 
@@ -5748,7 +5748,7 @@ so, to have a much shorter rebirth cycle means that one can accomplish that rebi
 
 on that subject, I find it interesting that after that part randall talks about how he no longer gets deja vu, and instead has these sort of "flashbacks" where he tunes into another time and space and finds that has replaced his reality for a while.
 
-if he continues to let that develop and grow, he'll be able to teleport around wherever he feels himself to be and have a more fluid realisation of reality. "you" are not in time or space. you tune into a time and space, and because it changes so gradually, most people don't notice that now feels different than now 10y ago or 10d ago or 10m ago. as sensitivity increases, you can control what you tune into. you can tune into anything you want, and all knowledge is open. there is no longer a separation between the physical (2) and conceptual (3) you. it is the balancing of the 5 and 6.
+if he continues to let that develop and grow, he'll be able to teleport around wherever he feels himself to be and have a more fluid realisation of reality. "you" are not in time or space. you tune into a time and space, and because it changes so gradually, most people don't notice that now feels different than now 10y ago or 10d ago or 10m ago. as sensitivity increases, you can control what you tune into. you can tune into anything you want, and all knowledge is open. there is no longer a separation between the physical (2) and conceptual (3) you. it is the balancing of the 5 (2+3) and 6 (2*3).
 
 ### 2021-12-21 01:15 - omega, the cross, and temporal perception
 
