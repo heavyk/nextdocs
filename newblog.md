@@ -5749,3 +5749,59 @@ so, to have a much shorter rebirth cycle means that one can accomplish that rebi
 on that subject, I find it interesting that after that part randall talks about how he no longer gets deja vu, and instead has these sort of "flashbacks" where he tunes into another time and space and finds that has replaced his reality for a while.
 
 if he continues to let that develop and grow, he'll be able to teleport around wherever he feels himself to be and have a more fluid realisation of reality. "you" are not in time or space. you tune into a time and space, and because it changes so gradually, most people don't notice that now feels different than now 10y ago or 10d ago or 10m ago. as sensitivity increases, you can control what you tune into. you can tune into anything you want, and all knowledge is open. there is no longer a separation between the physical (2) and conceptual (3) you. it is the balancing of the 5 and 6.
+
+### 2021-12-21 01:15 - omega, the cross, and temporal perception
+
+lately, I have been fascinated with the concept of the alpha and omega and the cross symbolism. see @[correspondance](2021-12-10 12:58) and @[correspondance](2021-12-09 13:47) for more.
+
+the idea behind this is that the alpha and omega symbol is sort of like a perspective of yourself from outside of time and space. to illustrate, imagine that you were able to gain access to the conceptual/perceptual form of perception of yourself. when that happens, you are wherever you feel yourself to be (ie. you can teleport and fly) and you can appear any way that you feel yourself to be appearing as -- so, like if you feel really good about yourself, you'll appear very vibrant and magical to people. if you feel yourself to be like a bird (like maybe in the middle of flight), you may change appearance to appear that way. when you look at yourself, you will never think, "there's no way that's me". you always appear as a reflection of how you feel about yourself. you can know anything or tune into anything. the biggest difficulty is making that concept consumable/accessable to the physical world. it's very much like being in a dream state.
+
+that's all really cool and stuff, so you start to extend that out into the environment and realise you can conjure objects and things too just by feeling them there. there isn't any limit to the things that you can conjure.
+
+this is sort of like getting a cheat code for a game or access to developer tools, where you can conjure with a command items that take others a very long time to acquire.
+
+when I was younger I turned on cheats and got all the best guns or the ability to fly around and through walls or unlimited cash. after I did that I stopped liking the game so I stopped playing with cheats enabled. I found out it was a lot more fun to play the game going the normal way to earn the items/resources.
+
+later on when I was a programmer, I often made shortcuts to streamline a testing process, pre entering/obtaining the values I wanted to test or having unlimited resources. obviously, it would be impractical to test the thing by having to do all the steps.
+
+---
+
+what I'm trying to say here is that once I gain power over my reality and it becomes a reflection of how I conceptualise it to be, I can have whatever I want, so the thing itself no longer has quite the same value anymore. it's sort of like source valuing the object. they can have anything without effort -- so what then becomes valuable?
+
+people, places, and things no longer are the objective because I have access to the infinite set of all of them. you could say, "OK, then what you're looking for is having only the best stuff, right?"
+
+I disagree, and I don't really know how to explain this very well, but I think you actually value the difficult. you actually value the thing that can defeat you. imagine for a moment that you're super good at tennis or some sport. would you want to only play against noobs? or, would you value a worthy opponent that can defeat you?
+
+in addition to that, consider the idea of evolution. it's inevitable, and the best thing today will pale in comparison to average thing in a few hundred years.
+
+what I'm trying to say is that I quickly realise that I am limited by capacity to conceptualise. there is no best because things are constantly expanding and improving.
+
+so, do you improve by beating hundreds of noobs at tennis, or do you improve by losing a few rounds to some talented opponents? you improve by losing.
+
+this is the omega/22/cross/tav archetype.
+
+---
+
+so if you can instantiate yourself into any place at any time in history, I personally believe you will quickly get bored of going to moments in time/space where things are easy. I think the hallmark of someone who has attained access to 5d+ is that they become an omega -- a bottom, rather than a top.
+
+so, now if I imagine that I'm going to insert myself into a timeline, I am not my physical body, so I would start getting so good at finding my way back to 5d+, I would have to contrive more and more difficulty for myself. I believe this is precisely what is happening...
+
+---
+
+so then, the next thing that I've been thinking about is that "stairway to heaven" song. the original idea behind atom and eve is that they "fell" into their physical bodies -- and there could be a zodiacal interpretation of that, but I believe that they were 5d entities that decided to insert theirselves into these physical bodies and force a reincarcation cycle for theirselves on earth until they can find a way to get back to "heaven". I'm beginning to believe that when a planet is seeded, there are many 5d entities that can't wait to "fall" into the physical and find their way back. I actually think that's common.
+
+the reason why I think this galaxy and earth is so special is that we have a physical realm governed by agreed upon "laws" and those constraints make that return back to heaven even more difficult. this place is kind of like hard mode. the more difficult it is to get back, the more valuable the experience. remember, from their perspective, it's like being a game programmer. it's not having a big gun in the game -- it's about finding a way to make an engaging game that leaves the player feeling like they want to come back for more because the reward or end game achievement unlocks new things. no one wants to repeat the same monotonous task.
+
+so, you may think to yourself -- "OK, so if she's *buying* a stairway to heaven, isn't that kind of like using a cheat code?"
+
+yeah, I suppose a little bit, but it wont take long of manifesting all the things that you want instantly before you'll get bored. I think it's fine.
+
+if I had to speculate actually, I would say that the idea of basting through a timeline leaving lots of wreckage behind is a relatively feminine manifestation -- or, at least I think that's what the vast majority of men on this planet expect, lol.
+
+it'll be interesting to see how this turns out.
+
+---
+
+slightly related, I don't really know what is happening. the sun has been producing a lot of flares and I keep having these weird experiences where I feel really tired so I lay down then, I start seeing images in my eyes and the same sensations that I have when I'm getting vision upgrades. they're so frequent in fact, that it feels like I don't even really need to watch stars anymore. I noticed that coffee stops them from happening because I think it tenses up my body. I get the serial vision upgrade feeling when I relax and meditate.
+
+so, I'm going to continue to drink coffee. I want to see how long I can push this back...
