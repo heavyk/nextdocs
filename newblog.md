@@ -5805,3 +5805,71 @@ it'll be interesting to see how this turns out.
 slightly related, I don't really know what is happening. the sun has been producing a lot of flares and I keep having these weird experiences where I feel really tired so I lay down then, I start seeing images in my eyes and the same sensations that I have when I'm getting vision upgrades. they're so frequent in fact, that it feels like I don't even really need to watch stars anymore. I noticed that coffee stops them from happening because I think it tenses up my body. I get the serial vision upgrade feeling when I relax and meditate.
 
 so, I'm going to continue to drink coffee. I want to see how long I can push this back...
+
+### 2021-12-21 15:28 - venus, adonis, and jewel
+
+yesterday, I was watching @[youtube](https://www.youtube.com/watch?v=DwWjCxKzWYA) and robert mentions tammuz as being married to ishtar. tammuz is an agriculture god though. anyway, in roman mythology, I thought that the counterpart for tammuz was vulcan, also being married to venus/aphordite. he then said that the counterpart was adonis. I recognised the name adonis from john anthony talking about the dedication that shakespere writes to henry wriothesley.
+
+interested, I read wikipedia synopsis of the play because I had never read it before. adonis is a hunter and he likes hunting more than anything else (this is a reference to men who like their work). adonis is very beautiful so venus wants to seduce him. he wants nothing of it. he wants to continue his hunting. he rejects her advances a few times. venus then has a vision that he will die in the woods from an animal (presumably so he should come with her to save himself from death). he refuses to go with her and goes off to hunt -- and sure enough he gets eaten just like she foresaw.
+
+she could have been making that whole vision up just to try and use fear to capture him -- I didn't look into if the story says that's the case or not, but either way her prediction comes true.
+
+---
+
+parallel to this concept, the other night I watched the joe rogan interview he did with jewel (@[youtube](https://www.youtube.com/watch?v=DTGtC7FC4oI)). I highly recommend watching the full thing on spotify. the ads are annoying, but the story makes up for it.
+
+right before that segment in the youtube video she is explaining the techniques that she used to get emotionally to a place where she actually found how to be happy and to allow those things in. they're really powerful techniques and I highly recommend those as well. there was similarity to how she talks of meditation being like strength training and how I use stars in a similar way.
+
+what struck me though was the similarity in feeling to joe's reaction to her saying she turned down a million dollars to my dad's reaction to me telling him I have the kundalini rise almost every time that I watch stars (often multiple times), yet I stop it. I think joe likes money probably as much as my dad likes his expanded visual space. joe says that he wouldn't have been able to turn it down, and dad spends many hours each morning "praying" -- that is exploring that internal space. turning down money for joe is like turning down that visual space for my dad.
+
+anyway, my reasons for turning down the offer for enlightenment is the same reason that jewel has for turning down the advance: you have to pay it back. she explained that if she got the advance her first album would have had to have been a success. instead, she took a small frontend and a large backend. this allowed her to go at her own pace and explore the artform. she wanted her happiness to come first and to become an accomplished artist -- and then, make some fame and money.
+
+somehow I must have known the venus and adonis story intuitively because I know that trying to resist something is always a bad thing. from adonis' perspective, you can see how he wanted to prove himself (I think it was even a big boar hunting competition) and not get distracted by some enticing woman -- so he resisted her, and by resisting her -- that is, trying to run away from the reality her vision presented, he attracted the manifestation of the reality he was resisting.
+
+the story is a bit unfair in that adonis had two options that he didn't really want either: he could go with venus or he could go to his death. however, these dialectics are never exclusively one or the other. had he known what I know he would just find a way to feel the way he wants to feel, and then act on inspiration. that day, he may do something entirely differently. the point is that everyone creates their own reality. a silly competition or an entimcing woman does not need to confine the number of paths to feeling that way to only being the presented options. there are infinite paths toward feeling the way you want to feel.
+
+as a meta commentary, I think that for vere this story is somewhat telling in that he was so enamoured by his work that it was ultimately what destroyed the relationship. I know alan green has mentioned various times that a similar thing happened to him with his obsession with shakespere (a kinds of resonances to the emotion embued within the story). I also want to point out that it's a commentary on the confines of conditional living. adonis is forced to choose between two conditions. he has the "bros before hoes" boar hunt and the "you're going to die tomorrow if you don't stay with me" other dialectic. these sorts of pinches appear to be impossible to evade and mean certain death of some sort (death of reputation with friends or physical death). I also believe this is the sentiment of sonnet 64/68 as well.
+
+---
+
+next, I noticed some reactions to my comment that coffee appears to slow down the manifestation. I suppose that is a bit resisting a manifestation -- and if I'm correct, my resistance to that manifestation will in fact attract that reality...
+
+anyway, that was not the implication. the implication is that I'll just keep pushing this whole thing back for as long as I can. that is my goal, yes.
+
+nosebook does not want me to get connected. I'm fine with that. if anyone has paid any attention to the alpha/omega stuff I've written, they're only fighting theirselves. their own perception is preventing the thing they want to have happen. I'm not going to try and resist nosebook and push to raise the kundalini before it's doing that naturally.
+
+neither will I resist venus. that's a serious mistake. instead, I let LOA work out the compatibility of it (does she feel like something compatible with how I feel). as long as she remains incompatible, nothing will happen. I'm not going to put myself into one of those mental dialectics where I know I cannot win. I *can* feel the way I want to feel. period.
+
+---
+
+so, I was thinking about it this morning and I postulated that the goal then may be for nosebook to get so good at holding people away from their alignment that when we finally do, it's such an energetic transition, we transcend this reality (enoch, elijah, ramtha).
+
+I think that's perfectly fine actually. I've stated for a bit now that I'm sort of like the pre-game show. I'm not the main event. I'm the omega -- a sort of john the baptist that passes on the baton to another.
+
+on that subject, let's look at the variables. I have shown repeatedly that there are various conditions that allow this conscious expansion of the visual space. they are divine proporttions in archetecture (cathedrals, pyramids, etc), stars (more specifically, our sun), and the female bloodline.
+
+they can control the conditions of the archetecuture by destoying all consciousness expanding architecture (this is box-consciousness anyway), and they can manipulate the environmental conditions of the earth so that the sun is not having nearly as significant of an effect on our consciousness (carbon binding to oxygen in the air seems to neutralise it, producing CO2). however, they cannot control your gender. if you have two x-chromosomes, then you have this capability built in. they can't take that from you.
+
+I would guess that after me, there will come a whole bunch of women that figure out how to do what I do. they'll find their alignment really easily and it can't be blocked. the only thing they can do to keep women down is to perpetuate the idea that they need to rely on men or conditions outside of theirselves to get it. I think men can also get it, but if I had to guess, I would say that that it likely won't happen until they're past 72 and the physical consciousness has faded. for women this happens a lot earlier and have the conditions built in biologically so it should be a lot easier for them.
+
+of course, there will also be the x3 hermaphrodites (the chosen ones). I believe they'll also be on the 36y program and will have a lot higher chance of finding it too.
+
+---
+
+as a meta commentary on that idea, I think it's kind of like coming full circle. the way I understand it the original red people came from mars and there were no women there. they reproduced artificially and were very technologically oriented (using technology for everything). I think the original decision to create women in the first place (from the apes on earth) came from realisation that their DNA was beginning to degenerate rapidly because of lack of diversity (and it becomes a reflection of how you feel).
+
+human women were beautiful and the gods then got addicted to creating children with them. the gods started to lose their phychic capacities and become more human-like. I think at some point their DNA became so degenerate that women stopped producing boys and only produced girls. the original martian god DNA went extict, and so they had to figure out how to rule from a human perspective. they still had the capability to fly around in the astral plane (their native plane) after death and then "walk-in" to another body. the body is not immortal. it's the ability to retain consciousness after death that gives them immortality.
+
+girls were going to take over so something had to be done. I think generally females are much more resiliant than men are at higher energy levels, and I think that's partially because they're clocked at twice the speed of men, and many have figured out how to leave behind the physical plane being the way that they create reality (with cuteness).
+
+so, this allows us to come full-circle here. the godkings are once again faced with a problem. they'll be able to control conditions and keep men from finding their connection, but they can't really do that for women. women already have it, so the only thing they can do is to keep them stupid and ignorant of the power of their emotion.
+
+so, you now have the x3 population and the funny thing is that they only produce x3 offspring, so if this gets out of hand, x1 will go extinct. then, following right after x2 will go extinct as well. they'll be right back to where they started again. I imagine they'll find a way to artificially reproduce though, so it's likely just a matter of time before they need another genetics refresh.
+
+I simply don't know enough to say with much accuracy, but I would imagine that they will want to try and keep some disparity in population separating them from the "citizens". I don't know how they'll run that, but I postulated an x3 core inside of a female dynasty. it can't be too oppressive though as it'll be difficult to get a more nuture-oriented dynasty to war and enslave. there will still be power and privilage disparity though, as that's present for both sides of the population.
+
+I also imagine that many women who find their connection will simply find it boring and uninteresting to control people. if you can create whatever you want with your mind, what reason do you have to enslave people? therefore, I would guess that they will actually chose to insert theirselves into male bodies and try and see if they can beat their own game. try and see if they can influence the timeline by projecting thoughts and images into people's minds (you can only receieve what you're receptive to) to create higher and higher difficulty levels for theirselves.
+
+the x3 crew will continue to hang around and control all of the conditions (ensuring that only the chosen ones can find their alignment), without realising that they're just being used to create harder and harder difficulty environments. without an ability to properly create wars and destruction, I imagine they'll spread this system to all over the galaxy.
+
+don't take me too seriously :)
