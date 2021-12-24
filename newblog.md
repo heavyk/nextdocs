@@ -5873,3 +5873,111 @@ I also imagine that many women who find their connection will simply find it bor
 the x3 crew will continue to hang around and control all of the conditions (ensuring that only the chosen ones can find their alignment), without realising that they're just being used to create harder and harder difficulty environments. without an ability to properly create wars and destruction, I imagine they'll spread this system to all over the galaxy.
 
 don't take me too seriously :)
+
+### 2021-12-23 19:35 - 1000 years of missing time
+
+a few months ago I started to think a lot about this notion of 1000y of missing time. it was first brought up by bulgarian researcher new earth lady (silvie). at the beginning, I was pretty skeptical, but even isaac newton is very strategic about his wording in "The Chronology of Ancient Kingdoms Amended by Isaac Newton" referenced in @[newblog](2021-11-20 02:58). the parts I reads, he places all of his dates at the time before christ -- yet does little to establish when the date of christ was. we all assume that it was 2000y ago, but silve says that in the past they simply wrote I502 to designate 502y after christ -- the same wording that newton uses.
+
+silvie claims that the "I" turned into a "1" and roughly 1000y of history was fabricated by [scaliger](https://en.wikipedia.org/wiki/Joseph_Justus_Scaliger) to fill in the gaps of those 1000y of missing time.
+
+this seemed pretty difficult to wrap my head around because assuming that is right, there were no "dark ages". I started to think about the periods of extremely warm climate in the last 1000y and the "medieval warm period" stands out to me. I postulated that this was a time of great enlightenment, but vere (and the rosy cross as a whole) took up their cross and stopped the cathedral building. there were a number of things that happened after that which severely cooled the climate, and I think that was because of people's loss in perception -- so the world cooled.
+
+there's another event which I don't know much of but I know it had a traumatic moment in it when a comet ravaged the land. the grail quest was to restore the land. I don't konw when that one fits in.
+
+there was another brief warm period at the end of the 1800s when the carrington event happened (which shifted the direction of the magnetic poles, btw). there was another in the 1920s.
+
+what each of these events have in common is a rapid warming of the climate, which I attribute to the expansion of people's perception. this warmth increases the speed with which things manifest and then an event halts the rise in warmth and things go into cooling.
+
+---
+
+interestingly enough, this ties in to the final 3 segments of @[youtube](https://www.youtube.com/watch?v=ztG2MjHV9Fw). in it marty is talking about a common brain function related to these ufo and demon cases is found in the pre-motor cortex. interestingly that's right where I had a brain haemorrhage.
+
+the study shows that (I hope I get this right) people with the ability to perceive ufos and demons have more neurons in this part of the brain that cross the two hemispheres. these people seem to have a hightened sense of another reality.
+
+when mine was disabled, I had to become very aware of how I feel because the way I feel directly affected how well I move. the way I feel also directly affected how warm my body feels.
+
+I would describe this space as conceptual. when people have NDEs, they describe the place as being warm and a feeling of well-being. so, for example, when I'm cold, my toes and ankle don't work, and you'll even see my knee locking up. however, when I feel warm, those move much better.
+
+that place is also directly linked to what happens *before* you see it in your imagination. when I was paralysed in the gym, I literally saw myself get up off of the floor and start moving, but then I realised "oh, no I'm still on the floor" -- but I saw my arms moving and me raising myself off of the ground.
+
+in my estimation, this is what I call the "reptilian brain" -- the part of the brain that acts on instinct. it's purely reactionary and perceives reality the way you program it to perceive things -- then later, you brain confirms that is in fact what happened. you live in your imagination -- so why not program it to see things the way you want to see them?
+
+---
+
+in my opinion, the cimate and this part of the brain are very interconnected. not only is this where emotion is turned into motion, it's also where desire comes from. the more I desire for it to be warm out so I can move, the warmer it gets until reality reflects the way I feel.
+
+when I was in la vera, they were complaining that when I was there every day was a nice day and it wasn't raining. however, while I was there it was raining all around where we were. it just wasn't raining where I was. I think that was a side effect of two forces trying to compete. I wanted to feel good, and when I feel good, it's warm (in my perception). that warmth can come from within, or it can be a condition of my environment. I was being disallowed from having that warmth within so the environment had to become a reflection of how I felt. I felt pretty good in la vera so things stayed pretty warm. when I moved back to madrid, things cooled down a lot.
+
+you also can notice here that the better I get at feeling good, the warmer it keeps getting. I think that's directly related to emotion, preception and the strength of the magnetic field.
+
+---
+
+it doesn't need to not rain. it certainly can rain pretty easily, but I think they are preventing it from raining because the last time it's rained, it's really rained hard -- and, at the same time I got a lot of vision upgrades because that stored up energy came to earth.
+
+there is something to be said about rain and perception. I have been looking at the locations on this earth that are desert. I believe in times past these locations experienced extreme amounts of this energy in its atmosphere -- chi, prana, vril, aten, etc. (solar energy) this energy artificially warms people's perceptions, and so the climate reflects that and wants to become very very hot, to reflect the amount of that energy, and so then in places like the sahara desert, I think they used the pyramids to artificially convert that consciousness energy into rain. when the pyramid broke, egypt would become a hot desert very rapidly.
+
+a way I like to think about the difference between rain and warmth is that rain is happening when change is happening. it's a sign of things not going exactly as wanted. I often time notice powerful creators manifesting a thunderstorm when a massive change takes place. water vibrates and if you have ever noticed the difference between a house with a pool and a house by a freeway, you'll notice that the water carries the feeling of the environment around it. I think rain and snow bring a new feeling to the environment.
+
+warmth, however is a sign of things accelerating in intensity. I would even say that it's evidence of things feeling good/wanted. the irony of this is exactly like a trip on psychedellics. it's really great stuff until you overdose and the aggitation and panic sets in; same with heat. the funny thing about LOA is that when things are warm, LOA is stronger so, noticing the heat makes it hotter. in general, the places with the most extreme temperatures are the places where LOA is working the strongest.
+
+another idea on why the ice age was so cold is perhaps the same reason as the sahara. if you artifically feel very warm because of some pyramids or boxes, yet your perception is one of things changing and not going as wanted, the environment will get colder and colder even though the person stays warm artcificially. the same with the sahara. if it's artificially cooled all the time and made lush with rain, yet people's perception is one of warmth and things going as planned, it's the same thing, but backwards.
+
+---
+
+wow, nice tangent...
+
+ok, so back to the 1000y of missing history. each time these warm events happen, it seems to delay the "enlighenment" thing, and as we know, it seems to come back stronger each time.
+
+the other thing to realise is that if there is a proposed 12ky cycle, we're only 11ky into it. a whole 1000y was completely fudged. this may be why it's so hard to get any good dating on things in archeology. what that means is that all of this "end of the world" stuff is completely an illusion.
+
+to be clear, I believe the 12ky cycles are *not* produced by a galactic wave or a clock cycle. I would bet everything on it being 100% attracted. it's just when attraction becomes so strong that, just like the pre-frontal cortex, some people walked away from the experience with a whole lot of damage and others it opened up a whole new form of perception for them. this tells me that this part of the brain because it's linked to desire and emotion and their manifestation into physical movement (first seen in the imagination), this is all directly linked.
+
+each of those catastrophes that ended those warm periods were *attracted* by people's perception.
+
+---
+
+so, here's the fun part. I was thinking... this 12ky cycle is embeded into the psyche of catastrophists. therefore, it's something they expect to happen. I don't think it's possible to tank the climate for another 1000 years so that it happens on the 12k mark. people are too smart now...
+
+I think the original plan was to just keep on pretending that it's a 12ky cycle. however the last few days I had a radical idea climb into my head...
+
+I'm going to be finding my alignment here soon. this seems relatively obvious and it's only a matter of time. whether it takes a few years or whatever, doesn't matter. like I said, the alpha is only fighting their own perception. if I wanted to create a galaxy, the only thing I'm fighting against is my own perception of what that means. if vere wanted to be king, he fought his own limiting perception of what that is. if tesla wanted his world system, he only fought his perception.
+
+what all of these people have in common (and I would include jesus into this as well), is that all of their ideas involved conditions that would create the wanted. this reliance on the conditions/manifestation to create the feeling, was for all of them, the reason why I believe they sabotaged their own timelines. they realised that it wasn't really the path they wanted to feel that way.
+
+what I mean is, imagine the emptiness that tesla felt when he created his world system and then found out that people could not appreciate it because they are not capable of appreciating cause they have limited perceptions. or, imagine vere's surprise how people upon receiving the capacity to create these mental spaces and perform all these amazing things, *still* wanted to continue to complain about their difficulties. he must must have thought, "OK, fine you want to focus on your problems and tragedy? fine let's step this up a notch and now you *are* your emotions now" likewise, tesla must have been like, "dang you can't appreciate this awesome system? OK, fine -- keep going with your faulty sciences and let's see what you come to"
+
+the point is, there's no way to make someone feel differently than they want to feel. also, there's no punishment either. just cause we now define ourselves with our emotions, we're still fine. science still chugs along on the theory of relativity and an incomplete knowledge of electricity. those things (science and emotion) are a reflection of people's perception.
+
+---
+
+OK, so knowing that I began to think about this idea. I believe I am capable of finding the sciences that reflects how I perceive. that science will be an expansive one and will allow for a whole lot of expansion.
+
+however, just like the sahara, mars, or the sinking of atlantis -- conditions are just conditions, and ultimately the environment will want to reflect the perception of the people within that environment.
+
+OK, so parallel to this, people keep talking about a golden age and a move to the 5th dimension. I am rather hesitant to this idea, feeling a bit like vere or tesla on this issue. sure conditions can allow that to happen. I don't doubt that it's possible. instead, I recognise that it is artificial, and I cannot force anyone to perceive anything in any sort of way.
+
+if LOA keeps getting increased, there will need to be a stabilising mechanism to keep bad things from manifesting. I had approached this idea before by saying that I could be like the great pyramid and transform not so good-feeling things into better-feeling things. there may need to be other mechanisms as well. let's just say that could be figured out.
+
+---
+
+what if instead of doing this whole nosebook thing, I just sorta jumped ship on that whole thing and went a bit rogue. what if, instead if fitting into their 2038 plan for the catastrophe, instead.. after I get connected, instead of sitting around and stuff, I started to create all sorts of products and things that can be sold to people. I would monetise that and other things and we would revolutionise science and stuff.
+
+for example, one of the major disasters that could happen is if the power grid went down. what if everyone had unlimited access to electricity anywhere on the planet? what if I rebuilt tesla's world system? what if there were also a "social network" that everyone had access to appearing inside of people's eyes. all of these things would run off of the sun, so there's unlimited amounts of it and it's pretty resiliant to catastrophe.
+
+I'd build it however I wanted it to go, and I'd monetise the thing from top to bottom -- but not the way monetisation is done currently. it would take too long to explain here, but I've given a lot of thought to what money would look like in an abundance economy. the people running the show now are running a "finite supply economy".
+
+with the capabilities that I'm working on with my mind, I'll be able to manifest any number of assistants that I need to get any job done. I could easily take over.
+
+---
+
+thing is, do I want to? and, if I want to, what happens when I go? I don't think that going infinite is quite possible yet. I'm not sure if I'm the limiting factor or not, but I would guess that the world that I create will be so different from people's perception, I'll be able to maintain for a log time, but eventually, I'll want to let them have the manifestation of their 12ky cycle.
+
+I don't think that it'll be too hard for me to figure out how to live 1000y. I'm pretty sure I'll be able to figure out how to baptise my perception every 36y.
+
+you may wonder why I use years as a metric. I mean 36 revolutions around the sun. the sun is going to be the powerhouse for everything I do, and our relation to that is important. I don't specify days because that's the revolution of the earth and I have a feeling we're going to begin rotating faster and faster until the entire upper atmosphere is aglow sorta like a gas giant.
+
+the interesting thing is that I still use a very geocentric form of percption and that's because I subscribe to the tychos solar system model. I think we'll perhaps be all over the galaxy within a few hundred years. even still, I believe that in that sense, the sun, moon, and earth will sort of be the centre of what's happening.
+
+it can't be a galactic superwave if no catastrophe happens, and then when I leave, the catastrophe is not local to this system. we'll have to begin to accept that these events are *attracted* because of a disparity in perception and conditions.
+
+aywaay, I'm confident that we'll be able to begin an interchange with the sun where we give it the things that it wants, and she doesn't need to cause a catastrophe to get that resource from us. sekhmet is both very creative and very destructive. I don't resist ishtar.
