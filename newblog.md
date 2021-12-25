@@ -5981,3 +5981,57 @@ the interesting thing is that I still use a very geocentric form of percption an
 it can't be a galactic superwave if no catastrophe happens, and then when I leave, the catastrophe is not local to this system. we'll have to begin to accept that these events are *attracted* because of a disparity in perception and conditions.
 
 aywaay, I'm confident that we'll be able to begin an interchange with the sun where we give it the things that it wants, and she doesn't need to cause a catastrophe to get that resource from us. sekhmet is both very creative and very destructive. I don't resist ishtar.
+
+### 2021-12-24 21:37 - climate change and the omega
+
+so, I wrote the last entry and I feel like I was not understood very well. here's a recap:
+
+nearly every day in ben's news, he talks about [D/O events](https://www.britannica.com/science/Dansgaard-Oeschger-event) where the earth goes into intense warming followed by extreme cooling. so, I had been thinking of the cause of this. the noah event and anthropologically speaking the correlation with caucusses mountains and the emergence of the "aryan" bloodline (@[youtube](https://www.youtube.com/watch?v=kp6H0VSvi9Y)) is not disputed. the previous major event of such a magnitude was the younger dryas.
+
+it would appear that these events have a 12ky cycle (and their corresponding harmonics: 6k, 3k, etc.) to them. it also seems directly related to the sun (though mainstream still thinks CO2 is to blame).
+
+I personally subscribe to this perspective myself -- and so when silvie started to talk about 1ky of missing history, that throws a bit of a difficulty into that theory of a 12ky cycle. I *do* believe that there is a 12ky cycle, but there are numerous events between then that seem to cause these dramatic changes in climate which aren't all on those harmonics.
+
+even the younger dryas event is not just one event. there are two major pulses of meltwater, meaning twice in less than 1500y the climate warmed considerably (or there was a lot of rain) and then cooled off dramatically. for two major such events, there has to be another factor that is not being looked at, and I think that is LOA and it's effects.
+
+in short, the way I see it, the sun produces chi, prana, vril, aten, etc. and the amount produced is what is attracted by humans in that pre-motor cortex part of the brain -- the place where I had the haemorrhage. the stronger people feel things, the more they attract that solar energy, and the more of that solar energy, the faster LOA works.
+
+humans in the past seemed to be masters at creating the conditions on earth which makes reception and amplification of this energy possible with resonance and other means. however, just amplifying that energy is sort of like taking cocaine. you take a little and you feel great, but you take a lot and your heart fails or you attract your own destruction very rapidly.
+
+when they boosted this energy, they boosted their attraction factor, and even though they see and hear real good, if their perception is still focused on things falling apart, they will attract that strongly.
+
+solon tells plato of this event in the recounting of the sinking of atlantis. they had a great place and great conditions, but they wanted to get rid of the athenians which were rivaling their power. they were scared that the athenians would take over, so they attacked them. the atlantians in charge realised their worst nighmares and everything fell apart, dispite having such wonderful conditions.
+
+---
+
+now, let's get some context to that last entry. prior to that entry, I wrote about how I don't consider myself the main event. I believe myself to be the pre-game show. I considered what it would be like if various women "bought their stairway to heaven" and figured out how to retain consciousness through death.
+
+I'm fairly certain that I retain consciousness through death, but I don't believe it's the same as the "fallen angels" do. you have to consider that you are not this body. you the portion of "all that is" (source) that you can perceive. each of us is both the alpha and the omega in our own perception.
+
+in that sense, it's really only me fighting against myself like I've talked about. so, if I'm only fighting against myself, then I don't need to worry about anyone else. they will all conform to be the opposite of me. if I'm trying to be the alpha, I will defeat myself with my own perception -- just like what I claim the D/O events do on a global scale.
+
+this happens because I'm focused on the manifestation -- the conditions which I think I want. in going after those conditions, I improve my physical state but if I have done nothing to change my perception, the improved conditions will increase the speed of LOA and I will attract my own destruction.
+
+---
+
+however, if I consider myself the omega, and take up my cross -- that is, when trying to preserve my life, I'm focused on keeping the conditions (like the atlantians) and so therefore I lose those conditions (cause I'm focused on *not* losing them).
+
+the omega is the failure -- the thing that the alpha will become. the omega will also become the alpha later after some time. this is why I'm so hell-bent on disaster. I want to continue on the worst conditions for as long as possible because through the whole time of those "worst" conditions, I'm improving my perception.
+
+normally, this process takes some time. for lazarus, it was 4 days. for jesus, it's said that it'll take 3 days. I don't know how literal those times are. one idea is that a day is 1000 years, but the point is that there are 3-4 day/night cycles that will happen. I would say that the renaissance time frame, the late 1800s to early 1900s were the day, then WW1. same for the 1920s then WW2. same for nowadays. we're entering back into the light again.
+
+that's when solar activity increases and the way you feel manifests faster (eg. magnetic field).
+
+---
+
+I believe that the stairway to haeven idea got some backlash (they didn't like that one). so, I think that last entry was a reaction to that.
+
+in it, I realised that none of this matters at all. I'm on the omega train and the only person I'm fighting against is myself. sure there are people that don't share my form of perception, but that's not my problem. I should desire to make the environment I'm a part of a reflection of myself.
+
+like I said, it doesn't matter how long it takes, because I'm only fighting myself. when I get there, all I have to do is to just keep renewing my form of perception every 36(?) years or so. however, to understand the bigger picture, I no longer perceive from the position of kenny anymore. I am no longer this physical body. I can create and move physical bodies around at will. they can look any way I want them to look and I can manifest anything that I want just by feeling its presence and then looking for it.
+
+this is why I've been musing on the difference between playing a game and making a game. once the conditions no longer matter, it completely changes what one wants to accomplish.
+
+like I said, having the conditions no longer matters, because all conditions can be created with ease. I can only create conditions which I can imagine, so therefore the limiting factor is *me* rather than the conditions. you will notice that out of difficulty, you give birth to new and bigger desires of what is wanted. therefore then, is the whole reason for the game to experience difficulty and come to conclusions of what new things can be created? in short, if you dawn the perspective that you can create anything you want, the point of the game is to be the omega/cross/tav/22.
+
+### 2021-12-24 ??:?? - resisting venus
