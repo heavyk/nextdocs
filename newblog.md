@@ -6034,4 +6034,60 @@ this is why I've been musing on the difference between playing a game and making
 
 like I said, having the conditions no longer matters, because all conditions can be created with ease. I can only create conditions which I can imagine, so therefore the limiting factor is *me* rather than the conditions. you will notice that out of difficulty, you give birth to new and bigger desires of what is wanted. therefore then, is the whole reason for the game to experience difficulty and come to conclusions of what new things can be created? in short, if you dawn the perspective that you can create anything you want, the point of the game is to be the omega/cross/tav/22.
 
-### 2021-12-24 ??:?? - resisting venus
+### 2021-12-25 21:22 - resisting venus
+
+OK, I don't really know how to approach this topic quite yet, but I noticed the clock on the computer said 21:21 right after watching stars, so I thought I would just try it.
+
+there is a common theme of a woman/harlot/whore/etc that is associated with a dragon or something serpentine. she's related to technology and massive changes to principalities and powers ruling the world.
+
+when I was younger, we prayed against this jezebel character that foils the plans of "God". I think I remember her appearing in the narrative with elijah and also in the book of revelation by name in the letters to the churches and then later symbolically in chapter 17 with the anti-christ riding on her back.
+
+---
+
+I often tried to figure out who exactly this woman is -- like, which goddess so I could identify her in other locations. the problem is she seems to be more of an archetype rather than a specific goddess or person.
+
+when I was in spain, dani told me that there is only one woman in the world; she just has different faces. that concept stuck with me too because I couldn't figure out how that's possible. now, knowing what I know, it's plainly obvious that this is just LOA at work, and you get what you're looking for. I think this is a clue. they seem to cause LOA to manifest faster.
+
+the wierd thing about girls being related to change is because I generally associate women with being the more constant and stable ones. as an example, compare a gay relationship with a lesbian relationship and notice what kinds of change and power relationships happen. so, them being related to the change of power structures and technology seems to be a bit out of character.
+
+I usually think of men driving tech -- war, manufacturing, or porn are common drivers and notably masculine.
+
+so, for most of my life, this whore on the dragon symbol always puzzled me.
+
+---
+
+the other thing I noticed is that girls tend to be related to the sun in the secret parts of the teaching. I guess I find it weird that so many cultcures have male solar deities while giving the sun very feminine properties. I don't know if that's a corruption or not, but if I had to guess, I would say maybe at some time the earth was perceived as feminine, and so therefore the sun had to be masculine. I'm not really sure.
+
+the male and female products I think are more similar to +/- of electrical charge. it's the same thing, just one is flowing the opposite direction of the other. so a pure female would be becoming more masculine, and a pure male would be in route to becoming feminine. in that sense these polarities more like a trajectory than a status.
+
+---
+
+in rev 17 it identifies the woman and the dragon. I covered some ideas on this in @[correspondance](2021-12-07 14:21) and @[correspondance](2021-12-09 13:47). my thoughts have expanded a bit since then, but the important part is that it identifies the woman as babylon which I think corresponds to the "holy roman empire". if you've been watching sepehr's videos, you'll know this ia the aryan nobility that has held positions of power throughout the earth. these are the present rulers of earth.
+
+on the back of this aryan world leadership is an antichrist figure that is (IMO), labeled as the omega. the woman (aryan leadership) wants more technology (the beast) and the dragon empowers the beast for the woman.
+
+that's the revelation perspective.
+
+---
+
+now, I'd like to relate some personal experience. I relate whatever happened to me after the brain haemorrhage to be related to this. I consider the right hemisphere to behave much like a little girl. when she wants something, she wants it now and things have to change so she can get what she wants.
+
+in order for this change to happen, the present system must be shattered to make way for the new. when I first started this, I would often resist these things. like, when tuenti was sold, I felt like it was the end and all of the hopes and dreams that I had appeared to be gone. the old way of relying on technology to feel the way I wanted to feel had to go. in place of this, I had to change the way I perceive things.
+
+tuenti for me was kind of like a mini alpha/omega situation. a harlot (literally the physical representation of men's desired route to feeling good) entered into my life and shattered the old structure (perceived route to feeling good), and I had to find a way to rebuild that.
+
+---
+
+so, I guess what I'm trying to say is that this woman/logic, beast/tech, omega/dragon, and alpha/lamb seems to be a sort of archetype of change. it can be a personal change or a global change.
+
+the woman is the established system of logic and perception. the beast is the new technology which is the new perceived path to feeling good and is the logic upon which the new system will rely. and the dragon builds the new system and ultimately is the fall guy, defeated by the alpha/lamb. the lamb retains control for some time until the flaws in the lamb's own perception cause the new system to fail (or go into hiding/secret). it must wait for events to occur and the environment to be ready and the seeds to grow before the harvest.
+
+the important thing to note here is that you are all three of those things. the transient thing is your woman (logic and perception) which is what is changing.
+
+I think this woman is related to what we would consider "instinct" -- that is, your connection to source and quite possibly this logic and perception is encoded into the DNA and is why the female bloodline is important. that aryan bloodline has been very important in shaping our culture.
+
+---
+
+obviously, whenever there is a change coming, the present system which is designed to be self-reinforcing and resiliant, perceives this as an attack on itself and resists death. the more entrenched the system is, the stronger of a force it takes to shatter the old system. rigidity and resisting the change is ultimately what causes the system to shatter rather than bend.
+
+plastic is plyable. rigid is fragile.
