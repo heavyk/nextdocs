@@ -6090,4 +6090,78 @@ I think this woman is related to what we would consider "instinct" -- that is, y
 
 obviously, whenever there is a change coming, the present system which is designed to be self-reinforcing and resiliant, perceives this as an attack on itself and resists death. the more entrenched the system is, the stronger of a force it takes to shatter the old system. rigidity and resisting the change is ultimately what causes the system to shatter rather than bend.
 
-plastic is plyable. rigid is fragile.
+plastic is plyable and bends under stress. rigid is fragile and shatters under stress.
+
+### 2021-12-25 23:04 - the woman and the 36/18y perception cycle
+
+it occurred to me later when watching stars that this woman may be related to the 36/18y perception cycle and also the x-chromosome. for example in a person, when the old perception ends, I think it's possible that the x-chromosome is the driver of this change in perception -- a sort of gear changer. she says, "OK, enough with the old form of perception. we most go to a higher gear." when that happens, all the beliefs and perceptions of the person begin to die out and go into atrophy.
+
+in the same way, if your brain is still stuck in first gear and you're trying to go 50mph, your motor will eventually burn out. you have to run the motor at full speed to keep up with traffic.
+
+this means that the limiting factor really is you. if you can keep up, you can continue to live, but when your perception gets of of sync with the environmental conditions, then you start to die.
+
+I have no way to know how things were in the past but I think the environment ran at slower speeds than they do now which is why people lived longer. probably there were more quantity of this vril energy, but it ran at lower frequency than it does now.
+
+what I'm saying, is if you can keep up with the cycles by not holding on to lower gears, you can live for quite a long time.
+
+---
+
+now, in the past, when "God" said that humans will no longer live for as long as they used to, this was after the "noah" event which the aryan upgrade arrived into the caucasus, there must have been a change in the x-chromosome that limited lifespan to ~120y. randall postulates that it was further reduced to ~72y and I tend to agree.
+
+if this was a change in the x-chromosome, then I started to wonder if the two chromosomes: xy and xx are acting as sort of the alpha/omega of these cycles. for example when you look at boys, they start out with very little difference to girls, but as they get older they start to enter puberty. if I imagine two moons opposite from each other. one is full and the other is empty. for boys, the x-chromosome must be in full when the boy is born, but it begins to wane.
+
+I tried to calculate it but I don't understand why I can't figure out how to use a calculator. anyway, the way it appears to me in my head 
+
+[edit: incomplete. I got frustrated and gave up on writing this...]
+
+### 2021-12-26 23:42 - thinking out loud again
+
+last night I had a realisation that the alpha and omega archetypes can be thought of as the same thing. a good analogy of it would be the illumination of the moon. the omega is the new moon. it's waning to zero illumination (death), and then is reborn as a new moon. the alpha is like the full moon. it's waxing up to full and then after reaching nearly full illumination, it begins to die and wane again. these two archetypes are just the peaks of a sinusoidal wave.
+
+I started to write about it but I got kind of caught up in the caluculation of the illumination of the moons when relating them to be cycles of the chromosomes. I was having such a difficult time to write simple math code that I was getting frustrated. I'm not that bad at programming, and I know how it works conceptually. in my head it seemed to work out pretty well thinking that the x-chromosome starts out at full illumination and begins waning until full moon of the y-chromosome at 36, for men. for women, they would start out with their mother's x at full, and that will begin to wane until her father's side x-chromosome comes to full at 18y. her mother's x-chromosome would start to gain dominance at 27y again.
+
+I was trying to figure out why I've noticed that some people seem to be on the 36y plan while the majority are on the 72y plan. it seems that most (if not all) females are on the 36y plan. I also think other more receptive males are also on the 36y plan. I find it likely that hendrix and morrison and perhaps even elvis also are examples men on the 36y plan. I can't figure out the mechanism that determines the clock speed though.
+
+my intuition tells me that it must be related to perception. for me I remember that when I was 18y that would be about the peak of my physical perception. I thought that all things had a physical reason for it. all actions had prior causal actions which caused it. I thought I could keep growing more and more knowledge of all of the variables and with sufficient data, seemingly unexplainable things can all be explained.
+
+that began to wane rapidly and by the time I was 27y, that was when I met raquel and I started to realise really rapidly that even if I knew everything, I still couldn't explain others' behaviour. obviously that waned further, but I think the reason why the "[27 club](https://en.wikipedia.org/wiki/27_Club)" exists is precisely because of that. 27y would be right when the physical perception rapidly drops below 50%. at that point, you could imagine that if you're a rock star, the realisation that only material things do not compose reality.
+
+for normal men on the 72y plan, this moment of realising that belief in the physical world only to create one's reality (job, money, sex, drugs, etc) is all a sham. there's more to reality than just those things. for these rock stars, that realisation happened earlier and when driving that fast, that realisation was like running into a brick wall.
+
+---
+
+so, what all of that means is that internally, the archetype of change: the woman, the dragon, the alpha, and the omega are all internal mechanisms, and it may be the case that the woman (the current system of perception) is akin to the x-chromosome -- and so therefore, if that's the case, girls have two competing systems that wax and wane opposite to each other.
+
+it was then that my intuition of trying to see if infact men are the same way, however the reason why it doesn't manifest the same way is because the y-chrosome is much more rigid and doesn't demand change. therefore, if that's the case, these men that are on the 36y plan would have especially effeminate male implementations -- meaning that their male side demands change rather than resisting it. wait, that may not be the best way to say it...
+
+---
+
+that got me thinking about myself. I'm a really funny person because I do not really like to take risks in the sense of doing thing that I don't feel confident about. in that sense, I resist change a lot similarly to how any established system (mental or physical) tends to resist change or taking risks which jeapordise its survival.
+
+however, I am very much open to change. I just have to be convinced that it is an improvement (or something I want to do) first before taking the plunge.
+
+even notice my room cleaning in that I tend to just cope or live with things how they are, but then at some point there's this thing inside me that says, "OK, time to change this". I noticed this happens all the time in programming too. I preferred to leave things until I could see an improvement for them, whereas others tended to want to change things just to change things (not totally sure why). I often tried to figure out what was the reason for change, and the best I could figure out is that they were doing things that they believed to be the "right way(tm)" or that someone told them to change it. sometimes it felt even a bit territorial or possession. for me, I had to see a performance improvement or a usability improvement for the change.
+
+so, I'm beginning to think that I behave pretty similar to that woman in the archetype of change. I really don't want things to change, but then at some point, I feel like it's time to make an improvement. the weird thing is, before that time, I really don't feel like making that change. it's like the change can't come until I'm ready for it.
+
+then, for the male aspect to this, it appears that these are not the system itself, but the rules (logic) that has been applied to it. for example, if I were to say that all guns are bad, people who hunt for their food would have a much more difficult time to get food. removing guns, definitely decreases work output for some people. it also causes difficulty for people who want to use guns to kill people. if you determine that guns should not be used, then that appears to be the "right way(tm)" but, IMO, those people would just find another way to kill.
+
+what I'm saying is the logic completely obfuscates the various mental systems in a person that wants to kill. they may be something like a person that does something bad (determined by logic), needs to be punished (concept). or, perhaps they may think that they don't have enough resources (concept) and the only way they can get resources is to take them from someone else (logic) and further logic says that killing leaves less evidence, or prevents retalitation.
+
+---
+
+it's occurring to me that the y-chromosome may be encoded logic, while the x-chromosome may be the system (concept) through which that logic goes through.
+
+for women, I think the logic part is quite transient and is likely a sort of construct -- a kind of like outer shell around the concept. I think they inherit that logic partially from their mother, but then begin to to alter it and make more as they get older (this process may be an important cycle that is forced to happen during ovulation every month). she would then get the other logic from their x-chromosome from her father.
+
+the way it appears to me right now is that the y-chromosome would have very little of the mental systems (concept) and is entirely logic. however, the x-chromosome is mostly concept and little amounts of logic. for men, I think the x-logic is progammed by the y-logic and that eventually starves the system which is what causes the rebirth. a man's daughter will have this x-logic as a reflection of his y-logic. when she's older, that'll start to take effect and that could cause some disturbances in the mental state.
+
+man, I'm really failing at trying to figure out how to visualise this, but the concept in my head is really cool. it looks like there are two effects that are happening. first there is a cycle of rebirth for the system that happens every 18/36y. everyone has two systems with a logical wrapper around it. for most men, the second system varies from nearly non-existant all the way up to developed (like the people in the 27-club).
+
+it may be possible that this system is actually represented physically, with the logic being the coding bits, while the "system" is probably that "junk" DNA.
+
+these systems compete with each other cycling back and fourth. the interaction between these I think for most people is what causes death. for whatever reason the DNA stops coding things correctly because the system (these are the mental perceptions) doesn't give it the right commands so while the logic is sound, if you input the wrong commands, you don't get well-working output (ie. C++ will compile you a perfectly buggy program flawlessly and without complaint).
+
+interesting...
+
+
