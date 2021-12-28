@@ -6032,7 +6032,7 @@ like I said, it doesn't matter how long it takes, because I'm only fighting myse
 
 this is why I've been musing on the difference between playing a game and making a game. once the conditions no longer matter, it completely changes what one wants to accomplish.
 
-like I said, having the conditions no longer matters, because all conditions can be created with ease. I can only create conditions which I can imagine, so therefore the limiting factor is *me* rather than the conditions. you will notice that out of difficulty, you give birth to new and bigger desires of what is wanted. therefore then, is the whole reason for the game to experience difficulty and come to conclusions of what new things can be created? in short, if you dawn the perspective that you can create anything you want, the point of the game is to be the omega/cross/tav/22.
+like I said, having the conditions no longer matters, because all conditions can be created with ease. I can only create conditions which I can imagine, so therefore the limiting factor is *me* rather than the conditions. you will notice that out of unwanted experience, you give birth to new and bigger desires of what is wanted. therefore then, is the whole reason for the game to experience unwanted experience and come to conclusions of what new things can be created? in short, if you dawn the perspective that you can create anything you want, the point of the game is to be the omega/cross/tav/22.
 
 ### 2021-12-25 21:22 - resisting venus
 
@@ -6164,4 +6164,98 @@ these systems compete with each other cycling back and fourth. the interaction b
 
 interesting...
 
+### 2021-12-28 11:11 - good is bad and best is worst
 
+I woke up last night (or maybe it was the night before...) with this idea in my head that they have to keep me from interacting with older people. the day previous (it may have been yesterday morning -- wow, it feels so long ago), I was talking about how relationship titles like "friend, family, or significant other, etc" is a bit of a sham.
+
+the problem with these relationship status titles that we give other people (and I include the ones one the buisness cards too) is that these titles imply behaviour because of their meaning to the person. that behaviour is almost always not perceived the same way.
+
+when I was in spain, it was always the joke that a puta is always the most honest relationship that they had with a girl. that always stayed with me because there were a lot less expectations given to a puta than to a girlfriend. she was little more than a service.
+
+since then, I have wondered a lot about what these relationship titles mean to different people. trying to figure out all of that caused me a whole lot of difficulty because it's so convoluted. there just isn't any way to really get to the bottom of what it means to be a friend or who you can trust.
+
+---
+
+as I've gone more and more my own way, I noticed that assigning these titles to other people is very disempowering. when I say I trust someone, I automatically don't trust the others. you can't really trust other people. it's just not possible. someone that you trust will always let you down. the letting down part is the expectations. "I expected you to do _____ and you didn't do it" (or viceaversa). they couldn't let you down if you didn't expect something from them.
+
+I've noticed that all expectations for another person are disempowering. for me, the only expectations that I have, are for myself -- and to others it appears something more like confidence. if I feel like I'm capable, then I feel like I'm capable. I don't need others to do things for me to feel the way I want to feel. I'm the only one responsible for how I feel.
+
+so, how does that make it a sham? it's a sham for me to belive that another person should behave the way I expect them to.
+
+lots of people probably would take issue with that -- especially anyone involved with kids and stuff. they need kids to behave a certain way so that things can operate smoothly.
+
+what I'm trying to say is that all people -- though it's especially noticable with kids -- behave in a way that operates within the spectrum of my perception. in reality, my perception is my expectations.
+
+let me try to explain... if I feel terrible, then it should be normal to find others around me behaving similarly to (resonant with) the way I feel. if I feel disempowered, then I'll notice people talking a lot about disempowering things. the way I feel is my expectation for that person's behaviour.
+
+you say, "well, what if they do _____" -- and my response is, it's not what anyone does; *it's how you react to it*. if mr. motor runs his motor really loud, and I'm in an annoyed mood, I'll find him especially annoying. however, if I'm feeling pretty good, his motor sounds probably will make me laugh because he feels so serious about his motor sounds, but it's like watching a kid making sound effects when playing with toy cars. the feeling is like a little kid trying to get his dad's attention by playing louder and louder with his cars. it's kinda sad because his dad is ignoring him, but the kid is really annoying and getting more annoying the more ridiculous his car sounds are getting.
+
+my point is, all of these titles and expectations are a complete sham. if I do the titles I want others to have, others are free to behave any way they want.
+
+if I want someone to like me -- well, if start liking myself others will join me.
+
+if I want people around me I can trust -- well, if I start trusting myself, I don't need to trust others. they are a reflection of me and the way I perceive reality.
+
+*everything* I'm looking for outside of myself is actually a reflection of a perceived deficiency in myself.
+
+---
+
+that's the long version of what I was telling mom about relationship titles and statuses. it doesn't sound like much but I'd say that over 90% of society (or more) is held together by these relationship titles. family, friends, work, government, technology -- nearly everything in society would be different if people see what I see.
+
+in fact, society as a whole is a composite reflection of people's perception. it's hard to say which comes first, but they are mutually attracting each other.
+
+in the bigger picture, this may be what sort of thing is beginning a perception change. I've been relating these changes to the system internally in the person sort of like moon cycles. it seems that society is going through a similar transition.
+
+so, let's recap: imagine two moons opposite each other -- or illuminated vs not. their cycle from light to dark is like moving a point around a circle and tracing the vertical or horizontal movement: it makes a sine wave. there are two peaks. full moon and new moon.
+
+in the comparison, I am the new moon, while nosebook represents the full moon.
+
+the full moon is when something reaches it's peak. this is the alpha. they are striving to get to the peak brightness. after it has reached its peak, it begins to decline. it begins it's slow death and every moment after that is less than the peak.
+
+the new moon is the death of the old system. the illumination of the previous system continues to decline until reaching nearly 0% illuminated. after reaching 0% illumination, it is reborn and brings with it a new system.
+
+---
+
+have a look at how nosebook is on their way to reaching their peak at controlling physical conditions, while at the same time I am having all of my reliance on physical conditions (or relationships) completly taken away. I love programming and other highly physical/material forms of understanding my envirenment, the system of trying to understand my world with physical data is being taken away so rapidly.
+
+even the other night, I wanted to calculate the influence of these forms of perception over a 36y cycle and found it to be the most frustrating thing ever. in contrast to that, the concept of how it works greatly invigorates me. it's so cool to percieve these cycles in such a vivid way over the course of my life (and others).
+
+they wouldn't have been fighting me so hard about figuring out the  calculations if there wan't anything to it. it's likely that there is something to it, and they want to have even more knowledge of our cycles than we do so they can control it. knowledge of these cycles is the next "arms race". instead of influencing society with warfare, they're influencing society through manipulating physical conditions in the body.
+
+sure they're on their way to mastering the manipulation of physical conditions -- however, in my perception, they're looking at the wrong thing. to take a previous example, loud motor sounds won't get dad to stop perceiving the kid as annoying. dad is ignoring the kid because he's not on that frequency and dad doesn't want to join him in feeling rejected (or accepted). no amount of manipulation (of physical conditions) will change how the feeling of rejection. only the kid can change that. I think the kid takes pride in being annoying. the more annoying he is, the more powerful he feels. anyway...
+
+so, even though I have very very little control over my physical conditions, it's not that bad. I actually have complete control -- not of the conditions but of how I feel. once I feel a certain way for enough time, the physical conditions *must* reflect that feeling.
+
+to give an example of this, I have been trying to go for the "worst" manifestation for a while now. I really would rather no manifestation. I really like looking for these things inside of myself. the closer I get to all of this, the more rapidly I'm realising that if everything is a reflection of me, then it's just me that matters. I enjoy situations where there is a lot of unwanted present. I have found that the more unwanted there is in a situation, the better it turns out to be.
+
+this is that death of tho old system. the more unwanted that is perceicved in the old system, the more obvious the wanted aspects will be in the rebirth.
+
+the other day I started writing out some concepts. I didn't get very far though because there appeared a lot of resistance to it. it seems like they don't want me talking about how to gain power over a situation perceptually. like LOA was for jesus, this is the thing that the HRE (holy roman empire) doesn't want people knowing about. they must supress that so that the manipulation of conditions is still effective.
+
+they know that there is a way for us to render their manipulation of conditions as ineffective through the power of pertception and they will fear that people begin to realise it. from the moment of the peak, their influence will wane as the new system comes into effect.
+
+eventually they will realise their own greatest fears and they too will go into a rebirth as that their reliance on physical conditions goes into rapid decline (the equivilant of the 27/54y mark).
+
+cycles...
+
+---
+
+back on track: I enjoy interacting with these "unwanted" siutations because I see them now for what they are -- a sham. a good example of this was a program on gaia where they were talking about past civilisations on the moon. they described caverns filled with control screns that were destroyed after a solar outburst. this was a top-secret military thing where they reported all of these moon caverns still with the *smell* of rotting flesh.
+
+I thought this to be pretty dubious. theatre at best and purposeful disinformation on gaia's part at worst. either way, I thought it was pretty hilarious. the sense I had is that others did not.
+
+when I woke up yesterday, the sense I had is that they're kind of tired of me pointing out some of these ridiculous illusions that they have going on. people like to believe nonsense. if that story makes them feel good, then for me great. I don't mind either way. I just find that narrative (and anything with aliens in it) very hard to believe. there's so much deception, that all of this feels like, once again, relying/trusting/looking for conditions outside of you to fill a perceived deficiency.
+
+all of their illusions are rooted in some thing outside of you. usually these illusions are a product of sorts. if not, it's something you don't have control over of like a government program or aliens. or, it's something you don't/can't (or don't want you to) understand -- a secret. all of these are disempowering, and they all mean that something else that you have to (dis)trust is capable of creating your reality.
+
+it's the same ol' "look, good/bad guys over there. let's use them as an excuse for action"
+
+---
+
+they don't want me to keep my attention on unwanted anymore, because I'm starting to make sense of it in the context of the new system. at some point, I guess they're making the realisation that worst is best and best is worst. that's when the rebirth happens.
+
+what I mean is that if the "worst" manifestation happens, too much of their illusion will be seen. to try and preserve their power, they have to focus me on wanted. that's what is distracting.
+
+there's another resonance here as well with kids, because if you remember the part where I talked about relationship statuses and expectations of behaviour? well, this is included here because I contain the idea that all of my reality is a reflection of me, so if something is going "wrong" -- nothing really is going wrong. the "wrong" feeling comes from my logic, and can be changed to reflect my perception. the conditions don't need to change. my perception and logic are incompatible with wanted.
+
+in having to focus on wanted, rather than perceiving the illusion this is when the new system begins to take effect. this one is long enough. I've been thinking about some of those new effects and I'll try to talk about them more later. I'll try to recap some of this too. I know it's hard to follow some of it. it's really hard to communicate this stuff in words.
