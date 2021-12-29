@@ -6259,3 +6259,33 @@ what I mean is that if the "worst" manifestation happens, too much of their illu
 there's another resonance here as well with kids, because if you remember the part where I talked about relationship statuses and expectations of behaviour? well, this is included here because I contain the idea that all of my reality is a reflection of me, so if something is going "wrong" -- nothing really is going wrong. the "wrong" feeling comes from my logic, and can be changed to reflect my perception. the conditions don't need to change. my perception and logic are incompatible with wanted.
 
 in having to focus on wanted, rather than perceiving the illusion this is when the new system begins to take effect. this one is long enough. I've been thinking about some of those new effects and I'll try to talk about them more later. I'll try to recap some of this too. I know it's hard to follow some of it. it's really hard to communicate this stuff in words.
+
+### 2021-12-29 06:01 - temperance
+
+@[youtube](https://youtu.be/RKqlCWEEWT4?t=4237)
+
+this quote struck me, because it says that the mithraists believed that mithras himself was the author of the world-conflaguration (so they identified mithras with phaeton).
+
+I don't know who phaeton is, but the idea of mithras being the architect of the world-conflagration seemed to resonate with me.
+
+the context for this resonation is important. just earlier they were talking about temperance -- the idea that I always had was one of blacksmithing. you heat the metal up really hot, then shape it with strong impacts (hammer) and then plunge it into water so it cools rapidly.
+
+the obvious similarity to catastrophe events of rapid heating followed by an extreme cooling is pretty evident. however, I never connected it to physical events before. for me, the concept of temperance was always a mental exercise. I thought of heat being like conflict or difficulty (like, notice how your face feels hot when you realise you're wrong about something?), then this is followed by a number of impacts which reshape the metal, followed by a rapid cooling which I think of as the helpless feeling (I don't know why I associate cold with a feeling of helplessnes).
+
+the other bit of context was this was the first video I watched after getting up. when I woke up, I was thinking about the sham that is reality. there are so many forces that are out there to exploit people willing to continue to depend on things outside of theirselves.
+
+I had a realisation that all of the stuff that I'm going through is super great temperance for me. I personally love it and am really enjoying getting better and better at confiding in myself rather than other. I believe this is the true meaning of self-confidence (self-confide-nce).
+
+the major feeling for me was realising that my experience now is to give nosebook the capability to exploit people's confidence in others and in the system.
+
+on one side, I feel like I sold people's souls or something. in fact, I even realised that I will likely be regarded as the greatest sham myself.
+
+for a person that needs a manifestation outside of them to feel good, they will likely blame me saying that kenny was all talk and just gave the tools to nosebook to exploit them. obviously this is just a manifestation of the person's perception. if things outside of them control how they feel, they are a victim to both good and bad things that happen in their experience. imagine being pissed off and a bunch of happy people show up and try to influence you to be happier.
+
+---
+
+in that sense, I'm kind of the architect of the coming temperance. they will exploit people more and more and people will continue to feel more and more helpless to control their physical conditions. in that sense, many people will perish because if you have a feeling of helplessness, reality *must* conform to that feeling and those people will notice that their physical conditions will continue to follow that. if you feel empowered, your conditions will reflect that. if you feel empowered because of conditions, then you need to be able to control the conditions.
+
+two forms of temperance are happening at once. those who want to control the conditions will have more pressure (because of the intensity) get better at using conditions to feel the way they want. those that want to control their perception, will also increase their capability to see any conditions in a way that feels good. like me, they won't have any control otherwise, so they'll either accept feeling helpless and at the mercy of those who control the conditions, or find a way to feel good regardless of the conditions.
+
+### 2021-12-29 ??:?? - the "right way(tm)"
