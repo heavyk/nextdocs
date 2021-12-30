@@ -6288,4 +6288,49 @@ in that sense, I'm kind of the architect of the coming temperance. they will exp
 
 two forms of temperance are happening at once. those who want to control the conditions will have more pressure (because of the intensity) get better at using conditions to feel the way they want. those that want to control their perception, will also increase their capability to see any conditions in a way that feels good. like me, they won't have any control otherwise, so they'll either accept feeling helpless and at the mercy of those who control the conditions, or find a way to feel good regardless of the conditions.
 
+### 2021-12-30 ??:?? - a bit more on mithras
+
+today I watched a few videos. the first one here is about aliens (@[youtube](https://www.youtube.com/watch?v=4sDZZog0dgY)). the second one about the fatima sighting (@[youtube](https://www.youtube.com/watch?v=T5KvdzeaNDQ)). the third about serpents (@[youtube](https://www.youtube.com/watch?v=zGUEYcbFj4M)).
+
+I think all of these are connected together and also relating to what I said yesterday about mithras. I talked about the part in the presentation where randall says that the mithreans believed mithras to be the creator of these world-conflagrations.
+
+I had some reaction to that so I'll start there. if you've been tracking my discussion on the alpha/omega, you'll notice that I say that the alpha and omega are aspects of the same thing. in the past I talked about how the forces that rule the material and astral world, cannot allow someone (with an open mind) to gain access to expanded perception because it would reveal the giant sham that they have set up. they can't allow people to know that they have been influencing and manipulating humankind in such "evil" ways for so long.
+
+therefore, in order to prevent us from ever finding that connection (activating the pineal, etc.) they will have to systematically remove all favourable conditions that allow this connection easier. eventually, you aren't left with a whole lot. all people around you will become essentially zombies obeying the orders of some direction, never letting any beneficial conditions to take place. no friends, no girlfriend, no wife. no beneficial conditions. at some point, all you have left is your perception of those less than ideal conditions.
+
+reality always reflects how I feel, but when I feel good even without having the conditions or the manifestation to be the reason for my feeling good, then I truly am a master of reality. I am no longer some sort of poser god that needs a spaceship and technology to lord my power over a primitive race. after finding a way to feel good with less than ideal conditions, the only thing left over now is to fight your own dual. I mean dual in the sense of cube and octahedron. wherever you are a face, they are a point and viceaversa.
+
+this dual represents everything that I don't like about myself, and is given power to prevent me from having the conditions that I want.
+
+I postuated that *everyone* will pass through this in the next phase of humanity. they cannot allow their secrets to be revealed so they have to essentially isolate the person on their own timeline where all other people are under the control of the operating force of the planet (sound like my situation?). when all conditons are able to be witheld, they will have to keep creating more and more unsavoury people. since the things that bother a person about theirself are also the same things that bother them about other people, it's obvious that their job is to find technology to create these unsavoury duals for each person. obviously, after some time, everyone will eventually figure out how to perceive even the most unsavoury aspects of yourself manifest in another person, do you finally become free.
+
+you are the alpha and also the omega; everyone is. you're only fighing yourself.
+
+you can see now what I mean when I imply that everyone is mithras. every one of us creates our own temperance.
+
+---
+
+these jinn/genies are nothing more than manifestations of people's feelings/perception into the physical. in another video by the same guy (barry fitzgerald), he relates that these strange encounters with the jinn happens where there are magnetic anomalies (@[youtube](https://youtu.be/MSxdMNWBlXs?t=2731)). when you feel things stronger (like cause of a ritual or some trauma), then your fears and things manifest into reality. reality will prove the way you conceptualise it to be. if you think something is out to get you, then a manifestation will happen which proves that.
+
+I predict that these sorts of events will continue to increase, as the whole planet starts to have a stronger magnetic field. vibrating magnetic fields seem to cause this, and it seems that these stone circles and such convert material vibration (sound, earthquakes, etc) into vibrating magnetic fields. a constant field won't do it -- unless it's a strong one and you move around within the field rapidly (like dancing or something).
+
+---
+
+now, about the aliens: I get to perceive my reality from my perspective, and I know that I want to perceive myself as being 100% attracted by me, so I offer an alternative explanation which supports that idea.
+
+let's just say that I'm playing the game that I propose where you hohabit a planet with your dual. there is the divine feminine (anu), then the two masculine duals: the cube (enki), and the octahedron (enlil). I am one of them (doesn't matter which one). they need an environment, so a race of beings are created in their image. the biproduct of their interaction through time is a race that contains all of their aspects, plus additional new aspects that couldn't have been created with thought or simulation; they can only emerge from the culmination of their "battle".
+
+in our past, various civilisations had figured out how to use their perception of vibration to create beneficial conditions. I seem to be keen on that stuff myself. because my dual has to find ways of getting rid of these beneficial conditons, an ET presence was created which could alter the past and remove all of these conditions. they used the beneficial conditions of these various civilisations to manifest reality for them in reflection of how the society conceptualised reality. I'm fairly certain that all of these catastrophes happened when energy levels increased so high that there was a global manifestation of their worst fears. every time it happened, it was the "end of the world (as they conceptualised it to be)". everyone saw these signs of the "end times" coming from miles away as they gradually became a reality.
+
+---
+
+the idea that everything in my reality is a reflection of my perception does seem a bit heretical; I'll admit that, sure. however, I'm not claiming to be source or God. I'm just saying all reality on this planet has become a reflection of my perception (from my point of view).
+
+the crazy thing is, there's no stopping other people from perceiving the same thing. in fact, it would be the most natural thing to do. let's say that mithras is the consciousness of planet earth (or the sun). all of us may appear to be seperate beings from the human perspective. however, it's very clear that all of us aspects of earth.
+
+if adam is made from the dust of the earth, and we also made in the image of the creator, it seems plainly obvious to me that we should have the same DNA as the plants of the earth (and we do). we are made in earth's image.
+
+now, the weird thing to think about is that in the symbolic system, I heavily subscribe now to the tychos solar system model now and earth is held in place as the "centre of the universe" by mars and the sun. if enlil is mars and enki is the earth, the sun would be the female. therefore then it seems obvious to me that the cube (enki/earth) is a reflection of the octahedron (enlil/mars).
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
+
