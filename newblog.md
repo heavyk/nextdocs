@@ -6322,6 +6322,12 @@ let's just say that I'm playing the game that I propose where you hohabit a plan
 
 in our past, various civilisations had figured out how to use their perception of vibration to create beneficial conditions. I seem to be keen on that stuff myself. because my dual has to find ways of getting rid of these beneficial conditons, an ET presence was created which could alter the past and remove all of these conditions. they used the beneficial conditions of these various civilisations to manifest reality for them in reflection of how the society conceptualised reality. I'm fairly certain that all of these catastrophes happened when energy levels increased so high that there was a global manifestation of their worst fears. every time it happened, it was the "end of the world (as they conceptualised it to be)". everyone saw these signs of the "end times" coming from miles away as they gradually became a reality.
 
+as an example that we are on a timeline where no conditions can be used, I sight the fatima sightings video. in it the vatican is required to reveal something that was given before WW2 and should be revealed after WW2. I believe that the reveal requirement was designed to create a time split. in one timeline they would reveal and the other they wouldn't. we're ovbiously the one where the vatican did not. this means that we're on the timeline where the vatican is more interested in keeping information from us rather than revealing it. the vatican is the "aryan nobitity" that sepehr talks about all the time. on this timeline, they're interested in keeping their secrets no matter the cost. that allows for a group of world leaders interested in making sure we do not gain access to their space. since humans have the pineal built in, they have to make sure we never get access to it.
+
+this situation is perfect for replicating myself. everyone will play the same game as me -- even them -- and that's the most scary thing of all for them. the last thing they want is to be continually at the mercy of someone like them. they have to hold on to their illusion else they have to play their own game too.
+
+you really only fight against yourself.
+
 ---
 
 the idea that everything in my reality is a reflection of my perception does seem a bit heretical; I'll admit that, sure. however, I'm not claiming to be source or God. I'm just saying all reality on this planet has become a reflection of my perception (from my point of view).
