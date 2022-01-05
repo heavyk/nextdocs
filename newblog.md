@@ -6338,5 +6338,113 @@ if adam is made from the dust of the earth, and we also made in the image of the
 
 now, the weird thing to think about is that in the symbolic system, I heavily subscribe now to the tychos solar system model now and earth is held in place as the "centre of the universe" by mars and the sun. if enlil is mars and enki is the earth, the sun would be the female. therefore then it seems obvious to me that the cube (enki/earth) is a reflection of the octahedron (enlil/mars).
 
+### 2022-01-05 10:57 - the setting sun
+
+ever since I wrote about the alpha/omega thing, I kinda skipped over what system is actually the alpha and what system is the omega. it was mainly because I didn't know. as usual, it comes to me as long as I want to know. I present here my initial ideas on it.
+
+I believe the alpha system is the concept, "if you scratch my back, I'll scratch yours". this system is just now reaching full illumination or will do so shortly.
+
+likewise, I think the omega concept is one that I can't completely define just yet. I've talked about how I think vere changed how we identify ourselves with our emotion. this new concept takes that a step further and makes it much more personal.
+
+---
+
+the concept of "if you scratch my back, I'll scratch yours" originates from an idea that you are not capable of creating your own reality or feeling the way you want to feel, so you need someone else or something else to do that.
+
+it's implemented in the most basic form of sales: "you have something I want, so I'm willing to do whatever (up to my boundaries) to get it". if I have low inhibitions, then I'm more likely to do what you want to get what I want. this manifests itself in everything from relationships to sales, to crack whores.
+
+it's a common thing to do this exchange of "do something for me so I can do something for you." sometimes, it's even more insidious than that -- like someone requiring you to have sex with them for a paycheck or career in hollywood.
+
+it happens in relationships often as well. it's common that the man wants to have sex, so she wants to leverage that desire to get something in return. she pulls the same "if you do what I want, I'll (maybe) do what you want" concept out.
+
+a lot of women are like that in spain. the answer for that is simply to find another or pay for sex. then, she's left with a conundrum to get what she wants.
+
+it's most easy to see in a crack house. the roles are reversed here: usually, the dealer has the thing that the girl wants (coke). the girl believes that is the only way for her to feel good, so she feels she has no choice to do what he wants to for the coke.
+
+---
+
+all of that is all about using things outside of yourself to get what you want -- so you can feel the way you want.
+
+this imbalance is so woven into the fabric of our interaction, I was even considering the implementation of what it would look like to implement this new concept. to illustrate, let me point out the present situation.
+
+---
+
+I'll present this from my perspective: if I want to have sex, then automatically, I will get leveraged by women wanting something in exchange for sex. obviously, I don't want to be a part of this system, so I find another route to feel good. clearly it's not all about sex. there are other ways to feel good.
+
+I know I feel really good when I'm creating things, so I can use my creativity to feel good. I also found out that I like drugs. both of these things are things I control really well, and I found great success in staying out of the whole dungeon of trading behaviour for sex.
+
+however, I have had these various conditions systematically removed from me. it's frustrating to not have the money or whenever I found someone that could get me the drugs I wanted, they seemed to have someone influencing them to not give me them. it's also very difficult to watch myself try and program, and watch myself struggle with things that are not hard, or I had previously written with ease -- yet now, they feel confusing and difficult.
+
+I do not have any longer any other way to try and utilise conditions to affect the way I feel. I have to feel the way I *want* to feel. that "want" part is important. most people just react to whatever is going on. most people want to feel good, yet do not consciously make any effort to make any changes to their mental interaction with reality. most people look for the conditions (money, girlfriend, job, lottery, etc) -- saying, when I have these things, *then* (and only then) can I feel good.
+
+it really is striking to me to see this lack of desire. I've seen actors talk about how they spent some amount of time to study a character and learn how they think to get into the part. they want to feel like the part they are playing, so they study it so they can do it. why not do the same with any other way they want to feel?
+
+another example of this is sales. these guys study human psycology so they can manipulate their clients and sell the product to make money, thinking the money will make them feel good. why not use all of that understanding of human psycology to manipulate your own mind to feel good and cut money out of it completely?
+
+---
+
+what I'm trying to say is the new concept (the omega) is one where not only do I know how I want to feel, but I'm capable of adjusting my perception of the present conditions so that I feel the way I want to feel.
+
+---
+
+I thought about the progression leading up to this as well. I consider there to be two aspects to this alpha/omega thing. there is the alpha/omega and then there is the enabler. the alpha/omega character is having the previous system so well removed, that it causes the rebirth. the enabler is the thing that allows that system change. to illustrate, consider the last major system change: I believe this happened (for the west at least) with jesus. john the baptist was the enabler.
+
+at the time, the concept in power (I think) was the idea that you can use taking of someone's life (or any physical pain) to motivate someone through fear to get them to do what you wanted. I haven't figured out what the taurus concept was (though I think it had to do with female power structures), but whatever it was, in the age of aries, the "new moon" had to be a concept of using fear to motivate people. it's not a new concept, but it looks like it grew in height all the way up to the time of jesus.
+
+at that time, JTB (john the baptist) was on the scene showing people that losing one's life was not nearly as bad as people thought it was. I think in the water baptisms, he literally drowned the person and then recessitated them. they would come back and tell the audience of their NDE and how death isn't so bad. it's this life that's the suffering.
+
+real quick, I want to tangent for a moment... I was reading matthew 2-4 yesterday(?) and it seemed obvious to me the way that matthew weaves concepts together (he was ahead of his time), that there is a connection between herod trying to kill jesus. herod feels threatened by this birth that fit the prophecies, so he needed to neutralise the threat.
+
+the next chapter JTB prophesies that the one coming after him will baptise with the holy spirit and fire (like, anyone getting in the way will get burnt to a crisp). JTB was probably concerning to the romans because he challenged their threat of death to maintain their decrees, so someone heard this. jesus comes in the scene right after and they have this (weird) conversation about who should baptise whom. that conversation never made sense to me, but in the context that JTB would induce a NDE in jesus, gives it a lot more sense.
+
+jesus has his NDE and something happens when jesus crosses that realm which forever changes him. it was enough that apparently the whole crowd saw some spirit decending and resting inside of jesus (translated as a dove flying dwon).
+
+if you consider that the romans felt concerned that JTB was telling people not to be scared of death, now they are looking at the guy who will come and baptise with fire (eg. the sun is going to get really active). IMMEDIATELY after that "satan" (aka the roman emperor) comes to tempt jesus. I'll give you what you want if you give me what I want.
+
+I don't know what happened in that meeting, but it has the leveraage-and-pivot concept. I actually find it likely that jesus may have cut a deal with the emperor. that part is clearly very edited, so who knows what happened.
+
+---
+
+ok side quest done. back on track here. let's look at what the future may hold... wow, there's a lot of mixed reactions here...
+
+I think it was december 31st that I was having a chat with jaron talking about various ideas. something he said about being the perspective of one of the "gods" of old (like zeus) and influencing the human race got me to consider the proposal that erik van daniken(sp?) was saying in those videos I referred to in the previous entry.
+
+as a mental exercise I wanted to have a look at what it would actually be like if super-luminal space flight were possible. like what would we do? I gave it a lot of thought the 30th-31st.
+
+knowing what I know, it's just an idea but who knows what will come of it. I'm certain that there are a lot of star systems out there (really, we only need a few) with a habitable earth-like planet in the solar system.
+
+I would do the whole thing private, as in no reliance on government, and we would monetise the species that are growing up on these planets. what I mean by that is, we would pump up the energy on the planet so that the "camera" could be viewed from either inside the person or outside the person. you have main characters, like kings and factions and only indirectly interact with these guys. it is an implementation of the two new layers I wanted to add the persona? and the thrust layers (I can't remember what I called them).
+
+each planet would have a set of game rules and the factions would do their best to play by the rules. so some planets would have constant interaction with the gods. like, I want to make it possible for a bunch of dudes to setup their empires on these planets and rule their serfs from on high. we can be these primitive people's "gods" or we can take other approaches to their evolution.
+
+---
+
+there were a number of reactions to this. I think they thought it was a good idea at first because it'll distract us from their antics, however, there are a few potential downsides (from their perspective). these planets run the risk of evolving really rapidly and eventually surpassing us in capablity. to them, it would be embarrassing for our progeny to have better conditions than we do. the other thing is, I think a lot of humans would rather leave this planet and be gods on another planet than a nobody on this planet.
+
+there could be a mass exile, and that would be a good thing because with a reduced population, energies would be less here. however, if energies are less here, then what's keeping people here? why not go to another planet an experience better conditions there? if a bunch of people leave, earth remains a low energy planet filled with a lot of parasites. what would keep people here, and the ones that do stay, why would they want to be controlled and taken advantage of like they are now?
+
+also, if new species turn out to be better than us, won't they then need to oppress the species and ensure that they never rival the status of the "gods"?
+
+---
+
+personally, I find the idea of populating another planet with with only wanted things invigourating, simply because I love the idea of creating new things. however personally, I think I would only ever choose to leave this planet if I could create another planet that's even more difficult than this one. once I've created it, I would "fall" down out of 5d/6d/7d (wherever I am by then), and make another trip up consciousness in that place.
+
+however, getting to the place where something like that could happen is a challenge. going from where we are now to a place where we are surveying and populating another planet(s) is quite the jump. it requires a lot of technology and stuff. I'm fairly certain that I know how I would do it -- not like all the steps, but I know what is required and the steps needed to get there.
+
+the other thing that I was thinking about is that in the context of the alpha/omega thing, there is also the enabler. for jesus, this was JTB, for tesla his brother -- etc. if I'm really put in the position to do the alpha/omega thing where a new system is established, all of this sort of makes a lot of sense now -- even the 2038 deadline.
+
+when I get connected, the sun will go into hyper-activity. the business-as-usual boys will have a really difficult time pretending like CO2 is still the cause for global warming, and things will start to really accelerate out of control. the planet will rotate much much faster -- like maybe we have 500 day years and other strange things. I'm pretty certain that the contrast of world views (leverage-and-pivot vs feeling-purposefully) will cause solar activity to continue to increase. 2038 would be around or just after solar maximum for SC26 (I think).
+
+I think from that perspective (I'll see things temporally) I'll be able to get a pretty good setup going where I can go to another planet by then. I hope there will be others that join me. so, again let's just assume there are no technical hurdles and it's possible to manifest/create all the required things by then. when I/we peace out, we'll leave a lot of technology behind and they can do whatever it is they want with it. it's quite possible they'll use that same technology to ensure that we never rise up to rival their power. they'll have to monetise us and keep us down.
+
+anyway, if enough of us leave, it'll be essentially the same as having billions of people die from war/famine/climate. therefore then, from their perspective, they'll want to get all of the problematic people out of this solar system.
+
+---
+
+I've given some thought to some of the implementation of this, and while I do think that it is potentially possible to do a lot of this myself, I think that the entire endevour of creating the technology and science necessary to make such a thing possible will be done by the girls. with such a time limit, they'll need the ability to manifest their prototypes instantly and continue to expand on the ideas as we go.
+
+I've also given some thought to what it means to move to another solar system. a lot of the concepts that I've arrived to come from "our lady / nostradamus / notre dame" (aka the sun). I believe that somehow I got tuned into her when I had my brain haemorrhage and having to figure out how to work with her was what enabled me to accomplish what I have accomplished. I figured out how to resonate with the sun. in that sense, I think I was chosen/attracted it, because I felt capable of attaining that resonance. obviously, if I go to another solar system, I'll have to do that again with the new sun. from my perspective, I don't really think that's a problem.
+
+OK, that's enough for now...
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
