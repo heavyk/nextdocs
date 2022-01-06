@@ -5876,9 +5876,9 @@ don't take me too seriously :)
 
 ### 2021-12-23 19:35 - 1000 years of missing time
 
-a few months ago I started to think a lot about this notion of 1000y of missing time. it was first brought up by bulgarian researcher new earth lady (silvie). at the beginning, I was pretty skeptical, but even isaac newton is very strategic about his wording in "The Chronology of Ancient Kingdoms Amended by Isaac Newton" referenced in @[newblog](2021-11-20 02:58). the parts I reads, he places all of his dates at the time before christ -- yet does little to establish when the date of christ was. we all assume that it was 2000y ago, but silve says that in the past they simply wrote I502 to designate 502y after christ -- the same wording that newton uses.
+a few months ago I started to think a lot about this notion of 1000y of missing time. it was first brought up by bulgarian researcher new earth lady (silvye). at the beginning, I was pretty skeptical, but even isaac newton is very strategic about his wording in "The Chronology of Ancient Kingdoms Amended by Isaac Newton" referenced in @[newblog](2021-11-20 02:58). the parts I reads, he places all of his dates at the time before christ -- yet does little to establish when the date of christ was. we all assume that it was 2000y ago, but silve says that in the past they simply wrote I502 to designate 502y after christ -- the same wording that newton uses.
 
-silvie claims that the "I" turned into a "1" and roughly 1000y of history was fabricated by [scaliger](https://en.wikipedia.org/wiki/Joseph_Justus_Scaliger) to fill in the gaps of those 1000y of missing time.
+silvye claims that the "I" turned into a "1" and roughly 1000y of history was fabricated by [scaliger](https://en.wikipedia.org/wiki/Joseph_Justus_Scaliger) to fill in the gaps of those 1000y of missing time.
 
 this seemed pretty difficult to wrap my head around because assuming that is right, there were no "dark ages". I started to think about the periods of extremely warm climate in the last 1000y and the "medieval warm period" stands out to me. I postulated that this was a time of great enlightenment, but vere (and the rosy cross as a whole) took up their cross and stopped the cathedral building. there were a number of things that happened after that which severely cooled the climate, and I think that was because of people's loss in perception -- so the world cooled.
 
@@ -5990,7 +5990,7 @@ nearly every day in ben's news, he talks about [D/O events](https://www.britanni
 
 it would appear that these events have a 12ky cycle (and their corresponding harmonics: 6k, 3k, etc.) to them. it also seems directly related to the sun (though mainstream still thinks CO2 is to blame).
 
-I personally subscribe to this perspective myself -- and so when silvie started to talk about 1ky of missing history, that throws a bit of a difficulty into that theory of a 12ky cycle. I *do* believe that there is a 12ky cycle, but there are numerous events between then that seem to cause these dramatic changes in climate which aren't all on those harmonics.
+I personally subscribe to this perspective myself -- and so when silvye started to talk about 1ky of missing history, that throws a bit of a difficulty into that theory of a 12ky cycle. I *do* believe that there is a 12ky cycle, but there are numerous events between then that seem to cause these dramatic changes in climate which aren't all on those harmonics.
 
 even the younger dryas event is not just one event. there are two major pulses of meltwater, meaning twice in less than 1500y the climate warmed considerably (or there was a lot of rain) and then cooled off dramatically. for two major such events, there has to be another factor that is not being looked at, and I think that is LOA and it's effects.
 
@@ -6378,7 +6378,7 @@ I do not have any longer any other way to try and utilise conditions to affect t
 
 it really is striking to me to see this lack of desire. I've seen actors talk about how they spent some amount of time to study a character and learn how they think to get into the part. they want to feel like the part they are playing, so they study it so they can do it. why not do the same with any other way they want to feel?
 
-another example of this is sales. these guys study human psycology so they can manipulate their clients and sell the product to make money, thinking the money will make them feel good. why not use all of that understanding of human psycology to manipulate your own mind to feel good and cut money out of it completely?
+another example of this is sales. these guys study human psycology so they can manipulate their clients and sell the product to make money, thinking the money will make them feel good. why not use all of that understanding of human psycology to manipulate your own mind to feel good and cut money out of it completely?[^1]
 
 ---
 
@@ -6400,7 +6400,7 @@ jesus has his NDE and something happens when jesus crosses that realm which fore
 
 if you consider that the romans felt concerned that JTB was telling people not to be scared of death, now they are looking at the guy who will come and baptise with fire (eg. the sun is going to get really active). IMMEDIATELY after that "satan" (aka the roman emperor) comes to tempt jesus. I'll give you what you want if you give me what I want.
 
-I don't know what happened in that meeting, but it has the leveraage-and-pivot concept. I actually find it likely that jesus may have cut a deal with the emperor. that part is clearly very edited, so who knows what happened.
+I don't know what happened in that meeting, but it has the mutual-back-scratching concept. I actually find it likely that jesus may have cut a deal with the emperor. that part is clearly very edited (the flavian touch), so who knows what really happened.
 
 ---
 
@@ -6432,7 +6432,7 @@ however, getting to the place where something like that could happen is a challe
 
 the other thing that I was thinking about is that in the context of the alpha/omega thing, there is also the enabler. for jesus, this was JTB, for tesla his brother -- etc. if I'm really put in the position to do the alpha/omega thing where a new system is established, all of this sort of makes a lot of sense now -- even the 2038 deadline.
 
-when I get connected, the sun will go into hyper-activity. the business-as-usual boys will have a really difficult time pretending like CO2 is still the cause for global warming, and things will start to really accelerate out of control. the planet will rotate much much faster -- like maybe we have 500 day years and other strange things. I'm pretty certain that the contrast of world views (leverage-and-pivot vs feeling-purposefully) will cause solar activity to continue to increase. 2038 would be around or just after solar maximum for SC26 (I think).
+when I get connected, the sun will go into hyper-activity. the business-as-usual boys will have a really difficult time pretending like CO2 is still the cause for global warming, and things will start to really accelerate out of control. the planet will rotate much much faster -- like maybe we have 500 day years and other strange things. I'm pretty certain that the contrast of world views (mutual-back-scratching vs feeling-purposefully) will cause solar activity to continue to increase. 2038 would be around or just after solar maximum for SC26 (I think).
 
 I think from that perspective (I'll see things temporally) I'll be able to get a pretty good setup going where I can go to another planet by then. I hope there will be others that join me. so, again let's just assume there are no technical hurdles and it's possible to manifest/create all the required things by then. when I/we peace out, we'll leave a lot of technology behind and they can do whatever it is they want with it. it's quite possible they'll use that same technology to ensure that we never rise up to rival their power. they'll have to monetise us and keep us down.
 
@@ -6442,9 +6442,11 @@ anyway, if enough of us leave, it'll be essentially the same as having billions 
 
 I've given some thought to some of the implementation of this, and while I do think that it is potentially possible to do a lot of this myself, I think that the entire endevour of creating the technology and science necessary to make such a thing possible will be done by the girls. with such a time limit, they'll need the ability to manifest their prototypes instantly and continue to expand on the ideas as we go.
 
-I've also given some thought to what it means to move to another solar system. a lot of the concepts that I've arrived to come from "our lady / nostradamus / notre dame" (aka the sun). I believe that somehow I got tuned into her when I had my brain haemorrhage and having to figure out how to work with her was what enabled me to accomplish what I have accomplished. I figured out how to resonate with the sun. in that sense, I think I was chosen/attracted it, because I felt capable of attaining that resonance. obviously, if I go to another solar system, I'll have to do that again with the new sun. from my perspective, I don't really think that's a problem.
+I've also given some thought to what it means to move to another solar system. a lot of the concepts that I've arrived to come from "our lady / nostradamus / notre dame" (aka the sun). I believe that when I had my brain haemorrhage it damaged the location in the brain where we have our connection to our-lady. having that part damaged and having to rebuild that so many times was what enabled me to accomplish what I have accomplished (I describe that connection to be like having young girl with insatiable desire stuck inside my head). in my opinion, in that process I figured out how to resonate with the sun. so in that sense, I must have been chosen/attracted her/it, because I felt capable of attaining that resonance. obviously, if I go to another solar system, I'll have to do that again with the new sun. I don't really see that as a difficult problem.
 
 OK, that's enough for now...
+
+[1]: I'm not being hard on sales people or actors. I'm trying to demonstrate the power of money. we believe that money is the path toward happiness, when that is clearly an illusion created by those with money. why do we go to great lengths to get money, when it's actually easier to use the same techniques to just feel good? I have in the past connected the transformation of one's spiritual values into economic values with the overturning the money tables episode in the past, so I won't repeat myself. I wrote this to correlate the mutual-back-scratching concept with the replacement of the inherent (spiritual) value a person has with illusory economic value. we lost the inherent value with original-sin (which you're born into), and it gets replaced with economic value (which is usually the caste you're born into). point is, you have no power; just the ones with money have power and if you're willing to do some back scratching, you may be lucky enough to get some of their blessings.
 
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
