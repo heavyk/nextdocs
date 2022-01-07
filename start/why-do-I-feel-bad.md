@@ -22,9 +22,11 @@ likewise, perception is the way that one processes those perceived conditions an
 
 #### inference
 
-- therefore, I can perhaps assume with reasonable certainty that it may *not* have actually been what I really wanted. likely, it was something that I *thought* I wanted.
+- my logic concluded that those conditions would make me feel a certain way.
 
-- I constructed the idea of those things I tbought I wanted (conditions) with my logic, thinking that those conditions would make me feel a certain way.
+- it was something that I *thought* I wanted.
+
+- therefore, I can perhaps assume with reasonable certainty that it may *not* have actually been the path I wanted to take to feel that way.
 
 - right now, I probably believe those conditions are only way that I think I can feel that way. in reality though, there are likely many ways to feel that way.
 
@@ -47,3 +49,6 @@ therefore, because there are so many paths toward feeling like that, nothing rea
 
 #### setup
 
+that person needs to pay for their wrongdoing
+
+if I'm the only one making an effort to feel good, then people will walk all over me or take advantage of me.
