@@ -6318,7 +6318,7 @@ I predict that these sorts of events will continue to increase, as the whole pla
 
 now, about the aliens: I get to perceive my reality from my perspective, and I know that I want to perceive myself as being 100% attracted by me, so I offer an alternative explanation which supports that idea.
 
-let's just say that I'm playing the game that I propose where you hohabit a planet with your dual. there is the divine feminine (anu), then the two masculine duals: the cube (enki), and the octahedron (enlil). I am one of them (doesn't matter which one). they need an environment, so a race of beings are created in their image. the biproduct of their interaction through time is a race that contains all of their aspects, plus additional new aspects that couldn't have been created with thought or simulation; they can only emerge from the culmination of their "battle".
+let's just say that I'm playing the game that I propose where you hohabit a planet with your dual. a tetrahedron is a dual to itself. the greater is the divine feminine (ishtar) and the lesser is the human female. then, the two masculine duals: the cube (enki), and the octahedron (enlil). I am one of them (doesn't matter which one). they need an environment, so a race of beings are created in their image. the biproduct of their interaction through time is a race that contains all of their aspects, plus additional new aspects that couldn't have been created with thought or simulation; they can only emerge from the culmination of their "battle".
 
 in our past, various civilisations had figured out how to use their perception of vibration to create beneficial conditions. I seem to be keen on that stuff myself. because my dual has to find ways of getting rid of these beneficial conditons, an ET presence was created which could alter the past and remove all of these conditions. they used the beneficial conditions of these various civilisations to manifest reality for them in reflection of how the society conceptualised reality. I'm fairly certain that all of these catastrophes happened when energy levels increased so high that there was a global manifestation of their worst fears. every time it happened, it was the "end of the world (as they conceptualised it to be)". everyone saw these signs of the "end times" coming from miles away as they gradually became a reality.
 
@@ -6447,6 +6447,53 @@ I've also given some thought to what it means to move to another solar system. a
 OK, that's enough for now...
 
 [1]: I'm not being hard on sales people or actors. I'm trying to demonstrate the power of money. we believe that money is the path toward happiness, when that is clearly an illusion created by those with money. why do we go to great lengths to get money, when it's actually easier to use the same techniques to just feel good? I have in the past connected the transformation of one's spiritual values into economic values with the overturning the money tables episode in the past, so I won't repeat myself. I wrote this to correlate the mutual-back-scratching concept with the replacement of the inherent (spiritual) value a person has with illusory economic value. we lost the inherent value with original-sin (which you're born into), and it gets replaced with economic value (which is usually the caste you're born into). point is, you have no power; just the ones with money have power and if you're willing to do some back scratching, you may be lucky enough to get some of their blessings.
+
+### 2022-01-07 08:14 - our lady and the gift of fire
+
+I've been thinking about my previous speculation on the baptism and "temptation" of jesus. the thing is, if JTB's message was to not fear death then jesus' ministry makes a whole lot more sense. in fact, it makes a lot more things make sense. for example, there are these "infancia gospels" which are really bizarre things that talk about jesus' childhood. he comes off as quite arrogant and even zaps people he doesn't quite agree with.
+
+in my opinion, these infancia gospels were painting a picture that jesus' prior behaviour was like the romans. the pivotal moment when jesus meets JTB and whatever happened in that NDE completely changes everything about jesus' comportment. I think that was the point of those gospels -- to show the contrast.
+
+of course they don't make a whole lot of sense with edits that were done, because jesus didn't have a transformation; now, he's the son of God -- God incarnate in the flesh. he's perfect and blameless rather than human.
+
+the part that caught my attention was the "holy spirit" decending down like a dove and taking rest inside of jesus. I think that has to do with fire. prior to that baptism was the prophecy of JTB that the one coming after him would baptise with the "holy spirit" and with fire.
+
+---
+
+just the other day I was wondering what the difference between ash and charcoal is. if put under fire, even ash will glow with that yellowish-orange pulsating light. however, it will not burn on its own. thinking about it for a bit, I think the difference is that the carbon atoms in charcoal have hydrogens attached to them. the hydrogen must be important for the cabonisation of oxyygen. it must provide the energy required to make the flame. inotherwords, I think hydrogen may be what makes fire possible. sure, you need oxygen to remove the spent carbon and allow the next exposed CH3(?) to burn.
+
+for the rest of this entry, I'm going to stick with my intuition that hydrogen and fire are strongly related[^1].
+
+---
+
+next, I eluded to the idea that "our lady" must be a part in the brain that connects to the sun (our-lady). it's got to be a part of the brain near to the brain stem which I relate to as the "reptilian brain". for me it's strongly related to the desire to turn emotion into motion/action.
+
+nosebook must directly affect this part of my brain often because every time that I get to a new level of feeling good, not only do I get vision upgrades, but I notice tension in my left-side, most notably my toes (left-most ones the most). as I get back to feeling good again that tension goes away and then the process repeats (vision upgrades, tension, perception changes, relaxed again, vision upgrades, ad infinitum).
+
+a few weeks ago there was a major solar flare (m-class), but right before it there was (I think) a long duration c-flare of which all of the SDO imagery doesn't exist. I think the sun had a full disk high output event which is why the data is missing. anyway, when that happened, I never felt more relaxed in my life. it was some sort of peacefullness and serentity that I hadn't ever experienced in the physical before. the closest thing I can relate it to would be the feeling that one has in a NDE. I had a lot of morphine in my body so it's hard to say what's the morphine and what's that relaxed place of serenity that one can access within.
+
+as a result of that event, I now associate that ultra-relaxed feeling with the sun. something we do in everyday experience prevents the reception of this substance that the sun emits. I don't have a word for it, so I'll call it protons (others call it light or photons).
+
+in that moment when the "holy spirit" descended on jesus like a dove, I think was something like the same thing that happened to me when I had my brain haemorrhage. I believe that everyday life, we train ourselves to look at conditions and manifestations (the physical stuff) and that reduces the connection there to our-lady. however, when someone has an interruption to the tuning of the physical like in a NDE or with a haemorrhage in that part of the brain, for a little bit the brain stops using physical conditions as its logic to turn emotion in to motion/action.
+
+I was fortunate that my "NDE" (the disablement of that part of the brain) for for a few weeks, and I sustained multiple paralysies there. the doctors made a mistake and drained menengitis into my stomach, so I had two more operations that reparalysed me there. that gave me an extended time to begin to reprogram what that part tunes to. that's why I talk about myself completely rebuilding my personality. I had a new slate that I can start over.
+
+---
+
+the sun streams out a lot of protons all the time and I'm fairly certain that the mitochondrial part of the DNA (that is, outside of the nucleus) is responsible for turning these protons into resources (ATP?) that the cells can use to build new things.
+
+there must be a frequency component to this. I believe the sun puts out a lot of really high frequency protons all the time, but we simply don't receive them because we're not tuned to that frequency, and so therefore don't get those energy resources. I believe what the ancients where doing with the stone boxes (box-consciousness) was tuning the protons in the environment to frequency which is compatible with their mtDNA. the "bloodlines" that had mtDNA that resonated with the upper harmonics of those boxes had more energy and better eyesight (all the things that our-lady provides).
+
+---
+
+so whatever happened with enki and ishtar (our-lady, the sun) is probably obscured in the legends, but it somehow resulted in "man" having the gift of fire. having our connection to the sun be directly related to what is manifesting in our experience now puts human evolution (enkidu) on this epic journey set into motion by the harlot (our-lady) because of the gift of fire (the ability to receive directly from the sun and turn that into physical manifestations).
+
+gonna end it here.. I feel saturated.
+
+
+[1]: I don't have internet to look to see if I'm right on that supposition, however, I don't feel bad about it, and if it isn't that  I mean, all "fossil fuels" like methane, ethane, etc. are all hydrocarbons. moving forward without fact checking. large sections of the the following bits will need to be reworked if I'm wrong though...
+
+
 
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
