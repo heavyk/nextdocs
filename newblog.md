@@ -6494,6 +6494,44 @@ gonna end it here.. I feel saturated.
 [1]: I don't have internet to look to see if I'm right on that supposition, however, I don't feel bad about it, and if it isn't that  I mean, all "fossil fuels" like methane, ethane, etc. are all hydrocarbons. moving forward without fact checking. large sections of the the following bits will need to be reworked if I'm wrong though...
 
 
+### 2022-01-07 10:27 - duals and our-lady (the harlot)
+
+if you think of a concept as a sphere and its logic as a form (regular or asymmetric polyhedra), then the lines are sort of like directions of force. a dual to that polyhedron will have a face exactly tangent to the vertex, meaning that if there were force being emitted along those lines, then the dual would be the perfect container.
+
+obviously, the perfect container does not exist in the real world, but the heierarchy in power (in this case the HRE) will continue to do their best to contain it.
+
+if you have air (octahedron), you need something solid to contain it (cube). you can also think of it as a density thing too as the dual will always be larger and therefore more or less rarified than the form it contains.
+
+---
+
+so, in the context of the archetype of change (@[nextblog](2021-12-25 21:22)), the harlot represents as a form the concept with which we relate to the sun. you could say, the frequency where we're tuned.
+
+this is exactly the reason why I say that it has to have something to do with the pre-motor cortex because the better I feel, the more relaxed I feel when my body moves. the thing that prevents this easy and relaxed manifestation of reality is negative emotion. negative emotion is a manifestation of a difference in concept between your physical logic (the harlot) and your concept of yourself (your source, who you really are, God, etc.).
+
+---
+
+like I mentioned in the previous one, when we were given the gift of fire, now the manifestation of reality is now directly linked to the sun (our-lady), and as things get more and more extreme, this is the "baptism of fire" -- when proton levels are much higher than usual and things are let to run their course and destroy theirselves.
+
+at the time of JTB, the HRE had everyone under their control with the fear of death. people believed that their body and physical existence is the only thing there is. this concept "perfectly" contained the previous form (which I assume had to have something to do with female power structures and the divine feminine). so, in a sense, it's "full moon" for the "physical reality is everything there is and death is eternal" concept. JTB comes along and says, "no there's much much more than that. here, I'll show you" -- and then proceeds to essentially kill someone and bring them back to life.
+
+the ministry of jesus makes a whole lot more sense then knowing that. he started the ministry and had his transformation when he was baptised by john. previously, he embodied the roman style of thinking, but then after his NDE, the "dove" landed on him. I'm fairly certain that this was how people perceived/interpretted him tuning into our-lady. having embodied the previous concept, jesus took on the role of the omega. all of that "physical reality is everything" concept had to completely die so that a new concept could be born.
+
+this concept is the present form by which we relate to physical manifestation. so, working backwards, it seems clearly obvious that these "temptations" was actually more like a meeting with the caesar of rome. the temptation where "satan" tells him to hurl himself to his death has this context missing because it feels like they just had a conversation about how death isn't actually so bad, so he says, "OK, prove it. throw yourself off of the roof and I'll believe you" jesus then replies. the time for that hasn't come yet. you can kill me soon and then you'll see.
+
+jesus must have had a reason for wanting to die so badly. I don't know if I've figured that one out completely, but here's my working theory so far. when jesus had his NDE and realised that "I am" not just this body, he realised that he essentially is a concept of himself, and so then knowing that, he has complete power to manifest himself in any way he perceives himself to be. in other people's perception, he would appear however they perceive him to be. if their concept of him is old and wise, he will appear that way.
+
+he kind of has a foot in each world. on one side he appears to himself how he perceives himself to be, while on the other side he appears the way that others resonate with.
+
+the crucifixion therefore is the complete removal of his physical appearance of himself. I'm pretty sure he realised he could transcend reality like that. after that, jesus lives outside of time and can interject himself into a timeline whenever and whereever he wants, and people will only see the things of him that they are resonant with.
+
+from jesus perspective, each instance of himself wherever he is in time or space, he is perceived and therefore defined physically by the things that others resonate with. no one sees him for who he really is. no one sees the concept of him which transcends this physical experience. they need something compatible with their physical senses, so they perceive what they whant to see.
+
+I can see now that this creates a new set of challenges because if I'm defined by whatever everyone else says "I am", then who am I really? the goal then would be for jesus to find a way to transcend people's perception of him and to perceive/know himself for who he really is, rather than what others define him to be.
+
+I relate a lot to this, so I want to offer up some ideas here. who am I really? it depends on perspective. am I a part of the planet or do I see from the perspective of the planet (like I propose the mithras concept is)? am I a part of the sun... etc. all the way up. the better I get at tuning to the concept of who I really am, the more like the planet, sun, galaxy, universe I am. it's a matter of tuning. it goes all the way up to the source of all that is. you only perceive a part because you're not tuned to the whole.
+
+you can embody the sun in physical form. I use the word embody, to mean literally that. I believe that whatever my pre-motor cortex is tuned to, that is what I embody. you can embody whatever you want. you are not limited by size, time, or distance. the only limitations are your definition of yourself "I am ..." what other people tell me I am? am I the emotion that I feel, or is that an indicator of how well I'm tuned to the concept of who "I" perceive myself to be? who is "I"? I am whatever I want to be. "I" have no limits.
+
 
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
