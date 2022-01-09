@@ -6532,6 +6532,169 @@ I relate a lot to this, so I want to offer up some ideas here. who am I really? 
 
 you can embody the sun in physical form. I use the word embody, to mean literally that. I believe that whatever my pre-motor cortex is tuned to, that is what I embody. you can embody whatever you want. you are not limited by size, time, or distance. the only limitations are your definition of yourself "I am ..." what other people tell me I am? am I the emotion that I feel, or is that an indicator of how well I'm tuned to the concept of who "I" perceive myself to be? who is "I"? I am whatever I want to be. "I" have no limits.
 
+### 2022-01-09 08:45 - sequence of events and a some dreams
+
+I had a few events happen yesterday that seemed related. then, this morning some dreams as well. I'm writing this to process it a bit. really my response will be the same whether I type this out or not -- so, probably I'm writing it more for nosebook's sake so they know what I think about it and how people react to that. the events may be out of order in time. I have a difficulty getting things into cronological order.
+
+when I woke up yesterday I felt pretty good. I went around and collected sticks and starter stuff for the fire. after that, I think I took a shower. I still felt pretty good so I started to play rogueabook. I'm on 14/15 difficulty now. it's pretty hard but I find a way. when I started I felt good and everything was going pretty well. however, over the course of the game I steadily felt worse and worse. I just wasn't getting any energy. when I lost I still hadn't found any energy upgrades. I wasn't getting the things I needed, I kept noticing mr. motor was very upset with me doing well, but I had a rising sense of dissatisfaction. I should have stopped for a bit until that subsided or cleaned up for a while waiting for the good-feeling of the shower to wear off.
+
+this happened to me now various times when right after a shower I feel good, so if I start on a "luck"-based game or something I do well at first and then it gets worse as the shower effect wears off. it's better to start something from feeling normal. I didn't feel that much worse after that game, but it doesn't matter. even a slight trajectory toward feeling worse has an effect. gatta keep it in the centre, ya know.
+
+it's weird too that when I started, it was sunny and energetic feeling outside, but by the time I lost the game it was cloudy and everything felt subdued and unenergetic again.
+
+---
+
+after a bit of recovery, later in the evening I decided to play again. this time, I wanted to play an "easy" game of aurora and sharra. they're the most difficult pair. I played it on 10/15 difficulty, and at the beginning the game I was really feeling pretty good about it. I did find energy upgrades and even had enough block to make it through most of the difficult fights early on. I had a pretty solid deck. I had block, energy and damage, but no card draw. when I lost, I had something like 19 energy banked up but nothing to spend it on because I didn't have any card draw. I was offered 2 card draw cards in the first chapter when I didn't have enough energy yet to need more draw. after that though I didn't get offered another one, which is weird because aurora has a lot of card draw options. I should have gotten something.
+
+that game was also weird because I also felt like listening to music while playing the game. I wasn't playing too seriously anyway. I was supposed to be playing any "easy" game anyway. the first mix was the one I'm listening to now, "Filip Nikolaevic - Total Eclipse [Tribute Mix] [fel0VEyKkQs]", followed by "LiquiD ILLuSioN - The Odyssey 2021 [Retro DJ Set] [-s8OppBjxZw]".
+
+however, I noticed a bit of a shift when I got to "Miss Monique - Live @ Dead Sea [Melodic Techno_ Progressive House DJ Mix] 4K [ea80AEjiBhs]". the previous two really didn't have any lyrics in them at all. there was a voice line from a movie about something technical but the rest is old-school techno type stuff. at around 21:21 in that mix, there is a song that has some interesting lyrics:
+
+```
+I'm calling you awake from the sleep you've been sleeping for years
+when I wait for the day,
+been awake like woes(?) and feel
+and when the essence of life is coming down from above,
+to lay down where you lie
+time will lose it's weight on you,
+in the dark dark dark, darkened skies
+
+we're in the darkening skies
+we're in the darkening skies
+we're in the darkening skies
+we're in the darkening skies
+we're in the darkening skies
+```
+
+at that time in the mix was when I fought my last battles and lost. I felt sort of helpless cause I just couldn't get the cards to play that I needed. I had too much energy and nothing to spend it on. the lesson to be learned here is probably one of focus. when that song came on, I started to think about alesia and how that song seemed significant to me the first time I heard it. it's 20m into the mix, and I believe the change in feel kinda helped me to lose my focus a bit. I got distracted.
+
+sure, I could look at the conditions. I was fighting a guy that reshuffles your hand every time you play a card, and I started out with only probably 7-8 cards, but only got to play a few, so there could have been a bug. I don't know. for me it doesn't really matter. up until I started to lose my focus, I felt like I was going well. I do remember when that mix comes on, because there's a guy singing in portuguese (I think) and there are words that sound like spanish. however, the song reminded me of when I live in tenerife, and the various bachata songs that augusto would put on. it detuned me from my focus.
+
+---
+
+just prior to that game, when I was laying on the ground I was thinking about the alpha/omega concept and how these cycles seem to have some sort of periodicity to them. going with the 1ky of history has been erased, these concepts seem to dual each other, changing every 1ky or so, like two sine waves with a wavelength of 4ky cycling 1ky offset from each other. it looks exactly in my mind like the 36y waveform for girls. I postulated that it could be related to the powers of 2 (eg. 2^10 - 1024), and so assuming that jesus ended the cycle in I33, then the next one is 1024+33, or 2057.
+
+that almost certainly isn't the date. I'm very certain that a lot of time manipulation has been happening. also, I was thinking about that weird episode where one of the romans added two more months. I think it was around the time of jesus. assume a month is ~30d, then the earth had a 300d year before jesus showed up?
+
+I don't know what all of that means and I don't really have any way to research it. I think the ancients had the 360d year, then the earth sped up with the arrival of the moon and now there's a 365d year. I postulate that the rotation speed and speed of light and a lot of the so-called, constants are regulated by the great pyramid. the earth must have been running really slowly, but then someone must have fixed the pyramid, restoring the 365d year... I don't know.
+
+anyway, back on track here. I was thinking about these alpha and omega concepts must be regulated by a physical body, and those physical bodies must cause a rise and fall in our capacity to tune into that concept. I said a physical thing reminding/tuning someone to a concept happens all the time like a smell reminding you of a person or event, or a song reminding you of a person or event. these are physical triggers which allow you to tune into a different point in time. this is exactly what happened to me when that mix came on when playing the game.
+
+---
+
+the other event that seems related is I was laying on the ground thinking about some reactions that I was having. I kept getting this sense that no matter how they tried to work it out, they couldn't get the girls manifestation to work and still be able to keep up their charade. they had to do something drastic. the thing that kept coming into my head was that one line in tesla's interview where he says, "there are two paths: lots of affection and none at all; I chose the latter."
+
+the next bit was another reaction that was something like, "he'll probably just go back to creating more things, pretty much unaffected". I really had the sense at the time that they simply couldn't allow any of it, and so therefore all of the girls manifestations had to be controlled and performed by authorised versions of me -- so versions of me that can be kept away from blowing their charade.
+
+every time that I tried to think about it and tune in further to figure out what it is that has so much intensity around that concept, "jaron" (mr. motor) would slam something down on his desk really loudly. I have no idea what it is but it sounds like jaron's desk is right next to me. it's like when I lay down and the sounds of the bathroom are so loud, it sounds like the sounds of the wall are amplifed 1000x or something. they're REALLY LOUD. obviously, someone didn't want me thinkng about that concept.
+
+---
+
+the next thing were the dreams that I had this morning. in one of them I was on a boat that they were going to sink. something happened and the sinking already started. they decided that they needed to make the boat sink more rapidly. they said, if it sinks slowly people will be prepared for the sinking and that will leave evidence (of something undesirable). however, if they sink it suddenly, then there will be evidence that they sabotaged it.
+
+it feels like they didn't want it to sink slowly because then people would have time to prepare for the boat to sink, meaning there would probably be a lot of survivors. the other way where they sabotage it, sounded to me like it would be obvious that it was not a natural catstrophe.
+
+so maybe take the example of the titanic. imagine there are people on that boat that will reveal the charade if they are left alive. those people need to die so you have to sink the boat. you would want it to look like it was a natural cause. however, that gives a lot of people (some of which you want dead) a chance to potentially escape in rescue boats. if you need ensure that the targets don't escape, then you have to sink the boat suddenly. so plant an explosive in the hull or something. clearly then, after the fact, it'll be ovbious sabotage rather than a natural cause.
+
+the next dream seems to corroborate that idea a bit. it was this weird list of ancient sites that have evidence of destruction in them. my sense that these were atlantian sites and evidence of the reasons for their destruction had to be hidden. does that imply that the demise of atlantis was actually sabotage? I don't really know. or, did they simply remove all the energy devices that caused the failure? it's really hard to tell.
+
+---
+
+there is this really strange narrative out there that CO2 is the cause for global warming and not the sun. in fact, any time that anyone suggests that the sun is responsible for these castrophes it's deemphasied or outright ridiculed. it seems very strage that would be the case when clearly the sun's output is not constant, and statistically it would appear to have the most influence on earth's climate.
+
+the sun however is not something they or anyone can control. also, if you've been following my previous entries, I'm taking the long way around to relate the output of the sun to the gift of fire, which is the ability for the heart to navigate the person around in time and space by what you're tuned to (sorta like the steering wheel). the gut is the feedback system, sort of like the windshield and rear-view mirror.
+
+this seems directly related to the sun, and I'm beginning to get the sense that the conditions of the earth (climate, prosperity, enlightenment, etc.) are all modulated by the sun. from the sun's perspective, the earth is analogous to the gut. we're the emotional feedback system for the solar system, while the sun is the heart[^1].
+
+this means that these cycles of destruction and fire and water (temperance) seem to be directly related to our perception. we're really only sabotaging our own boat. now, why that evidence needs to be hidden, I don't know.
+
+this while thing about hiding our relationship to the sun feels sort of like telling someone they cannot recognise their emotion. if they feel bad, it's business as usual. they are told to "suck it up" and  they can't/don't have any variations in how they feel. feeling bad or good either has a regular cycle or is purely coincidental -- and is definitely NOT evidence for anything else.
+
+---
+
+so, let's take the sense of the dream -- that they are going to literally sabotage the whole thing and prevent any manifestation. my response to that is always, do whatever you feel you need to do. they live in a reality where they need to continue to pretend that reality is built on constants and that they are completely victim to circumstance.
+
+in the event that this is perceived like the dream, where they need to sink the boat to keep their charade going, that's fine for them. they can do whatever they feel they need to keep their reality intact. in my view of things, the manifestation is a reflection of how I feel, not the other way around.
+
+however, there is a more glaring flaw here, and that is the perception that they can cannot control what the sun (or something else is doing). clearly this perspective has been gaining inertia for a long long time. it seems plainly obvious to me that the business as usual mantra is actually one of self-deception. maybe, they're trying to deceive the masses and prevent a panic -- certainly a possibility, but from my perspective, it looks to me like they've been giving their attention to this one thing being completely out of control for so long that I am likely a manifestation of that tremendous inertia.
+
+it's like a guy fearing to lose all of his money for a long time, and all the while telling everyone else that he still is a millionaire and living like he is one, yet clearly the signs are the opposite of the reality that he's telling everyone else about. at some point, he will run out of money and his whole charade will come to an end.
+
+the problem started way back in the fearing to lose his money.
+
+---
+
+also, when I was getting those reactions yesterday about them not being able to maintain their chrade with any girls manifestations they tried -- I kept being reminded of this one video where at the end of the video, there is an ad for a workout equipment. xylya demonstrates it and when I started to see her working out, I felt very uncomfortable. I skipped the video forward because I didn't like how I felt. the reaction that I had is that most dudes would have stayed there and watched her work out. I don't know where to look and I don't know what to do honestly that it creates such a problem for me.
+
+like, if I were to look at porn in the past then it was always because I felt pressure and I wanted to get rid of it. I thought that any time I felt desire (manifest as pressure), I had to release it. later, I found out that I can just feel it and it's fine. I don't need to convert desire into action. this is very much a key component in learning the concept I've named, "feeling-purposefully". addiction says that as soon as I feel desire, I have to act on it. I suppose that is a lot of what advertising is about too. like if I see an attractive person, then the desire that I feel will motivate me to purchase that product.
+
+I'm not motivated by desire quite the same as other dudes. however, the sense that I had is that it'll be difficult to get other dudes to pretend that they're me, simply for that reason. they would need to find a way to act uncomfortable in situations where desire is being used to motivate action. this isn't a common attribute and is probably difficult to emulate. it shows up all the time for me and is the reason why I am in the situation I am in now. many dudes would have gone with any of the prior girl situations, yet I have not because my own desire is so much stronger than anything external to me.
+
+this may be the difficult problem that they're running in to. it's quite possible that they're trying to control me by having the girls "guide" and influence me away from things they don't want with physical desire. I believe that they're under the impression that if they see something that evokes desire, they are a slave to the desire.
+
+this seems pretty obvious to me, because the way to learn how to avoid being a slave to desire is "thinking-purposefully". when I learned how to feel the way I want to feel, I'm no longer driven by external conditions as a way to feel better. I know how to feel better. a product you're selling or sex that's being offered isn't necessarily the way I want to feel better. meaning, I can't be guided by desire.
+
+---
+
+ok, just took a break to use the restroom, and I have a few ideas. I realised that that it may not be that they cannot keep their chrade going and instead, the problem is that they *do* want the girls thing to happen so they can keep people distracted with that. the problem however is that they can't figure out how to get it going.
+
+they probably put me into situations with girls, but it likely never works out. if that's the case, then they're strugging to figure out how to make it happen. obviously that won't work.
+
+I'm sitting here without internet and I'm just fine. I've been playing roguebook, but I think I need to give it a rest. I'm probably going to get back into writing out the concepts again. I have a much better capacity now to feel the way I want. thanks to the last roguebook games, I've learned a lot.
+
+problem is without internet, there probably isn't much to broadcast, and that's kinda a problem, I would imagine. personally I really like the break from the internet. I really like things like this. I'm really learning very rapidly how to feel the way I want to feel. everything is fine. the ball is 100% in their court so it's not like I need to do anything.
+
+I think this is actually sort of by design. I don't feel like anything is going wrong at all. we're actually very incompatible right now anyway. this brings me to a meta commentary on the feeling-purposefully and being a slave to desire.
+
+feeling-purposefully is kind of a problem for girls and advertising. let's take the example of girls though as it's the most obvious. if they want something, right now, the present system is that they use a form of desire to motivate someone to action. then, the system of mutual-back-scratching is used to ensure that there is a reward for that desire.
+
+so, if they meet someone like me that knows feeling-purposefully, they don't have the ability to leverage desire to motivate action. what then can be done? well, not a whole lot, really. it really is a big problem for them I think and if the feeling-purposefully concept starts to gain traction, then it'll cause a massive evolution in the behaviour of women. let me explain.
+
+if I can feel the way I want to feel, then I can have a lot of flexibility in what I can do no matter the conditions. next, take a look at the first game of roguebook there. I had the condition of the shower making me feel good. from a position of feeling good, the only way to go from there is down. just like every relationship or drug experience, the first hit is the best and then it gets worse from there. therefore, I don't necessarily want to feel good. I know I don't want to feel bad, because I'm feeling-purposefully, so I want to feel "normal". I want to keep it in the centre, neither feeling especially good or bad.
+
+the eventual evolution here is that when most people are feeling-purposefully, motivation now has to from a compatible feeling rather than from desire. for girls, that means that the action they're looking for has to be compatible with their "normal" feeling.
+
+if all they're looking for is the action (needing the manifestation) to feel good, then sure, there will be lots of men that are willing to perform an action from a place of mutual-back-scratching or leveraged-back-scratching. the ones that are feeling-purposefully will get better and better at sensing from what feeling she is coming from. I can say from experience that wanting a manifesation to feel good (or a game to go the way I want it to go) always fails. I can't let the conditions be the goal, rather the way I want to feel be the goal.
+
+for sales, same thing. I mentioned that most salespeople I met exhibit a feeling of "I just want people to like me" and that's how they sell their products. they resonate with other people who also just want others to like them. it's often the case that the sales pitch is, with this product other people will like you more. products theirself will have a feeling which resonates more with the person individually. "one size fits all" will diminish as less people will resonate with the same product.
+
+obviously, the last thing that the HRE (world leaders) want is for people to be feeling-purposefully. right now (or very soon) will be full moon for the mutual-back-scratching paradigm, and it'll do it's best to hold on to it's influence. I believe that any attempts to maintain the paradigm beyond its time in power, will attract conditions where the sun will ensure that those structures are broken so that new ones can emerge.
+
+---
+
+ok, let's do a quick review of the concepts presented here:
+- keep it in the centre.
+  - it's risky to do anything from feeling too good or feeling too bad.
+  - it's better to keep improving normal than to make action from a feeling produced from conditions
+- physical conditions like a song or a smell can be used to "tune" (that is, change one's focus) to something other than the present.
+  - these physical changes can allow for the emergence of a new concepot (like all the stuff written here caused by changes while playing roguebook)
+- periodicity of these events may be related to huge changes in rotation speed of the earth.
+  - the length of the year would still be the same. so would solstice and equinox, so it wouldn't disrupt astrnomical calculations -- just there may have been happened on a different day in the year.
+  - we are likely the indicator (manifestation) of the way the entire solar system perceives its conditions. when we feel bad, our perception isn't resonating with the source.
+  - in this sense, I think of the sun like a young girl that's beginning to learn to use her emotions as feedback to her navigation.
+- lots of affection or none at all
+  - looking back at it, they're probably trying to figure out how to get me to want affection
+- sink the ship dream
+  - it's probably like the titanic.
+  - key passengers may reveal their charade, and their death needs to be assured.
+- we are in mutual manifestation with the sun
+  - when our perception is in alignment with the perception of the sun, we feel good. when it doesn't bad things happen and a rebirth must take place.
+    - I postulate that this (1024/4096y) conceptual cycle of the sun must be very similar to the 18/72y conceptual cycle of a girl
+  - ignoring the physical effects of the sun is like someone denying that their emotions as a precursor to the physical manifestation
+- business as usual mantra
+  - is used to cover up a flaw in our perception.
+  - I postulate that it's self-deception and tryinyg to keep the charade going makes it self-sabotage (just like a victim).
+  - the unwanted solar conditions are a manifestation of a flaw in our perception
+    - just like looking at conditions gives a bad feeling, means there is a flaw in your perception (nothing in inherently bad), the sun's output is a manifestation of the interaction between the sun, earth, and mars -- just like the gut/heart/throat interact.
+- being a slave to desire and the liberation of feeling-purposefully
+  - likely this new concept is next in the conceptual solar cycle and will bring about an evolution in the behaviour of humans in how they summon action.
+- they probably don't have a way to influence me with desire the more I keep feeling purposefully.
+  - nothing is going wrong here.
+  - when girls figure out how to feel "normal" in a way which is compatible with me, then it'll happen. those girls probably won't be compatible with the business as usual mantra and so therefore, this siutuation would be very undesirable.
+  - this must be stopped. don't you get it. they're doing me a favour. they're giving me conditions that I want in return for somethting. ending of the concept from the temptations of jesus. #leveraged-back-scratching
+
+
+[1]: the throat would be mars. I think that lucifer (venus) is desire, and mercury is like the physical. I'll explain my thoughts in a future entry, these two triads that the sun is in. this entry is already way too long.
 
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
