@@ -6696,5 +6696,61 @@ ok, let's do a quick review of the concepts presented here:
 
 [1]: the throat would be mars. I think that lucifer (venus) is desire, and mercury is like the physical. I'll explain my thoughts in a future entry, these two triads that the sun is in. this entry is already way too long.
 
+### 2022-01-09 14:19 - further metaanalysis of being a slave to desire
+
+went out to sit in the sun and there were some reactions around the part of girls using desire to motivate action. so, how do you motivate action?
+
+I don't think that you can. this is why I believe the reflection of this is nosebook trying to make something happen. making something happen has almost exactly the same feel to it as leveraging desire to motivate something.
+
+nosebook has made it certain that there is no way that I can make anything happen. if I have any desire and try to take action on it, they try to negate it (like programming or creating something). they absolutely do not want me able to manifest any desire I have. they also do not want me able to motivate anyone else. I'm certain that everything I write here is heavily edited and processed to fit a narrative, just the same as the "hockey stick" graph of climate "science". they want to make sure I have no way to motivate anything of my own desire. they need full control.
+
+looking from the outside it appears like I don't have any freedom. I don't really. I have no freedom of action. what I do have is freedom of emotion. I can feel any way that I want about anything, including my circumstances, and there's nothing they can do to change that.
+
+they want to control all physical conditions. emotions are not physical -- that is, they're conceptual in nature. they're just vibrations -- but, then those vibrations create a manifestation in the body which can be felt physically just like pain or pleasure. nosebook goes so far as to remove all evidence of the physical manifestation of those emotions -- good or bad.
+
+like, in times past if I wrote something that illicited a negative reaction from people, then I would feel that. often times, I would amplify that feeling until I could really feel it in my body. nosebook was always trying to distract me from amplifying that and/or remove that sensation from my body. I think it maybe caused problems for the people utilising my perception. same thing happened when I did drugs. like, if I smoked a joint, I physically could feel stuff. nosebook didn't want that. they *really* don't want any physical manifestatons caused by emotion.
+
+you can kind of see why they want that. they don't want me to be able to leverage a physical manifestation of the way I feel (like desire) to motivate anything. if I choose to feel bad or I choose to feel like my mind is blown, I think that affects the way that reality manifests for those tuned in to my perction.
+
+also, if I could feel the way I wanted to feel physically (like in my heart and stuff), reality would reflect how I feel. lots of manifestations would happen that they couldn't control so they don't want that.
+
+---
+
+oh I see... they want to negate all physical manifestation of emotion except for the ones that they want. I guess the idea here would be that I would be so starved for affection that the moment that they allow me to feel even a little bit of it, I'm totally hooked and like the coke dealer, I become his crack whore. #leveraged-back-scratching
+
+this idea that you can give or take away some physical condition is leveraged-back-scratching, and many women do this as a means to motivate action. I believe that this leveraging of desire to affect action has caused a lot of men to go gay. they say, if I'm attracted to other men, then your attempts to coerce me with desire won't work any more.
+
+---
+
+when I take a shower, I feel better for a bit, but then nosebook makes sure to neutralise that good-feeling. the result for me is that after the shower, there is a definite time some 5-30m after that I notice I feel notably worse.
+
+feeling worse isn't very desirable for me so I tend to not want any good-feeling conditions. you'll notice that lately I pass on almost all good-feeling conditions. they simply don't make much sense for me because it really doesn't take long (or no time at all) afterward to feel worse. I prefer to just continue to feel normal.
+
+what that means is that if any girls manifestation were to happen, it's going to feel normal[^1]. all of those feelings of bigness or amazingness won't be there. it'll feel just like another day. all days already feel that good.
+
+rather said, from my perspective, if all of my days feel as good as a girls manifestation does, then it can happen. or, maybe the opposite, if all of my days feel as miserable as a girls manifestation does (not counting the physical pleasure), then also it can happen. what that means is I need to find a way to become so dependent on manifestations for how I feel that I'm now compatible with them. or, maybe I need to feel like they're always betraying me, so I can manifest the ones that will betray me.
+
+obviously, that's not going to happen. there's no way for me to go back to needing a manifestation; nosebook negates them all. they have trained me to not need a physical manifestation to feel good. they have also trained me not to want to ever feel better than normal. I just want to feel normal, and let normal be something that feels pretty good.
+
+I really am only compatible with people where their normal feels pretty good. I'm also really only compatible with those that have a pretty high self-esteem and self-awareness. this unfortunately rules out the majority of people. kids have high self-esteem (usually) but low self-awareness. adults can have higher self-awareness (it's rare, but it exists), but usually do not perceive theirselves to have any inherent value.
+
+from my perspective I am, by no means, even close to exhibiting the kind of self-esteem that I think I can. I still believe that I am inferior to a lot of people simply because they can do things I physically still cannot. like, if I could run faster than them then I would say I am superior and therefore I could esteem myself higher.I can't really run though, so I have to find other ways to esteem myself highly. I still place too much value on physical conditions. I probably still compare myself to others too much as well.
+
+no one anyone else is doing has anything to do with me. the one thing that not having internet has taught me is that I really don't like being on the frequency of other people. nothing anyone else is doing really matters much.
+
+---
+
+the reactions are telling me that I'm basically saying that I'm incompatible with all of you guys. yeah, sorta. you don't need me to be compatible with you. that's exactly the problem. no one needs to understand you for you to understand yourself.
+
+I can't remember well, but for me this whole thing started a few days ago when I was out watching stars. I recounted the event in @[newblog](2021-12-08 07:36). I walked inside and it felt like there were some reactions to me walking inside. I responded that I didn't think that going to try and strike up a conversation with them felt like something I wanted to do. the reaction that I had was, "OK, then what I have to do to get you to ____".
+
+I responded by saying that there is nothing that can be done. we live in a world that is filled with schemesters and sales people. they all operate under the premise that you have someting to offer and so do I. let's exchange goods. you scratch my bacK and I'll scratch yours. in reality though, this is an illusion. whatever you want from someone else you have to find it in yourself first so that others can give it to you. I am proof of this. I am not out there selling anything or promoting anything. people tell me, "come out and scratch our backs so we can scratch yours". I say, "no I don't need your back scratching to feel good". I have what people want. they think they can get it from me, but they cannot. they aren't trying to get me to do something. they're trying to get theirself to do something.
+
+I gave the example, "if you want other people to like you, you have to find a way to like yourself." and, "if you want other people to value you, you have to find a way to value yourself." you are the product that you are selling. think of it like being a sales person for yourself. you're trying to sell a product (yourself) to people as something smart, however you don't beleive the product (yourself) is smart. it's hard to sell a product you don't even pretend to believe in. only the more self-aware can detect when the salesperson is pretending to like the product (or theirself).
+
+that's good for now...
+ 
+[1]: now that I think about it, during those rogebook games I didn't feel normal. I think if I had've been able to feel normal, I would have done much better.
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
