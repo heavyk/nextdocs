@@ -6752,5 +6752,75 @@ that's good for now...
  
 [1]: now that I think about it, during those rogebook games I didn't feel normal. I think if I had've been able to feel normal, I would have done much better.
 
+### 2022-01-10 10:20 - not feeling better than normal
+
+when I woke up this morning, it was interesting to note that the most substantial thing that stayed in people's minds from yesterday was the part where I said "that pretty much rules out all kids and adults".
+
+what basically happened yesterday was I couldn't figure out the reaction about the "there are two paths: lots of affection and none at all; I choose the later". I thought maybe they were trying to say that instead of going with lots of affection, I would have to sabotage the thing forcing me to go with none.
+
+I didn't think that was it anyway, and it turns out it's probably more along the lines that some sort of manifestation happens, but it doesn't go the way that they want it to go. they're probably trying every way they can to use the girls to steer me, and it isn't working. likely I am not guided by their physical desire.
+
+---
+
+I explained that it's a very common thing for women to motivate action with (a physical feeling of) desire. they seem to have the ability to physically make the body of other people feel a certain way. I have postulated that the uturus is like a "magnifying transmitter" while the penis is like a tesla coil. that means that men are likely much more receptive to the feelings that a woman emits (the the transmitter would be the prostate and the receiver the clitoris).
+
+this capacity for women to, more easily than men, to cause others feel a certain way (like fear or desire) is I think the basis of the "programming" that most kids get. I can say that from experience I have only felt desire transmitter from men in 2-3 cases only, yet I have felt the anger and rage of many men. we really need to practise a wider range of emotions a bit more. I suppose that I'm a pretty good transmitter myself, and I have also noticed that many "natural leaders" have a strong ability to transmit their emotion. for example, I think hitler was especially good at transmitting his emotion.
+
+---
+
+the major breakthrough yesterday was realising that there is nothing inherently wrong with any of the girls. the reason why I wasn't responding to them is because nosebook is trying to do the same thing that girls do. they transmit a physical feeling into the body (probably along with some thought suggestions) in order motivate action. this is what they have been doing up until now to try and motivate me to action. it hasn't been working because even if I feel physical sensations of desire, none of their suggestions feel like something I want to do (like striking up a conversation with remi that one morning).
+
+I think they figured that since it wasn't working on me, they'll motivate the girls using the same technique and then the girls would then motivate me. almost certainly this isn't going to work either. to me it will feel the same. normally, I would just feel plain desire from a girl, but when that desire is motivated by something, then it no longer feels the same.
+
+I noticed this all the time when I was in spain. I could talk with girls just fine and they seemed to like me, but the moment that I got the idea that I wanted to have sex with them, then none of them wanted to talk to me. I decided that I simply just didn't want to try to motivate any girls in any direction. if they wanted it, they could make it happen. obviously, there are very few that go out of their way to pick up a guy, and finally I started realising that the girls that wanted to pick me up usually were not the ones that felt very good.
+
+the final straw of using desire to motivate action came with andrea. before she went to camp, we could feel each other pretty strongly, and I've figured out how to use my heart a transmitter[^1], so I could reciprocate pretty well. I noticed that if I transmitted a feeling of desire, that is what she would feel and it motivated her to action. at the time I thought this was the end of the world, but I realise now that it was just an evolution of desire. I didn't really want to be around someone that would be motivated to action every time that they feel something.
+
+being motivated to action every time that you feel something is the opposite end of addition. in an addiction, some condition made me feel good, so I want to feel that way again so I motivate myself to action to obtain that condition again. this is just the opposite, described as "pavel's dog" or "anchoring" where a condition produces a feeling and then that feeling is then used later to motivate action.
+
+---
+
+anyway, point is there were several evolutions of desire that happened the last few years. realsing that I didn't really want to be around someone that is constantly motivated to action with every single thought or voice suggestion that enters their head (zombiefication) was the first.
+
+the next big one the realisation I liked the idea of feeling good, especially with a girl around, but I can't control her. I can only control myself. she's probably going to be a zombie anyway acting, like mom or any of the people at friendly harbor constantly by whatever is motivating them. I like the idea of feeling good, but I like even better the idea of not needing her around to feel good.
+
+---
+
+you have to realise that there is nothing wrong with any of the girls. they are all fine and I'm sure all of them are great. the thing that's messing it up is that nosebook thinks that they need to use the people around me to steer me. for me, nothing ever feels pure any more. the closest I get to that is jaron. very little of what he says and does (like maybe only one or two things a day) feels motivated by nosebook. however, this is not the case with mom. almost everything feels like it has an secondary motive behind it. very little of our interactions are pure. most are motivated.
+
+just like the girls that would disappear the moment I wanted sex (the problem with being a strong transmitter I guess), the you can imagine how unappealing it would be for a girl to be coming to me wanting to have sex in the same feeling that mom has when she runs down stairs to change the subject of jaron and my conversation. clearly it won't work, and the worst part about it is that like mom feels like she's always messing things up from her motivation (cause that's how mr. motivator feels), so too will the girl think that she is worthless and not good enough (cause that's how mr. motivator feels).
+
+I'm not interested in conversation or sex (or anything really) that is motivated like that. that's basically the main reason why I stopped going to friendly harbor.
+
+---
+
+obviously, there's no hope in getting nosebook to try and stop motivating people. they're at full moon of the motivation factor. in fact just the opposite is happening. they're being given all the power they can to try and motivate people as much as possible.
+
+this is in fact, the number one reason why I think tesla self-sabotaged his own world system. a world system of communications doesn't reduce people's desire to utilise leveraged-back-scratchting and other techniques to motivate subordinates to do their bidding. I think he found that any optimal system for communication is very desirable for parasites to try and take over to control what people say and do. LOA assures us that you can't get rid of anything. you can only do you, so instead of trying to prevent the parasites from taking over the system, why not just give them the system and let them shoot theirselves in the foot with it.
+
+motivate away; I dont' want any part in it. LOA also assures me that while there is no way to ever get rid of the parasites, like a virus they won't bother me if I'm immune to them. they'll look for a host that will support them.
+
+unfortunately, that kind of paints the picture that nosebook is sort of like a virus and they have been unleashed out in to the wild. we'll gain herd immunity. there isn't a vaccine for a concept. you have to learn to parasite no longer as a threat. they can only exist for as long as there are suitable hosts.
+
+---
+
+the final thing that happened yesterday corresponds with the last major evolution of desire as well. I was repeating a concept that I talked about a few years ago called keep-it-in-the-centre. the basic idea here is that I don't ever really want to feel better than I do normally. instead, I want to stay right around normal range for me, and let normal range be pretty high frequency (feeling pretty good). it's unsustainable to feel amazing for any length of time. trust me, I really liked my 3-5 day MDMA bingers, *a lot*, but I also like feeling that good normally. same with girls: I like the idea of feeling really good when a girl is around, but I really like the idea of feeling that good normally.
+
+what that means is that I keep getting better and better at feeling the way I want to feel. because all of those emotions are controlled and induced by me, I have full control over it, so all of them are "normal" to me. there's nothing especial about the way I feel.
+
+within that range of how I want to feel, I can operate freely with others; there is no problem.
+
+you could say that in sense I aim to obsolete girls -- as in, if I can feel as good as I do when they are around, I won't need them anymore.
+
+that's the wrong way to look at it. look at it from the perspective of me. if I feel good already, why do I want to go feel like someone who feels like they're not valuable? why do I have to go down to their level of perception to feel good if I can already feel good?
+
+I think a more proper way to look at it is: I will attract the things I like about myself in others. I can't look for something you don't have to fill a void. I resonate with the things I do have in others and other people inspire me to perceive more nice attributes about myself.
+
+---
+
+I'm not saying it's impossible for any girls to find their way to what they want. what I'm noticing is that they have a huge problem and that is there is a great motivator in the sky trying to steer me with others around me. when he's motivating you, to me you feel like he does -- so, like not very good. it's perfectly possible for someone to not resonate with the motivator. like I said, I find it difficult to imagine that it will be a kid, because they're not self-aware enough yet to guide how they feel (they're still strongly influenced by their environment), and it's not likely going to be an adult either because most of them have lost so much of their self-esteem that they want to feel bad normally (low/false self-image) and then desire nice conditions to feel different than they feel normally.
+
+[1]: I've come to think that actually all of the different major levels (regenetive, gut, heart, throat, and pineal) all have both tranmitting and receiving elements. it is possible to transmit and receive on all of these and it depends mostly on the type of signal. for visual stuff, it's the sexual organs and pineal. for emotion, it's the gut and throat, heart is a feeling I don't know how to describe. the throat and pineal are hard for me to describe because they feel different from each other. the throat has a lot of impact and power to it (prophesying and stuff), but I mean the feeling that it emits -- not the sound. sound is to the throat as food is to the gut.
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
