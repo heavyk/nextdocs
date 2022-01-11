@@ -6874,5 +6874,45 @@ the ideal is no longer pure. the ideal is that she knows how she wants to feel a
 
 purity is dead. this is now the age of individual determination of how one wants to feel -- or, just feel like whatever has the most influence over you.
 
+### 2022-01-11 13:27 - "you" are not the hardware
+
+as a followup to the previous entry, the reason why jesus having a twin makes what I said so much more illuminating is that the whole premise of "gods of eden" is that humans are a much more then just a physical body. however, since the very creation of the human race, the custodians of this planet do not want us to figure out that we are not just flesh and bone physical bodies. this custodial presence has tried every trick in the book to keep us captivated with the physical and believe in a materialstic perception of reality (physical matter is responsible for everything experienced).
+
+if a virgin birth is so important, then it matters what the mom was doing when the baby is conceived in order for a messiah to emerge. therefore, if physical matter and genetics were everything needed to make a messiah, then jesus' twin brother (having the same genetics) would also be a messiah. clearly, that is not the case.
+
+to put it into computer terms, genetics is sorta like hardware. if you have a super 50GHz 64bit computer but only run windows 3.1 on it, you're really only using a fraction of the hardware's capabilities. the same computer that can run messiah 3.1, can also run joe-blow 1.0.
+
+in that sense, I propose that "you" are not the hardware. you are not your hair colour, skin colour, or ethnicity. "you" are the software running on that machine. that same software can be installed into other compatible machines and reprogrammed if you know how to program.
+
+---
+
+what the virgin birth tells me is that hebrew-woman hardware wasn't compatible with the the jesus-1.0 software, and so therefore for that software to have suitable hardware, arificial insemination breeding needed to take place.
+
+that hardware/software perspective unfortunately creates a lot of questions -- like, we know that it has to be attraction, so then who is attracting the emergence of jesus-1.0 software on to the world scene. is it the conceptual cycle of the sun, the hebrews desire for a messianic figure to save them from the HRE or something else?
+
+it probably was a lot of that. I bring up the vulcan/enki character because I think it was the same thing. zeus needed weapons and the annunaki needed slaves, so these things were desired and therefore attracted.
+
+I don't think the brotherhood intends to corrupt their own stuff. I think it's a manifestation of the desire to keep their manipulation and "superiority" a secret that corrupts their own stuff. however, whatever it is that they do, they manage to turn science into superstition and ritual to keep its true meaning a secret. I believe it's because they weaponise this science and use it to oppress the humans, that they figure that we must be exactly like they are. we'll use the same science to oppress them. oppress or be oppressed.
+
+clearly, if they actually were superior to us, they wouldn't desire to keep getting new technological means to oppress us.
+
+---
+
+the way I see it, I'm beginning to think the physical conditions on earth are a manifestation of the conceptual cycles of the sun. just like the human must continue to rebuild her/his form of perception for the body to continue to fuction for extended periods of time, I believe the sun is the same way and we are resonant with that. that resonance with the sun is the gift of fire that enki gave us.
+
+however, from a purely material perspective, I believe that it was the romans that attracted the jesus-1.0 software. they had a real problem with the hebrews in the levant and they needed a solution. jesus provided just that solution for them. allegedly, there are other astral and mental capabilities that jesus' bloodline reportedly has as well.
+
+so was the upper echalon of the roman empire (above the emperor even) was this custodial influence? it appears that this is directly related to the alpha/omega cycle. the upper custodial echalons must have known that they needed hardware that can run the jesus-1.0 software.
+
+there's a reason why akhenaten had such a strong influence. out of it came the hebrew exodus (getting the hyxsos/aryans out of egypt), the temple of solomon and amarna, most probably created the the aryan caste system in india, zoroastriansm, etc. for akhenaten, I believe that likely the egyptian priesthood got theirselves into a jam with (maybe with the hyxsos) and needed a bailout. that attracted the arrival of the akhenaten-1.0 hardware (longheads) running the aten-1.0 software. as always, its influence remains today but has deteriorated into ritual and superstition, lol.
+
+just like circumstances today with nosebook, these guys get theirselves into a real jam and need a bailout. it must be that strong desire for a bailout that produces the emergence of the next new hardware version capable of running the alpha/omega software.
+
+---
+
+I really like to focus in these entries on the material stuff. if I didn't I would be talking about everything in abstract metaphors. this is a pretty big error on my part. most people adhere to the materialistic version of reality so it's probably more juicy reading for them. don't worry all of this will get turned into incoherent materialistic nonesense anyway, so why fight it? if you read between the lines, you'll see that I'm trying trying to discover the physical manifestation of the other thing, not the other way around.
+
+if you have a really new game that you want to play, you'll probably need to upgrade your hardware to play it. new hardware isn't everything if there isn't anything new and exciting to run on it.
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
