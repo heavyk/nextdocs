@@ -6822,5 +6822,57 @@ I'm not saying it's impossible for any girls to find their way to what they want
 
 [1]: I've come to think that actually all of the different major levels (regenetive, gut, heart, throat, and pineal) all have both tranmitting and receiving elements. it is possible to transmit and receive on all of these and it depends mostly on the type of signal. for visual stuff, it's the sexual organs and pineal. for emotion, it's the gut and throat, heart is a feeling I don't know how to describe. the throat and pineal are hard for me to describe because they feel different from each other. the throat has a lot of impact and power to it (prophesying and stuff), but I mean the feeling that it emits -- not the sound. sound is to the throat as food is to the gut.
 
+### 2022-01-11 11:53 - jesus and the virgin birth
+
+last night I decided to read bramley's "gods of eden" book. I had only read parts of it, mostly knowing its contents from the book report the snake-bros did on it.
+
+I really see the book from a whole new vantage point now. some things that seem so obvious to me now after figuring out a lot of the conceptual cycles of the sun, triads, alpha/omega, and things like that really puts the whole "custodians" in to a whole nother light for me. I want to talk more about them, and I likely will over the next few days, but I wanted to talk about this one because it was relevant to yesterday's entry.
+
+in chapter 12 he writes of the ministry of jesus and the apocryphal explanation of the "virgin birth" which produced jesus.
+
+it started with jesus' grandfather joachim being unable to conceive with his wife ana, so an angel impregnated jesus' grandma ana with a girl mary (jesus' mother). she grew up in the temple and was given to be married when she was 12-14 to an older dude joseph. on her way to be married an angel appeared to her saying that she would give birth to a/the messiah. she had not yet had sex, so she found that extraordinary.
+
+the explanation for why she must be artificially inseminated while still a virgin is interesting...
+
+```
+For, without sleeping with a man, while a Virgin, you will  conceive and while a Virgin you will give milk from your breast.
+
+For the Holy Ghost will come upon you, and the power of the Most High will overshadow you, without any of the *heats of lust*.
+
+So that to which you will give birth will be only holy, because it only is conceived without sin, and being born, shall be called the Son of God.
+```
+
+the when I read that, the part that stood out to me was the part about the "heats of lust". I don't know how far I want to go into the mythology here, but the alternative explanation to the adam and eve story is the "pandora's box" story. in this one, girls were created pure from vulcan (I think) for zeus to disipline the people with. then to give her personality, she was given various traits by different "gods". some were good traits like desire to cook and make a house by athena (I think). other traits that she was given were lies, deception, etc. by other gods.
+
+there is a similar story in the egyptian tradition for the god khnum to fashion children from clay. I believe that vulcan, khnum, and enki are all diffrent cultures relating of the same guy in the same story. in all of the stories, this guy has kind of a double side to him. he creates humans and wants the best for them, but at the same time his efforts to provide a path end up getting corrupted and hidden by the parasitic brotherhood and those same techniques (usually technological in nature) end up being used for weapons or as a method to suppress the spiritual nature of the humans.
+
+this character resonates with me quite strongly. I'm completely aware that all of the stuff that nosebook is currently doing to me will be turned in the direction of all unauthorised (non-brotherhood) members of the human race. it's the revolving sword of the garden of eden (which is really the pineal gland) and the two trees are your two hemispheres. the sumerian symbol seal showing this is surprisingly similar to my first symbol drawing: anu (the frazzled dude) is on the left (knowledge of good and evil) and enki (little girl) is on the right (tree of life).
+
+---
+
+my "theory" on how all children work is they start out in this pure x-chromosome state, and then over a period of time for boys, the y-chromosome starts to kick in. I'm sure we'll see that in jesus' story here soon enough (as described in the infancy gospels), but the whole point here is that something happens during sex where the girl takes on the frequency (concept, feeling, mood) of the person she's having intercourse with. when this happens, she takes on the attribute of that person. I think pandora's story is a nice way of saying that the whole pantheon had their way with her before she was put on earth to reproduce with humans.
+
+she started out pure though, and I think all newly born kids are like that. girls will transition as they get older (18y) to their father's x-chromosome, which will be more resistant depending on her father's feminine side. it seems that those heats of lust tune her to something else and that was what these angels were trying to avoid in producing a virgin birth.
+
+---
+
+yes, if jesus did in fact have a twin, this makes what I'm going to say even more interesting...
+
+the way that I see this from a larger alpha/omega standpoint is that jesus will have a relatively pure feminine side and he'll his masculine side will be extremely dominant. assuming jesus is on the 36y program, that means that his father's programming will rise up to full power around the time that he's 18y. this explains a lot of the infancy gosepels pretty clearly. from then, it will begin to wane down to zero fatherly influence at 36y. he supposedly never made it that far so we don't know what jesus would have been like at 36y with only his virgin mom's x-chromosome dominant. it seems to me like he had quite the command over his perception. he must have either reached or got very close to that "nirvana" (original definintion) of hyper perception and awareness of reality and its relation to his conceptual definintion of himself (not the physical body).
+
+---
+
+I'm not saying that sex is bad. I'm simply saying that I think it's a tuning mechanism. depending on where you're tuned to, you allow the energy to flow which resonates with you.
+
+yesterday, I talked about how there is a great motivator out there in the sky and no matter how pure the girl is (virgin or not), hecause he's there, she will resonate with whatever he feels like.
+
+what I was trying to say is that the installation of the nosebook system is the end of "purity". she doesn't need to have sex with a guy anymore to feel like him. he just needs to be motivating her using nosebook's system and she will feel like he does.
+
+pure means easy to conform to a feeling. it means that she will gain the awareness of the conforming feeling, whether that's her mother, some dude, or an "angel". therefore, from my perspective, pure means "feels like mr. motor".
+
+the ideal is no longer pure. the ideal is that she knows how she wants to feel and it doesn't matter what influences she's around, she can feel that way regardless.
+
+purity is dead. this is now the age of individual determination of how one wants to feel -- or, just feel like whatever has the most influence over you.
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
