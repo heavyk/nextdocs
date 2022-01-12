@@ -7078,3 +7078,11 @@ it may well be soon. they've created a system (nosebook) which is such a good "r
 the alpha and omega concept seems to be a triad relationship that manifests itself in this solar system as earth-sun-mars and lucifer-sun-mercury.
 
 [1]: once I got past the idea that they had taken my freedom from me and realised that everything in my reality is a manifestation of how I conceptualise it to be, then I have all the freedom. no one can force me to feel/conceptualise my reality any other way than "I" want to perceive it to be. no one. ever. they may be able to make me physically feel different than my emotion, but that is not a manifestation of who "I am".
+
+### 2022-01-12 12:02 - the outside is weird
+
+I walked to starbucks to upload the last entries. the whole way I have been surprised at how sensitive I am to how people feel now. it really is a strange experience. I noted on the wy down villa st. how xich I enjoy staying at home. I decided to write this to feel what it feels link to get real-time reactions to what I'm writing. it's terrible. I don't like it at all.
+
+another thing is I'm constantly tuned to other people and memories. a song came on the radio that was something about being justified because she didn't treat someone right.. tears and pain and a little bit of laughing. I saw the song on SNL and I must have made a comment about it because there were reactions noting my disapproval of the song. lol... dang, well, that sucks. I hope she laughs a little in the middle...
+
+outside is weird man... I don't like it at all. booo hooo everyone has a thing they can look at in a better way. man, just give it a little effort to see something you want to see.
