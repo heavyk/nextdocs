@@ -7007,3 +7007,42 @@ I don't believe in doing things the right way... you know, I think it's for the 
 
 lol.
 
+### 2022-01-11 21:25 - the biggest and strongest always win
+
+my goodness bramley gets me thinking about a lot of good stuff. at the end of chapter 15 he's talking about how violence brings about change: 
+
+```
+The victorious use of violent force depends upon skills that have nothing to do with whether or not one's cause is a just one. The man who can draw his six-shooter the fastest is not necessarily the man with the best ideals.
+```
+
+that got me thinking. in the previous entry (or was it the one before it?) I was talking about how the alpha organisations (the world leaders) eventually find theirselves in such a jam that they're out of ways for maintaining control of the population.
+
+originally when I wrote that, I wrote: just like circumstances today with nosebook, these guys get theirselves into a real jam (internet) and need a bailout (9/11).
+
+I can provide many such examples where they run theirselves into a situation where no longer do the ideals of the violent remain the dominant ones. the most important is to ensure that human communications are censored and curated, to prevent unauthorised ideals from gaining traction. the internet (or any global communication network) greatly reduces the power of secrecy and violence as a means to retain power. the internet is a total disaster for present-day systems of power.
+
+---
+
+that's a really nice thing for him to inspire thought in me because I was wondering how I would approach this subject...
+
+for me, the time of jesus marks the point in time when it's full moon for violence and force as a method of control. this was simply because at that time, the general populus actually beleivied that if you died that was the end. physical existence was the only thing. bramley asserts in this chapter that the belief in more than just a physical experience (heaven or hell) is an intuitive thing enough to suppose that it will cause a person to commit various crimes in order to secure continued existence. I suppose he's right. there's something about us that tells us there has to be more to it than just this physical life.
+
+jesus marks the beginning of the next concept of mutual-back-scratching (you do something for me and I'll do something for you in return). even the reported crucifixion of the jesus hangs on this idea "jesus died for your sins so that you can have eternal life" -- jesus did something for you, so you can do something for him in return.
+
+it's said that there have been 2000y that have passed since the appearance of jesus, yet I'm beginning to believe more and more that all of those things that bramley has described (and the ones he will describe soon) have happened in the last 1000y. bramley enumerates many of these "custodial" influences that have derailed the human race in the last 2000y -- yet it appears that it may have happened even in half of that time.
+
+dispite their best efforts to keep everything under control, this acceleration is happening at such a rapid rate. if this conceptual cycle is happening every ~1024y (like I theorised), then very soon will be the "new moon" and this concept of fear of death will no longer have the hold on humankind that it once had.
+
+if my assertion is right, then the advent of any global communication network (which they cannot control) is terrifying and completely puts an end to the capacity for the corrupt brotherhoood to impose ideals through secrecy and violence. these ancient forms of maintaining control will soon begin to crumble rapidly.
+
+---
+
+the other thing to note here is that the new concept how the new concept will emerge. I explained that the new concept is that one is capable of feeling the way that they want to feel.
+
+fortunately for the custodial implementations, the word "feel" can be used to both describe both physical and emotional sensation. when you "feel" sadness, you are likely feeling the physical manifestaion of that sadness -- the knot in your stomach, the tears in your eyes, or the heat under your eyes or coldness of the feet. however you manifest that emotion seems to be one of cultural preference and perhaps even of genetics. that physical manifestation is *not* your emotion though.
+
+it is possible to feel trememdous pleasure in your body even though you are(?) sad. I find it very likely that the future custodial activity will commercialise the way you "feel", allowing you to pay money to feel the way you want to feel. no need to alter your perception. they can manipulate the human nervous system now effortlessly, so now you can "feel" any way you want to feel. you can even "feel" like someone else does :)
+
+now, whether that will produce 1000y of peace, only time will be able to tell that, however, I do find it difficult to imagine how they could possibly come up with a way to convert that into violence.
+
+there is one possible exception: the *lion* (of the tribe of judah) was able to open the scroll with the 7 seals and reduce the earth's population enough to reestablish the corrupt brotherhood's control through violence once again. that will definitely *not* produce 1000y of peace... lol. maybe lion's gate will open...
