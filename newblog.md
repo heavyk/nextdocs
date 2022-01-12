@@ -6962,5 +6962,48 @@ if he ever comes back, he's probably going to need compatible hardware for it. t
 
 like I said, I'm probably just the pre-game show. enjoy it while it lasts...
 
-### 2021-12-29 ??:?? - the "right way(tm)"
+### 2022-01-11 18:43 - enki and the right way
+
+one of the many reactions to the last entry was interesting to me. I noted that all of this stuff I'm writing will be converted into incomprehensible nonsense anyway.
+
+the secondary reaction was the realisation, "OK, so if it's going to be converted by the custodial influence into incomprehensible nonsense anyway, why even try to make an effort to present the information the right way?"
+
+that's kinda the idea, yeah.. maybe instead of trying to do everything the right way, why not try going at it the wrong way?
+
+---
+
+on page 55 of "gods of eden" bramley says,
+
+```
+Ea's title was changed from "Prince of Earth" to "Prince of Darkness." He was labeled other horrible epithets: Satan, the Devil, Evil Incarnate, Monarch of Hell, Lord of Vermin, Prince of Liars, and more. He was portrayed as the mortal enemy of a Supreme Being and as the keeper of Hell. People were taught that his only intentions were to spiritually enslave everyone and that everything bad on Earth was caused by him. Humans were encouraged to detect him in all of his future lives ("incarnations") and to destroy him and his creations whenever he was discovered.
+All beliefs and practices named after his various appellations ("Satanism," "Devil Worship," etc.) were to be made so horrific and degrading that no right-thinking person would (or should) have anything to do with them. He and his followers were to be viewed by human beings with nothing but the utmost loathing.
+```
+
+he's describing the corruption of the original brotherhood of the snake -- an organisation dedicated to providing education to humans who wanted to gain access to higher levels of their perception.
+
+you see, I believe that enki was a very real guy. perhaps too real. in my opinion he genuinely wants the best for his creation but like bramley states, he's often so eager in his creations he often overlooks important repercussions to his creativity.
+
+I really think that enki/ea believed that creating an organisation to educate and diseminate the information was the right way to do it.
+
+unfortunately, the "right way" is feels nearly the same as the "right way(tm)".
+
+consaider the sentence there, "Humans were encouraged to detect him in all of his future lives ("incarnations") and to destroy him and his creations whenever he was discovered."
+
+the idea here is that many or many of these mavericks that showed up on the scene are just different "incarnations" of enki. in all of those instances, each of these maverick regigions did their absolute best to describe the world in the most practical and approachable form. they were all done the "right way".
+
+always, after the maverick left, the custodial influence corrupted the original thing converting a practical thing into a religious ritual or some other powerless illusion. the illusion was converted into the "right way(tm)" that each derivative of the original thing seems to visciously and sometimes violently promote.
+
+in fact, every chapter of this book that I'm reading, I'm watching a seemingly endless enumeration of every possible machination of the "right way(tm)" ideology pumped up and promoted like something you'd see on tech crunch.
+
+it doesn't matter if it's an enterprise database solution or christianity, if you're not going the right way(tm) you're going to hell.
+
+a good friend would always tell me, "ideology is not your friend".
+
+he's right. it is therefore no wonder that every single attempt that enki must have made to convey the idea that humans are not only the bodies that they inhabit has turned into an endless debate over which way is the "right way".
+
+---
+
+I don't believe in doing things the right way... you know, I think it's for the best. who knows, maybe if I write barely comprehensible but enlightened gibberish -- perhaps then a custodial influence will turn it into something approachable. who knows, maybe their ability to polish up a turd and sell it to people is good for something :)
+
+lol.
 
