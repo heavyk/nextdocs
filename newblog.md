@@ -7003,9 +7003,7 @@ he's right. it is therefore no wonder that every single attempt that enki must h
 
 ---
 
-I don't believe in doing things the right way... you know, I think it's for the best. who knows, maybe if I write barely comprehensible but enlightened gibberish -- perhaps then a custodial influence will turn it into something approachable. who knows, maybe their ability to polish up a turd and sell it to people is good for something :)
-
-lol.
+I don't believe in doing things the right way... you know, I think it's for the best. who knows, maybe if I write barely comprehensible but enlightened gibberish -- perhaps then a custodial influence will turn it into something approachable. who knows, maybe like shakespere, it turns out to be the thing we didn't know we wanted :)
 
 ### 2022-01-11 21:25 - the biggest and strongest always win
 
@@ -7073,7 +7071,7 @@ as a meta commentary on this, I'm pretty well aware that nosebook (the custodial
 
 it's my personal belief that they will succeed and find a way to defeat me. there will be another time split, and it will appear as self-sabotage (you really only fight yourself). almost certainly they will need to start over. that's the reference to the victor of that battle -- the tribe of judah in leo. they need a catastrophe so they can have their 1000y of peace -- the time before the sun decides she wants to install a new conceptual form. she'll need another alpha/omega type with hardware capable of programming (with the power of his mind) the new conceptual structure for the brotherhood to figure out how to corrupt.
 
-in the long game, eventually, the acceleration will become so rapid that they'll run out of ways to corrupt the new concept. some day one of the messiah's will succeed, not because he had the right way, but from from sheer attrition from thousands of years of "peace".
+in the long game, eventually, the acceleration will become so rapid that they'll run out of ways to corrupt the new concept. some day one of the messiah's will succeed, not because he had the right way, but from from sheer attrition from thousands and thousands of years of "peace".
 
 it may well be soon. they've created a system (nosebook) which is such a good "revolving sword" that there is no hope for anyone to ever get out of it -- cept, of course, someone with a conceptual structure like mine. to me it appears easy. it is easy[^1]. all humans will have to come to terms with the idea that you really don't want to rely on conditions to feel too much better than you do normally. they will face their own system too: you only battle yourself.
 
