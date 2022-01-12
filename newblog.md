@@ -7046,3 +7046,37 @@ it is possible to feel trememdous pleasure in your body even though you are(?) s
 now, whether that will produce 1000y of peace, only time will be able to tell that, however, I do find it difficult to imagine how they could possibly come up with a way to convert that into violence.
 
 there is one possible exception: the *lion* (of the tribe of judah) was able to open the scroll with the 7 seals and reduce the earth's population enough to reestablish the corrupt brotherhood's control through violence once again. that will definitely *not* produce 1000y of peace... lol. maybe lion's gate will open...
+
+### 2022-01-11 22:52 - 1000 years of peace
+
+to clarify my sarcasm in the previous entry, as it perhaps may not have been as obvious as I thought, I was making a joke that if jesus was in fact the messiah, then we're presently living through the 1000y of "peace" that was promised. if so, then that means that the last 1000y have seen endless plague outbreaks (probably biological warfare), crusades aed wars.
+
+the crazy thing to think about when reading this stuff is that the aryan super race moved to the south pole after WW2. I think they do have the ability to move around in time (as sepehr suggests) and had UFO craft -- aryans, swastika and everything.
+
+of course, my version of this story is that this is the self-sabotaged timeline. terence explains it as a split in the timeline. I agree, but differ on the symantics of it. reality is attracted, so every reality *must* exist. the desire that the brotherhood has to continue their control over humandkind creates one major timeline, while the other timeline is experienced by the "messiah".
+
+oh, I just realised what I'm saying here. I propose that this time splitting is what causes the change of the age and is a manifestation of the alpha/omega concept.
+
+OK, I'll just say it... don't judge me... I believe that the alpha and omega are manifestations of the same being but in different form. the corrupt brotherhood relies on bloodlines to continue their experience on earth. they constantly need hardware upgrades to run increasingly more inefficient conceptual models of reality.
+
+---
+
+I gave the example of jesus and the virgin birth as a demonstration of this. I believe the x/y chomosomes contain a sort of programming. a boy starts out in the maternal-x (mx), and gradually goes to the y. usually the maternal and paternal sides war for control and this war takes full effect for most people at around 50-85% illumination, so like (12y-24y) however I think jesus was on the 36y program so that would be for him 6-12y. also having been born of virgin birth, his maternal influence would be very low. he would be like a blank slate that his father's conceptual structure would start to take power and he would have to find a way to reprogram that conceptual structure.
+
+that rebirth would not actually happen fully until jesus was 36y. we never got to see what that would have been like. I believe it was self-sabotaged. instead he left a bloodline behind with capabilities that were compatible with the new mutual-back-scratching concept. he ultimately "failed", meaning that the corrupt brotherhood succeeded. they can move their consciousness ("walk in") to another body, so the ultimately inhabit jesus' bloodline now.
+
+in that sense, jesus is the omega, and he leaves behind a bloodline that the alpha can inhabit until they get theirselves into another jam and need another reset. he is both the alpha and omega.
+
+---
+
+as a meta commentary on this, I'm pretty well aware that nosebook (the custodial presence today) must have moved (or is planning to move) their consciousness into my genetics. that would place me right into the alpha/omega position. I get it. I'm not really that concerned about it though. they create their own realities, as do I.
+
+it's my personal belief that they will succeed and find a way to defeat me. there will be another time split, and it will appear as self-sabotage (you really only fight yourself). almost certainly they will need to start over. that's the reference to the victor of that battle -- the tribe of judah in leo. they need a catastrophe so they can have their 1000y of peace -- the time before the sun decides she wants to install a new conceptual form. she'll need another alpha/omega type with hardware capable of programming (with the power of his mind) the new conceptual structure for the brotherhood to figure out how to corrupt.
+
+in the long game, eventually, the acceleration will become so rapid that they'll run out of ways to corrupt the new concept. some day one of the messiah's will succeed, not because he had the right way, but from from sheer attrition from thousands of years of "peace".
+
+it may well be soon. they've created a system (nosebook) which is such a good "revolving sword" that there is no hope for anyone to ever get out of it -- cept, of course, someone with a conceptual structure like mine. to me it appears easy. it is easy[^1]. all humans will have to come to terms with the idea that you really don't want to rely on conditions to feel too much better than you do normally. they will face their own system too: you only battle yourself.
+
+the alpha and omega concept seems to be a triad relationship that manifests itself in this solar system as earth-sun-mars and lucifer-sun-mercury.
+
+[1]: once I got past the idea that they had taken my freedom from me and realised that everything in my reality is a manifestation of how I conceptualise it to be, then I have all the freedom. no one can force me to feel/conceptualise my reality any other way than "I" want to perceive it to be. no one. ever. they may be able to make me physically feel different than my emotion, but that is not a manifestation of who "I am".
