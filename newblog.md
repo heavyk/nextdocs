@@ -6914,5 +6914,53 @@ I really like to focus in these entries on the material stuff. if I didn't I wou
 
 if you have a really new game that you want to play, you'll probably need to upgrade your hardware to play it. new hardware isn't everything if there isn't anything new and exciting to run on it.
 
+### 2022-01-11 16:00 - the heats of lust and hardware upgrades
+
+I was outside thinking about the "heats of lust" part of that passage. I was also thinking about how I like to often overdo the materialistic approach to things. it would be a really reasonable to come away from what I write thinking, "was I born into the genetics that he's talking about?" that style of thinking really is just about the same as the aryan caste system imposed on the indians. you are born into a caste and you have no way to escape it.
+
+in the previous entry I made an illusion that jesus-1.0 was a software that had hardware requirements that weren't found on earth at that time.
+
+when I refer to software, I mean the concept of yourself that you have physically (like what you're heart/brain is tuned into) and who you really are -- your source. the concept of who you *really* are. there is a difference between those two and that difference manifests itself in your emotions. you feel the disharmony between where your brain/heart is tuned to and where you really are. I use spatial words there, but there is no distace in time or space, only a dissimilarity in vibration -- which again can be felt physically.
+
+---
+
+so, when mary was suggested that she will have a virgin birth so that she will conceive without the heats of lust, this is telling me that something happens in the "heats of lust" in a woman that produces hardware that wasn't compatible with jesus-1.0. this is what I was considering outside. sorry for the long into there, but it was important.
+
+I can't say for sure what it is, but I feel like happens to a woman in the heats of lust is that she has this feeling like, "now that I've made you feel good, he'll do what I want him to" with the foundation emotion being, "if he does what I want him to do, then he will make me feel good."
+
+as I thought about this I realised that may very well be what is happening, because that's the female implementation for mutual-back-scratching.
+
+I'm pretty sure that this is not native to the girl because every girl dose not have this idea. instead, it seems plausible that it could be a reaction to the energy of their partner. once they get tuned to the masculine mutual-back-scratching energy, that becomes their implementation for that concept.
+
+---
+
+I also have noted many times that something major happened after jesus' trumphal entry on the donkey into jerusalem(?). right after that he "cleanses the temple" and curses the fig tree. something happened there. I always supposed it had something to do with a girl and/or perhaps alcohol from the celebration. this part has always bothered me a lot and I've always been weary of celebrations anyway, so it's fit with me.
+
+in other texts it talks about jesus having two wives. if he did, then let's assume that they too were bothothed to him as virgins as well. it occurred to me that perhaps something happened there after that celebration where he had sex with someone else.
+
+my idea here is that in jesus' time he learned a lot of self-mastry, and likely that mutual-back-scratching energy was not very active, if at all. if his wives were also virgins, then they wouldn't have had that energy activated in them. however someone else that does have that energy very active -- like say a prostitute -- could easily have that energy active. imagine on a celebration, jesus is celebrated as some sort of saviour of sorts and so he's hot stuff. to a woman tuned in to that sort of energy, he would be a prime target for someone wanting to get their back scratched in return for a sex. if that happened, she would definitely activate that energy in jesus -- and especially if he simply didn't have any experience with that energy it would cause a dramatic change in his behaviour.
+
+for now that idea seems plausible enough for me. I feel good enough that it has to be something similar to that. for me, good enough. case closed.
+
+---
+
+ok, back on track here... the whole concept of having the physical conditions/genetics needed for the concept (you) to operate is a huge discussion. it appears that some people have a laundry list of optimal conditions conditions that need to be satisfied for them to feel good. others do not.
+
+the materialsitic world view (most notable in the aryan caste system) has the thing totally backwards. it says that you need the optimal hardware/genetics/conditions to feel good, and those conditions restrict what software/concepts can operate.
+
+so, what I mean is that let's just say that the jesus-1.0 software is floating around out there just waiting for hardware capable of running that operating system. in that sense, the software desires the hardware that is capable of running it. so then did the jesus-1.0 software attract the hardware or did the hardware attract the jesus-1.0 software?
+
+let's take another angle. let's say there's a software out there, motor-285.0 and it's the most inefficient OS ever running. on first boot it already comes with dozens of ads preinstalled, hundreds of preinstalled software programs checking for updates and thousands of background productivity enhancement programs running. it has so much going on at once, it requires state of the art hardware just to boot up the system and run a text editor. that OS really *needs* faster hardware to keep up with the rest of the world. it strongly desires a hardware upgrade.
+
+so, which one attracts which one? it's probably mutual. it may even be the wrong question to ask. the reason why I say so is, if it were just genetics, then there would be legends about the bloodline of jesus' twin being something special, yet that is not the case. it appears that he ran ordinary software on a machine that is capable of more.
+
+another thing to mention is that the analogy of hardware is a pretty bad one because CPUs don't upgrade theirselves every time you sleep, yet the human body does. whatever it was that jesus realised, that allowed him to improve his genetics and create even better hardware than he already had.
+
+that thing that jesus realised must be intimately linked to whatever happened with JTB. I believe that he realised that his physical body is quite literally whatever he thinks himself to be. his genetics are whatever he wants it to be. for others, his genetics are whatever they wanted him to be. so, in that sense, it must have been the inefficient software that wanted the hardware upgrade. jesus, I'm pretty sure was just exploring the limits of human perception.
+
+if he ever comes back, he's probably going to need compatible hardware for it. there's probably no faster way to attract it than to have the entire human enterprise relying on motor-285.0 operating smoothly. lol
+
+like I said, I'm probably just the pre-game show. enjoy it while it lasts...
+
 ### 2021-12-29 ??:?? - the "right way(tm)"
 
