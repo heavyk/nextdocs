@@ -7086,3 +7086,43 @@ I walked to starbucks to upload the last entries. the whole way I have been surp
 another thing is I'm constantly tuned to other people and memories. a song came on the radio that was something about being justified because she didn't treat someone right.. tears and pain and a little bit of laughing. I saw the song on SNL and I must have made a comment about it because there were reactions noting my disapproval of the song. lol... dang, well, that sucks. I hope she laughs a little in the middle...
 
 outside is weird man... I don't like it at all. booo hooo everyone has a thing they can look at in a better way. man, just give it a little effort to see something you want to see.
+
+### 2022-01-13 14:52 - economic justice and the coming 1000y of peace
+
+after my conversation with mom last night, it started to become evident to me that the unrconcilable difference in realities between me and the tribe of judah within the topic of economic justice.
+
+I made it clear to mom last night that I want to be able to download anything I want to download. if the thing I want isn't available, then I can't download it (obviously), but I reserve the right to download anything I want.
+
+to exmpound a bit on what I meant, in my ideal world, there is a way for people to be compensated for their creativity, *and* there is a way for all of that creative output to be available to anyone who wants it. all books should be available. all music, film, and theatre productions, as well.
+
+it's not just *my* ideal world though. anyone who wants to join me is welcome to join.
+
+I have given a lot of thought to this because, just as the subjecct of privacy, I just don't see an empire that is built on esoteric and hidden knowledge. I had always had this intuition, but as I've read the "gods of eden", it's become very very clear that the ultimate reason for all of these terrible things seems to be rooted in secrecy.
+
+sure, it was said that "the love of money is the root of all evil" and I think that was an establishment scene for the next chapter of humankind. I figure jesus needed to generate some conflict over the importance of money. the money-changer tables of the temple needed to be overturned and economic virility needed to be labeled as evil for the next concept of mutual-back-scratching to gain traction.
+
+in this same sense, you will see me take a hard stance on freely available knowledge and the retirement of secrecy because of a global network where everyone's thoughts and experience are recorded. there are no longer any secrets.
+
+the amun (shadow) priesthood requires there to be secrets, so they need to control the network to maintain their secrets. this effort to keep such a network is, what I believe, will ultimately "trap" them inside of their own network[^1].
+
+I noticed a peculiar choice of words here where I said trapped "inside" -- the illusion is that the network will be a sort of prison for them. however, it could also have the secondary meaning that they literally move their consciousness out of a single human body and put it inside of the network. they wouldn't have a specific body experience anymore instead, they would experience the body which they are tuned in to. so anyone inside the network. this may have started already. if they have the ability to create as many bodies as they need, they could live out different lives anywhere on the earth interacting however they want. if they were good actors, they could replace any person and pretend to be them. the network's implementation of "agent smith".
+
+if indeed the shadow priesthood has moved their consciousness into the network, that would be the ultimate hiding in the shadows. kinda funny. there's pretty much no way to get rid of them. they are a part of us now in that sense. they would have to destroy theirselves (and all of us too) to get out. too big to fail, lol.
+
+---
+
+anyway, back on track here... I was considering economic justice as a concept which will pivot the next concept into place. for mutual-back-scratching (which is a positive and justified exchange of goods/services) to work, the opposite impression must be created. that impression is that the love of money is the root of evil. loving money being evil doesn't feel at all like mutual-back-scratching. you have to want a monetary return for mutual-back-scratching to work economically. money isn't printed paper though, money is a symbol of power, freedom, wealth, pleasure and happiness. mutual-back-scratching has an exchange of one of these; usually wealth, power, and pleasure.
+
+therefore, it seems to me that this moment in time where I am "fighting" for the ability to download whatever I want, I'm kind of placing the symbols in the establishment shot for what is about to come in the next 1000y of "peace".
+
+if you need economic justice or any sort of justified-back-scratching to feel good, then you definitely don't fall into the category of being able to feel the way you want to feel.
+
+for that reason, I'm beginning to notice that economic justice is sort of the fulcrum out of which this new concept will emerge. it's possible the next 1000y of peace will not be all that violent actually. instead, what I think instead will happen is that economic injustice will be the limiting force. most people will be so worried about the apparent difference in status between different agreements and arangements -- things of that nature, that the entire human population will stand around pointing at the injustice of compensation for things. I think most of these helpful people bringing awareness to the injustice, combined with completely impossible regulations and laws to abide by -- which some certain well-known and privileged people will obviously be exempt from.
+
+as an opposite to what I want, all knowledge will be withheld and purposefully distorted so as te make sure humans remain disunited. those running the network will be the ones that control the knowledge and are united. humans will be left to figure it out for theirselves -- probably because any of your "friends" are, in actuality, agent smith.
+
+[1]: question is, why do I think so? I'm certain of it because no matter how hard they try to keep humans held away from their divinity, the human species will continue to evolve and get better and better at it. the increased energetic default in both geology and genetics will continue to increase, meaning that continued effort will have to be made to automate more and more of the system. meanwhile, the rate of decline will also continue to increase for the fallen angels. as long as these continue to accelerate at roughly the same speed, it'll just be a delicate balance. however, as these continue to accelerate, the sensitivity to conditions which cannot be controlled could possibly make the whole system so sensitive that it's actually impossible[^2] maintain that balance.
+
+[2]: the one exception to this is the idea of "going infinite". this is the same situation, however it has one crucial difference: out of curiosity, *I* want to continue the oppression, and therefore it's my own desire and therefore ability to attract it which will continue to provide a way for them to maintain that balance. personally, this concept is so interesting to me because I can't possibly conceive of what could happen. it seems like there would be physical limits to the components, so it seems impossible to me on a physical level. however, conceptually, I know it to be possible. my curiosity is to wonder what things would need to be altered about this physical plane that could allow for such a thing as "going infinite". it's something I *have* to try. it feels extremely desirable to know what that would be... trying to conceptualise this, makes my mind go into a weird zone that's extremely hard to describe. it would be unlike anything we've ever experienced yet as tactile and tangible as the physical plane. it feels normal and smoothe, rather than big and out of reach. I am infinity. normal is whatever I experience... separation is desired rather than perceived. difficult to explain.
+
+### tree of life -> tree of creativity

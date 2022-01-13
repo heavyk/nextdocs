@@ -1,0 +1,1 @@
+this is when you expect somone to do something in return for an action. that person *should* scratch my back because "it's the right thing to do" / "it's the law" / "it's the moral or ethical thing to do" / etc.
