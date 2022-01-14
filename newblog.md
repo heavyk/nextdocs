@@ -7156,5 +7156,55 @@ the concept of out pacing them in badguyness though was a really funny reaction 
 
 weird coincidence, just now the song by "man with no name" came on where the woman says, "if you keep doing what you're trying to do, you'll own the world. you know that, don't you.". definitely a weird coincidence, I'd say. plot twist ahead?
 
+### 2022-01-14 13:20 - amnesia of past lives and the tree of life
+
+in "gods of eden" bramley is commenting on an admittance in the book of mormon:
+
+```
+The forced amnesia described in Mormon had several purported purposes, one of which was: 
+> ... to ensure that our choice of good or evil would reflect our earthly desires and will, rather than the remembered influence of our All-Good Heavenly Father. 
+
+This is also an astonishing admission. It alleges that spiritual memory is dimmed so that people will base their actions on their concerns as material beings rather than upon their knowledge and remembrance of spiritual existence.
+```
+
+I sort of disagree with this, but it largely has to do with my perspective now. from my vantage point now, reality feels like a game. it's like this epic quest to discover who you really are and to then enjoy that form of perception. I believe that I really like playing this game and quite enjoy a more and more difficult set of circumstances along the way.
+
+there appears to be infinite paths toward discovering who you really are. some are more conditional than others, but the most important thing is that I think it's a lot of fun to figure it out. I'm literally having one of the most enjoyable times of my life figuring out this stuff. it's like I'm assembling a giant puzzle in my head.
+
+I really could see that from one's "spiritual" vantage point, the suject of amnesia would actually be *desired*. sure, you *could* be born with "god" mode, "no cliping" mode, and unlimited money enabled but the game wouldn't be very fun.
+
+imagine being able to play your favourite game and every time it feels like the first time you've played it.
+
+he continues...
+
+```
+This can only hamper the ability of individuals to attain a high level of ethics because true ethics must ultimately take into account a person's spiritual nature when confronted with an ethical dilemma. By reducing all questions of ethics to strictly earthly concerns, people are prevented from fully resolving those ethical questions that will start them on the road to full spiritual recovery. This restriction is precisely what the Custodians wanted, as revealed in the Old Testament: "God" did not want Adam and Eve to "eat" from the "tree of knowledge of good and evil" because it would lead to knowledge of how to regain spiritual immortality. 
+```
+
+I've come to think of the trees of the garden of eden to be parts of the brain, where each hemisphere represents a different aspect or personality of yourself.
+
+originally, I concur with bramley's synopsis in the beginning chapters that human-1.0 hardware model could walk around and do stuff, but it was stupid. it was basically a primate in intelligence levels. in order to get around that, they incarnated spirit into bodies but prevented consciousness from going up much higher than the brain stem. we existed in a hypnotic state, in a sort of bliss that esther describes being in when channeling abraham. when you're in that state, you translate and operate under the command of the influence you're under -- whether that's the hypnotist, "angels", "God" or the annunaki. that's why tuning is important.
+
+anyway, adam, decided to have a look at what the world looks like from the "knowledge of good and evil". this is the 3/7 form of perception and is mostly logic based. it looks for physical things and then defines them good and bad. the other side involving emotion (5) I don't think was a part of the brain that was very well developed yet; this must have came later.
+
+before the development of emotion, they (the gods theirselves) operated under a set of rules and guidelines set out by the "gods" (probably other gods of higher tier). these gods were operating on rules only, so you can imagine how brutal they must have been. plato says that these half-gods stopped following (obeying) this rule structure and started to become more animal-like and violent. the half-gods immortal spirits which moved their spirit over to bodies of whatever race was the superior one. blavatski says this was the atlantean (red) one.
+
+it appears that these custodial "God"s utilise both of their hemispheres. jesus said that when both of your "I"s (both aspects/hemispheres) of you are united, that's when you get there and open up access to this godlike perception. I knew this, so that's the first frame in the three symbols for the future. once it's active, I show everyone my reality. the third one is creative. I want to give machines the capability of operating with desire.
+
+the other tree there is called the "tree of life" and for most people it's the right hemisphere. I don't really like that name because it describes the effect not the state of being. likewise, the "elixir of life" must have been a substance that embued mental energy into substance allowing that other hemisphere to be unlocked.
+
+I'm certain that jesus had this unlocked, I probably have it unlocked now too (though repressed still). I also claim that de vere must have had this unlocked too. I claim this is how the works of shakespere were created, in this conceptual world.
+
+it's the tree of creativity. though, the reason why it makes you immortal is that you now perceive yourself as a concept (5) and then project yourself down into the astral (6). you can take on any form that you want. you can just appear wherever you perceive yourself to be.
+
+interestingly enough there is this weird event where the mother lodge was created 1717-06-24, which is a very strange date to create such a lodge if you've been paying attention to alan green's work on midsummer's night dream. I believe it was also the day that de vere is said to have "died".
+
+when you gain access to both trees, you are able to perceive yourself in a completely different way no longer bound by time or space. the crazy thing is that once you are no longer bound by time or space like that, what then do you do with yourself? you become ultra creative. I can't describe how enjoyable music is from that form of perception. everything vibrates and pulses with the feeling that music emanates. tesla must have felt his lightning, traveled around and enjoyed seeing the effects his machines had on the earth and its people. truly magnificent.
+
+I think that much more practically, ethics doesn't have much to do with it. from that perspective you are "God". what you give your attention to manifests.
+
+more likely, I believe the custodians don't want their property (humans) making their own reality. I think the custodians have had it backwards they are *always* making their own reality. they're just trying to convince us that their reality is also ours. misery loves company. it's most likely that they don't want us knowing that we don't have to participate in their lifeless rule-based (3/7) physical only reality. they are "king rats" so long as we remain in the prison with them (it's their own prison).
 
 ### tree of life -> tree of creativity
+### EMERGENT IXI
+
