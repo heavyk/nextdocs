@@ -7265,6 +7265,7 @@ so yeah I think I'm a marxist, minus:
 - the materialist origin of expereince
 - the reduction of desire to just need
 - the reduction of experience to just ownership
+- neither have I any intention of ever proseletising my ideas[^3]
 
 but yeah, synethesis :)
 
@@ -7279,6 +7280,8 @@ but yeah, synethesis :)
   unfortunately that got a bit too technical there. I need to find an easier way to explain that concept. 
 
 [2]: changes in direction that happen at the same time can be summed together. this is why I think of them as vectors summing their velocities. the environment determines what happens to these velocities, like how much the amplitude is reduced (resistance, etc).
+
+[3]: my ideas are my own. I choose to live my life without an emphasis on posessions. instead, I believe my reality reflects the way I perceive it. should I be right about those ideas, my world will eventually reflect it. those that are incompatible with my version of reality will migrate away. there's no need for me to try and push an agenda, at all. ever. it's just me battling my own perception.
 
 ### 2022-01-17 01:00 - why do we have to use fixed notes?
 
