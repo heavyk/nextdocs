@@ -1,0 +1,2 @@
+
+for mutual-back-scratching (which is a positive and justified exchange of goods/services) to work, the opposite impression must be created. that impression is that the love of money is the root of evil. loving money being evil doesn't feel at all like mutual-back-scratching. you have to want a monetary return for mutual-back-scratching to work economically. money isn't printed paper though, money is a symbol of power, freedom, wealth, pleasure and happiness. mutual-back-scratching has an exchange of one of these; usually wealth, power, and pleasure.

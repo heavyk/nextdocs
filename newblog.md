@@ -7205,6 +7205,81 @@ I think that much more practically, ethics doesn't have much to do with it. from
 
 more likely, I believe the custodians don't want their property (humans) making their own reality. I think the custodians have had it backwards they are *always* making their own reality. they're just trying to convince us that their reality is also ours. misery loves company. it's most likely that they don't want us knowing that we don't have to participate in their lifeless rule-based (3/7) physical only reality. they are "king rats" so long as we remain in the prison with them (it's their own prison).
 
+### 2022-01-16 17:09 - I think I am a communist
+
+I don't know what to say about this, other than I'm definitely a pure communist, in that I definitely believe in non-physical existance. however, there is an element of truth that this philosophy has. it's based on the concept of synthesis:
+
+```
+Hegel's idea of the "dialectic" can be explained this way: from a thesis (an idea or concept) and an antithesis (a contradictory opposite) one can derive a synthesis (a new idea or concept which is different than the first two, but is a product of them).
+Marx took this seemingly scientific idea and incorporated it into his theory of social history. 
+```
+
+this is exactly how I do most of the transformations in my head. I don't limit myself to thesis/antithesis pairs though to make a synthesis. all concepts can be combined to produce a synthesis. this is precisely how constructive/destructive interference works in light and wave vibrations. nothing new here.
+
+the idea here now is that the synthesis is the communist utopia. however, before we can get there, we have to subject them to the antithesis to the utopia for the utopia to emerge.
+
+```
+The communist vision of Utopia is a curious, but significant one. In it, everyone is a worker equal to every other worker. No one owns anything but everyone together owns everything; everybody gets everything they need but not necessarily everything they want; but before this Utopia occurs, everyone must first live in a dictatorship.
+```
+
+I suppose I agree with marx on the synthesis as being produced from the combination of concepts. I also agree with marx in that one should not fear unwanted, for there is nothing inherently wrong with anything. people participate in dictatorships because they resonate with it (eg. desire to have dictatorial power theirselves).
+
+in the interference patterns, the part of the wave which is the possession of dictatorial will get amplifed. likewise, the part of wanting possessions will get amplifed too -- whether that's possesions of power, goods, influence, etc. depending on your conceptual structure, you'll perceive that possesssion in a manner reflective of your concept of it. some will want that possesion to manipulate others, while most will just want that possesion as a means to ensure cooperation (which is also manipulation of people who don't want to cooperate).
+
+it's difficult to describe the this, but it's no wonder that possession and ownership (or lack thereof) are the ingredients to bring about that synthetic utopia. desire to possess of money, luxury, power, or influence is all the same vibration[^1] and therefore it's natural to look at it that way.
+
+---
+
+a simple way to look at a wave is that a wave can be reduced to a series of changes in direction that happen over time. each time there is a change in direction, this is the signature of the concept. if you mix two concepts together, you will get a resulting wave (the synthesis) that changes directions twice as many times[^2].
+
+now, we'll consider the wave to having a medium in which it propagates. that environment determines its resistance (negative or positive) and so now we can look at a wave as a series of values that alter the trajectory over every unit of time. if your time interval is one ms or something, we will consider the resistance of the medium * sum of each momentary input. each time interval the value of the amplitude can be calculated. if there are two inputs, then they add together... each momentary input integer is either positive or negative.
+
+when perceiving a wave this way, the signature of a wave is 2^t. however, if we consider negation produces something perpendicular to the impact, then that produces another integer which can also be positive or negative as well. then, in the case of recognising a non-physical (but vibrational) "energyverse" the signature of the wave will be 4^t.
+
+---
+
+ok, enough of that. let's go back to concepts... the more times that something changes direction, the higher frequency it is, and so therefore the more energetic it is. also, it means that the more times it reverses its direction, the more "unique" it is. similarity between waves can be looked at easily as the product of similar the input moments. both had positive inputs at some time. they can also be seen as similar when similar input happens at very close (rather than exact) intervals of time.
+
+---
+
+ugh, I keep getting out there... one more try. let's break down the marxist philosophy now:
+
+- everyone is a worker equal to every other worker.
+- no one owns anything
+- everyone together owns everything
+- everybody gets everything they need but not necessarily everything they want
+
+the first one I sympethise with greatly. I do not believe in the superiority of anyone. you are a reflection of a concept of yourself.
+
+the second one is a conceptually true thing. ownership is a conceptual reality. cannot own any physical thing. there are things that are vibrationally similar to you, like your body. however, even that is composed of a lot of other things which are constantly being built and rebuilt, none of which is "you". so then, what is "you" and what do you "own"?
+
+I don't know how to describe this so well. you "own" the things that are similar to you -- and what "you" is, is a concept. you are a concept of yourself. if you see yourself from the eyes of the planet, "you" are the planet, and you "own" everything on in/on it. you don't really own it. it's just vibrationally similar to you. if you put something into your body which is not vibrationally compatible with it, it tries to get rid of it. it says, this isn't me and tries to minimise its effects and return back to its "natural" state. so, in that sense, you don't "own" anything except the concept of who "you" are.
+
+the third one is similar cept I don't like the word "own" here in the positive sens. in that everything works together and vibrates with one another, no one really owns anything. you own the things you can chang. you cannot change the way an atom works. you can change how they are relating to each other, and so therefore can say, "I made this". these arrangements of energy are concepts, and you do own your concept of them. your concept of them is your consciousness and the way you arrange these concepts either works or it doesn't. if you could conceptualise the entire way that a planet works, your imagination would have a working version of that planet's physics as a part of "you". 
+
+just like a single musical instrument doesn't own the orchestra or the music it's playing, you really only relate and interact with things. ownership as a whole does not exist either.
+
+the fourth, I'm in a bit of disagreement with. this is the product of the "fatal twist" introduced in the third item there. you really only interact with everything else including your environment, so what you "need" is really just a picture of where "you" are in your evolution of desire (see evolution-of-desire). desire is who you really are, not what you want or need. desire is a word that doesn't work so well. we don't have a word in a language that I know of to describe this concept. I'll work on it for the future.
+
+so yeah I think I'm a marxist, minus:
+- the materialist origin of expereince
+- the reduction of desire to just need
+- the reduction of experience to just ownership
+
+but yeah, synethesis :)
+
+[1]: one way that one can look at these interference patterns, is, instead of a sequence of values (height, distance, volts, etc.) is to instead treat them as vectors. if you have two waves combining, and the values are 100 and -100, they will cancel to zero. that energy will go perpendicular to their intersection...
+
+  lemme back up further and talk instead about qualities of a wave. volume is amplitude, so we will ignore volume for a moment. when someone speaks, their voices is a series of vectors where the sound vibrates. it goes up then some time passes and it switches direction and goes down. if it switches direction 100 times per second, we say it is a 50Hz signal. every time that it changes directions (the peaks), you could also say that it loses energy in the direction opposite to the change in direction.
+
+  let's consider a pendulum: when it changes direction, it has come to a gradual stop before reversing directions. horever, if there is something that causes the direction to change rapidly like a sudden "jerk" opposite to its trajectory, then energy will continue in the direction it was already going (like sweat coming off of the boxer's body when impacted).
+
+  each time that a direction change happens, is the "signature" of the wave. let's consider it the rhythm of the vibration. that rhythm is what the mind does pattern recognition on to tell you that it is that person's voice. each voice will have a slightly different signature to it in to how much time passes between each reversal.
+
+  unfortunately that got a bit too technical there. I need to find an easier way to explain that concept. 
+
+[2]: changes in direction that happen at the same time can be summed together. this is why I think of them as vectors summing their velocities. the environment determines what happens to these velocities, like how much the amplitude is reduced (resistance, etc).
+
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
 
