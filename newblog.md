@@ -7280,6 +7280,28 @@ but yeah, synethesis :)
 
 [2]: changes in direction that happen at the same time can be summed together. this is why I think of them as vectors summing their velocities. the environment determines what happens to these velocities, like how much the amplitude is reduced (resistance, etc).
 
+### 2022-01-17 01:00 - why do we have to use fixed notes?
+
+as I was thinking about what I wrote about the waves having their reversals being important markers, I realised that a sine wave is always a sine wave. it's signature is always the same: two inflections per wavelength. an octave up would give two wavenlengths in the same time, and so therefore the inflections would not occur at the same time. therefore then the time that the signal's "vectors" (cause I don't know a better name) -- that is, when both waves are traveling in the same direction -- must have something to do with harmony.
+
+I really wish I had a computer capable of programming a way to visualise what I'm talking about. I don't really know how to do it in my head...
+
+anyway, an octave the flow would be the same direction for half of the time. I can't imagine what two octaves would be. I presume it would also be half the time. then, I got to thinking about fifths and thirds. I wonder how often the vectors are in the same direction for those intervals?
+
+I remembered the "pythagorean comma" and then I had a great epiphany: why do we use fixed notes? that's only necessary for fixed string instruments like a piano or a violin.
+
+in today's age, most music is composed on the computer. therefore, why are we using fixed notes? why not instead express the "notes" instead as intervals?
+
+there are a lot of advantages to using intervals, other than the deprecation of equal temperment and the removal of the pythagorean comma...
+
+say for example, your music starts at A440, then goes up 3 fifths, then down an octave, up 3 fifths, then down another octave, then up 3 more fifths.
+
+in the system of dynamic temperment, what you did is move the A440 up 3(?) pythagorean commas, and it would still sound good to the ear.
+
+in a sense, the musician can begin to use intervals to "tune" the listener's brain up or down in frequency. over the course of a song, the middle frequency can be adjusted up or down quite a bit using sequences of intervals.
+
+it would also be interesting to transform some old works of great musicians into simple intervals and see what sort of effect that has to the movement of the middle frequency.
+
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
 
