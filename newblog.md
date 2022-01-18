@@ -7335,7 +7335,7 @@ that balancing could have come about as a result of the different genetics and a
 
 after learning so much about LOA, I realise that when you know what you want, it's only what you *think* you want. that thing you think you want really is only a *feeling*. in the instance of creating something, I personify the thing that I am creating. I cannot create anything that I myself do not perceive myself to be.
 
-if I were creating a species, I would have a list of things that I wanted that species to have. when I was younger, my father would always tell me that he wants me to be "balanced". I never did fully understand what exactly lead him to want me to have so much balance, but I suspect that he felt himself to be very "out of balance" in his quest (probably) for enlightenment and spiritual understanding[^1].
+if I were creating a species, I would have a list of things that I wanted that species to have. when I was younger, my father would always tell me that he wants me to be "well-rounded" (balanced). I never did fully understand what exactly lead him to want me to have so much balance, but I suspect that he felt himself to be very "out of balance" in his quest (probably) for enlightenment and spiritual understanding[^1].
 
 in the same way, I could easily imagine that one reoccurring theme for the new species is that it would balance the human and the divine aspects. I would have a list of other things that it would *feel* like to be incarnated into that species.
 
