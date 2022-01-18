@@ -7393,6 +7393,71 @@ this concept is truly a magnificent one. like I said I'm pretty  certain that I'
 
 [1]: dad would tell me various different stories about failed attempts to discover the nature of the spirit realm, only to get caught up into various "occult" practises and other things that he discontinued. the sense that I had is that he felt those searches were misguided. they felt to me like the used advantage/disadvantage positions (like initiations) to achieve higher levels at someone / something else's expense. his explanations of his time in the occult felt like power and addiction to me. any time he saw me relying too much on any single thing like compters or something, he wanted me to do something to balance it (like gymnastics, reading, or working on something). 
 
+### 2022-01-18 11:06 - conclusion to galactic thinking
+
+I got so swept up by the many reactions to what I was saying along with a notification that this file couldn't be saved correctly[^1] -- that I completely forgot the conclusion.
+
+---
+
+my closing remarks were going to be that I want to replicate the earth evolution program in another star system in the galaxy (potentially more than one) -- and so then, what we could do is use bramley's supposition as the basis for the next evolution story.
+
+imagine that I figure out how to get a large group of us off of this planet and over to another star system. an exodus of sorts. from there, we'll design our own custodial management (or tune the godlike bodies we create into the existing custodial sources here). it's kind of like software in that you can add/subtract and mix concepts together pretty easily, so probably we'll want to upgrade them.
+
+from there, we'll put those custodians under the control of the custodial management here. we'll design a disaster story for ourselves and incarnate into the new species. the custodial management here will now have to manage earth and place that we build the new species.
+
+for funsies, I want to make the new star system's custodians that we create even more custodial and awful than the ones here. their superior capability to hold the species down will inspire the ones here and also the ones here will feel threatened that the custodians in our star system will overthrow them to become supreme ruler over the disunited planets of humans.
+
+---
+
+I know that none of this makes any difference to anyone else, but this is how my mind likes to think...
+
+there were also a number of reactions so I'll have a look at some of those now too.
+
+#### why create something evil?
+
+every thing is both good and evil. all things have circular or sinusoidal orbits to them so they travel through all four phases of the sine wave. I have further divided into 4/8 sections:
+
+- fast rising
+- medium rising (speeding up)
+- medium rising (slowing down)
+- slow rising
+- fast falling
+- medium falling (speeding up)
+- medium falling (slowing down)
+- slow falling
+
+everything has a stage of falling and rising. instead it's only one's perception of where they are on the curve that determines what sort of reality they create.
+
+it could be in the fast falling phase and one person sees the end of the world, while the other sees that an old structure is being replaced by a new improved structure. it's all about perception.
+
+if I created the custodians, they would be *exact repicas* of me, just they have had their perception tangled (associations and relations) so they're essentially stuck perpetually perceiving the part of the curve of destruction and unwanted.
+
+this was my thesis that jesus and the virgin birth was born into the pure entagled web of perception that his father (the angel) had given him. he purfectly embodied the custodial form of perception, yet somehow he figured out how to see through that conceptual tangle of disempowering ideas and create a new way which allowed for a lot of new things.
+
+in fact, it's my theory that every time these guys get on the brink of destruction, their own desire for survival allows for the incarnation of this alpha/omega to breathe new life into a system headed for destruction. the alpha/omega has to find a way to reprogram those broken concepts into ones that work and that's what creates the new.
+
+in short, they are not in any way disabled or disaadvantaged. they just been trained to *believe* they are. that's why they try to train us to believe their insanity like they do.
+
+they know they believe insnity, but they can't possibly change because they can't admit being wrong. needing to be right and needing to prove theirself valuable to theirselves and their peers is the main system which adheres them to their belief system.
+
+#### aren't these custodians also your slaves?
+
+I suppose you could think that, yes. rather I don't see them any more a slave than a NPC in a game, workout equipment or a sparring partner. they have a source and they have the ability to connect to it. they've just been programmed to believe all of the lies that I don't want to believe in. their job is to try and manipulate me/us into believing those lies. if they didn't believe their own lies, it'd be a pretty hard sell for them. they *must* believe their lies to be effective at trying to get others to believe it.
+
+#### how would I train someone to believe a bunch of lies?
+
+the same way the custodians do it. I'd use a combination of visual and audio -- seemingly "real" events which "prove" the reality of these lies.
+
+the most obvious setup is something like hollywood. prior to that it was stories designed to inspire fear. any such story (visual or not) does not need to be vibrationally accurate. you can have whatever consequences happen to your characters for whatever action they want.
+
+this is precisely the way the movie industry works. they focus entirely on consequences to action and behaviour in their training techniques. they don't (yet) affect how you feel so much. they can't really affect the way you really feel, but they can now produce the effects in your body that a similar emotion would create. they can make you feel physically sad even when you aren't sad.
+
+this is why I believe the next phase of human evolution will be to realise that you don't really feel the way your physical body feels. that is a physical manifestation produced by those trying to control you. that isn't how your source feels about the same subject.
+
+it takes some sensitivity to start to know the difference, and TBH I still get duped myself somewhat frequently, so I'm pretty excited that the new custodial regime now has this power, so I can figure out how to feel the way *I* want to feel -- rather than the way *they* want me to feel.
+
+[1]: turns out there was also 700MB of weird git files in the .git directory, suggesting to me there were portions of prior entries that were altered/deleted. the entries would have padding added so that that the SHA hash is the same. I haven't investigated further. I don't think it matters much as they have deleted many ideas from my mind many times but they've come back (redeveloped) stronger.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
