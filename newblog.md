@@ -7305,6 +7305,95 @@ in a sense, the musician can begin to use intervals to "tune" the listener's bra
 
 it would also be interesting to transform some old works of great musicians into simple intervals and see what sort of effect that has to the movement of the middle frequency.
 
+### 2022-01-18 01:14 - more galactic thinking
+
+I finished "gods of eden" a few hours ago. I had skipped the first few chapters starting on chapter 4, so I went back to read them. I didn't think I needed to be introduced to a subject that I have already myself given considerable research.
+
+what I found in that intro was the piece that I had missed in understanding bramley's entire argument. for whatever reason it went right over me.
+
+his hypothesis in this book is that "ancient astronauts" came to earth made a slave race of humans and then manage earth and its slaves from a distance through power structures.
+
+I didn't understand that he thinks we're still managed from a distance.
+
+---
+
+personally, I believe that the "ancient astronauts" actually did not come from another star system. they came from mars. now, how they got on mars is a whole nother question that I'm sure if someone knows, is likely a big secret.
+
+it seems that these "gods" wbere capable of traveling within the solar system in their ships just fine. I don't think they had the ability to travel outside the solar system though.
+
+there are a lot of interesting coincidences that these "gods" seem to have which gives me the impression that that this malevalent force was installed here on purpose, actually to be the driver for our evolution.
+
+I know that sounds like a bunch of that nonsence from the "ascended masters" or whatever lame spiritual hierarchy is justifying genocide. however, I'm beginning to think it is. this subject is connected to the one where I was asking jaron how he would evolve a species that he seeded another planet with.
+
+before I begin that, I want to point out that the original "gods" had 6 fingers and toes and 23 chromosomes. we (the primate species we came from) have 5 fingers and toes and 24 chromosomes (two are fused together now so we have 23).
+
+I notice a reoccuring theme of 11 arising in symbolism, which is the balancing of the 5 (human) and the 6 (god). the sumerian number system is such a balance. the used a base 60 system (sexigesimal?) which is kinda weird if you think in units of 5 or 10. the "gods" would think in increments of 6 or 12. so then  5 * 6 = 30, 5 * 12 = 60, 10 * 6 = 60, 10 * 12 = 120, 30 * 12 = 360.
+
+that balancing could have come about as a result of the different genetics and a desire for the gods to integrate with the humans. however, I believe it was planned from the beginning.
+
+---
+
+after learning so much about LOA, I realise that when you know what you want, it's only what you *think* you want. that thing you think you want really is only a *feeling*. in the instance of creating something, I personify the thing that I am creating. I cannot create anything that I myself do not perceive myself to be.
+
+if I were creating a species, I would have a list of things that I wanted that species to have. when I was younger, my father would always tell me that he wants me to be "balanced". I never did fully understand what exactly lead him to want me to have so much balance, but I suspect that he felt himself to be very "out of balance" in his quest (probably) for enlightenment and spiritual understanding[^1].
+
+in the same way, I could easily imagine that one reoccurring theme for the new species is that it would balance the human and the divine aspects. I would have a list of other things that it would *feel* like to be incarnated into that species.
+
+the next thing is that the species should be built for *me* to inhabit. I am designing a species that will evolve a body that I want to incarnate into. I am the end-user and target audience of the product/species I'm designing.
+
+the final and most important thing that I would do is make another list of all of the things I *don't want* is for the species to be vunerable to. most of these would be pitfalls in my own experience that wish to pass along to the new species.
+
+so, for example, let's say that I have gotten duped by a bunch of sales pitches, and I want the species to be very wise and perceptive of those sleazeballs.
+
+I could try to give them teaching and instruction to avoid those things, but that will be about as effective as public school teaching, I'm sure. no one ever really learns with words. it's experience that teaches. therefore, in order to make sure that they are not getting duped by a bunch of sleazy sales pitches, they need to be subjected to a lot of really bad ones until it becomes natural/normal for them to see through the pitch.
+
+you may be able to see where I'm going with this one. let's say that I don't want the species to be prone to violence -- well, then I need to design a second species that embodies everything that I don't want the species to have, and make sure they become the species "custodians".
+
+---
+
+the first thing I would do is to manufacture the custodial bodies to have the divine attributes that I want the species to have. however the "spirit" that will incarnate into that body is artificial, in that I created it to robotically follow the entire concept of unwanted.
+
+they will go on to one planet. knowing LOA, I know that one cannot give their attenttion to so many unwanted things and not have their reality reflect their perception. with the custodial form of perception, it's inevitable that they will destroy the planet they're living on.
+
+this will force them to move to another planet. they will have all of the technology they need to do it. they rely on their technology to do everything (cause they don't believe they're programmed to beleive that they cannot change their perception. they are constant). therefore, they'll go to the second planet where the primate species is waiting for them.
+
+the custodians will destroy everything that they create. it won't be long until they destroy the second planet too. they'll also be destroying their own bodies as well. each generation will continue to breed more and more negative qualities. this is because of their perception. they're designed to destroy everything they focus their attention on.
+
+the custodial society is structured in such a way that they start out with power structures and the unwanted concept ones are running the show. it's designed that they'll continue on their power. because they're parasites, they need a host to give them their resources. therefore, the rest of the society will be inhabited with people like myself. we'll take orders by the custodial upper management to use the primates of the other planet to create the genetics which we'll transfer out consciousness into.
+
+the goal will be for us to use the technology we left ourselves to create the new species design from within the custodial society. this is phase one.
+
+after this happens, the custodial society has to move to the planet of the primitive species because their planet is suffering their perception.
+
+---
+
+once they're over to the other planet, they're stuck there. they've done such a good job destroying their bodies and environment they realise that there's no way for them to leave this new planet either. they need someone to build them a way off of the planet. it would be a very good storyline to have the custodial management kill their own engineers -- like say maybe over a dispute over how intelligent the species should be allowed to be. it can come any way, but they need to burn all of their bridges, forcing their engineering team and theirselves to be "stuck" incarnating into the bodies of the new species. phase two complete.
+
+now, it's just a rinse and repeat cycle. they need to find a way to manipulate the new species to create a solution for them to get off the planet or regain the godlike experience that they lost, however, they want to do so without the new species figuring it out for theirselves. they will have to be secretive with all their intentions to ensure that the new species doesn't figure out that their custodial managment completely relies on them having no ability of their own to produce what they want.
+
+---
+
+the individul events can be swapped out for others like how they get stuck into the same bodies as their inferior creation -- and, how their original power structure is realised. however, I modeled this idea heavily off of what I believe earth's history to be like.
+
+the important point here is that the genetic improvements are driven, not by the species, but their custodians. the species, if left alone would be nice, peaceful, and wonderful because they're not these robotic concepts incarnated into the bodies. it's the custodians that are stuck in this infinite loop to try and impose their own beliefs into the species. they represent all of the things that I wouldn't want -- the sleazy sales pitches, the violence, the materialistic perception -- and they *must* convince the species they *are* (I am), all of the things that they are. if they don't, they'll be found out to be the true inferiors.
+
+---
+
+as I'm writing this, I'm realising that this sounds completly psycopathic. sorry, that's how I think these days. I've learned how to think like a custodian.
+
+it's kind of weird. knowing what I know now, I could *easily* take over the custodial role without any problem and do it without any effort.
+
+I probably don't want to become the custodial management. they really do represent everything that I do not want to be. if I were to take it over, I would do it entirely differently. I would just continue to create a bunch of automatons that embody the next set of things that I don't like about myself and others (self-duals). I'd then release them into the human population to cause problems. I'd then incarnate into a body and find a way back to my source perspective even with the new boneheads running the show.
+
+---
+
+another thing for me to think about is how does this work in LOA rules. my initial idea on it is that there are no consequences, because true to nature, I'm only really fighting myself. for other people though, I suppose they can only blame theirselves for attracting kenny's demons into their reality.
+
+this concept is truly a magnificent one. like I said I'm pretty  certain that I'm going to be utilising this same concept of custodians in the next planet that I move to. I'll be the engineer for the new species, create the unwanted concepts, and then incarnate into the new species along with the unwanted concepts.
+
+[1]: dad would tell me various different stories about failed attempts to discover the nature of the spirit realm, only to get caught up into various "occult" practises and other things that he discontinued. the sense that I had is that he felt those searches were misguided. they felt to me like the used advantage/disadvantage positions (like initiations) to achieve higher levels at someone / something else's expense. his explanations of his time in the occult felt like power and addiction to me. any time he saw me relying too much on any single thing like compters or something, he wanted me to do something to balance it (like gymnastics, reading, or working on something). 
+
+### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
 
