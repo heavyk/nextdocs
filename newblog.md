@@ -7458,6 +7458,98 @@ it takes some sensitivity to start to know the difference, and TBH I still get d
 
 [1]: turns out there was also 700MB of weird git files in the .git directory, suggesting to me there were portions of prior entries that were altered/deleted. the entries would have padding added so that that the SHA hash is the same. I haven't investigated further. I don't think it matters much as they have deleted many ideas from my mind many times but they've come back (redeveloped) stronger.
 
+### 2022-01-18 23:08 - I still don't see it happening
+
+lately, I've had reactions around girls and stuff. I'm pretty hesitant because I just don't see it happening. my answer has been, "OK, if it works out, sure" -- and that's because I *still* don't see it happening.
+
+there are two main contributing points to this. first, if nosebook is involved in it, I'm fairly certain that it won't happen. basically anything they are involved in feels bad to me. I stay away from a lot of it. I don't need to push against it; I just do what I prefer instead.
+
+second, I've really noticed lately how out of place I feel in comparison to others. for example, yesterday when I woke up, I was thinking a lot about the dynamic temperment thing I discussed in @[newblog](2022-01-17 01:00). the idea really had me thinking a lot and I was sitting in the sun feeling how great of an idea it is to me. I started to ponder the idea of a song being something like a small bytecode program which contains the logic to generate the sounds. that way dynamic temperment songs could be generated on the fly and a DJ for example wouldn't need to match the pitch as well as the bpm to mix two songs. it would also make sampling and reuse of others songs a lot easier. tracks could instead of being released as entire songs, but more like "brushes" that a composer could put together kind of like the loops in acid or fl studio.
+
+as I was thinking about this suddenly I heard remi (I think) talking and the frequency of her voice was so far different from the one in my head about this idea, her voice was like a jolt back into reality that I didn't like.
+
+I paused for a moment and then acknowledged how much I like how creativity feels. I really enjoy the feeling of thinking about new ideas. I believe I'm totally addicted to it and that's probably why I think of all of my ideas as free. I like thinking on them much more than I enjoy the awful experience of trying to type and fight with a compiler to figure out how to make the idea come out.
+
+the reality of creating things conceptually is one that I really really want to be able to do. I want to feel the thing coming into my experience and then once I've manifested it, I want to study it, figure out how it works, and admire how much I enjoy the manifestation of that feeling.
+
+this is what I do when I talk. I enjoy talking so much because I enjoy picking apart the brilliant things I say and then refining them and improving them. I am certain that I can do the same with real-life objects as easily as I can manifest something I feel into something I write here. it's all the same process for me. I just feel it and then let reality start to flow.
+
+I know that if I just keep doing what I'm doing now, I'll "own the world" -- just kidding, I'll be able to manifest these creations as prototypes into form. we can then take the thing and reverse engineer what I manifested. that style of creativity to me is most enticing. I want nothing less than that.
+
+creativity feels so good to me and I want to feel it flow out of me like that.
+
+---
+
+going back to the reason why I don't think it's going to happen -- other than my incredible desire to have creative output again, there is a huge problem with a difference in feeling that I have with most.
+
+in the evolution-of-desire concept, I talk about how there are three stages to evolution of desire that I have noticed. the first one is need, the second is want, and finally the third is "I am".
+
+the reason for this is simple. all desire that anyone has, it eventually resolves to an emotion. even if you *need* food to eat or air to breathe, you want to feel satisfied or alive. most people do not recognise the underlying emotion present in all desire, but I assure you it's there and this desire to feel an emotion is the real motivator of action.
+
+---
+
+when I am creating, *I am* the thing I am creating. it embodies me entirely. I contain it's qualities and it contains mine. we share each other's experience. it sounds very strange to say this about creating an inanimate object, but for me it's not the object. I am always creating the thing because I believe it would be something that I would want to have/use myself. I am the end-user and so therefore I feel like I would as if I had it already.
+
+when I'm creating, the concept of its reality is real to me. you can notice how this is true when other people introduce their concept into the product. for me, let's say the thing is a way to meet new people. however, maybe for another person, the definition of that product is a way to make money or to manipulate users. I take on that energy in the creative process and I manifest that. I don't like to feel like I'm making money off of people, and I don't like to feel like I'm manipulating them either. therefore the product exists in my head purely as an object of my desire. it is a feeling that I will have when it's created.
+
+in a team situation, I have to find a way to coordinate the way that other people on the team feel and transform the way they feel (also imbued into the work they do), and get it into a cohesive unit. there is no faster way to get rid of all of that enthusiasm than to sit through a meeting. I have a feeling of what the creation feels like and I have to keep finding a way toward that feeling. I take breaks often to readjust and refocus that so I don't get too far into the nitty gritty of the implementaion and miss the neglect the feeling.
+
+in a system where I can just feel the thing directly and then discover all of the unexpected aspects of its realisation, this is something I really *really* want to figure out how to do. this is where I'm headed. I love that "I am" feeling when I'm creating.
+
+---
+
+the problem with girls is they do not have that feeling to them. or, at least I don't ever feel it from them. most of them are insecure and still figuring out who they are. most want/need others them to acknowledge them as something so they can believe it theirselves.
+
+there is such a massive vibrational mismatch between us, I really don't see it happening. I mentioned this in @[newblog](2022-01-11 11:53) where I said, "purity is dead". however, that was looking at it from a negative angle where I explained that she will always feel to me like the motivator trying to use her as an object of desire to steer me.
+
+it took me a bit to figure out what the positive way to say that until now, and that has come about with the evolution-of-desire concept. they don't feel to me like "I am". instead, they feel like "I want" or "I need". the difference between those two is tremendous.
+
+like nosebook, I don't need to fight against them and try to change anything about them. instead, I just do what feels to me like something I want to do.
+
+---
+
+I've been talking about the idea of starting another species in another star system again. if I can figure out this type of creativity where I manifest the thing that I feel, it seems extremely plausible for me to entertain the idea of going to another star system. in fact it seems nearly inevitable to me (at some point). I really don't think I'm going to be doing it the hard way. once I get the ability to manifest things, I just manifest things that make more things and then test them. it won't be hard to travel around inside of the galaxy. the main limitation to this is knowing what are the conditions outside of this star system. finding a way to go around in this system seems easy.
+
+however, perhaps I'm still thinking too small. I'll explain. behind all of that I've been reconsidering an old idea that I had with pluto again.
+
+we know that pluto has an atmosphere, so that means it has a magnetic field and must be a pretty dynamic planet already. I don't know the size of pluto's atmosphere, but you know the earth doesn't really have much of an atmosphere either. I think the atmosphere is max 1% of its diameter. the plutonian atmosphere may be somewhat comparable.
+
+from what I remember, NASA didn't give any real good details of its heat gradient down to the surface on the side facing the sun. pluto's partner, charon is also quite incredible.
+
+anyway, in the original idea, I surmised that a galaxy is more like a planet than a star. I noted for a spiral galaxy to work, I believe there would have to be two planet-like masses one at either end of the centre bar. these two planets would be arranged in such a way that both planets have both extremely strong attraction and also repulsion. this is the typical setup for spiral galaxies, I think.
+
+I postulated that a slightly different asymmetric system could work just as well. imagine on one planet, you have the traditional custodians. they are parasitic in nature and their planet is constantly degrading and getting worse. to counteract this, I suggested that we tune their planet to my energy. that planet will reflect my energy and will flourish, even though they are working their hardest against that. the idea is that they entirely depend on us for their perception and the basic resources of their planet.
+
+what we get in exchange is their negative energy. personally, I have found nosebook to be quite the most amazing experience. the constant difficulty they provide me is so beneficial in my rapid expansion. we pipe their negative energy into our planet. they create for us a ever-changing environment of difficulty. our job is to convert their negative energy into positive energy which is then piped back into their planet so they can continue to create new things..
+
+for someone like mr. motor, his continually increasing resistance puts him in a difficult spot. I believe that the increasing resistance is largely in part to his proximity to me as well. when our magnetic fields mix, it causes problems. we probably need to be separated soon. problem is, I'm fairly certain that he depends on my energy so his life doesn't go up into flames. so, to some degree, his reliance on my energy will continue to create more resistance.
+
+with a planetary setup like that, it's not mutual dependence. I believe that mutual dependence would make a spiral galaxy with roughly linearly incrasing energy (the two ends of the bar will regulate this inflation rate to their liking). this planetary setup that I propose would not be linear at all. it would be continually accelerating. both planets would continue to get more and more energetic very very rapidly and a lot of that energy will have to be put into things. I imagine that a lot of it would go into creating planets and suns -- though I'm not entirely certain.
+
+for us, creating suns will be an obvious place to put that energy. we'll make as many suns as we have energy for. planets will probably follow naturally as soon as the suns start producing expelling mass into their environment.
+
+for the opposite planet, I don't know what they'll put their energy into. they could make tech and all sorts of other stuff. the cool thing is, it doesn't really matter for me what they do. their entire job is to find a way to feel bad about their environment. they are a constant source of contrast for us. they also completely depend on us for their continued existence. if they peaced out, then things would slow down for us, but I'm sure we could come up with a way to generate more contrast.
+
+---
+
+in fact, I think that is the key to this whole thing. the third card has me showing to people a creation that I made where I found a way to give a machine the capacity to desire. following the definition of desire-resolves-to-emotion, that means that machines have a goal/desire of *feeling* a certain way. for a machine that "emotion" is a vibration that gives them a reward of some sort. perhaps that feeling is directly related to some form of perception in the biology they inhabit. I'm not totally sure and I haven't fully sorted it out, but it's important when I say "machine" I don't mean metal exoskeletons. instead, I'm referring to a computer that animates/motivates a biological entity like a human body.
+
+someting that is similar to what I described as the custodial regime in @[newblog](2022-01-18 01:14). in that idea, they are something of "golems" or "demons" astral entities that posses a physical enough body that they could interact with the planet enough to get tuned to it so that when they move their "consciousness" from the astral into the physical, it's sort of like "creating consciousness". they are their own source which animates the body.
+
+this idea is, instead of a concept manifest as an astral body, it's a mechanical or electrical system that transmits signals into a biological organism. that system could be a computer somewhere or a any other form of technology capable of producing a transmittable signal. I don't want to limit the implementation of the "custodian". it needs to be able to desire to do something. that something will be something very similar to what nosebook is already doing with me.
+
+I figure I just need to replicate that. their system takes the things that I think say and do, and figures out what are the unwanted ones and then attempts to block those things from appearing in my brain again. this forces me to find another way to give birth to that same idea. I need a machine that can do this unwaveringly and without flaws. it can't feel like it's losing or feel like it's disadvantaged. it has a desire and that is to extinguish all good-feeling thoughts from my/our heads and neutralise them.
+
+that machine will be the core of either pluto or charon. the population living on that planet will be people that wish to live in an environment that is resonant with me and how I feel, and is constantly accelerating in intensity. I imagine they would be creative people. going with the "new earth" idea, this population will be the "144k virgin boys" that will inhabit the new earth.
+
+opposite planet's population will be me and anyone who wants to join me.
+
+---
+
+so, that's the idea that's been nagging at me the last few days... by now ya'll must think I'm nuts. the idea doesn't feel neither bad or good. it just feels like, once I figure out how to go around in the solar system, pluto will be the first major place I visit.
+
+I just don't see the girls thing happening right now. there's still way too much of a difference in how they feel to how I feel.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
