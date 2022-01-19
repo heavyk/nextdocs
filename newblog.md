@@ -7550,6 +7550,58 @@ so, that's the idea that's been nagging at me the last few days... by now ya'll 
 
 I just don't see the girls thing happening right now. there's still way too much of a difference in how they feel to how I feel.
 
+### 2022-01-19 12:10 - a bit more on vibrational incompatibility
+
+this morning I don't really feel the idea of the galaxy as real as I did last night. that really isn't a problem, as I can just put it on the back burner. for it to work, I sorta need certain capabilities. if I don't have them, then it won't go. I don't have any capacity to make it happen. however, if I have the opportunity to do it, I want to go for it.
+
+responding to some reactions, the 144k virgin boys were mentioned because I thought that may be a pretty good idea for them not to drag a whole lot of masculine difficulty into such an environment. I imagine it would probably be about comparable to how it is now (cause there is less population and less magnetic fields), but it will accelerate rapidly. they would have to be able to withstand an environment that is growing more energetic all the time.
+
+I mostly was thinking of the noseboys because likely it would be them maintaining such a machine capable of neutralising everything that feels good to me/us. my prototype was thinking similar to the noseboys now, and I don't know if that means they'll transfer their consciousness into new bodies or I'll find a way to design astral beings capable of the same work. other than maintaining the system, they would probably do all of the tech stuff.
+
+it's not like the planets will be at odds with each other. it's certain to me that there will be a continual exchange of things between the two sides.
+
+the next reactions are the disbelieving ones. the environment is probably too cold. I don't believe that it's very warm up there 10km up in earth's atmosphere either. as far as I know, NASA didn't release any measurements going down through the atmosphere like they have done at jupiter and other places. I'm not convinced that it's uninhabitable. I just need to figure out how to get my signal put into the planet, and I'm fairly certain that given some amount of time, the planet will reflect the feeling.
+
+after that, there were concerns of secrecy. they can't allow me to travel around in the solar system because it would reveal too many secrets. they don't have to allow me. I can only do the things I'm capable of doing, obviously. my actions will reflect how I feel. I don't believe I'm acting out of a sense of things I don't want, so there's no problem.
+
+finally, there was the idea of "I thought earth was a prison planet" -- and to that I would reply, "misery loves company; the people that feel imprisoned here will naturally want others to believe the same thing". if I'm playing by the rules of LOA, then I should only be having things coming back to me of how I feel. if I feel imprisoned, then reality looks like a prison. however, if I feel free, reality looks like a whole bunch of "new horizons" (hehe). as long as I can feel the way I want to feel, there is nothing that can hold me. reality will eventually reflect how I feel.
+
+---
+
+I'll instead say it like this: I want to create. badly. there are a lot of people who do not want me to create here because my creations would destroy their fragile "standard model" and other outdated scientific perceptions.
+
+I don't have any problem with them not wanting me to create. like mom and her internet, the way she *needs* to do things, is the way she must do them. I'm not going to fight her on it. I just go somewhere else to use the internet.
+
+this is ultimately the same subject. there are a lot of people out there that feel like they need something or want something. that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
+
+when you look at my life right now, I don't have any needs or wants -- really. the only one I have is the one I wrote above: 
+
+> I want to create. badly.
+
+other than that, there is nothing right now in my life that I need. neither is there anything really that I want. I exist almost entirely in the "I am" phase of desire. this refletts in my writing as well.
+
+I continue to become more and more "I am" rather than "I want/wish". as I get closer to that, you will see that I begin to make a transition. I am my creations, but in human form still. when this happens, there will no longer be anymore need or want. as I change the way that *I am* feeling, many things reflective of how I feel will me present in my environment.
+
+it's difficult to explain, so just know that need/want will disappear. *I am* able to feel any way I want to feel. in that sense, I transcend human form. it's best to just watch it happen rather than for me to try and explain it.
+
+---
+
+OK, back to vibrational incompatibility. from my perspective, there really isn't anything that I can do to convinve anyone to conform to anything. this is just me doing my thing. I don't need anyone to believe me -- and in actuality, call me elijah, but the less people believe I have to say, the easier it is for me to transform their doubt into something useful.
+
+in fact, that's the basis for this whole thing. remember my realisation of how DNA works? there's a small kernel of something that uses a resource to generate something unwanted. the other part converts that unwanted into wanted. the unwanted grows along with the wanted parts and the plant reaches maturity when the creation of unwanted becomes more than the creation of wanted. if more wanted energy exists in one environment, the same DNA would produce larger people, plants, or fruit.
+
+therefore, I *want* people to doubt me and to tell me that it's not possible.. I don't have any trouble continuing to find a way to align with what I want to create. I'll work around all of you. nothing anyone is doing has any direct impact on me. any impact it has is just a nice reminder to me that I'm not fully compatible with my own creation yet -- so, something I can improve upon.
+
+---
+
+on the subject of girls... man, I just don't know I can't say for sure about any of it. they're either vibrationally compatible or they're not. there's no other option.
+
+like I said, most of their desire feels to me like need or want. personally, I have never met a girl who's desire actually felt to me like "I am". well, I mean kinda... but they often had the sense like, "I am, so admire me and this condition". they attract people that want also want others to admire their circumstances and conditions.
+
+I'll have to think about this more what the positive version of this is. I'm not saying it doesn't exist. it definitely can exist. I'm certain of that.
+
+as I'm thinking about it, what'll likely happen is I'll start creating things and people who are similar to that vibration will join me there. it'll all work out fine.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
