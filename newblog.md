@@ -7568,13 +7568,13 @@ finally, there was the idea of "I thought earth was a prison planet" -- and to t
 
 ---
 
-I'll instead say it like this: I want to create. badly. there are a lot of people who do not want me to create here because my creations would destroy their fragile "standard model" and other outdated scientific perceptions.
+I'll instead say it like this: I want to create. badly. there are a lot of people who do not want me to create here because my creations would destroy their fragile "standard model" and various other outdated thories.
 
-I don't have any problem with them not wanting me to create. like mom and her internet, the way she *needs* to do things, is the way she must do them. I'm not going to fight her on it. I just go somewhere else to use the internet.
+I don't have any problem with them not wanting me to create. like mom and her internet, the way she *needs* to do things, is the way she must do them. they hve to the things they *need* to do. I'm not going to fight anyone on what they think they need to do. I just work around it like any other limitation. this is the inventor's way. don't argue with others about rightness or if it's even (theretically) possible; just find the way for yourself.
 
-this is ultimately the same subject. there are a lot of people out there that feel like they need something or want something. that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
+this is the same concept, just a different subject. there are a lot of people out there that feel like they need something or want something. that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
 
-when you look at my life right now, I don't have any needs or wants -- really. the only one I have is the one I wrote above: 
+when you look at my life right now, I don't have any needs or wants -- really. the only "want" I have right now is the one I wrote above: 
 
 > I want to create. badly.
 
