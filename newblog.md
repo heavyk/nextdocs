@@ -7572,7 +7572,9 @@ I'll instead say it like this: I want to create. badly. there are a lot of peopl
 
 I don't have any problem with them not wanting me to create. like mom and her internet, the way she *needs* to do things, is the way she must do them. they hve to the things they *need* to do. I'm not going to fight anyone on what they think they need to do. I just work around it like any other limitation. this is the inventor's way. don't argue with others about rightness or if it's even (theretically) possible; just find the way for yourself.
 
-this is the same concept, just a different subject. there are a lot of people out there that feel like they need something or want something. that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
+this is the same concept, just a different subject. thinking that pirating software is an acceptable thing to do is conceptually the same thing as the notion as traveling faster than the speed of light. I'm not going to argue with the limitation. many people out there are certain that they *need* something or *want* something. I contend that it's is a desire to feel a certain way (see desire-resolves-to emotion). therefore the desire for anything is a desire to be rather than to have (see evolution-of-desire and to-be-or-not-to-be)
+
+that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
 
 when you look at my life right now, I don't have any needs or wants -- really. the only "want" I have right now is the one I wrote above: 
 
@@ -7590,7 +7592,7 @@ OK, back to vibrational incompatibility. from my perspective, there really isn't
 
 in fact, that's the basis for this whole thing. remember my realisation of how DNA works? there's a small kernel of something that uses a resource to generate something unwanted. the other part converts that unwanted into wanted. the unwanted grows along with the wanted parts and the plant reaches maturity when the creation of unwanted becomes more than the creation of wanted. if more wanted energy exists in one environment, the same DNA would produce larger people, plants, or fruit.
 
-therefore, I *want* people to doubt me and to tell me that it's not possible.. I don't have any trouble continuing to find a way to align with what I want to create. I'll work around all of you. nothing anyone is doing has any direct impact on me. any impact it has is just a nice reminder to me that I'm not fully compatible with my own creation yet -- so, something I can improve upon.
+therefore, I *want* people to doubt me and to tell me that it's not possible.. I don't have any trouble continuing to find a way to align with what I want to create. I'll work around all of you. nothing anyone is doing has any direct impact on me. any impact that it has is just a nice reminder to me that I'm not fully compatible with my own creation yet -- so, something I can improve upon.
 
 ---
 
