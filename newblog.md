@@ -7664,6 +7664,61 @@ I really don't know. I guess we'll *need* to wait and find out :)
 
 [1]: I think that's the attraction and repulsion which can create those counter rotating layers of greater and lesser density.
 
+### 2022-01-22 14:21 - I think I'm starting to see the light
+
+after writing last night's entry, I noticed that I started to have these flashes of ... maybe the best way to describe it is, "the coming golden age".
+
+I was always pretty aprehensive to the golden age idea, because it means that there are good conditions and people can rely on that without needing to tend to their vibration in the sense that when conditions are good, it's much harder to notice a small amount of negative emotion. therefore, it's much easier to grow dissatisfaction under good conditions[^1].
+
+it's for this reason that I never liked the golden age idea so much. it just feels to me like a recipe for disaster. the only good thing that I can see coming from it is that once a person has experienced good conditions, it's hard to go back to bad conditions. that in itself creates tremendous desire to find a way for good conditions. that desire can be interpretted any way possible but rather than altering one's perception (point of attraction), most people opt to cheating, disavantaging other, and climbing over anyone in their way to get what they want. in that sense, because few people want to alter their perception, golden ages seem to breed an even more potent "dog eat dog world".
+
+---
+
+the major breakthrough for me is that assuming the flashes that I see are some sort of vision of the future (they sorta are), what that means is that instad of the dissatisfaction growing up to become a problem, instead, it can be used to create rather than destroy.
+
+the picture I keep getting is a world where it's possible for any way to be possible, and because there are so many opinionated people about their way being the best way, I guess we'll have to find out which way is the best way.
+
+at the moment, the "right-way" is the one with the most reasources, a halfway decent/mediocre thing to sell and marketing power. in the world that I see, the whole point about the golden age part of the picture is that it's now an abundance economy where resources are essentially unlimited. in that sort of system, anyone can try their hand at creating the right-way (for them), and then hopefully get it promoted and disseminated to others that can/are interested.
+
+first of all, I really like the idea of relating people to the things that they want to find. that one video from 4privacy where destin talked about all of these companies having so much data on you being scary -- would instead be like a dream for me to have. there is no better thing I like more than to get things to people that are interested in them.
+
+in a sense, I'm kind of like source in that way. there are lots and lots of things out there that a person would really like to find, but they're hidden behind all of the loud marketing from the ones with the most resources. the dating scene is the same way too. if an entity had unlimited knowledge of its users, it could theoretically provide its users with access to all of the things that they didn't even know they wanted.
+
+up until now, we have perceived such an omnipresent figure ("God") as someone who punishes people for not earning the things that they desire or some other unknown variables that figure into his bouts of rage. then, just this last 20 years or so has begun to redefine such a "God" and turn him into a company. whether it's google, amazon, twitter, or facebook, we perceive the effects of such an omnipresent entity in our lives now. the petty OT "God" has instead been replaced with silicon valley tech giants.
+
+get used to it :) they all believe they have the right way, and I'm sure many disagree. so do like andreas did with serenity, and begin to create what you want.
+
+I believe that this redefinition of the omnipresent "God" as technology will largely be the first step.
+
+in a way, you could say that to create like that is to create out of dissatisfaction or even need/want, but I think it's all good. it's become clear to me after writing those last few entries about my creative process, that few people experience the "I am my creation and my creation is a reflection of me" sort of experience. most people seem to be looking to satisfy a need or turn a thing that they want into reality.
+
+---
+
+I really have to thank programming (even though it was simple languages), for most of my understanding of LOA. it was only when I had to sit down to actually create something that I realised that *I* am the problem. I'm the reason why I can't program. I had enough money for all the conditions I wanted so it not that I don't have the conditions I want, I do. it's another reason. it's my lack of focus. I was unable to focus on what I wanted because I was so distracted by so many external influences (competition, other people's ideas, etc). I couldn't figure out what exactly I wanted and focus on it for long enough to make it happen.
+
+so, in a lot of ways, I think this is actually the coolest thing ever. the picture that comes to mind is the person who wants to write a book, but they have too much work. they quit the job and still no book; there are too many distractions. they remove all the distractions, and still no book. rinse and repeat until one realises that all of these external circumstances don't actually do it.
+
+it won't be like that though. the reason why the noseboys are able to be so productive is because they are feeling better and better every day. I'm pretty certain that *everyone* one the planet will feel better and better every day. I'm essentially replicating what I do now for a select few to the whole planet.
+
+clearly not everyone will be able to handle feeling better and better all of the time, so this is where I used the 144k virgin boys image. I don't believe most women will have too much of a problem to have continually accelerating perception. however, it likely *will* be a problem for most men. the ones that cannot handle it will attract their own ruin. the ones that can are likely the ones that have the good conditions. I modeled the idea after the noseboys, but I think it's realistically open to anyone.
+
+oh, to be clear, I doubt that there will be a virgin boys restriction. anyone can join as long as they can handle the accelerating energies. instead, I think it'll happen naturally as the energies on earth begin to accelerate rapidly in the coming years. many will transfer their consciousness into newborn boys to avoid the discomfort that they'll experience in a body with a lot of resistance. because energies will continue to accelerate as long as they remain in my vicinity, I believe this will cause many of them to swap bodies multiple times until they're faced with altering their perception -- or, create the environment that they want to live in (like a planet or something) -- though that's quite a bit down the way from now.
+
+---
+
+I still don't know how the whole "new earth" thing will work. I don't feel like I need to worry about that though. the way it appears is that as many who want to come with me can and it'll probably be a pretty large exodus. when we leave earth, those on earth will attract a reality reflective of how they feel. I imagine that the planet will dramatically change at that point because the planet will have lost a lot of good-feeling energy to it. don't look back, I guess...
+
+there's still a lot to figure out regarding the whole new earth thing. I don't really know how to sort it out, but it feels fine.
+
+to be honest, it feels like right before zaryn called me to create tuenti. it feels eminent and I had no idea how I to do, but I knew I could so I figured it out as I went. there are a lot of questions I suppose, but I am my creation. that's the best answer I have; it reflects me. therefore, the most important thing for me is just to keep getting better at feeling how I want to feel.
+
+---
+
+yeah, so all of it is based on some flashes mixed with some apocalyptic prophecy. I wouldn't take me too seriously.
+
+take from it whatever you want...
+
+[1]: this is especially noticable on drugs. some drugs more than others, but for example it's easy to feel really good about a terrible idea on coke.
 
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
