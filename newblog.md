@@ -7604,6 +7604,67 @@ I'll have to think about this more what the positive version of this is. I'm not
 
 as I'm thinking about it, what'll likely happen is I'll start creating things and people who are similar to that vibration will join me there. it'll all work out fine.
 
+### 2022-01-21 23:55 - needers
+
+last night, before I went to sleep, I edited the previous entry. I clarified the part where I was explaining that mom needing me to not download torrents is basically the same thing as the speed of light limit (in my perception).
+
+to understand, one may consider the speed of light limit sort of like a trade embargo or some sort of import tax. if you want to get around that limitation, it would be silly to try and argue with the port authorities that they should change their import tax for you. instead, it's much easier to build your own dock and import your stuff there. now, no more taxes need to be paid.
+
+in most countries that's probably illegal as well. however, my point is to not try and modify the speed of light limit, but instead find another way that doesn't involve that limit. this effort to get around limitations is the mother of invention.
+
+likewise, I'll just find my own way. I don't *need* internet.
+
+---
+
+the real suject here is the one of need. when I woke up this morning, I had this realisation that there were not so many positive reactions to that clarification. instead, a lot of the reactions focused on the part where I was saying that everyone should always do the things they feel they *need* to do. for me, I find need to be a very outdated concept. I rarely operate under the influence of need anymore. I'm mostly around the "want" to "I am" part of the desire spectrum.
+
+I had this realisation that there are a lot of people that are in the *need* part of the spectrum. I then realised it may be nearly *all* people are people with needs at this point.
+
+it was then that I realised that my creation is already underway. I don't know the specifics of how it'll work out, but yesterday when I wrote about the two planets having an asymmetrical relationship, I presented the idea with the word "depend", and I hinted that the planet opposite to my own would be filled with a lot of people that *need* things to be just right for them to feel good. they'll exhibit a whole lot of motivation for things to be the "right-way".
+
+that's the whole point. those people *need* the right conditions in order to survive or flourish. that's fine with me. I'm not about trying to figure out what way is the right way.
+
+you see, when someone says, "it's the right way/thing to do", they mean the right way *for them*. the more people they can get to agree that way is the right way, the easier it gets to do whatever their objective is. that means you have to convince people who aren't sure your way is the right way. marketing needs to be done to get them on your side.
+
+---
+
+my goal is to provide a place for people to endlessly have no limits to create the right way. the reason why is obvious. if there's a right way, then obviously there is also a wrong way. it's the wrong way vibration that I'm interested in. I want a constant source of dissatisfaction.
+
+I am really good at converting dissatisfaction into something good feeling. that's all I do all day long and it just keeps getting easier. what I need (hehe) is more perception of the "wrong way" from more people.
+
+all of that dissatisfaction is completely free energy. I don't do anything to create it and it takes minimal effort for me to turn it into something wanted.
+
+---
+
+I don't know how cause I really can't see it yet what it could be, but it seems to me that the whole point of all of this is to ensure that there is a vast population of people out there that *need* things to go a certain way.
+
+the reason why we're on the same timeline together is because the frequency of "I *need* this a certain way to feel good" is exactly the same thing as the vibration of "I *don't need* things to be a certain way to feel good".
+
+all of us harmonise on the concept of "needing things to be a certain way to feel good" -- just, some of us are moving toward that (having things the way they need/want them to be) while others are moving away from it[^1].
+
+---
+
+I feel pretty dampened mentally today. however, I woke up pretty excited about this idea. I really don't know how all of the other elements will fit into place, but it's good for me see how important it is for there to be so many needers out there. you are needed! I need you :)
+
+---
+
+the thing that has been on my mind though -- it's likely mostly a reaction though I am resonant with it -- is wondering if this whole needing the manifestation (to feel good) concept/thrust of this next era means that I'll just continue on like how I am and not get any manifestation at all -- or, if the whole point of it is get a whole bunch of people to need manifestations even more than they did before.
+
+the reason why I say this, is because I think the path that has the "best" manifestation to it is oftentimes actually the "worst" for the person.
+
+I've met a lot of rich people and they have had good manifestations and such but they're just not very happy. it's also common for me to see people go the "right-way" and also be very unhappy -- yet both pretend to be happier than they are.
+
+people who have the circumstances and conditions they need (or want) are not often satisfied with them. they often times live in a state of constant dissatisfaction.
+
+so, following that train of thought, if I'm optimising for needers, then I want more people to depend on good conditions and manifestations -- something that I can provide. I need them to depend on me so they can continue to increase their levels of dissatisfaction.
+
+yet, on the other hand, if I don't have any manifestation, I would imagine that would cause even more people to think even more, "if I could just get that manifestation, *then* I'll feel good."
+
+I really don't know. I guess we'll *need* to wait and find out :)
+
+[1]: I think that's the attraction and repulsion which can create those counter rotating layers of greater and lesser density.
+
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
