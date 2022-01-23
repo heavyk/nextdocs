@@ -7786,10 +7786,27 @@ there's a lot that can be learned from this movie if you take my interpretation 
 
 that may or may not sound depressing to people; I don't know. however, the spirit will always be locked inside of whatever paradigm that the master enforces (and you believe). that paradigm only continues to work for as long as you believe the master's definition of you. when you start to be the thing that you want to be (you can only be the things you feel/believe yourself to be), then that paradigm no longer holds you captive.
 
-I sincerely anyone will put that into a movie though...
+I sincerely doubt anyone will put that into a movie though...
 
-good movie :)
+I liked it though. good movie :)
 
+### 2022-01-23 15:27 - few more thoughts on quasimodo
+
+I realise that disney altered the story from the original. I think it holds pretty true to the original message though. in that time when he wrote the original, I think was around ~400y ago or so, the church had completely squelched the human spirit, so I think in the original (writter from that perspective), he was saying that though everyone dies and it appears that all is lost, this part of the human spirit remains alive within the divine proportions and the architecture style which the cathedrals were built. because the story is symbolic, various adaptations of the story have been produced, probably to more accurately represent the time of the adaption. disney is no different. I believe their adaptation actually holds pretty well to the conceptual message in the original.
+
+personally, I would have tighened up the symbols a bit better. it's difficult to tell if frollo (the master) is representing the church or some other institution of justice. the church represents the sanctuary, yet at the same time condems her dancing for inspiration of sinful thoughts. the symbols could be more defined and their interacthions a bit more blatant. also the gypsies as the primitive form of the spirit didn't have enough of a presence. they were hiding in the place of miracles, but that wasn't really explored much either, and the mixed message of the gypsies theirselves killing anyone who found the place of miracles. it would have been better for frollo to have known where it is but kept its location a secret and forbade anyone to go there, punishable by death, of course.
+
+---
+
+the other thing that I noticed the reactions to was my definition of apollo (I can never remember his name for some reason). I talked about how he kind of represents the new concept by which you can relate to your spirit. again the symbols aren't well defined enough to see it, but that would make apollo the omega and frollo the alpha. apollo did display some omega-like qualities, where he came from war and then when frollo wanted him to murder innocent people, he didn't want anything to do with it. in that sense, he was omega on the war and killing innocent people in the name of "justice", but he didn't fully get the omega treatment in other aspects.
+
+frollo represented the alpha, but also his symbols also weren't very clear. being the alpha, he would be at he peak of his capacity to minister his version of "justice". it was shown that way, yet instead of his justice being successful, he died by falling off of the cathedral[^1].
+
+apollo, being the omega is supposed to represent the new improvement on frollo's mangled version of justice. his symbols for representing the improvment on justice was saving quasimodo from falling and saving the gypsy family from frollo's anger. not a very satisfactory omega treatment, IMO.
+
+unfortunately, the symbols are not clear enough to really pull too much more meaning from the story.
+
+[1]: this is likely the reason why in hugo's original version, everyone dies -- to show that frollo's version of justice was at the peak.
 
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
