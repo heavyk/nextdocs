@@ -7752,6 +7752,45 @@ I found it quite hilarious so I decided to write about it...
 
 P.S. I also don't think that the 144k number is an actual quantity. it'll probably be much more. it's likely symbolic. just like you should forgive 70 * 7 times, I doubt jesus is telling you to limit your forgiveness to 490 times. it's another way to say 7^2 * 10. this is 12^2 * 1000, so it prolly means something like full cycle or perfection times a thousand (the "gods" had twelve fingers).
 
+### 2022-01-23 00:04 - casi-modo
+
+I just finished watching disney's hunchback of notre dame. I thought I would write some initial thoughts on it. I don't yet feel I want to sleep, so here goes...
+
+there are four main characters. this is interesting because usually there are three. there are three dudes and a girl.
+
+the set is highly symbolic, so let me break this down how I see it.
+
+notre dame is symbolic of your heart's physical location. the structure or the organisation that gives your spirit sanctuary from the dangers out in the world.
+
+quasimodo represents the spirit -- who your really are -- your source. quasimodo is taught by his master that the spirit is ugly and everyone outside will hate him if he shows his real appearance. nobody will like him and he is ugly so don't ever show your true self out to the public.
+
+qusimodo wants to go out to the festival of the fool (think tarot -- this is the beginning of the journey), but his master reinforces the teaching that he is hideous and no one likes him.
+
+the spirit makes his first appearance in the festival of the fool (despite his master's insistance), and he sees a beautiful gypsy there dancing.
+
+gypsy must represent the spirit in its primitive state -- before it has been socialised and fit into society. this gypsy spirit is responsible for leading people into "sin" by inspiring desire in them.
+
+the church, although it gives sanctuary to to the spirit, says that the gypsy way of inspiring desire is bad.
+
+in the intro story the master, which represnts the present paradigm of the spirit's integration into society (in this case justice), holds ownership of the spirit and confines it to live out a sheltered but protected life from all the badness out there. he even tells him that he saved him from his unsocialised primitive-spirited (gypsy) mom.
+
+apollo (though I think his name is phoebus) represents the next paradigm of living. I associate these conceptual paradigms changes with the sun (hence his name). see alpha-omega for more details there. (line 7777, I just noticed... weird)
+
+the reason why his name is quasimodo, is because it means, (in spanish) "modo casi" -- something to the effect of "almost there". every time there is another paradigm change, the spirit desires to return back to its source (or its primitive gypsy state), but before it can happen a new paradigm is installed (apollo) and so he never gets his chance to return back to the primitive state.
+
+it's that desire to return back to the primitive state that motivates quasimodo, yet he will always find himself coming up a little bit short (see evolution-of-desire). he will never ever get there. that desire is what keeps the cycle going. it's the carrot on a stick.
+
+---
+
+there's a lot that can be learned from this movie if you take my interpretation mixed with the recent work I've done on evolution-of-desire. it's easy for me to see that the concept of getting esmerelda is an impossible one. it's never meant to be. he's not looking for someone pretty outside of himself. he's looking to become the esmerelda he seeks externally.
+
+that may or may not sound depressing to people; I don't know. however, the spirit will always be locked inside of whatever paradigm that the master enforces (and you believe). that paradigm only continues to work for as long as you believe the master's definition of you. when you start to be the thing that you want to be (you can only be the things you feel/believe yourself to be), then that paradigm no longer holds you captive.
+
+I sincerely anyone will put that into a movie though...
+
+good movie :)
+
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
