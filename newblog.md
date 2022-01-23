@@ -7750,6 +7750,8 @@ I think he's been duped by a lot of well-meaning salesfolks in the past. win-win
 
 I found it quite hilarious so I decided to write about it...
 
+P.S. I also don't think that the 144k number is an actual quantity. it'll probably be much more. it's likely symbolic. just like you should forgive 70 * 7 times, I doubt jesus is telling you to limit your forgiveness to 490 times. it's another way to say 7^2 * 10. this is 12^2 * 1000, so it prolly means something like full cycle or perfection times a thousand (the "gods" had twelve fingers).
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
