@@ -7720,6 +7720,36 @@ take from it whatever you want...
 
 [1]: this is especially noticable on drugs. some drugs more than others, but for example it's easy to feel really good about a terrible idea on coke.
 
+### 2022-01-22 19:19 - 144k is a lot of boys
+
+I tried to sleep this afternoon but woke up due to some strange effects happening in my head. it felt like my head was a gyroscope and someone was shaking their head in a no-kind of movement. the magnetic field that their head was so strong that it was twerking my perception. my head was going so fast that their efforts to reorient my perception felt like my head is a gyroscope and the it was getting a lot of resistance from it. it reminded me of a MRI scanner -- like if you move your head quickly while the magnet is turned on (dunno how I know what this feels like).
+
+anyway, I told them to stop because they were causing me to lose control. I was about to have the "kundalini" rise if they kept going. they stopped and I woke up.
+
+weirdly the thing on my mind right when I woke up was the question of what I meant by 144k virgin boys. how would they be made? obviously, this isn't going to be me. even if I had sex three times a day and all resulted in successful pregnancies, it would take me 131 years to produce 144k kids. obviously a breeding program would have to take place.
+
+first, the fact that they're even thinking about logistics is a good sign for me. that means there is some serious consideration. I mean, it's not like they lose out on much if they don't want to go.
+
+second, I thought they already had a breeding program going where a bunch of my clones would be operated by other dudes. I don't know how -- perhaps on other timelines -- but then somehow these girls produce children. so, in my opinion, it's not really something to worry about.
+
+if they decide that they need to keep that operation a secret, then it's no problem. after I'm connected it'll be possible to create any version of me that they want. they can add and subtract aspects of his or her personality to match what they want in a person. same with physical attributes. he or she can look however you want them to look. this will almost certainly produce children. I've talked about this idea in the past so I won't repeat myself. either this way or the previous, there will be a wide array of children to choose from.
+
+---
+
+when I was thinking about the noseboys producing the children, I had a strange reaction. I was reminded of an abe-now dialoge a long time ago where the writer is asking what the difference between love and infatuation is -- because after spending time with a girl, he "wasn't able to have clear thoughts". abraham explained that his "clear thoughts" were actually quite resistant thoughts and the reason why he wasn't able to think them is because the vibration of well-being and allowance was so dominant. his normal resistant thoughts were incompatible with his vibration after his time with her.
+
+being reminded of that, it gave me the sense that the noseboys had discontinued direct interactions with girls, so as to not lose their ability to think "clear thoughts". 
+
+the impression it gave, is that they don't want to operate my body while it's interacting with a girl, and that they've been outsourcing that task to certain "authorised" (that is likely they already have expanded perception) people. the amount of people that use my perception and that will want to operate these bodies is probably not sufficient enough to satify the demand.
+
+I proposed that instead of getting men that want to have sex with the girls in my body, instead find women that would want to to do that.
+
+it produced quite a strange reaction. the most notable was a feeling like it could work, but then a realisation that this would be a win-win situation, and mr. motor can only authorise situations that disadvantage someone else.
+
+I think he's been duped by a lot of well-meaning salesfolks in the past. win-win probably turned out to not be such a win for him somehow.
+
+I found it quite hilarious so I decided to write about it...
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
