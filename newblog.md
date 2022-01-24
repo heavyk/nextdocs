@@ -7808,6 +7808,66 @@ unfortunately, the symbols are not clear enough to really pull too much more mea
 
 [1]: this is likely the reason why in hugo's original version, everyone dies -- to show that frollo's version of justice was at the peak.
 
+### 2022-01-23 19:08 - jesus' deal
+
+this morning, I was giving my thoughts on a number of things, but one topic that came up is why do these gods or teachers show up on earth. I gave mom my theory of why I think that it's actually the "fallen angels" that attract the appearance of these teachers. they transfer their consciousness from body to body rather than dying, and the bloodlines they were using were getting so disfunctional (along with the pickle they got theirseleves into with the hebrews) that it was looking like the extinction of their species here on earth. their desire for survival (or an upgrade) is what attracts these teachers.
+
+I retracted saying that it was *only* their desire, realising that it must be a number of factors more than just their pickle that attracts these guys. there are a lot more things that summon such a thing and I didn't want to try and explain my idea on the sun running the conceptual cycles of the solar system (mainly because I haven't figured it all out yet).
+
+anyway, I offered the idea that jesus apparently had a twin brother, yet no one is talking about the bloodline ef jesus' brother. it was something that he figured out that allowed him to alter his own genetics so rapidly and significantly.
+
+after that, I suggested (assuming that jesus did die on the cross), that the genetics that he left behind would have been pretty outdated, assuming that he had his children before his death.
+
+I had a number of reactions to that idea, most thinking that my assumption is wrong. they obviously know something I don't. thinking about it, there is a solution that fits a lot of pieces into the puzzle.
+
+---
+
+it's possible that jesus did not have a wife or kids before he went on the cross. I'm also going to assume that the crucifixion *did* happen, and that it was jesus up there, and he did also find a way to "resurrect himself back to life".
+
+what I think could have happened in the resurrection is that jesus figured out how to perceive himself conceptual (5d) world, and then projected an image of himself down into the astral. at that time, I think that energies were high enough on the earth (similar to how they are now, but prolly higher) that the astral was mixing with the physical much like it was in the times of atlantis.
+
+it's very possible that jesus first achieved this conceptual perception after his encounter with JTB. if that's the case, then if I were jesus, I would *want* them to crucify me. the reason is to finally move all aspect of perception into the conceptual, completely leaving behind the physical form of percption.
+
+the extreme pain and suffering is important and would cause what we would consider the "resurrection" as he finally let go of his physical body and fully died. he's fully perceiving himself from the conceptual realm, he's now released from space and time. he can now project himself into any place in space or time. it's only the energetic quality of the environment that allows for people to be able to perceive him.
+
+if I'm right about that, jesus had a lot to gain from being nailed to a cross. the romans also could benefit quite a bit from it as well. I think they made a deal.
+
+---
+
+what I think happened is once the crucifixion happened, jesus was given a wife or two to produce children and shipped off to another part of the world where he could produce and raise the crhildren. the fallen angels (custodians) would then transfer their consciousness into the bodies of his children.
+
+---
+
+another idea in alignment with this theory is it's quite possible that what happened after the "last supper" is they gave jesus a woman to sleep with which was compatible with their genetics like maybe one of the romans emperor's wives or something as part of the deal.
+
+---
+
+this idea also got me thinking about the "gods of eden" book. bramley makes a whole lot of connections, and I think that the custodians definitely do exist and did have UFO technology in the past (when they lived on mars).
+
+they lost that capability with some disaster and are trapped here on earth in human bodies now. the custodians are probably what I've called the "fallen angels" -- the previous "gods" which have fallen from such a height of being supreme "gods" to a disperate group of guys so scared of death, that they've moved their consciousness from body to body for millenia.
+
+they're must be most compatible with certain bloodlines/genetics which retains some of their godlike perception and psychic abilities. if they moved their consciousness into ordinary humans, they would probably lose a lot of those abilities, which is likely the reason for all of the breeding programs.
+
+I think the UFO and time travel capabilities are a recent capability that they were given by tesla. if you think of timelines, if you were to go back and alter the past, you can't alter the present, so any alterations you make will always bring you to the present.
+
+imagine that you go back and alter the events happening in a past war, like the civil or revolutionary war, or maybe even like the founding of the nation (constitution, etc), these can all be altered, but you can't change the present. imagine in the present a lot of the top guys are involved in slavery or human trafficking. you need to go back and change major events to give the impression that the good guys were against slavery and human trafficking. the romans would be impossible to change. you simply could not affect any set of circumstances which would change the emperor's mind that slavery was a bad idea. it just wouldn't work. these guys are too set (never going to change) in their ways. imagine how difficult it would be for someone in the future to alter this timeline by manipulating events so that mr. motor leaves a more positive impression. equally difficult would be nero or caligula.
+
+those guys won't be changing their ways any time soon, yet they are likely the ones with the time machines and UFOs now, trying to clean up the bad rap they left through history. they're only fighting theirselves...
+
+so, I think it's quite possible that a lot of the custodial activity actually has its origins in present day technology that the custodians just got access to.
+
+it occurred to me that the custodial activity seems to always focus around guys that have expanded capability in their physical senses (especially eyesight and hearing). this seems actually to be the common thread through all of of the custodial activity.
+
+---
+
+I think that tesla gave this technology to the americans (jewish leadership) in the form of various projects and crashed UFOs. you have to wonder why, if the UFOs can move objects around in times that are faster than a camera shutter, why would they leave a crashed UFO? if there were any unintentional crashes, they would have been cleaned up in nanoseconds. they must have been intentional.
+
+---
+
+therefore, imagine yourself some time in the future -- let's say 10-30y from now and you're the custodians. you've got yourself into a pretty good pickle. you can't change the present, but you can change the events leading up to the present...
+
+I could then think of myself as a sort of insert into the present timeline which can dramatically alter the events leading up to their big pickle.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
