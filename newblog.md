@@ -7868,6 +7868,76 @@ therefore, imagine yourself some time in the future -- let's say 10-30y from now
 
 I could then think of myself as a sort of insert into the present timeline which can dramatically alter the events leading up to their big pickle.
 
+### 2022-01-24 02:44 - the time pickle
+
+after writing the last entry there I was laying on the ground thinking about what I wrote. I purposefully left the conlusion there in a weird place. it seemingly contradicts my ideas on time being an attractive process, yet it does not.
+
+there are infinite timelines that lead to the present and infinite timelines extending out from the present. by infinite, I mean uncountable, cause if you count then you make a new one.
+
+the beginning part of the entry I was talking about how the crucifixion would appear to jesus as something desirable as he moves his perception entirely from the physical into the conceptual. I explained that from that perception he could project himself down into the astral. the astral or imaginary realm is governed by the sex organs and their activation seems to be directly related to the capacity to perceive this world. in the tesla coil example the sex organs (or the base of the spine) is the primary, while the other end is that pre-motor cortex that marty was talking about in the last episode -- leaving the arial or reveiver/antenna is probably the pineal.
+
+it seems that there needs to be enough of a cross-hemisphere connection in this pre-motor area that allows enough energy to begin allowing the perception of this astral and conceptual world. everyone has this part of the brain, so I'm guessing that what makes some able to see it and others not is that some have a lot more cross-hemisphere connections in this area (electrical current needs to change physical directions a number of times to create a magnetic field). this magnetic field allows for the reception of what we would consider feeling or emotion (concepts). these concepts are then translated into visual or audio reality.
+
+I believe it is possible for someone to have the pre-motor area activated allowing them to perceive the astral, and I believe that can happen when the environment has a "magnetic anomaly" or a rapidly vibrating magnetic field which can stimulate that part of the brain.
+
+---
+
+I also believe that the earth is beginning to increase the strength and frequency of its magnetic field right now, meaning that in not too short of time, all people will be able to perceive the astral.
+
+I think that may be the giant pickle that they're looking at. there are these strange occurances where people communicate with loved ones that have made their transition (into the conceptual), meaning that in these situations, it's possible for the conceptual to be tuned to with a thought or memory that feels like them, allowing them to be perceived in the astral.
+
+this is the same capacity that I believe that jesus has. many people will claim that jesus has returned, because now they can perceive him. the energy on this planet is activating that part of their brain. many other things will be seen as well.
+
+quite literally a physical manifestation of the way you feel will occur. if you are pissed off, you may hear voices telling you to do things that will make you feel more pissed off. if you feel revenge, perhaps voices that feel like revenge. if you want something real bad, the voices will tell you how to get there/it.
+
+it could also be visual. if you're pissed off, you may find yourself in a mob of angry people. they'll be real touchable people. they will really exist. you created them. whatever you feel will manifest.
+
+I think this is happening more and more to people, however, nosebook is stifling that capacity in people. I believe only the "authorised" (with the appropriate clearance level) are allowed to see the astral. reason is, I think they have a lot of secrets hidden there. also their physical illusions will no longer work.
+
+imagine for a moment that these "fallen angels" have used jesus' bloodline for some time now and can also appear in different *physical* forms/manifestations. they will appear to us physically the way they perceive theirselves to be. I'm sure they're very good actors. a fallen angel may be a crusty guy working in a government agency during the day, and a super-hotshot ladies man at night. a reaction reminds me of vampires.
+
+anyway, right now we perceive the physical realm so we see the physical image they want us to see. however, when the astral realm becomes visible to us, they will shapeshift to be whatever way we translate their concept to be (rather than the appearance they perceive theirselves to be). that mean that if one of these fallen angels feels particularly nasty and ugly, our brains will translate that concept into whatever. a child may see a monster, while an adult may see an old homeless guy. whatever the perceiver's mind associates with the feeling they're emitting.
+
+energies rising to where all humans are capable of perceiving the astal is my best bet for their time pickle...
+
+solid intro there my thought process behind these time pickle theories...
+
+---
+
+so, now I'm thinking about what the details of the time pickle could possibly be. to set the stage for these, imagine the world is now a place where everything is super chaotic. things are appearing and dissappearing all over the place as tons of people are all manifesting their realities (and other feelings they feel if they're empathetic). for most people it would be hell on earth.
+
+so now someone has access to a time machine that can alter events in the perceived past of this timeline. it can't modify the present world of chaos, but it can modify how we ended up in that world...
+
+---
+
+I couldn't really get any good reads on anything but one idea is that in that situation if you were anyone out there, you would want to alter the timeline in such a way where you figured out how to manifest what you wanted rather than what you don't want.
+
+so, just for sake of argument let's assume that someone like me existed in that resulting disaster and I could manifest easily what I wanted. people would want to know my technique. the guys with the time machine may say we need to go back and alter history so that I (and others) learn his technique so that I'm not manifesting unwanted. let's say that I even agreed to go back and do my best to alert those to the looming future where they will manifest a reality reflective of their state of being.
+
+like those brain scans having come into contact with those UFOs, many will manifest their own destruction...
+
+that theory seems relatively plausible to me. the problem I have with it, is it really bothers me that (as of 90s ago) I am now a self-proclaimed saviour... for that matter alone I discard the theory.
+
+OH, there's a thing I forgot... it's important for the second theory. clearly there will be people who simply do not want to alter their perception to create the reality they want. I can imagine pretty easily mr. motor just being like, "no, I'm *not* going to find a way to feel better. I'm going down with this ship and I'm taking as many as I can with me"
+
+this brings me to the second point: what then would we do if we shared a world with a bunch of people that there simply isn't any hope to change. they are the unchangables.
+
+> waiting for a new light to come. if I could discover just one of these things: what eternity is, for example -- I wouldn't care if they did think I was crazy. (song excerpt)
+
+so, let's say they're not going to change and there's nothing that can be done about it. then, perhaps it may be prudent to have an escape plan... from their perspective, they can't change their present situation, but they can change the past leading up to that situation. one out that they could have is right before things go nuts, there was a new body that they could transfer their consciousness into and an exodus off of the planet. leave the unchangeables to continue on how they want and find your own path toward what you want. nevermind what they're doing.
+
+again this kind of positions me to be sort of in the right place at the right time with the totally nuts idea of wanting to create a galaxy (or whatever eventually evolves out of that desire).
+
+---
+
+wow. I really didn't know I was going to write this. you see when I was laying there I felt the concept and it all felt fine. nothing to it. however, now that I put it into words, I don't like how it sounds. this is a strange feeling because I haven't felt the feeling that my mom tried to get rid of in me, she it called "pride". I haven't felt that feeling for such a long time until I wrote this. probably last time was before the brain haemorrhage... she would say, "you're not invincible".
+
+> the time has come (song excerpt)
+
+anyway, it all feels weird so I'm going to end this here. I *honestly* wanted to remark how my thoughts on the time pickle had a lot of resonances with marty's 12-28 UFOs episode (part 8 I believe). this isn't what I planned to write.
+
+weird. anyway, I just follow my instinct, even though it's led me into some pretty difficult situations (like I've mentioned before, she feels like this insatiable little girl that doesn't care what uncomfortable situations she gets me into. I just go along with it anyway cause we're sorta stuck in the same body together).
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
