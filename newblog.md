@@ -7938,6 +7938,174 @@ anyway, it all feels weird so I'm going to end this here. I *honestly* wanted to
 
 weird. anyway, I just follow my instinct, even though it's led me into some pretty difficult situations (like I've mentioned before, she feels like this insatiable little girl that doesn't care what uncomfortable situations she gets me into. I just go along with it anyway cause we're sorta stuck in the same body together).
 
+### 2022-01-28 15:06 - the trip through time
+
+I have so much I want to say that I didn't really know where to begin. I have decided to start a place as an introduction to the middle part, but by the end, we'll be distant conceptually from the intro. at the end, I'll remind to go back and reread the intro.
+
+#### the psychedelic introduction
+
+I feel about in my experience very similar to the part of the psychedelic experience where it's too hard to say definitively what is what. this is the "loss of ego" experience, or the onset of paranoia for others. when it becomes no longer possible to say with certainty that this is this, and that is that -- because everything is starting to mix and combine, it starts to become very difficult to say exactly who exactly I am[^1].
+
+this process has been a long time happening now. you may have noticed a progression in my writing over the years: in the beginning I wrote mostly about things that I defined to be good or bad and my thoughts on those (enki/saturn good, jupiter/enlil bad, etc).
+
+then, later I gave up the goodness/badness of things and just tried to define them. I looked for patterns in a lot of things and have started to notice the progression between a lot of things (alpha-omega, desire-resolves-to-emotion, evolution-of-desire, etc.). this is kind of like a middle ground where I'm just fitting things into conceptual boxes to better get a grip on a sliding landscape of reality.
+
+finally, now it's getting harder to say, "well, this is this, and that is that". it's all starting to blur pretty badly now. in those experiences (eg. on mushrooms or ayahuasca), I just sit back and enjoy the experience rather than trying to fit it into a conceptual paradigm. it's not as mind bending as a regular mushrooms or ayahuasca experience, but all the signs of it are there. you'll see what I mean.
+
+#### a new type of logic sequence
+
+last night I was talking with jaron about my thoughts on the three games I've been playing recently, roguebook, xcom2, and south park fbw. each of them have aspects I really like. I would want to make a system where I can play roguebook-like mechanics, but in 3d using that sort of positional space of xcom2 and sp-fbw.
+
+I told jaron that I would also want to include elements of tower defense and rts games (ta, supcom) and mobas (dota). I made a statement that caught a lot of reactions. I mentioned that I simply don't have enough coordination (uber-micro) to be able to play these games well. instead, I would be playing it like a rts game with cards. seems that people may not have considered to control a moba/rts game with cards, but this is something I've been thinking about it and feeling the ideas build since 2011. the idea back then was using sequences to create programs, but the concept is the same.
+
+you can think of a card as a higher level command. the order you play them dramatically determines what happens. in that sense, each card represents an action and you're given a set of actions that can be performed depending on the situation and other factors.
+
+in the sense that it's turn based, each person is taking turns to perform an action, so it becomes something like a dance. the things have to be performed in a sequence in order for it to look good/operate properly. order matters.
+
+it's easy to see that the turns can be abstracted further to involve more and more complex actions. like let's say I'm playing dota. I want to be able to decide who I'm targetting and things like that -- like maybe pick off the ranged units in the back rather than focusing on the tank.
+
+I play these games and I have an overall goal for each matchup, but then also a goal for each turn. I know some things are coming so I should setup for them. the talents that I accrue should synergise with the cards/abiities that we have. usually the synergies of the different aspects are important.
+
+if I could run a simulation of all of the possibilities, there are some matches that are unwinnable while others are rarely winnable. my general strat is to get enough "good cards" in my deck that they either support what I want to do or are just good enough on their own. I think life is sort of the same way. you just find a way to work with what is available.
+
+#### choosing game over us
+
+last night when I was talking about using cards to control high level function and this combination game of sp-fbw, xcom2, roguebook, and dota (plus some supcom and tower-defense stuff), I think that designing a game like that would be pretty fun.
+
+I didn't even need to go to sleep and wake up to feel the reactions to this last night, I noticed a reaction to the passion that I showed when talking about this game idea (as a comparison to the passion that I feel for the girls).
+
+they do have a point. I can feel their good-feeling and stuff, but the idea of girls just simply doesn't evoke that much passion in me. I actually believe I think much more about the girls than I do making a game. most of my game ideas are still captive in the conceptual world. very few of them have been rendered into words, thoughts, or pictures yet. the girls on the other hand is just the opposite. tons and tons of that feeling has been manifested into words, thoughts, dreams, etc. in that sense the feeling has lost a lot of its lustre for me.
+
+it's not really that though. that's not really the thing. girls can emit a really good feeling. I think it's the same energy that the sun gives out, and they are able to just focus it really well. that good feeling exists elsewhere and it's even possible to gain it oneself rather than looking outside for it (see evolution-of-desire).
+
+the main part of the reaction did not quite feel so centred around me, but instead felt more like a critical opinion of men in general. it feels like there is a bit of discomfort around the subject of men choosing other paths to feel good rather than women being their source of feeling good.
+
+to that I can't really say much, but I did investigate the feeling and it feels like the root of it is that these other things don't need the man to feel good. if I smoke weed or play my game, neither the weed or the game *needs* me to do things a certain way in order to feel good. if I want to roll the joint poorly or play the game badly, they do influence much how much pleasure I get from the activity, but they don't create a bad feeling in itself.
+
+personally, I don't really know have much of a problem with this because I create my own reality and just do my own thing. by creating my own reality, I don't have to worry about the bad feeling people out there. similar people would join me. I would simply run into them. this has been the case all of my life.
+
+I would say that there must not not be anyone that actually feels similar to me, because I don't really meet people on my frequency anymore. one such event was the last time I went to friendly harbor.
+
+#### atlantians and superiority
+
+the day after I wrote that weird entry where I wrote myself into a corner where I didn't mean to give the impression that I'm some sort of saviour (I'm no such thing) -- I was sitting out in the sun and it felt to me like I wanted to go to friendly harbor. I decided that I would go so I walked down.
+
+right before I got in I met a guy outside. he said he was a meth addict but was genuinely searching and on the spiritual path (or some other buzzword bullshit like that).
+
+I went inside and he simply would not stop asking me questions. he pretended to be sincere, but did not actually listen to anything I was saying. I let him dig himself a pretty good hole, but along the way we did talk about some subjects in a different way.
+
+the strange thing is that I was answering him these questions as if I was talking to someone who worked for nosebook. he kept asking me about technology and magic (thoth stuff), and the subject of atlantis came up. I essentially retold what plato says. I added in very little. the only thing I added was the previous discussion on levitating rocks with the mind. clearly the atlanteans had this capability and were building large resonant structures with that technology.
+
+I explained that was all technology, but the technology is just a way to boost a capacity that all humans have. I explained that levitation, teleportation, electricity, and other "science" subjects seem to be directly related to emotions and increasing this factulty in humans also increases how fast you attract your reality. you attract a reality that reflects how you feel and they were boosing their feelings, so they were also how rapidly reality is attracted.
+
+plato says that the atlanteans started to drift away from the rules and become more and more animal-like in their behaviour. then, they decided they wanted to *subdue* the known world -- meaning, by military force they wanted to make most of the world subserviant to them. when they did that, the athenians beat them, and then after getting beaten a massive catastrophe happens.
+
+plato is directly linking the loss of this battle and a major catastrophe that completely changed the face of the planet.
+
+it's easy to see why that's the case: for the time that the atlantians feel superior to the rest of the world with their rock levitation and other forms of magic, they therefore continue to attract a reality which reflects the way they feel.
+
+however, the moment that they got defeated, they lost their feeling of superiority. imagine a bunch of guys that can cut, shape and levitate rocks being defeated in battle. you would think that they could just pick up their foes and throw them to the ground. something must have gone wrong.
+
+well, whatever it was that went wrong, it must have caused them to lose their feeling of superiority -- and *if you lose the superior feeling, you're feeling the inferior feeling*. very few people go back to neutral (things are fine; everything is working out, etc). most swing from one extreme to the other, as seen in various movie stars' meltdowns.
+
+---
+
+keep in mind that I feel like I'm talking to someone who works for nosebook (or one of mr. motor's minions), so I could feel the impact of the part where I was explaining that.
+
+the conclusion, I think they need to take from it is if they want to feel superior, they can't ever let any physical conditions jeapordise that feeling. they have to find a way to feel the way they want to feel, otherwise they could attract a large catastrophe if something makes them feel not superior.
+
+anyway, I think this event is repeating itself. replace atlantians with nosebook and subduing the world with military might, with subduing the mind (hence the reason for why I feel like it's getting harder to define things).
+
+#### making things normal
+
+the next discussion that I had with that guy at friendy harbor was one where he keept trying to figure out how *do* things to get the manifestation that he wanted them. I asked him why he wanted a manifestation, because I knew I could pursue the desire-resolves-to-emotion concept. probably sensing my thoughts, he took it a different way. he said that he likes the way that all of these manifestations feel (or something like that). I had my backup plan ready if he went that route: I asked if these great feeling manifestations something he feels normally or something really exceptional ones.
+
+he said he wanted exceptional manifestations. I was actually surprised by that answer because he was saying that he wants manifestations that don't happen very often. I understand why some people play the lottery and stuff, but he's saying that he's invested in trying to get things he wants to manifest very exceptionally (infrequently).
+
+he totally blew my mind there. I didn't know what to do so I explained that it's all about practising the way you want to feel so you can feel that way at any time you want to feel. he wondered if there was any tricks to manipulating the reflection. I again had my mind blown.
+
+frustrated, I explained that it's like a dancer practising in front of the mirror. they want to manipulate the reflection into behaving the way they want to see theirselves perform when they get up on stage. they don't want to get up on stage and hope for something exceptional to happen. they want to get up on stage and see the performance they practised in front of the mirror to become what happens normally. at least the mirror performance should happen.
+
+I continued the example further saying that special forces don't train so extensively to have an exceptional performance on occasion, they train extensively to have an exceptional (compared to us) performance be the normal. same for highline, tightrope, and all other acrobatics.
+
+my goal is to make it so normal to feel the way I want to feel, it's just not any effort to me anymore. ask any actor how easy it is to feel how they want, but it's not really a case of effort: we have a lot of *logical* reasons why we don't believe we can feel the way that we want to feel. I call these perceptions and I also want the ability to rearrange and adjust the logical connections between concepts (hence the recent psychdelic "loss of ego").
+
+---
+
+there is more to it than just that. nosebook is helping quite a bit with this "loss of ego" experience. since I haven't really had the external input of internet, nosebook has been much more successful at rearranging the logical associations in my brain. they are really getting my brain pretty tightened down so that they can control how I perceive things.
+
+it really feels like they have jumped on to this time of no internet as quite an opportunity. assuming that jaron and mom are also heavily regulated, they completely control all input and output I have of my experience.
+
+you can imagine how good this is for them. I think a lot of this is actually partially implemented for other people, but the idea is, if you can control what concept another concept is associated with, you can control the logic of it. strange things have happened which seem to keep getting me to push back my long trek down to get internet. I pretty much have to go to starbucks because it seemed pretty evident to me that every time I tried to use the internet there that guy would start talking or my computer would bluescreen. it was obvious that they *didn't* want me using internet there. they probably want friendly harbor to be associated with that difficulty,
+
+I think they're trying to make that the new normal.
+
+#### the new normal
+
+so, while I'm learning how to make what I feel normally, the way I want to feel, they seem to be taking this these logical associatcions thing to the extreme. logical associations inspire action (everyone has a reason for why they did something), so if you they can influence the logical associations that we have then, they can inspire the action that they want. zombiefication
+
+it seems as if this whole experience is going to become more and more normal for all of us. I don't really think it's that big of a problem though.
+
+real quick, I forgot a part: one of the concepts I have been thinking about is the idea of the female gender going extinct. the connecting idea to this the one that the original atlantian gods had both genders (xxxy) and then "God" split them into male and female (xx, xy); I call them simply x3.
+
+the setup where I'm talking about creating a galaxy makes a lot of sense from my point of view, but it really doesn't make a lot of sense from nosebook's point of view. in my view, I don't really want power structures or any of that nonesense. I like the idea of collaborating with other people who want to make something and sitting around when I don't feel like doing anything. I don't have any special need for levels of security or privacy/access barriers.
+
+it's easy to get from this world to my world: everyone who can handle living such an energetic envirenment won't burst into flames as the energy continues to rise.
+
+for the other side however, it's a lot more difficult. they need to have all of their control structures in place so that no eager power grabbers try and get any power they don't deserve. you gatta climb the ranks and earn it. they don't want any adjustments in the power structure already in place.
+
+---
+
+so now imagine for a moment that the galaxy idea has already been created. my side is all setup and working properly. we just need their dissatisfaction so everything is good from our perspective.
+
+on their side, people will continue to get more expanded perception all the time. they will undoubtedly have a society setup where it appears that everyone can do what they want to do, however, what they want to do will be very influenced so as to keep people away from the taboo stuff that would jeapordise their numerous access levels and privacy.
+
+in short, in a world that is continually getting more and more psychedellic, in that the conceptual lines getting more blurry[^1], they need a way to control the definition of things so that people don't experience that "loss of ego" experience where everything becomes everything.
+
+as energies continue to rise[^2], people will receive more and more consciousness (source) naturally, producing that "loss of ego" exeperience. so, because they like the idea of continually seeing better[^1], they don't want the conceptual lines getting blurry they need a way to control how people (mostly theirselves) define things. if they can control the definition, they won't feel the "loss of ego" experience.
+
+it's funny to think that they are creating their own definitions of reality in order to keep perceiving more and more physical reality. what could go wrong, right? I don't actually think anything will go wrong as long as you have an anchor and can get back.
+
+#### mutual back scratching
+
+so, they need a way to define reality for theirseleves and for other people else their power/access/privacy/etc structres are can collapse. if they were to try and implement it retroactively, it wouldn't work. their definition of reality has to feel "normal" for it to work. you have to believe you're a sinner and toil is your punishment for the previous paradigm to work. same with this one.
+
+I find it likely then that it would be decided that they need a way to get their system setup and all of their power structures in place *before* the transition to their definition of reality. people need to believe their definition of reality is normal.
+
+so, I find it likely this timeline was created to ensure that they could get all of their structures in place to ensure their ability to enforce their definition of reality in all of our minds (including theirs), essentially forever.
+
+for me, this timeline also works pretty well and fits right in too with the new paradigm of not needing or using a manifestation as an excuse to feel the way I want to feel.
+
+as they control more and more my definition of reality, I get the most practise of anyone to feel the way I want to feel.
+
+#### final mindblow
+
+I called it "my side" and their side, but in the sense that the x3 space bros are actually my genetics, I kind of live conceptually in them as a species. even though their ideas (IMO) are pretty wiggidy-wack, there's a lot of good reason to believe that those definitions of reality on their side will undergo a lot of transformation over time, so it's kind of interesting to think of myself as a species.
+
+it's like horizontal evolution rather than vertical (I am me; we are you). think of each species and notice that they have something in them that is preprogrammed from the start. for humans, this idea of having preprogrammed perceptive capacity was the idea behind the aryan superrace and has undergone various terrible incarnations through history, but imagine a species that has preprogrammed into it a whole lot of really perceptive capabilities but runs on a set of definitions that are extremely outdated.
+
+I like to think of this as something like running a quantum computer on windows me. like me in the present day, the space bros will continue to get their definitions dedefined to hide a reality where everything is known and anything can be perceived.
+
+it's hard to explain this idea. I don't know how I feel about it. I think reality will continue to expand at such a rapid rate for them, the space bros will need to divide their own consciousness into further species that they create. it's far too expansive to fully render into words.
+
+#### reread the intro
+
+there was a lot to this one, but the basic idea is that I started out with a system whereby sequences of cards can represent more and more higher level actions (kinda like a function) and that I think that this is conceptually the future for controlling things rather than pushing button combinations and stuff.
+
+I really don't know what to do about all of the reactions to the female stuff. if I were resonant with them, they would be in my experience, so I must not be resonant with them. it very well could end up that the x3 gods do take over again. it does seem like that is what is happening now and it's a bit of a repeat of what happened when atlantis tried to subdue the whole world.
+
+though, if they can subdue the whole world successfully, then I think it's actually a *wanted* thing rather than an unwanted thing. this is probably the peak (alpha) manifestation of mutual-back-scratching.
+
+so, like me, find ways to feel the way you want to feel. it doesn't matter that they need to have a way to ensure their feeling of superiority. it doesn't matter what is visible definition/manifestation of reality, I can still feel good.
+
+I did try to reference the "loss of ego" and the evolution-of-desire need/want/IAM concepts various times so it may not be necessary to reread the intro to see why I may feel like my *normal* everyday experience is beginning to feel like that "loss of ego" part of the trip.
+
+one further line of inquiry is: if it's not need or want, then it's supposed to be IAM -- but if I experience "loss of ego" who is "I am"?
+
+[1]: the definition lines between concepts become very blurry, which is ironic because visually, it appears as if all edges gain a sort of crispness and everything appears more defined. it's almost as if the perception of physical definition in the visuals, sucks the conceptual definition out of the experience and it appears that everything seemingly relates to another thing in some sort of way (probably similar to a newborn child)
+
+[2]: I've been trying to figure out why they get so bent out of shape when I don't sleep. or, like the one time when I "watched stars" in the day and jaron was completely zonked, unable to play the game, my most probable theory of what is happening is that when this energy rises, they start to have that "loss of ego" experience. so instead of having that experience, what they do is neutralise it. however, that would have the effect of creating discomfort or perhaps removing a portion of their perception. so like let's say a person gets 100 units of consciousness input (DMT) and the "loss of ego" experience starts to happen at 200 units of input. I watch stars and let's say it goes up to 300 units of input. until I go to sleep and they can recalibrate, they probably just remove 200 units of the persons' consciousness input, leaving them running at about 1/3 normal capacity. the numbers are likely much larger than that. I used to feel a difference in consciousness input after watching stars because it was such a high percentage. however, now I'm probably running at maybe 10k so a 200 unit improvement doesn't feel like much to me but it's 2/3 of a normal consciousness experience for jaron.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
