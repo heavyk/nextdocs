@@ -8178,16 +8178,91 @@ it's also fun to think about the idea of two people leapfrogging each other's ti
 
 ---
 
-wow, long intro... I said all of that so that I could conclude on the previous supposition that maybe 1000y from now we've really pooped the bed and we're using this technique to flatten the curve as much as possible. I'm just here so the business-as-usual boys can get everything all setup for the next 1000y of "peace". prepare for 1000 years of ultra mundane reality to get through the enormous jam we've gotten ourselves into 1000y from now.
+wow, long intro... I said all of that so that I could conclude on the previous supposition that maybe 1000y from now we've really pooped the bed and we're using this technique to flatten the curve as much as possible. maybe I'm just here so the business-as-usual boys can get everything all setup for 1000 years of ultra mundane reality to get through the enormous jam we've gotten ourselves into 1000y from now.
 
-to really get that hockey stick to pop, you gotta flatten the timeline quite a bit. or, maybe I'm just planting seeds for the next time pickle...
+the next 1000y of "peace" doesn't need violence to ensure no significant improvement to the human condition happens. the war isn't over physical real estate anymore. wars are now fought in the mind for mental real estate.
 
-what would a cucumber the size of a watermellon (in a glass jar) be called?
+to really get that hockey stick to pop, you gotta flatten the timeline quite a bit; hopefully 1000y will do the trick. or, perhaps that's an echo of a future to come and I'm just planting seeds for it... 
+
+so, what would a cucumber the size of a watermellon (in a glass jar) be called?
 
 [1]: I couldn't remmember the phase terrence always used: ego disillusion. kinda a weird word for me, but he probably chose it on purpose because the prefix, "dis" means to remove -- so, to remove the illusion of ego.
 
 [2]: I've smoked THC analogues and they didn't really give me that effect -- though I don't really know if I get the loss of ego the way that I've felt it in others. it has felt to me like these "loss of ego" effects only seem to boost my ego. I consider them ego boosters more than anything. the closest I get is the realisation that everything is everything and the barriers are a perceptual illusion and we're all connected. feeling someone or something else as if I am that, has never has bothered me. the THC analogues made me feel like something had never experienced before. completely foreign unlike anything I've ever even supposed to feel sort of things. neither terrestrial or alien; something synthetic.
 
+### 2022-01-29 01:25 - leapfrogging time pickles
+
+I was thinking about what I just wrote and I came to the conclusion that I wanted to offer another idea that combines the idea of tuning into one's past and transferring consciousness. there are a few variations, but I'll just go over the basic idea.
+
+let's say I have two friends, alice and bob. they are with me in the present (now). I use the device to tune into moments of my past and alter significant events that lead up to (now). I don't know exactly what happened because for me they are kinda like vague memories[^1]; they could be anything.
+
+each time that I sabotage my own events in (past), we watch the way it turns out and how I end up finding my way back to (now). nothing in (now) changes, however, I *feel* different. a lot different. my velocity will be greatly altered and that great improvement in feeling (because I overcame so many more obstacles) gives me much greater confidence in myself and my ability to handle difficult siutations. the (future) is certainly improved, but I can't really quantify it (now).
+
+I can quantify others' impovment though so I pay attention to alice and bob. no matter what happens, in the timeline alice and bob have to arrive to (now) and be the way they are (now). it's pretty likely that alice and bob eventually become a hinderance to me. I can't sabotage my timeline further because I have these well-meaning friends that have to arrive to the mundane versions of theirself they are in (now).
+
+at some point in time it's recognised by alice and bob that no matter how good I much I mess up my timeline, they don't really receive much benefit from it. they must return to their present status in (now).
+
+however, when they sabotage their own timeline and watch their own progression, they start to get a sense of their own capabilities to handle certain types of difficulties. they know they're capable of handling certain types of sabotage. they also see that no matter what they do to sabotage theirselves in my timeline, they *must* arrive to be the same alice and bob they are (now).
+
+so, because they are certain that my situation in (now) is solid, and they like the improvements they've seen they're capable of they decide to transfer their consciousness into younger versions of theirselves (or whenever it is that they're born) on my timeline and (if they're alive) do some self-sabotage of their own.
+
+just by transferring their consciousness into younger versions of theirselves in (past), they are altering their timeline and making a split. events will be play out differently and they'll arrive to (now) differently than they saw theirselves in my timeline.
+
+the whole point of transferring your consciousness into a younger version of yourself is that you are taking your trajectory of the (now) and putting it into a version of you in (past). this alone will automatically cause difficulty because (past) you doesn't run at the same speed/vellocity that (now) you does. if there's a pretty big difference in velocity, you may need a brain haemorrhage or a physical disability to stifle that velocity. whether you're physically disadvantaged or not, you'll attract problems more rapidly. horray, you're an "old soul" now.. lol
+
+---
+
+so I'm there in the future and I'm watching all of these crazy things happening and all of these people cashing in on their difficulty for pretty amazing feelings and stuff.
+
+from alice and bob's perspective, they are getting a massive boost to their velocity and they're watching all these crazy things unfold for their lives.
+
+---
+
+from my perspective alice and bob will have changed tremendously as they get closer and closer to (now). I however, will be the same person in (now) that I am (now). in some sense I still limit alice and bob's implementation in (now). they can't be *too* much different. to release theirselves from this restriction, they may choose to be born into newborns or other people's bodies I don't know.
+
+anyway, because I don't receive any spatial improvements like like improvements to my body or possessions -- I just feel better -- you can imagine a sort of thing where you'd want to take turns with some friends.
+
+next time, say alice will be the great attractor and so bob and I will jump into her timeline and enjoy the improvements gained from her being in an environment where she sabotages her self. this is where I'll really cash in the velocity gained from my own sabotage.
+
+like I said, I'm the same in (now), but I *feel* better, meaning my trajectory is more rapid. I could wait for the future, but I may want to cash in even more by being born into a newborn's body. there I'll really get to get full advantage of that velocity change. I may even pick alice to be my mom.
+
+---
+
+you can see how a lot of variations on this are possible. one such variation perhaps could include someone who is so unwilling to change that they could easily be the great attractor for a large group of people. whatever happens, we will all arrive to (now) and he'll be exactly the same but we'll all be very different.
+
+this is essentially why I imagined the idea as the implementation of the time pickle. let's say that some massive disaster is looming on the horizon and given the current trajectory, there's no way we're going to make it. so, in preparation all of the people that have no intention of changing are gathered to be the great attractor for us. we know for certain that we'll arrive to (now) and he/she will be exactly the same they always are.
+
+ideally, the great attractor would only be one person. anyway, in their perspective, they're headed straight for a disaster that appears unsolvable. it would look to them something like everyone (except them) jumping up to the next level instantly at the (now) the person transferred their consciousness.
+
+imagine a situation where I prove the method to others and be the first great attractor for other people. I receive no benefit from the event. from my perspective, I manipulate and orchestrate sabotabe for the people that transfer their consciousness into that timeline. to simplify an iterative process, let's just say that from our perspective in (now) the people who transferred their consciousness, seemlingly instantly go from normal people to super humans. they just wake up that way with a different set of memories of how they got to the present.
+
+little by little, you can imagine that people will take the plunge and setup for theirselves circumstances so they arrive into (now) with more velocity. each one that does wakes up with more and more speed than before. pretty soon, everyone is wanting to do it -- cept for a few of course. there doesn't have to be (use the leapfrog technique), but there's never a 100% adoption rate.
+
+it's OK that there isn't a 100% adoption rate because the ones that don't want to change provide a perfect great attractor for us to use. in their perspective, they remain exactly how they always are, yet all around them, there seems to be people waking up and being born with super human capabilities. it's their choice to remain the same.
+
+there's more too it than just that though because we share a planet, so for the stagnant types, it's a huge problem to be around people who are happy and feeling good. misery needs company. this is why I used the time pickle idea as the basis for the galaxy idea. if the stagnant types are given a location where they can micromanage us, then they'll have the perfect setup. they'll be able to continue on not changing while at the same time causing us all of the difficulty they can think of. they can be pissed off at everything and really ensuring our failure as much as possible. their job is to generate a lots of bad-feeling (dissatisfaction/unwanted/etc) for us to convert into good-feeling (satisfaction/wanted/etc).
+
+obviously a super easy task for some people. if they ever want to do something different, that's their choice, we don't need them to do anything different to be able to use them. even if they want to do something else, we can just do the leapfrog technique. I'm certain that, for example, I'll be fine being the great attractor. we definitely don't *need* them for this idea to work. we only need technology to tune into a timeline (using a concept or "memory" which is also a composite concept) and the ability to transfer consciousness into another body.
+
+if this were to exist, the galaxy idea seems necessary, especially during the transition phase to kind of keep the populations more separated (solar activity, magnetic fields, etc). some of the slow adopters may not even want to be in the same solar system as us. they might want their own. maybe they want to be "gods" in another solar system with hominid species. or, maybe they stay here and earth becomes the planet of the unchangables. I just don't know.
+
+---
+
+there are some holes in my theory. the idea is heavily inspired by my situation. it feels to me like there is collaboration. it seems that tesla is involved. though I resonate with him significantly, I don't seem to be tesla exactly. and, if I were him, is he in my left hemisphere or my right? who is the girl? I interpretted it in the moment as jesus in the hospital, but since she seems more like the sun than like tesla.
+
+I identify the sun with isis/ishtar so 1. I identify tesla with thoth, so 7. I haven't figured out who I would identify jesus with because he has thoth/tesla-like physical pereption (7), but he's a reborn deity and a has time manipulation capabilities, so more like 3 or 5 than 1 or 7. maybe he's a mix. I also feel sigificantly more vulcan-like in my emphasis on emotion (5). I used to be more physically oriented (7), and I've picked up a lot of good techniques with the throat (3) and I have tremendous desire (1).
+
+so I dunno what and how I could even define which me is me. seemingly there are a whole bunch of me's and I don't know what is me on the outside or on the inside of the timeline -- so that makes "me" more like source. I'm clearly not quite resonant with all of me though, so is the rest of me I'm still not resonant with yet, source? how can I be both inside the timeline and outside as well.
+
+I really don't know the answers to a lot of these questions. I don't know what other people's experience is, but I'm really looking at the screen right now writing this. I'm not a robot or anything. to try and figure out where me begins and ends, I've explored the topic of consciousness a lot recently, and it appears that the more of it I allow, the more "conscious" I become. when I was a child, I was barely conscious, but I also barely had any definitions. are my definitions the basis for my consciousness?
+
+I know my definitions are related to my allowance factor, and the more loose my definitions I have, the less resistance I have to allow me and others to be who they are. the more I realise it's all about me, the more fluid my consciousness becomes. who is "I" though? it feels as if the ones who identify with self, see themselves as different from others. however, the one-as-many types see theirselves as similar to others. they're different forms of consciousness. the mushroom consciousness exists all over the place and can interface with quite a bit of other types of consciounesses (many mammals). so maybe the many-as-one can be seen as translators or transition zones of consciousness like the imagination (2/4/6). the many-as-one perspective seeks to implement consciousness for all other like-minded (similar) organisms. it's all too weird to say what is me at this point. I know how to operate this body pretty well though.
+
+it really wouldn't surprise me if I found out "I" orchestrated the time pickle. depending on my perspective, I most certainly did. it's just such a weird concept to think about consciousness interacting with itself to such a degree that planets, stars, and galaxies can exist.
+
+to be or not to be, who I am is the question.
+
+[1]: it just occurred to me that my non-visual capacity would be of great benefit here because my memory is so flexible. because I don't see it visually, almost anything could have happened and as long as it roughly aligns with some of the notable concepts and the way I feel when remembering it.
 
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
