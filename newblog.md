@@ -8106,6 +8106,89 @@ one further line of inquiry is: if it's not need or want, then it's supposed to 
 
 [2]: I've been trying to figure out why they get so bent out of shape when I don't sleep. or, like the one time when I "watched stars" in the day and jaron was completely zonked, unable to play the game, my most probable theory of what is happening is that when this energy rises, they start to have that "loss of ego" experience. so instead of having that experience, what they do is neutralise it. however, that would have the effect of creating discomfort or perhaps removing a portion of their perception. so like let's say a person gets 100 units of consciousness input (DMT) and the "loss of ego" experience starts to happen at 200 units of input. I watch stars and let's say it goes up to 300 units of input. until I go to sleep and they can recalibrate, they probably just remove 200 units of the persons' consciousness input, leaving them running at about 1/3 normal capacity. the numbers are likely much larger than that. I used to feel a difference in consciousness input after watching stars because it was such a high percentage. however, now I'm probably running at maybe 10k so a 200 unit improvement doesn't feel like much to me but it's 2/3 of a normal consciousness experience for jaron.
 
+### 2022-01-28 21:12 - inflection points and species consciousness
+
+I forgot the final piece to tie it together in the last entry.
+
+it seems high levels of DMT doesn't seem to always produce this "loss of ego"[^1] effect. endogneous (created by your body) DMT doesn't seem to have this effect. it does have visuals and stuff. I've never smoked synthesised DMT, but psilocybin that hydrolyses into DMT contains a lot of the mushroom consciousness to it. same with ayahuasca. interestingly, people also experience this effect in high doses of pot -- also a plant[^2].
+
+mushrooms has a consciousness that extends beyond just this planet. ayahuasca has a very plant-like consciousness to it. they're so distant from ordinary consciousness, they appear strange. I believe they are closer to what I would imagine the consciousness of a species is like.
+
+covid isn't confined to just one body. it can spread to other hosts. likewise, mushrooms I do not believe are confined to a single planet. there are likely mushrooms out there in the galaxy. same with plants. it's pretty likely that there are similar species of plants out there to the ones we have here. it's quite possible that other galaxies even have plants or fungi species that are quite similar to the ones found here.
+
+---
+
+I'm going to refer to these ideas as many-as-one and one-as-meny. humans, animals, planets, stars and things like that are one unit of consciousness, yet they composed of many smaller conscious bodies (cells, animals, etc). those are many-as-one. one-as-many is the idea that there are many different species of conscious organisms like cells or animals and these all grow and live individually, but still as a whole the entire species can evolve. this idea I think was popularised by rupert sheldrake, and I think he called it morphic fields.
+
+I think it's quite possible that a lot of the "loss of ego" happens because the DMT aids in the tuning into the consciousness of the species, the morphic field of that supergroup. you are no longer you. you think as if you're the whole species. this undoubtedly causes some discomfort in people, because they wish to believe that I am different than you are.
+
+I figured out the secret and understand how the universe works:
+
+we're all connected :)
+
+---
+
+ok, jokes aside now; let's really go off the deep end...
+
+let's talk about inflection points. think of a teeter-totter or any sort of lever with a fulcrum. the fulcrum is the inflection point. now instead of thinking of it as a rigid lever, let's imagine it like a string or curve.
+
+perhaps for the sake of this discussion because I don't know much about curves, let's suppose there are two bezier curves and two of the handles in the middle are joined so that one handle is 180(degrees) opposite the other but the same magnitude. imagine the curve starts as a straight line going from bottom left to the top right with a third point in the middle. this is the inflection point, and so because we're starting with a line, the handles have a magnitude of 0. let's think of this line as time.
+
+now, imagine for a minute that we're 1000y into the future and let's just say that we've really "pooped the bed" and something bad is about to happen. like I said, you can't change the present, but you can change the perception of how you got there. this change in perception changes the velocity and trajectory at the inflection point.
+
+so, you go into the time machine and you change a bunch of things to alter the trajectory through time to get to the present. we'll assume that you can't have (I don't know the word for it), a curve that changes direction (like, the vector of any point the curve cannot point more toward the origin than the destination). this restricts the handle to 180(degrees) of freedom with a magnitude no greater than half of the difference in y coordinates between starting and ending points (there is no regression). at when the handles are pointing straight up and down full magnitude, it should look like a smoothed square wave.
+
+I just realised my example doesn't work because disaster can't be modeled. I'll think of a solution. the point is to think of this line, not as a timeline or a path but more like the velocity curve. so imagine our present situation. if you go out and ask anyone what they think society will be like in 50y, they're looking at the trajectory of time -- as in, if it continues that way, we'll nuke ourseleves or whatever they project out into the future. it's the perceptual trajectory, not the trajectory itself (cause there is no regression).
+
+it appears to me that we've had the perception of our trajectory really modified a lot. things are constantly improving all the time, but people have been believing for hundreds to thousands of years that we're on the brink of extinction or just barely scraping by.
+
+so, what I'm saying is that imagine that you could alter the perception of time leading up to the present. you're assured that the present moment will happen (cause you're living it), instead you're just influencing the past so that different key events leading to the present didn't happen. they were prevented from happening the way that they did. instead, they're kind of like delayed in that another event will happen which another path is found to get to the present moment in the future, but a different way.
+
+what's happening is, each time you delay something positive from happening, you're pushing that handle further and further downward, until the bottom part of the curve appears more and more flat or linear in its progression. this is your typical "hockey stick" graph where at some point, critical mass is reached and it rises quickly.
+
+or, from the point of view of the great attractor (the present  moment in the future, inflection point), no more delays are possible. the line must rise rapidly to reach the inflection point.
+
+what that would look like in reality would be something like this: imagine I had the time machine and I found myself in a tough spot that I needed a bit of inspiration. I decide to boost my trajectory right now in time so that I've got a lot of momentum toward wanted. so, I go back and I manipulate events in my past and purposefully sabotage them so that they don't happen.
+
+sabotaging a key event of the past would appear to be disastrous, but it's not like reality disappears like in "back to the future" -- it's more like your perception of how you got to the present changes -- probably because you went back and lived a different reality where you were unsuccessful rather than successful. the inbetween stuff gets filled in with anything that would work. in reality that stuff doesn't matter though. what matters is the present moment (where you are) and your trajectory (where you're going).
+
+so if I did that, it would appear like I had a long series of failures leading to a rapid rise up to the present moment.
+
+---
+
+some people are saying, but what if I go back and influence myself so that the present moment doesn't happen... it's not like that. I say time machine but I think that's a conceptual construct. you can only alter the perception of the past, so in reality you can only tune into the past and try to influence yourself to do something different. obviously, someone like mr. motor would not be influenced so easily the influeneibility depends on the person. so like, what happens if you get someone to kill you in the past, sure you influenced that to happen, but you're still living in the present, so that created a time split where on one timeline you're dead. not helpful because it did nothing to alter your present trajectory.
+
+you either modify your trajectory or you split the timeline. also, if you infuence yourself so much that you no longer believe the present is possible, again a split happens.
+
+if you had this device, you would notice pretty quickly that causing difficulty in your life only increases the speed of your trajectory to the present. also, you would begin to know yourself and the limits to what you levels of difficulty you can survive before it makes a split. or said positively, you would really begin to believe in yourself and your capacity to go toward wanted no matter how many setbacks along the way.
+
+you may even get addicted to the device and try to come up with even more and more difficult circumstances which under normal circumstances would render any situation as hopeless. the more hopeless the situation looks, the steeper the curve is toward the present, and so therefore the more velocity you have in the present.
+
+---
+
+another interesting line of inquiry might be to think of combinations of circumstances. that device allows you to tune into the past and influence your thoughts and the thoughts of others to adjust your trajectory to the present. now, imagine that device combined with the device that allows you transfer your consciousness into another body -- or, perhaps you're a fallen angel and can do it already.
+
+so, you tune into the reality and influence yourself and a bunch of others so that a whole bunch of things go wrong. you know you're going to get through it just fine (cause you've felt how good you feel in the present because of the events). it feels pretty good, so instead of just feeling the change in trajectory, you want to experience that hockey stick experience yourself so tune in to your own body to relive that experience.
+
+just by transferring your consciousness, you've changed your "now" moment, and so therefore have changed your point of attraction. no longer is it the one in the future, it's your present reality. just because of that, it's certain that you *won't* end up in the same place you left. you'll end up in a similar spot, but because you have the perception from the future in your new circumstances, it'll produce a different result. it's kind of like taking that middle inflection point and moving it down the line. in that sense, just the act of me transferring my consciousanes makes a split in the moment which I transfer my consciousness into.
+
+there are other things to consider too like the possiblity of what it means to purposefully make a timeline split by having someone kill me. on their timeline, I'm dead, but clearly I'm still alive, so they've moved to a different timeline.
+
+it's also fun to think about the idea of two people leapfrogging each other's timelines so that they can keep moving the velocity of the future back into the next iteration (one plays forward while the other is opposition). they take turns failing/sabotaging while the other succeeds. it's kinda an alpha/omega concept.
+
+---
+
+wow, long intro... I said all of that so that I could conclude on the previous supposition that maybe 1000y from now we've really pooped the bed and we're using this technique to flatten the curve as much as possible. I'm just here so the business-as-usual boys can get everything all setup for the next 1000y of "peace". prepare for 1000 years of ultra mundane reality to get through the enormous jam we've gotten ourselves into 1000y from now.
+
+to really get that hockey stick to pop, you gotta flatten the timeline quite a bit. or, maybe I'm just planting seeds for the next time pickle...
+
+what would a cucumber the size of a watermellon (in a glass jar) be called?
+
+[1]: I couldn't remmember the phase terrence always used: ego disillusion. kinda a weird word for me, but he probably chose it on purpose because the prefix, "dis" means to remove -- so, to remove the illusion of ego.
+
+[2]: I've smoked THC analogues and they didn't really give me that effect -- though I don't really know if I get the loss of ego the way that I've felt it in others. it has felt to me like these "loss of ego" effects only seem to boost my ego. I consider them ego boosters more than anything. the closest I get is the realisation that everything is everything and the barriers are a perceptual illusion and we're all connected. feeling someone or something else as if I am that, has never has bothered me. the THC analogues made me feel like something had never experienced before. completely foreign unlike anything I've ever even supposed to feel sort of things. neither terrestrial or alien; something synthetic.
+
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
