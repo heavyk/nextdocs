@@ -8379,6 +8379,20 @@ now...
 
 clearer? see now how I don't need/want the manifestation, because I AM the manifestation?
 
+#### final thoughts
+
+on one level you can see how from nosebook's perspective, I provide a great way for them to get their genetics upgraded (physical) and influence the creation of a system which can affect conditions in the body (brainwaves, chemicals, etc) to maintain a set of definitions of reality which suit their purpose (keep secrets hidden, etc). they get all of the physical conditions necessary to affect the world-view of human population groups.
+
+however, on another level, I'm kind of rewriting the conceptual aspect of the world-view. so sure, maybe my idea of wanting to create a galaxy may be ahead of its time. too many peoples' world-view is constructed on top of outdated concepts like privacy, secrets, punishment, and justice. my work here is to make sure they have all of the physical capabilities they need to reinforce those outdated concepts meanwhile the new concepts are pulling us toward that.
+
+at times I'm starting to get the feeling that maybe the joke I wanted to make about the next 1000y of "peace" being prepared for now giving the business-as-usual boys the ability to really extend the hanldle of the hockey stick for another really long period of time. if the whole 1000y thing is a reference to a solar cycle and indeed we're missing a whole 1000y of human history, then the 12k year catastrophe cycle is still 1000y from now.
+
+the real irony here is that because the business-as-usual boys are using my genetics, I am physically the problem and conceptually the solution... it's kinda funny to me.
+
+as this solar cycle ramps up, we'll start to get a sense of how much effort they're going to put into trying to maintain the illusion of gradualism and glacial rates of change. if we're still 1000y away from the big event, this looks almost like a practical joke by the sun to say,
+
+> you think I'm gonna blow my brains out now? wait till we power up for another 1000y. a quasar is going to look pathetic in comparison :)
+
 [1]: the reason why iron is used to prevent negative fey encounters is because iron has historesis to it so the magnetic field gets slowed and will disrupt the vibrating magnetic field, slowing it down in it's vicinity.
 
 ### positive / negative resistance and heat
