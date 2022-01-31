@@ -8264,6 +8264,94 @@ to be or not to be, who I am is the question.
 
 [1]: it just occurred to me that my non-visual capacity would be of great benefit here because my memory is so flexible. because I don't see it visually, almost anything could have happened and as long as it roughly aligns with some of the notable concepts and the way I feel when remembering it.
 
+### 2022-01-31 02:41 - I don't think I want the manifestation
+
+#### freedom felt from not needing the manifestation
+
+mom was watching this movie, "we can be heros" (I think it was called) and there were a bunch of people flying around. it was hard to tell but some of them were flying around by using these drones to carry them. I think some were also flying without it, but I didn't see.. it may have been that the kids have real super powers while the adults needed drones to fly... anyway, seemed that there was a force trying to prevent the kids from having superpowers -- so a well-timed alien invasion was good enough justification for their acquisition of superpowers.
+
+anyway, the movie reminded me of this one time in spain when I was living at vera's house, and I took a trip down to madrid to drink with noah and zaryn. vera gave me some money so I could go. I showed up to the vinoteca a bit early, or perhaps they were late -- either way, this was a sign to get the party started before they arrive. I think I had been feeling pretty good and I think there was yet another illusion of trying to get me setup with girls...
+
+I don't remember what happened, but I do remember right before blacking out that I had increased psychic awareness and could manipulate the feeling in the room with quite a bit of ease. the bartender either liked me or was nervous about the nosebook broadcasting (people were more concerned of how they presented theirseves around me at that time), but she was very nervous and had some feeling of "I don't know what to do". when I get the capacity to dominate the room with the way I feel, I tend to scare people, because I seem to overtake their usual superficial interaction. to them, it must feel like I perceive much much more than just the "hola como estas" level of conversation.
+
+it was also a weird blackout in that I suddenly became conscious either on the train or just after the train walking back to torrelodones. I have a lot of expedience with blackout drunk and this wasn't the ordinary one. usually when drunk, I become conscious when I realise the meandering thoughts don't make any sense or I've seen the same landmarks more than once. I would say it was more similar to the way that UFO encounters describe "missing time". it was more like the time from the vinoteca to the train was completely missing. also, in blackout drunk, I can often find a way back to the memory of what happened. in this case I can't.
+
+judging by the reactions and other bits of evidence I've enountered, I think I started to feel so good that I started to fly. I had learned the capacity previously in dreams (at marcos' house) and had figured out how to activate the energy centre between the shoulder blades by feeling a sense of freedom. the more I felt light and free, the more levity I felt there between the shoulder blades. they probably didn't want me to remember that, so they pulled me consciousness and operated my body until it was safe to allow my consciousness to come back in. for the sake of this discussion, I'm going to suppose that my theory for loss of consciousness and the weird reactions is because I did in fact fly around that day.
+
+---
+
+though I suspected that I had flown, you have to realise how I figured out how to fly in the first place: no one initiated me. no secret society gave me instructions on how to increase DMT or other good-feeling chemicals in my body. I had begun to learn how to feel the way I wanted to feel. at that time in my life I was living at vera's house because marcos had kicked me out because of the problems with andrea. I had then proceeded to go to see her mom and explain my position on the matter. it was then that I realised that I didn't *need* andrea to feel good. I can feel good without her and the better I felt the more freedom I felt.
+
+a thing that abraham said which stuck with me and I repeat often is that the only freedom you really have, is to feel the way you want to feel. the more I chose how I wanted to feel in spite of the conditions, the more *freedom* I felt. almost certainly the conversation with noah was going to be relating to the loss of the condition of andrea (or affinaty, or whatever) and I knew that none of those conditions mattered. what matters is how I feel, and I was going to show him that.
+
+that feeling of freedom of being able to feel the way I want in spite of the conditions probably why I could fly.
+
+---
+
+from there, there has been a steady reduction in my conditions such that there are not any real conditions presently that I can say are the reason for why I feel good.
+
+it's for good reason that I didn't want to continue to try and use conditions to get manifestations. I would say I've gone even further now than that to say that I don't really want the manifestation, I want the thing that produces the manifestation -- the feeling. that feeling of freedom is so intoxicating.
+
+I explain that concept in various ways to the girls from time to time in backwards ways (never have I been this direct), but they're not really looking for me. they're looking for the thing that they think I have to offer.
+
+if I had to guess, I think what they want is that feeling of freedom. I feel free to be, do, or have anything. I'm not bound by normal restrictions of time, space, money, or prestiege.
+
+however, the reason why I'm not bound by those restrictions of time, space, money, or prestiege -- is because I feel that freedom. I can feel the way I want to feel. neither time, space, money, or prestiege (or any other conditions) determines how I feel. *I* determine how I feel. those conditions don't hold power over me.
+
+that's the secret. do that and you can be the proud owner of any feeling you want.
+
+#### definitions and my world-view
+
+so here's the thing... jumping to the present day, yesterday morning when I went to sleep, there were a lot of concerned people thinking about me because it seems that they have a problem: I seem to be enjoying not having internet too much.
+
+as a programmer, I couldn't fathom living without internet because that's where all the resources are located, or if I have a problem or bug, I just google for the fix. however, now that I'm not programming anymore, I really like not having internet.
+
+the other reaction was around the game I've been playing the last 3 days, south park. you see, whenever I focus on something I start to get into the heads of the creator of the thing. even just *watching* disney's adaptation of the hunchback of notre dame, I felt like I was feeling the thoughts of the original author and also the studio's decisions on how to adapt it. well, it's no different with south park. I have a strong sense of some of the feeling that the creators put into it. it's nice because I really appreciate the game a lot more because I can really feel all of the work that went into recording so many hours of dialoge and mini-interactions. that amount of mental effort embues the creation with a lot of energy.
+
+this appears to be a problem. my working theory of why that's a problem is the main subject of yet another long entry. sorry for another lengthy intro...
+
+#### what creates my world-view and how do I construct reality?
+
+for me, reality is what I feel. I'm certain this is true for other people too, but without so many conditions to manipulate how I feel, this is especially true for me.
+
+when I was watching youtube, the way that I viewed the world (my-wv) was acquired from the creators of the videos. I get into their head and see things from their perspective, so I sort of adopt their-wv for the duration of the video. it lingers though so the combination of the the wv of differnt content I consume determines how my reality is constructed.
+
+other people also construct my-wv as well. I'm strongly influenced by other people. even that one conversation at friendly harbor lingered with me to such an extent, I was able to take from it the entire sense of how nosebook is essentially defining our realities for us as DMT levels keep rising in people because of the conditions on earth (DMT seems also to be related to flight).
+
+though men really affect a person's wv, women seem to have a much more powerful effect than men do (at least on me). I think this is true for everyone and probably the leading cause of gayness..
+
+I believe that from this event when I went down to go meet noah at the vinoteca to the present day, nosebook is *still* trying to arrange a setup where I'm around women who are used to determine how I construct reality. if they are women that can be easily influenced to construct reality a certain way which benefits them, that's what they probably thought they wanted. I'm not sure if that's what they still think they want though...
+
+I believe a setup where they manipulate the way women (and other people) to define and construct reality is a pretty precarious setup. this is the old limbic setup of group/mob thinking. all someone needs to do is separate theirselves a little bit from the mainstream narrative for a bit (like I am now) and they get a new world-view.
+
+anyway, I'll come back to that in a moment, but I think the problem is that my world-view isn't constructed by fox news or cnn or suspicious0bservers anymore. my world-view, including the way I think is starting to become more and more south-park oriented. I'm beginning to think like the characters and adopt some of their interactions.
+
+just the other day, for example, I was noting how I can sorta put almost everyone I know into south park. like, for example, I don't see zaryn in any of the characters, but I think he could easily be written in. same with mom, jaron, greg, etc -- just need to exaggerate some of their character traits a bit, but it could still work. mr. motor however, I can't really see in south-park. there are a few petty people in south-park, but he models a totally different type of bad-guy. actually, if I had to write him in, I would change his gender and make him someone's mom and have him manipulate conditons and tell everyone different things (kinda like the opposite of shiela protecting kyle's cousin).
+
+so in a way, my world view is starting to become more and more south-park. I don't know if that's a good or bad thing. I don't see it as either. it's just a thing.
+
+#### the feminine aura
+
+when mom left for jessica's a few months ago, when she left, it was such a massive change. I felt a mental liberty that I hadn't previously. I began to feel that freedom that I had when I was in spain. when jaron came back it lessened quite a bit because now I'm sharing my world-view with him and he doesn't feel very free either. neither of them feel like they can feel the way they want to feel. they have expectations (on how they should feel), and expectations lead to resentments.
+
+I mean there's no one telling either of them that they *must* feel worry or concern all the time, instead that feeling is produced by the constant thoughts of worry or concern (or awareness) that pass through their heads. I feel their worry because I'm still partially resonant with them in some way, if it's nothing more than their physical presence in the room (I'm within their aura).
+
+men and women alike have this feminine aura. I associate it with creativity and perception (like how good you see). this, I believe, is the vibrating magnetic field we emit[^1]. basically, what I'm saying is the aura that creates reality is an emotional one. in the presence of a really high frequency field, you will feel free and therefore be able to fly.
+
+#### looking for it in myself
+
+so you can probably imagine the conclusion by now: no matter what nosebook says otherwise, I want to continue to find the ability to feel the way I want for myself. I don't mind that mom or any others are around me as it keeps me congnisent of what I'm resonant with and continues to give me more and more practise.
+
+I feel like there is a lot of truth to that one far out entry I wrote where I talked about the possibilites if you have the ability to transfer consciousness and tune into another point in time. I even think there are ways to circumvent certain issues. or example, I do think that I am the great attractor at the end. I'm going toward myself in the future -- yet also I'm here, so how can I be in both places at once? this is kinda factoring into the idea that I'm just an automaton of tesla or jesus or someone perceiving from outside of time and I'm becoming self-aware.
+
+nosebook recalibrates (reduces) the amount of consciousnsess that I receive to normal levels every time I sleep, so that I never realise who I really am. I don't mind. what I was eluding to the other night with the many-as-one consciousness, is that their efforts to ensure I don't have a manifestation are kind of pushing me in the direction of many-as-one (human species) consciousness rather than one-as-many (human) consciousness.
+
+so, are they doing this on purpose? I think so, and I think it's probably agreed to. it's probably the pinnacle of the mutual-back-scratching era, as it would essentially mean that I become the human species -- in that all of you, are me. from their perspective, they need a way to define their (and our) reality so that no one has that "loss of ego" experience.
+
+from that perspective, I'm not looking to have any of the conditions of the manifestation (not the girls, or the flying, or any of that), I AM the manifestation. I can have all of it, rather than just some, or none.
+
+[1]: the reason why iron is used to prevent negative fey encounters is because iron has historesis to it so the magnetic field gets slowed and will disrupt the vibrating magnetic field, slowing it down in it's vicinity.
+
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
