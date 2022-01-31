@@ -8350,6 +8350,35 @@ so, are they doing this on purpose? I think so, and I think it's probably agreed
 
 from that perspective, I'm not looking to have any of the conditions of the manifestation (not the girls, or the flying, or any of that), I AM the manifestation. I can have all of it, rather than just some, or none.
 
+#### recap
+
+the many reactions tell me that I didn't explain myself well enough, so let's recap.
+
+- the only true freedom is the ability to feel any way you want to feel.
+- that feeling of freedom is what allows a person to fly and other manifestations which resonate with how they feel.
+  - if I had of been conscious at the time when I flew, I likely would have insisted that they allow me the condition/manifestation
+  - that would have been a regression on the progress I had made realising that andrea (or anything else) is the reason for how I feel.
+  - I'm not necessarily looking for andrea or the flying
+  
+therefore, I'm looking for that feeling of freedom experienced from being able to feel the way I want to feel (which enables flight)
+
+- the way I (and those around me) feel constructs my world-view
+- the things I focus on composes my world-view
+- my world-view restricts the way I feel
+- I can only feel the things my world-view resonates with
+- your world-view (perception) is both the chicken and the egg; the problem and the solution
+- though my world-view is constructed by the way I feel, I can only really feel the way I perceive my relationship with those things to be
+- my world-view is directly tied to my perception
+- the more practise I get to perceive things the way I want to, I override that world-view imposed upon me by others
+
+now...
+
+- my goal is not to get any manifestations that produce good-feeling conditons
+- instead, my goal is to little by little create my own (more dominant) world view separate from the world view others (sorta like when I take over how a room feels)
+- this world-view will be "built in" to the human species, sort of like a morphic field of sorts.
+
+clearer? see now how I don't need/want the manifestation, because I AM the manifestation?
+
 [1]: the reason why iron is used to prevent negative fey encounters is because iron has historesis to it so the magnetic field gets slowed and will disrupt the vibrating magnetic field, slowing it down in it's vicinity.
 
 ### positive / negative resistance and heat
