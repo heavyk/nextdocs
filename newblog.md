@@ -8395,6 +8395,33 @@ as this solar cycle ramps up, we'll start to get a sense of how much effort they
 
 [1]: the reason why iron is used to prevent negative fey encounters is because iron has historesis to it so the magnetic field gets slowed and will disrupt the vibrating magnetic field, slowing it down in it's vicinity.
 
+### 2022-01-31 18:51 - nothing to write about
+
+I decided I want to write so that I can learn to type on qwerty kbd and pass some time while I downlad things. I don't really have a topic, so I'm just going to start to write.
+
+---
+
+I was trying to feel and see if there are any topics in the air and it feels a bit like impatience or anxiousness. there was this thing that lily told me a long time ago. she explained that being a girl/woman feels like being perputually on the verge of crying, laughing, or falling apart. I think that feeling she transmitted stuck with me. one thing that I like about being at home is I find it pretty easy to feel relaxed.
+
+when I was younger, going to the mall or any place with loud noises, lots of people and lots lf lights was very stressful. it really has been recently that I've started to feel more relaxed in situations with more activity. in fact, even today I noticed how much less stressful this time has been compared to the last.
+
+I don't really know what changed, honestly. it sounds weird, but I think I just feel more relaxed, which is why I feel more relaxed.
+
+I've been thinking about expectations leading to resentment, and I think any time that -- like in the mall, I was so concerned with what other people are doing, and concerning myself with other people feels a lot like expectations. instead of resentment, I felt stress because I didn't know how to react to it myself. it's basically the same thing -- or, at least they feel very similar to me.
+
+so, I think the reason why I feel more relaxed is because I don't have quite as many expectations anymore.
+
+---
+
+ok, next topic now. I've really been thinking about last night's conclusion about the sun playing a practical joke on us. one of the reactions(?) to it was sorta a bit of resentment because it's that same old story of a woman oulling strings at a a distance and manipulating people (men) to get what she wants leaving them totally left in a lurch.
+
+the funny thing about this reaction/concept is that when I received it, it came among with a lot of history, almost as if the person transmitting the idea had some extra knowledge of history and all of the manipulation that had happened just so that she could upgrade to a quasar.
+
+like, imagine that this plan may be, from her perspetive, have been going on for millions of years. the martians would purposefully sabotage their planet, then ishtar (the sun) would work with enki to create the slave race, the atlanteans would build up quite a coniderable expectation for a disaster on a cycle, only to pull a fast one at the last moment... manipulation from top to bottom from the very beginning. lol
+
+and with that, I'm out, for now...
+
+### alking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
