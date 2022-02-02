@@ -8453,7 +8453,7 @@ supporting this idea, there was a girl on the front of a magazine -- quality som
 
 what I think may be happening is they are piloting my bodies and then when they have sex, they feel very different aftewards. this happens to me all the time. I feel very strongly of a combination of the way the girl feels and the last man she slept with. if that's the case, that would explain the writer to abe-now about infatuation vs love and also the dramatic difference in how these girls feel.
 
-if so, then it's kind of cool to me to think that they are getting (I probably don't mean it the way some might take this, but) "a taste of their own medicine". personally, I don't know how other men are, but I change very dramatically every time I have been with a woman. I kind of don't like it. I like how *I* feel -- a lot.
+if so, then it's kind of cool to me to think that they are getting (I probably don't mean it the way some might take this, but) "a taste of their own medicine"[^3]. personally, I don't know how other men are, but I change very dramatically every time I have been with a woman. I kind of don't like it. I like how *I* feel -- a lot.
 
 I don't really want to feel like most of them do. I have stated that I don't really want to be involved with any girls until I feel I'm ready. the requirement for me feeling ready is basically feeling the way I want to feel. I don't really want to feel like she does. I want to feel like I want to feel, and then girls that are compatible (resonant/harmonious) with how I feel will then be there. therefore, the goal before engaging in any activity for me is to be able to feel the way I want to feel.
 
@@ -8498,6 +8498,42 @@ this is all completely ridiculous. it has nothing to do with any of that. I want
 [1]: I chose the image of dying on a cross because most people associate that with tremendous levels of pain (thank to mel gibson for his passion), and also because tesla talked about how he is interested in creating a system whereby everyone will become a jesus, zoroaster, or buddha. I appear to be the implementor of tesla's desire.
 
 [2]: for reasons I'll discuss in the second half of this entry. yes we're less than half done.
+
+[3]: see @[newblog](2022-02-01 22:33)
+
+### 2022-02-01 22:33 - galactic medicine
+
+I said that I think that it's good that they can get a taste of their own medicine when interacting with other girls with my body. most of the time this statement is used in the negative. I couldn't figure out a positive way to say it, so I'll explain in long-form here.
+
+I'm extremely sensitive to feminine energy. it affects me quite a bit. I think girls like the sensation of feeling like the other girl feels (dunno if this is all or just lesbians or something. I don't know. it's existed for a while though.. read poetry from that woman on island of lesbos for example).
+
+the sense that I get is that there are a number of women that are enjoying the feeling that is transmitted to the by their interaction with more youthful girls. that's cool. I'm glad they can use that as their reason to feel differently than they normally do. for me though, that's not what I want. I want to feel the way those youthful girls feel normally. I don't want to depend on them to feel that way. I really don't like the feeling of having to depend on others to feel a certain way.
+
+anyway, how would you have said that? what could I say instead of tasting their own medicine? (out of curiosity..)
+
+---
+
+it's funny that this subject revolves around the business-as-usual boys because if you look at *all* of the major coverups from climate to religion, every single one of them denies the power of the sun or feminine energy.
+
+the business-as-usual boys need to try and pretend that everything is normal and there's nothing major going on, when clearly the sun's output has dramatically changed. either I'm more sensitive to it now or the x-class flare in 2017 was way less powerful than some of the c-class and m-class flares this year. I suspect that they have "recalibrated" their instruments, because the sun does not at all appear very active (compared to last cycle) however, it *feels* like ambient solar output these days (like when I go sit in the sun), feels very energetic, kinda about as energetic as how I remember 2011-2014 (though I was on drugs at the time).
+
+anyway, it feels very fitting/ironic to me that the guys that are maintaining that the sun has *no* effect on the climate or on psychic capability are the ones that don't want to be involved with girls.
+
+I have no problem to recognise its power.
+
+---
+
+first, I find it likely that more and more women will want to continue to use my bodies to retain a feeling of youthfullness and vibrance.
+
+second, I think a mutual-back-scratching scenario may occur where the business-as-usual boys will continue to run and operate the "nothing major is happening on the sun and it still doesn't have any influence" version of society is required to keep people fixated on matter rather than energy. meanwhile, the women will enjoy the opportunity to continue their youthfullness through the maintaining of the breeding program to keep providing the boys new bodies...
+
+I was projecting this idea out into the future and it seems likely that there may be an inversion some time in the future: energies will continue to rise and this will continue to be more and more of a problem for the resistant-types like the business-as-usual boys. at first going through bodies really rapidly means there is a lot of work for the women, but later on it may become too fast of a turnover that they may even want to move their bodies over to little girls bodies and operate the network and society from there.
+
+---
+
+that last idea doesn't feel very solid to me (it's probably a bit off), but the interesting thing about it is, a galaxy needs a lot of planets (male aspect) and less suns (female aspect) to control all of the planets (dudes revolving around them). if something similar to the mutual-back-scratching situation I described above occurs, then the setup is correct and the proportions are right. a few boys (I mean little girls) controlling a bunch of old men (I mean women) that depend on them.
+
+it could work...
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
