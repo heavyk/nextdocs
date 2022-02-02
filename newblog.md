@@ -8535,6 +8535,16 @@ that last idea doesn't feel very solid to me (it's probably a bit off), but the 
 
 it could work...
 
+### 2022-02-01 23:27 - the sun has my back
+
+I go to take a break after writing that last one and I feel like I want to go outside. I open the curtains and see that it's snowing. I still want to go outside so I get dressed and go out. the air is warm and my hands are not cold at all (except when the wind blows).
+
+I suspect there was just (within the last few hours) a large solar flare and the snow falling is the business-as-usual boys ensuring that the night doesn't warm up 20(degrees) again like it did last time (see @[correspondance](2021-12-07)).
+
+crazy! it's like the sun has my back
+
+come at me bro!
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
