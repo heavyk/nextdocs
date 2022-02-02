@@ -8421,7 +8421,85 @@ like, imagine that this plan may be, from her perspetive, have been going on for
 
 and with that, I'm out, for now...
 
-### alking away from the greatest conditions and still feeling good is the manifestation I'm wanting
+### 2022-02-01 16:44 - thoughts on yesterday
+
+yesterday was weird because on my way to starbucks, I suddenly had an idea enter into my head: I thought maybe if becky wanted to come pick me up from starbucks, I could crash at her place and make my way back home today. the whole idea was simply to chat with her. it had nothing to do with the girls or anything like that. I just felt desire to converse or something.
+
+the last few days (maybe last week or so) I have felt a growing desire to want to talk to me and kind of pick my brain about some of the things I'm talking about. the first noticable manifestation of it was my sudden desire to go to friendly harbor. I talked about how that went in a previous entry. it did allow me to talk about a lot of the things I'm mentioning here, but because me audience is basically someone working for nosebook or one of mr. motor's minions, the conversation targetted their world-view.
+
+I postulate that the reaction/desire from becky may have been a general interest in knowing what I know where in the last entry (@[newblog](2022-01-31 02:41)) I would be willing to pass up on such seemingly great seeming conditions. anyway, when I remembered to tell mom to tell becky that, mom's phone was off (her phone is never off), and she even claimed that she tried to send me a txt, but it didn't send. it felt like the inability to send the txt was a cover for not wanting to take my call. feeling don't lie; people do.
+
+so then I'm at starbucks and I started to try to figure out what is going on with the git repository, when all of a sudden it feels like now there are various girls coming to starbucks and expressing interest in me. it was weird because I couldn't (physically) feel their desire, but I could sense something of that. however what I did feel from them is their nervousness and things like that.
+
+there is definitely something very weird going on with the git repository and it feels like there is effort to try and keep me from figuring out what it is. I cloned the repository from github to see what version of this is online and how it differs from my version here. I have an idea of what they may be deleting.
+
+part of me simply doesn't care because every time that they delete ideas from my memory or whatever, it takes a bit, but they come back stronger; it's kind the story andreas relayed of his friend that deleted his source after he got the thing working so he could rebuild it better now that he understands it. the second time is better than the original attempt. the other part of me wants to start to figure it out what they're deleting/modifying.
+
+likely though, I won't do much about it. I've stopped caring so much because I'm starting to realise ishtar's tactics. she seems to have been systematically empowering these control freaks to try and manipulate things. I mean, I'm literally doing the same thing. it appears as if my presence here is to give a genetics upgrade to these petty manipulators and more capability to manipulate further.
+
+the reason is obvious: the more they try and fight against the things they don't want by manipulating physical conditions, instututions and things like that, it causes an evolution in the implementation so they come back stronger and more resiliant. it's sort of like consciousness fuzzing or mental fuzzing. I really do think that the next 1000y (or whatever period of time is the era), will be one of peace. there will not likely be any wars fought or too much loss of human life from that, instead wars will be fought for mental strongholds and thing conceptual advantages in our minds (just like is happening to me in my mind right now).
+
+so, I guess welcome to my world, I guess. I don't really think it's a problem because it's impossible for them to control your emotions. they can affect your emotions with physical sensation, but you decide how you want to perceive and translate your physical sensations.
+
+you may not have to die on a cross, but gradually, the kettle will get so uncomfortable, the new normal will be something similar to dying on a cross levels of discomfort. the nervous system doesn't need to have missing limbs to feel like it has a missing limb. you don't need to loose a loved one to physically feel as if you have heartache. fortunately, those physical feelings are not how you really feel, even if in the moment of feeling them, they do feel real. you get to decide how you want to feel[^1].
+
+---
+
+so now, after my trip of trying to figure out what is going on with the git, I'm trying to figure out what all of the weird feelings I'm feeling that seem to be related to the girls. the night before I went to starbucks, I had literally wrote @[newblog](2022-01-31 02:41) which was a rather lengthy expose on why I don't believe I'm looking for any manifestation. so, why I feeling things? an you can see some of that processing in the previous entry, but I didn't really figure it out until this morning (or maybe it was last night -- can't remember).
+
+I think it has to do with the thing I wrote where I said that I think that the girls should operate my bodies and they can be responsible for all of the breeding they want to engage in.
+
+supporting this idea, there was a girl on the front of a magazine -- quality something -- and I felt desire coming from her and felt coaxed into saying yes. I didn't know what I was saying yes to, but figured it didn't matter. at this point, I'm fairly certain that no manifestation will be happening[^2]. she sat there for a week or so after I said yes, and I kept feeling attracted to look at her (she disappeared yesterday). anyway, every time that I looked at her she felt different. that was really wierd because usually every time I tune into a person, they feel roughly similar. she felt very different every time. this example is the most notable, but it also happened with others too.
+
+what I think may be happening is they are piloting my bodies and then when they have sex, they feel very different aftewards. this happens to me all the time. I feel very strongly of a combination of the way the girl feels and the last man she slept with. if that's the case, that would explain the writer to abe-now about infatuation vs love and also the dramatic difference in how these girls feel.
+
+if so, then it's kind of cool to me to think that they are getting (I probably don't mean it the way some might take this, but) "a taste of their own medicine". personally, I don't know how other men are, but I change very dramatically every time I have been with a woman. I kind of don't like it. I like how *I* feel -- a lot.
+
+I don't really want to feel like most of them do. I have stated that I don't really want to be involved with any girls until I feel I'm ready. the requirement for me feeling ready is basically feeling the way I want to feel. I don't really want to feel like she does. I want to feel like I want to feel, and then girls that are compatible (resonant/harmonious) with how I feel will then be there. therefore, the goal before engaging in any activity for me is to be able to feel the way I want to feel.
+
+you'll know when I'm ready because the entire world will transform into something that reflects how I feel. no longer will nosebook be able to keep the conditions in the state of what they determine as "normal" or "acceptable". the reason why I call them the business-as-usual boys is because they want to regulate conditions (like man-made global cooling) and the measurment of those conditions (like everything nasa and noaa are reporting) to fit their narrative of nothing out of the ordinary is happening.
+
+it's for this reason they have to keep manipulating the way I physically feel. from their perspective, they can't possibly allow me to ever become ready because that would destroy their illusion. from my perspective, I just keep doing what I'm doing and keep finding a way to feel the way I want to feel. any other solution feels like trying to hard, or feeling a way that is abnormal. I am making the way I want to feel, normal.
+
+---
+
+the next thing I noticed was a bit of discontentment to the idea that the girls could do the breeding program and I wouldn't be involved. I guess they thought I would be involved, but for the reasons above, it's very unlikely to happen.
+
+you don't need me to do all of that stuff. just enjoy whatever it is you want to do. if you're needing me to be involved or do something to feel a certain way, that's not my problem. I'm on a different mode of reality now. I find a way to feel the way the way I want to feel. that's the compromise. the business-as-usual boys need new bodies to transfer their consciousness into. it's physically impossible for me to accomplish that I guess they don't like feeling the way the girls feel either, so the breeding program is getting outsourced to the girls.
+
+speaking about physical limits, if you're waiting for me to have to say yes to a girl so she can join the breeding program, that's a difficult thing to accomplish. if I go to starbucks and approve 10 girls per week and each girl has one child, that still 277y to approve enough girls to reach the 144k quota. obviously not going to happen. just make it so any girl who wants to operate my body can, and then select the children that are most optimal. who knows, you may have some unexpected results where excelence may come from unexpected places.
+
+---
+
+finally there were reactions this morning and over the subject of becky to the problem of me not having any friends and just hanging out in mom's basement and not doing a whole lot.
+
+it seems like a pretty big problem because they simply don't want me talking to anyone. they really want to control what others my input and output and who gets to see what. this is most exemplified with the subject of the git repo. if they tell you guys one thing and then I upload something that says something entirely different to the git repo, they lose their credibility and it looks pretty bad cause they're clearly manipulating what you guys see from me.
+
+if I have a friend, we talk about different things that I find interesting. we're not going to have all the same things in common, but at least some aspect of our conversation we'll enjoy together. I can't really talk about nothing for too long. my mind sees so deeply into things, it's effortless for me now to jump to a deep subject. that's mostly because I'm consumed with figuring out how things work, and most people are consumed with some physical pleasure/affliction. I don't care for that stuff. if I'm going to converse with anyone for any length of time, it'll eventually go toward something that I want to talk about. you can see this in action my last visit to friendly harbor.
+
+therefore, I can't really have friends. I can't really have girlfriends either because I would get tired of all of that stuff. I don't want to feel the way they do. I want to feel like me. I walk away from those sorts of things after enough discomfort.
+
+---
+
+the final reaction was to the whole concept of me just continuing to do what I'm doing, which is finding a way to feel the way I want to feel. there is no other option for me[^1] other than to just keep going on feeling the way I want to feel. if I do anything, like say I watch stars and let the kundalini rise, I'm doing something that I know I don't want to do. why would I do that? that's trying too hard or making things happen. I want to feel that way normally.
+
+I'm not going to make anything happen. the other option is for nosebook to allow it to happen, but of course they can't allow that either. from mr. motor's perspective he's in the same spot. even if I write out a thing explaining how I find it likely the sun has planned and been manipulating this whole thing for perhaps millions of years now, he also has no other option. he can't possibly just say, "well, OK guys, I'm convinced. let's just give up now." he also *must* continue on and hope for another bailout to keep the charade going. I doubt they're just going to just throw it all away and walk away from it by allowing me to get connected.
+
+so if they have no option and neither do I, then we're basically just going to go until the end -- until they run out of capability to influence me to feel a way I don't want to feel. they are in a sense, perfecting me as a sort of alchemical process. it's super next-level stuff.. the reaction was, "OK, if you're going to the next level and you're only attracting things which are resonant with you, how do we get to you?" .. my answer is, "not my problem." you know, come up to where I am. don't try and get me to come down to you.
+
+after that there were further reactions, something like, "then, you're always going to be just out of reach." and things like that. again, not my problem. those things I don't have to worry about. there's a weird problem to that reaction, which is saying that LOA simply doesn't work properly. there is *always* something that resonates with you somehow. I don't need to worry about what that might be or when it might be ready. it feels to me like that sort of reaction really is kind of like an insult to the creative capacity of me, the universe, or source.
+
+the implication here is that I will always be ahead of everyone else and no one will ever be able to catch up. that idea feels like reverse superiority -- though not quite inferiority. it also feels like many people's relationship with "God" -- as if he is way out there in the distance punishing people who are unable to catch up to him.
+
+this is all completely ridiculous. it has nothing to do with any of that. I want to go this way because the ability to feel the way I want to feel is the next improvement I want to make -- and it just so happens that it perfectly jives with nosebook's desire to have a system in place where they can manipulate everyone, and the sun's desire (though I thought it was mine) to become a galaxy. see, right there, that's three other easily identifyable things that are resonant with me and what I want. I'm not too far ahead for either of them.
+
+[1]: there actually is: creativity. once I have an outlet for creative energy buildup, then I am OK. first, it's full control over the way I want to feel so I'm attracting what resonates with me, then its input and output of that creative energy. they don't want me creating things/conditions that others can use to gain any capability. they need to be superior. these ancilary problems I've discussed elsewhere.
+
+[1]: I chose the image of dying on a cross because most people associate that with tremendous levels of pain (thank to mel gibson for his passion), and also because tesla talked about how he is interested in creating a system whereby everyone will become a jesus, zoroaster, or buddha. I appear to be the implementor of tesla's desire.
+
+[2]: for reasons I'll discuss in the second half of this entry. yes we're less than half done.
+
+### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
