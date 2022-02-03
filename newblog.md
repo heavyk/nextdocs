@@ -7137,31 +7137,33 @@ I'm fairly certain that, opposite to what I want, all knowledge will instead be 
 
 ### 2022-01-13 20:20 - we're the bad guys
 
-my goodness, I need a break from the "gods of eden". chapters 23-25 seem to be a nearly endless enumeration of secret fraternaties and petty conflicts. I can't keep all of the things straight...
+my goodness, I need a break from "gods of eden". chapters 23-25 seem to be a nearly endless enumeration of secret fraternaties and petty conflicts. I can't keep all of the things straight.
 
 anyway, this time I want to talk about some funny reactions to the commit message for the last entry. I wrote, "we're the bad guys" in the title.
 
 the first reaction was, "no, *we're* the bad guys; not you. you're the good guy." something like that. I guess they feel they're having a difficult time proving to me that they are in fact the bad guys... lol
 
-thme second reaction was in relation to @[newblog](2022-01-11 18:43) where I wrote about how I thought that enki and his numerous maverick attempts at religion sincerely tried to do things the right way. however as is true to form with LOA, the right way dosen't create the reality that you want. the "right way" creates the reality that those with the capability to manipulate ideology wants. I concluded that by saying that I do not have an interest in doing things the right way.
+the second reaction was in relation to @[newblog](2022-01-11 18:43) where I wrote about how I thought that enki and his numerous maverick attempts at religion sincerely tried to do things the right way. however as is true to form with LOA, that the "right way" dosen't create the reality you want; the "right way" creates the reality that is perceived to be the "right way". this "right way" doesn't necessarily align with why you are. instead, it often times aligns to the conceptual landscape (or world-view) of that time.
 
-using that then as a foundation, the reaction surmised that I was attempting to out pace them in badguyness (hopefully that's a word, lol). I believe that reaction came as a result to something this afternoon's conversation that I had with jaron.
+that means that those with the capability to manipulate ideology, can manipulate the perceived "right way" pretty easily. I believe his efforts to do things the right way made these maverick teachings fertile ground for custodians to manipulate ideology and hot-swap the "right way" for the one they want. as such, I concluded by saying that I do not have an interest in doing things the right way.
 
-in that conversation, I came up with a brilliant scam to allow the monetary system to fail, providing a clear path to letting crytocurrency supplant the system. two credit cards were developed, one is called "infinity card" that has an infinite credit limit to it and is marketed to the elites (maybe even an exclusive membership like the visa black). the second one is called the "freedom card" and is marketed to everyone. the marketing is that this card gives you freedom. later on, I developed the idea further prposing that the freedom card completely liberates you. you have an unlimited credit line, and the only thing that you need to do is to justify the purchase as necessary.
+using that then as a foundation, the reaction surmised that by setting up pre-plowed and seeded fertile ground for the "bad guys", I was attempting to out pace them in badguyness (hopefully that's a word, lol). I believe that reaction came as a result to something this afternoon's conversation that I had with jaron.
+
+in that conversation, I came up with a brilliant scam to allow the monetary system to fail, providing a clear path to letting crytocurrency supplant the system. two credit cards were developed, one is called "infinity card" that has an infinite credit limit to it and is marketed to the elites (maybe even an exclusive membership like the visa black). the second one is called the "freedom card" and is marketed to everyone. the marketing is that this card gives you freedom. later on, I developed the idea further prposing the angle that the freedom card completely liberates you. you have an unlimited credit line, and all you need to do, is to justify the purchase as a necessity.
 
 of course, you could use the freedom card to pay off the infinity card if you're an elite...
 
 ---
 
-the reactions to that were hilarious to me because they supposed that I come up with f-ed up marketing schemes just as good as they do. in reality, it happened because I had literally just read chapter 21, "funny money" where he talks about how in the netherlands, the 80 year war with spain was finally able to come to a close bringing the independent dutch republic and the bank of amsterdam, moving the power structure over to a "paper aristocracy". you can lend out infinite supplies promises of precious metals that you don't have meanwhile devaluing those promises perputually.
+the reactions to that were hilarious to me because they supposed that I come up with f-ed up marketing schemes just as good as they do. in reality, it happened because I had literally just read chapter 21, "funny money" where he talks about how in the netherlands, the 80 year war with spain was finally able to come to a close bringing the independent dutch republic and the bank of amsterdam, moving the power structure from a monarchy over to a "paper aristocracy". you can lend out infinite promises of precious metals that you don't have, meanwhile devaluing those promises perputually (inflation).
 
-this idea got me thinking about what the next major transition will be. it's clear to me that the "funny money" currency system will be replaced soon with a new one (crytocurrency) where it *appears* (yet again) that people have regained control. in reality the power has just made a transition. going on this idea, I started to think about a way for people to feel secure about the old system right about the way people thought the titanic was unsinkable. previous transitions had a massive betrayal of trust and were ushered in as it would appear there were no other agreeable options.
+this idea got me thinking about what the next major transition will be. it's clear to me that the "funny money" currency system will be replaced soon with a new one (crytocurrency) where it *appears* (yet again) that people have regained control. in reality the power has just made a transition. going on this idea, I started to think about a way for people to feel secure about the old system, about the same way people thought the titanic was unsinkable. previous transitions had a massive betrayal of trust and were ushered in, because it appeared there were no other agreeable options.
 
-clearly the infinity card and the freedom card are twin vessels headed for disaster. however, it lessens the blow by allowing nearly everyone to declare bankruptcy at the same time. it would then appear everyone was betrayed by the same failing system.
+clearly the infinity card and the freedom card are twin vessels headed straight for disaster. however, it lessens the betrayal of trust by allowing nearly everyone to declare bankruptcy at the same time. it then appears as if everyone was betrayed by the same failing system.
 
-does that make me the bad guy? I dunno, but I sincerely doubt it.
+does that make me the bad guy? I dunno, but I sincerely doubt it. I think it probably makes me either a fast learner or a "dynamic thinker".. lol
 
-the concept of out pacing them in badguyness though was a really funny reaction though to think about. it did get me thinking further... more on that soon :) lol maybe I will do things the wrong way.
+the concept of out pacing them in badguyness though was a really funny reaction to think about. it also got me thinking further... more on that soon :) maybe I will do things the wrong way... who knows...
 
 weird coincidence, just now the song by "man with no name" came on where the woman says, "if you keep doing what you're trying to do, you'll own the world. you know that, don't you.". definitely a weird coincidence, I'd say. plot twist ahead?
 
