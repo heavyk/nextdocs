@@ -7133,7 +7133,7 @@ I'm fairly certain that, opposite to what I want, all knowledge will instead be 
 
 [3]: the idea here is that either they could be relplaced with an automaton replica where the automaton's behaviour mimics their past behaviour. I also think another possibility could be to tune the automaton to the source of that person, and then interrupt that tuning if they behave undesirably. the third way is to put people into the hypnotic-like state of "mesmerism" where the person loses consciousness but can still interact. then the body can be operated remotely by a sort of "walk in". I believe this has happened to me many times and quite possibly be the state that they put me in at night when I sleep. however way it is, my point is I believe the operators of the network can take over a person's body for a time.
 
-[4]: the idea behind this one is that each time there is a change in perception, whether it's a dimensional increase or whatever, the orientation changes -- so if humans were group-thinking in the previous era, the next era will have them individually-thinking. or, if the previous concept was inwardly-looking (ie 3d or 5d), then the era following it will be outwardly-looking (ie 4d or 6d). in science this is known as counter-rotating fields of lesser and lesser density like the stratosphere and ionosphere. each concept change will always be of lesser density (higher frequency) than the previous and also rotate in the opposite diretction.
+[4]: see progression-of-perception and business-as-usual-vs-normal
 
 ### 2022-01-13 20:20 - we're the bad guys
 
@@ -8556,6 +8556,35 @@ I suspect there was just (within the last few hours) a large solar flare and the
 crazy! it's like the sun has my back
 
 come at me bro!
+
+### 2022-02-03 15:06 - business-as-usual vs normal
+
+yesterday I noticed a mistake in one of my quotes, and it inspired me to go back and reread some of my old entries. very interesting. I didn't realise I was so coherent! I honestly thought it was way worse. when I write these things, I'm not very conscious of what I'm writing. I often don't really get what I wrote until after I wrote it. I'm thinking about and analysing what I wrote just as much (though probably more) as anyone else.
+
+as I was going through it some of them, I can feel the reactions to what I wrote a little bit as well. so, in some cases where I didn't feel like I communicated what I wanted to very clearly, I reinforced the idea. one of those ideas was the one about the purposefully making an issue about the downloading stuff for free with torrent. I want people to fight me on it. the more conflict, the better. if you can see through that and read what I wrote, as I did, you will see that I conveyed the most brilliant concept of all. just  have a look at the progression of concepts (progression-of-perception).
+
+you see, each new concept needs to seemingly oppose the previous one (that is, it rotates opposite direction), however, the rotation is actually the same direction if you change your perspective and look at it from the opposite side (these fields are all monopoles), so the new concept must appear opposite, but only in perspective (see wanted-and-unwanted-are-same).
+
+I really am enjoying going back over my old entries. having learned as much as I have now, they are really illuminating. I'm writing incredibly deep stuff and I didn't even really know it, so a little bit of further expansion on the concepts I think will illuminate something tremendous.
+
+the next one in this expansion is business-as-usual-vs-normal. there is a unique symmetry to these concepts that I hadn't really realised until after the edits. notice how they are similar concepts but rotate in opposite directions. another very similar feeling to this contrast would be my insistance on not doing things until I feel ready vs safety. heh, I'll make that a thing ~) ... feeling-ready-vs-safety.
+
+anyway, business-as-usual is the regulation of physical conditions such that it allows for business-as-usual (no major or upsetting changes) to continue. the opposing concept is "normal" or feeling-normally, which is feeling-purposefully.
+
+therefore, it's easy to see that one is the regulation of physical conditions, while the other is regulation of emotional condtions -- that is, modifying one's perception allowing them to feel the way the way they want to feel.
+
+---
+
+can see how the peak of regulation of physical conditions (business-as-usual) will produce the feeling-purposefully concept? the link between these concepts, is understanding that mutual-back-scratching is the exchange of physical conditions and so therefore in a system where mutual-back-scratching is dominant, there *must* be regulation of physical conditions (overtly or otherwise) so that people feel they're getting the conditions they deserve -- and in the likely case of corruption, attaining conditions they don't deserve. thus, if you don't have the conditions, it inspires one to feeling-purposefully.
+
+see how they all connect? I really hope I'm explaining myself well. I wish feel them like I do so you could "see" how obvious it is. anyway, I'm really enjoying this...
+
+---
+
+btw, preview for those paying attention to these concepts in "a dweller on two planets". you'll notice them popping up there too. notice how government regulated conditions is producing similar conceptual results; they're repeats of the ones appearing now, but a few versions/iterations back in time.
+
+I'll talk more about that soon ~)
+
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
