@@ -8585,6 +8585,46 @@ btw, preview for those paying attention to these concepts in "a dweller on two p
 
 I'll talk more about that soon ~)
 
+### 2022-02-05 17:17 - I feel weird
+
+yesterday in particular I have never felt less. normally I have quite an array of feelings at all times, but it feels like everything has been dampened.
+
+for example, this morning I was talking with mom about derek, a guy from the brain injury group. he had another stroke and stuff. it was very strange because I was describing the way the situation feels to me, yet I didn't have any sensation of the situation. I sorta walked away wondering, "did I make that up? why did I think that is how the situation felt when I didn't have a strong sensation to back it up?"
+
+interestingly, the conversation that I had with mom right before that was about how words don't have nearly as much impact as we have supposed they do. I explained that it is how you feel, rather than the words. a brought up the example of how a person when lying, will feel a lot different than their words feel. I then tried to explain how it's possible to say one thing and feel something entirely differently about it.
+
+I used the example of "I'm stupid", and said that even if I say those words, if I don't actually feel stupid, they don't make a difference. she said that repeated use of a statement like that can begin to affect you. I agree that they can, but only if you believe it. the way you feel matters a lot more than the words you use.
+
+I then tried to give the example that you may be able to trick someone else with your words but the universe responds to how you feel rather than the words. if I accidentally (or am convinced to) say something, that doesn't really matter. what matters is how I feel (conceptualise it to be).
+
+---
+
+what I'm saying is, I think there is a link between these two concepts. the other day I made a note of the way I felt after coming back from starbucks about the becky thing. I said, "feelings don't lie; people do"
+
+at starbucks, I noticed a similar deadness as well. I could feel some things like some of their nervousness, but in general all of the sensation of the feeling had completely dissapeared.
+
+I could give numerous examples. it's been happening a lot lately. like, a lot -- but then at other times I feel the thing strongly.
+
+a good example of this is the book "a dweller on two planets". the first few days that I read the book, I could feel the story so strongly that at times it felt as if I was experincing it. the following day I had a dream about it and then since then, the book doesn't really feel so much to me. the following day the book started to feel to me again but I didn't read it. again I had a dream about it the following morning (yesterday?) and again the book didn't feel anymore to me.
+
+I also had other dreams too where there were girls in them and they were doing suggestive things, but I didn't feel anything from them.
+
+what I think is happening is they're using the low resistance state of sleep combined with dream situations to isolate certain feelings and then remove them so that I never get those "reactions". I think they really don't like the idea that "feelings don't lie" -- so if they can manipulate the physical sensation of how I feel, then they can hide the difference. like for example, in the case of becky, I guess they would try and mask it or remove the sensation where I feel her words to be unlikely or hollow.
+
+---
+
+the interesting part about it is that even though the physical sensation is gone, like this morning talking about derek, I still have access to it. I just need to find a way to tune in and amplify that better.
+
+that's kind of an interesting realisation for me because from my perspective, everything feels chaotic and out of place. however, I'm realising that things are probably doing a lot better than I think and my inability physically feel that things are doing a lot better doesn't really mean a whole lot.
+
+you know, at some time my capacity to fine tune to the feeling will become greater than their abilty to block it, and then I'll finally feel it -- probably so strongly that it'll become a reality really fast.
+
+that concept reminds me of my explanation of atlantis and how they were boosting the amplitude of their feelings so high, and it worked for as long as they felt superior, but as soon as they felt inferior or ruin, then everything collapsed rapidly. the exact opposite is happening here. instead of boosting the amplitude, I'm increasing my sensitivity daily as I get better and better at tuning to a feeling that is lesser and lesser amplitude signal in increasing quanitites of noise.
+
+increasing sensitivity is essentially the same thing as boosing amplitude, so at some point it'll be difficult for them to keep blocking it, and such a strong signal, just like atlantis was destroyed overnight, so too will everything come in to place, seemingly overnight.
+
+I guess I'm probably doing better than I think... just wanted to write that out long-form ~)
+
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
