@@ -8625,6 +8625,37 @@ increasing sensitivity is essentially the same thing as boosing amplitude, so at
 
 I guess I'm probably doing better than I think... just wanted to write that out long-form ~)
 
+### 2022-02-06 16:55 - potato-spinning
+
+the dominant reaction to what I wrote yesterday was the surprise that a lot of people had that I believe that the destruction of atlantis was related to the incredible military loss. the idea is, it could just be potato-spinning and the military defeat wasn't at all related to the natural disasters that occurred.
+
+---
+
+I completely disagree. through my time analysing things, I have noticed that there is a definite relationship between how you feel and what is manifesting in your reality.
+
+in the case of atlantis, I'm let's say, 99.999% sure that they are related, but as a general rule, I'm absolutely certain that your reality is attracted and is therefore a reflection of what you're tuning to. what you're tuning to is how you feel.
+
+this concept is the backbone behind the time splits and I believe this concept extends all the way to cell division and other ideas as well. from my perspective, it seems to be a fundamental aspect of how things work.
+
+all things remain in the same reality as long as there is some amount of compattibility, but when you have something that becomes too incompatible with the rest of things, it leaves the present reality. I think this concept extends to everything from condensation/evaporation reactions, to transending the physical realm and moving into the conceptual (something I've mentioned in various other places).
+
+---
+
+anyway, the idea of boosting signal vs increasing sensitivity seems to be a practical one. I suspect that signal boosting isn't such a good idea in a noisy environment. it can only really work well if everyone is on the same page and can benefit from the entire signal. imagine that there is someone that is only resonant with a portion of the signal (say a certain 10% of frequency ranges) -- then for those people they'll have all of their normal signal, but 10% of it will be ultra-boosted. for those people, it could create an uncomfortable mental state.
+
+if "a dweller on two planets" (DTP) is right about the magnetic therapy they were doing to repress parts of the brain which did not have healthy function, this could effectively hide or mask the boosting of certain resonant frequencies. as long as people are getting regular magnetic therapy to repress the problematic areas, then things are fine... more on this another time. it's part of a bigger concept that I don't want to get into.
+
+the idea I'm trying to get across here is that humans, how we feel and where we're tuned to isn't a pure frequency, so boosting signals can have all sorts of unwanted side-effects in upper harmonics of where we're tuned to. one signal for one person could make them feel really good, but for another person it could inadvertantly create a feeling of discomfort or anxiety.
+
+I believe this may have been part of the cause to try and subdue the world. if you're feeling comfortable and satisfied, then it's not usually the case that those feelings would make you want more. I would say that war usually comes from dissatisfaction with current conditions and/or a desire to conquer others and have a stronger  feeling o superiority.
+
+it really is too hard to tell with so many thousands of years having passed since then, but I would bet everything those events are related. I really have a lot more to illuminate on this subject since I started reading DTP because the book describes a culture which seems very obvious to me as the precursor to the power structures that have emerged since. I want to write a proper book report on it even, I think.
+
+we really are shaping up to be atlantis 2.0, however, I believe the main difference is that instead of boosting signals for the whole world, each person is boosted individually[^1] -- while others (like myself), I believe they are repressing[^2] other (from their perspective) unwanted signals very similar to the magnetic therapy described in DTP.
+
+[1]: instead causing the air to vibrate a certain way (box-consciousness), the signal is instead transmitted into each individual body
+
+[2]: so, if the signal is getting attenuated/repressed, then for people like me, it requires greater and greater sensitivity to feel it. no one is boosting anything for me. I'm just getting better at feeling the way I want to feel
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
