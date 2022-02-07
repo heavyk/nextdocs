@@ -8657,6 +8657,42 @@ we really are shaping up to be atlantis 2.0, however, I believe the main differe
 
 [2]: so, if the signal is getting attenuated/repressed, then for people like me, it requires greater and greater sensitivity to feel it. no one is boosting anything for me. I'm just getting better at feeling the way I want to feel
 
+### 2022-02-07 15:26 - weird dreams and thoughts
+
+I just woke up from a few strange dreams they are related to the business-as-usual-vs-normal concept I was editing yesterday, as well.
+
+the reaction was that business-as-usual is a very feminine thing to do. I'm afraid so. a lot of men do it as well -- and in fact, I would say that entire present government has its foundations laid on business-as-usual practises.
+
+in my opinion this is the true epidemic that is going on, and the reason why I feel like my work on transforming that concept into feeling-purposefully and feeling-normally, has been such a big deal for me. I really don't think that people truly understand the power of those concepts; they really do open up the world to where it feels entirely unlimited.
+
+likely, from nosebook's perspective, they've had enough of me proving this to be true, and are firmly in the, "this is a dangerous concept for people to understand" territory. as usual, they'll do what they always do and try to get rid of it...
+
+---
+
+I don't know if the sun is really active right now but I had a really difficult time trying to get to sleep because I kept beginning to enter into phychedelic states. literally, all I did for the rest of the night after editing those concepts, was play roguebook. nothing more, and nothing special. I think this is an indicator of how much closer I am than I thought.
+
+I really thought I had a lot more time, but I don't. that means, I'm probably going to stop playing games so much and finish up DTP and a number of concepts I have brewing as well. I'll be a bit more productive I think.
+
+---
+
+so, the dream is hard to relate because there weren't any visuals and it's really hard to relate some of the ideas. they feel very strongly related to the business-as-usual-vs-normal ideas.
+
+there were a bunch of women, and the most notable one I remember was daniel's ex-wife (can't remember her name right now), and all of these women -- perhaps there were girls as well, but they all felt older rather than younger -- were trying to get me to feel the way that they wanted me to feel (my perspective). from their perspective, they probably were just trying to acquire from me the way to feel the way I feel.
+
+there was a lot of chaos and it's hard to say what exactly was happening but somehow it felt like I was making sense of it. I even came up with a method whereby I could use the different women and their attempts to get me to feel the way they do (introduce-their-feeling to me)[^1].
+
+first, it's important to know that I don't need to feel the way they are influencing me to feel (wanted-and-unwanted-are-same), so once I got the hang of that I noticed that while they continued to feel terrible about things (and have no intention of changing it), they began to rely on me more and more. I began to use that to my advantage, because I could go with one woman that feels mostly the opposite from the the other[^2] and I could get them to seemingly oppose one another. they would fight each other for validation for their physical conditions being the reason for whatever.
+
+as a result, they would feel better because of their interaction with me, but each iteration they would as a whole feel worse because they had done nothing to change their conceptual outlook (how they perceive their conditions). because wanted-and-unwanted-are-same, they would take me higher and higher every time, like climbing stairs.
+
+as I began to sort it out how all of this interactions were working, I had come up with a technique of calculating the probability/likelihood of how they would feel as a result of our interaction and I could even boost certain parts of the signal to worsten (or enhance) certain parts of the feeling.
+
+this capacity was very enticing to the noseboys. they wanted what I had. I "woke up" when I told them that I have something they wanted.
+
+[1]: I need to shorten this concept. it's a basic transformation that I use a lot. maybe something like introduce-their-feeling. I kinda like it because introduce, in spanish has a sexual connotation.
+
+[2]: they're only perceptual differences. they differ in physical conditions, so between the two women they appear different, yet they are conceptually quite similar
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
