@@ -1,6 +1,11 @@
-
-    
 A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
+
+edits done by kenny bentley:
+- tried my best to fix some places the scan made mistakes.
+- CR/LF -> LF
+- tabs to spaces
+- removed the above sacred-texts.com message repeated on many (but not all) pages
+- various bits of formatting
 
 [p. 2]
 
@@ -11,23 +16,14 @@ A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894
 
 [p. 3]
 
- 
 
 A DWELLER ON TWO PLANETS
 
- 
-
 OR
-
- 
 
 THE DIVIDING OF THE WAY
 
- 
-
 BY
-
- 
 
 PHYLOS THE THIBETAN
 
@@ -35,7 +31,6 @@ PHYLOS THE THIBETAN
 
 [1894]
 
- 
 
 Scanned, proofed and formatted at sacred-texts.com, 2001-December, 2002, by John Bruno Hare. This book is in the public domain in the US because it was published prior to 1923.
 
@@ -45,87 +40,128 @@ This is before the coming of a new Heaven and a new Earth, in the which shall re
 
 "There are more things in heaven and earth, Horatio, than are dreamt of In your philosophy"--Hamlet.
 
-This book is dedicated to
- progressive thinkers everywhere, but especially to
- the "Invisible Helper" who has made
- possible its presentation to
- the world.
+This book is dedicated to progressive thinkers everywhere, but especially to the "Invisible Helper" who has made possible its presentation to the world.
 
 26: 17 :: 25.8 + 30 : 24
 
- 
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
+[p. 4]
+[p. 5]
 
-[p. 4] [p. 5]
-
- 
 
 INDEX
 
-     BOOK I    
-  CHAPTER I  Atlantis, Queen of the Sea and of the world. Zailm's pilgrimage to the top of Pitach Rhok to worship his Deity. He finds gold. The volcanic eruption--he is almost overtaken by lava flow, but escapes.   <page 25> 
-  CHAPTER II  Caiphul, capital of Atlantis, and its people, its form of Government; politics and marvelous mechanical features. Excerpts from labor laws. Electrodic transit system.  <page 41> 
-  CHAPTER III  Zailm determines his course of studies as he believes Incal has directed.  <page 57> 
-  CHAPTER IV  Physical science as understood by the Poseidii, and the prime principles upon which it was based. "Incal Malixetho: i.e. God is immanent in Nature" was first--to this they appended--"Axte Incal, Axtuce Mun" translated "To know God is to know all worlds what ever". They held that but One Substance existed, and but One Energy, the one being Incal externalized, and the other His Life in action in His Body. Applying this principle to their scientific work they accomplished through it aerial navigation without gas or sails,--circumnavigating the globe in a day--conveyance of sound with reflection of the sender--heat and power conduction to whatever distance without material connection, transmuted metals--obtained, by electrical action, water from the atmosphere. These, and many others, were in common use. (Some of these things approach re-discovery, but the reader must remember that the book here indexed was finished in 1886, when the modern world knew them not. It knew not the Cathode Ray till 1896).  <page 60> 
-  CHAPTER V  Zailm's life in Caiphul. The Rai of the Maxin Laws. Acquaintance with the prophet. Visit to the Emperor's Palace--an interview with the Emperor.  <page 67> 
-  CHAPTER VI  No good thing can ever perish. Synopsis of the Origin of the Poseidii.  <page 83> 
-     [p. 6]    
-  CHAPTER VII  Religion of the Poseidii. "Close not the Ends of My Cross." (Illustration.)  <page 87> 
-  CHAPTER VIII  A Grave Prophecy of Zailm's future.  <page 92> 
-  CHAPTER IX  Curing Crime. Zailm called to criminal court as witness. Treatment of the criminals.  <page 96> 
-  CHAPTER X  Zailm offered the position of Secretary of Records--bringing him in close contact with the Rai, and all of the Princes, which he accepts. He is requested to go on an errand of courtesy to the country of the Suernii--a nation much more advanced in mystic knowledge than the Poseidii.  <page 101> 
-  CHAPTER XI  Recital of Princess Lolix regarding an exhibition of Magic power.  <page 111> 
-  CHAPTER XII  The unexpected happens. Prince Menax reveals his affection for Zailm and asks him to be his son.  <page 121> 
-  CHAPTER XIII  The language of the Soul.  <page 128> 
-  CHAPTER XIV  The adoption of Zailm. Description of the Incalithlon, or Great Temple,--The Incalix Mainin. The Rai of the Maxin. Establishment of the Maxin or Unfed Fire of Incal and the Book of the Law. Rai Gwauxln and Incalix Mainin "Sons of the Solitude."  <page 129> 
-  CHAPTER XV  Zailm's mother deserts him and returns to the mountain. Brain fever. The vase of malleable glass for Ernon, Rai of Suern, with Poseid inscription.  <page 138> 
-  CHAPTER XVI  The aerial voyage to Suern. Parting two miles above terra firma. The storm. Sowing seeds at sunset--three hundred and fifty miles horizon. Waiting the cessation of the storm. Friends at home appear in the mirror of the Naim. The Suernii a strange and angry people, rebelling against the rule of the Sons of the Solitude, who strove to lift them up. Death of Rai Ernon. His body, by command of Rai Gwauxln, taken back to Caiphul to pass through the Unfed Fire.  <page 146> 
-  [p. 7]       
-  CHAPTER XVII  Impressive funeral of Rai Ernon, attended by the Sons of the Solitude.  <page 161> 
-  CHAPTER XVIII  Rai Gwauxln tenders Zailm Suzerainty over the land of Suern. He hesitates, as he is yet an undergraduate at the Xioquithlon; but as the Emperor promises him that the Governor whom as Envoy-in-Special of the Rai of Poseid, he (Zailm) had appointed over Suernis should execute the duties of the position until himself should be legally capable of doing so, he accepts the almost imperial honor, and is dismissed to the completion of the pleasure trip interrupted by the death of Rai Ernon. They visit the Umaurean (present American) colonies of Poseid, which are described. The Grand Canon of the Colorado is not merely the gradual product of time and water and weather, but of sudden formation through volcanic action. "The hand of Pluto was the major worker;" 12,000 years ago he saw a sea cover that region, which "fled away into the Gulf of California." Visit to the building on the summit of the greater of the Three Tetons, in Idaho, rediscovered by Professor Hayden while on the same expedition which made known to the modern world the famous Yellowstone region--Professor Hayden once a Poseida, attached to the government body of scientists stationed there. Visit to the copper mines, in the present Lake Superior region. Present of a knife of tempered copper. Incalia, west of the chain now known as the Rocky Mountains. Toward home, East, then South. Forsaking the realms of air for the depths of the sea at the rate of a mile a minute. (Illustration.) Reproved by his father over the naim for recklessness.  <page 166> 
-  CHAPTER XIX  Home again. The problem of teaching the Suernii. These people, having lost their seeming magic power, require tuition in the arts of life. Zailm and his vice-regents accomplish this. The latter records of this people to be found in the history of the Judaic race. Death of Lolix's father; her indifference at hearing of it. Slumbering of conscience.  <page 177> 
-  CHAPTER XX  Duplicity. Graduation at the Xioquithlon. Festivities in honor of the graduates. Sadness of the Emperor at his nephew's wrong-doing.  <page 183> 
-  CHAPTER XXI  The mistake of a life. The demand of karma. Atonement is not undoing. Christ atoned--we must undo. Reincarnation is expiation.  <page 186> 
-     [p. 8]    
-  CHAPTER  XXII Zailm asks Anzimee to be his wife. She confides her joy to Lolix, who drops fainting to the floor, but does not betray the secret of Zailm and herself. In an interview she resigns him to his new love, but the shock unsettles her mind, and in the evening she appears before the assembly in the Great Temple, where the announcement of the coming marriage is being made, and a most exciting scene occurs, closing with the dramatic death of Lolix, through the magic art of the High Priest.  <page 191> 
-  CHAPTER XXIII  A witness before the criminal. Remorse of Zailm. Speeding away on his vailx, for three months he wanders in agony of soul, that takes him for a time out of the body. Finding Lolix, he weeps over her and their child. Then a glorious radiance breaks over the scene, and One whom he has seen before is beside them and gives them rest. (Illustration.) At last he goes home, to learn that his father has died of grief at his supposed death. The shock of his unexpected return nearly causes the death of Anzimee. Confession to Anzimee and forgiveness. Departure for the mines of Southern Umaur. The electric generation of water. Loss of the vibrator of the naim, thus destroying communication with home. Finding of the cavern house and getting fastened therein. Hunger and thirst. Astral visit of Mainin, the High Priest. He promises to send help, but comes again taunting Zailm, blaspheming Deity. A glorious visitor appears, who blasts Mainin into outer darkness. To Zailm He gave "Peace and Sleep." (Death.)  <page 199> 
-  CHAPTER XXIV  Awaking in the astral he returned to camp. Succeeding in making his men understand that they must return to Caiphul, he returned thither by exertion of will power, to be greeted by the Emperor, who alone could see him, thus: "What! Zailm! Dead! Dead!" Entrance to and "life" in Devachan. References to earlier earth lives. Completion of Devachan and reincarnation on earth.  <page 220> 
-     BOOK II    
-  APPENDIX  Seven Shasta Scenes.  <page 242> 
-  CHAPTER I  In another personality--that of Walter Pierson, an American citizen. Orphaned in infancy--roving life on the sea. Is a soldier in the war of Secession. Next is a gold miner in California. Quong: companionship with [p. 9] the Tehin on trips among the mountains. Philosophizing. Meeting with the grizzly bear and witnessing his docility at Quong's command.  <page 249> 
-  CHAPTER II  The Lothinian Brotherhood. Reclamation of one on the wrong path. The mystic note. Offer to sell his mine; reason, want to go "home." The mountain lion and the deer. Visit to the Sach in Mount Shasta. Description of the lodge-room.  <page 259> 
-  CHAPTER III  Pentecostal address of Mendocus, Master. Invocation ceremonies. A visitor from Pertoz--Mol Lang--"has come to induct one of their number, Quong, into the 'land of the departed,' and another, Walter Pierson, or 'Phylos,' to take home with himself."  <page 275> 
-  CHAPTER IV  Visit to one enjoying life's rewards in the astral life; "As a man soweth so shall he reap." Visit to a Devachanic home. Temporary return to earth. Difference between Devachanic concepts and the objects conceived of. Who was the daughter?  <page 295> 
-  CHAPTER V  Mol Lang is home in Hesper. " It is good to be at home again." Meeting with Phyris, his Alter Ego.  <page 315> 
-  CHAPTER VI  Sohma's teachings. The better methods. The key to all wisdom. Phyris' thought creations. In the library. Books transported from earth to Hesper--(Venus.) Magic glasses. Magical growing of fruits through the power of the symbol.  <page 321> 
-  CHAPTER VII  Phyris' magical painting which was a prophecy. Mol Lang's teachings. Why it is more wrong to take animal life than vegetable life. "Thou canst not compensate the animal for its lost opportunities, but a plant thou mayest." Farewell of Mol Lang. Other inhabitants of Hesper. A heritor of many lives. Faith replaced by knowledge. Of such is the kingdom of heaven. Phyris tells him of previous lives, but says that he will forget them "until he comes again." She teaches of the Crisis of Transfiguration. She takes him back to the Sagum in Mt. Shasta. Parting for a little time.  <page 337> 
-  CHAPTER VIII  Awaking in the Sagum. Taking up earth-life again. "Do unto others as thou wouldst be done by." Sale of the mine. Travel. Meeting with Lizzie, the reclaimed one. Home to Washington. Marriage.  <page 352> 
-     [p. 10]    
-  CHAPTER IX  A little retrospection--Meeting with the chela in Hindostan--a message from Mendocus. Stirring of Hesperian memories. Remembrance of a visit to the Sun with Sohma. The Navaz currents. Discontent with life. Death of little daughters. Starting on a sea voyage with Elizabeth. Storm and wreck and--Death. Home again to Pertoz. Home, now; Earth, with its ills, left behind forever, and Karma satisfied.  <page 360> 
-  CHAPTER X  After the years, returned. Phyris as tutor and guide. Creation of a body for use in Hesperus. Teaching by the Voice of the Spirit. "Go into the Holy Place." (Illustration.)  <page 376> 
-  CHAPTER XI  "To be or not to be! That is the question." The critical ordeal--temptation met and conquered.  <page 383> 
-     BOOK III    
-  CHAPTER I  "Ye shall reap as ye have sown." Perception.  <page 394> 
-  CHAPTER II  Victory and Praise. Life ended. Being just begun.  <page 395> 
-  CHAPTER III  Retrospection: Phyris and Phylos scan their Atlantean lives--Lolix and Elizabeth.  <page 396> 
-  CHAPTER IV  The decline of Atlantis during several thousand years. Decadence of Science. Aerial navigation and many scientific instruments forgotten. National depravity and ruin. Blood sacrifice in religion. Beginning of human sacrifice. Disappearance of the Maxin Book and the Unfed Light. Earthquake and deluge and sinking of Atlantis. Retrospective look at the time of Zailm in the continent of Lemuria, ages before Atlantis. Captives offered up to the gods. A sacrifice for love. (Illustration.)  <page 398> 
-  CHAPTER V  Karmic retrospection: "Man's inhumanity to man."  <page 409> 
-  CHAPTER VI  Why Atlantis perished.  <page 410> 
-  CHAPTER VII  The Transfiguration.  <page 412> 
-     NOTE BY THE AUTHOR  <page 414> 
-     THE MIGHTY CAP STONE  <page 411> 
-  
+BOOK I
 
- 
+  CHAPTER I  Atlantis, Queen of the Sea and of the world. Zailm's pilgrimage to the top of Pitach Rhok to worship his Deity. He finds gold. The volcanic eruption--he is almost overtaken by lava flow, but escapes.   <page 25>
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
+  CHAPTER II  Caiphul, capital of Atlantis, and its people, its form of Government; politics and marvelous mechanical features. Excerpts from labor laws. Electrodic transit system.  <page 41>
+
+  CHAPTER III  Zailm determines his course of studies as he believes Incal has directed.  <page 57>
+
+  CHAPTER IV  Physical science as understood by the Poseidii, and the prime principles upon which it was based. "Incal Malixetho: i.e. God is immanent in Nature" was first--to this they appended--"Axte Incal, Axtuce Mun" translated "To know God is to know all worlds what ever". They held that but One Substance existed, and but One Energy, the one being Incal externalized, and the other His Life in action in His Body. Applying this principle to their scientific work they accomplished through it aerial navigation without gas or sails,--circumnavigating the globe in a day--conveyance of sound with reflection of the sender--heat and power conduction to whatever distance without material connection, transmuted metals--obtained, by electrical action, water from the atmosphere. These, and many others, were in common use. (Some of these things approach re-discovery, but the reader must remember that the book here indexed was finished in 1886, when the modern world knew them not. It knew not the Cathode Ray till 1896).  <page 60>
+
+  CHAPTER V  Zailm's life in Caiphul. The Rai of the Maxin Laws. Acquaintance with the prophet. Visit to the Emperor's Palace--an interview with the Emperor.  <page 67>
+
+  CHAPTER VI  No good thing can ever perish. Synopsis of the Origin of the Poseidii.  <page 83>
+
+
+[p. 6]
+
+  CHAPTER VII  Religion of the Poseidii. "Close not the Ends of My Cross." (Illustration.)  <page 87>
+
+  CHAPTER VIII  A Grave Prophecy of Zailm's future.  <page 92>
+
+  CHAPTER IX  Curing Crime. Zailm called to criminal court as witness. Treatment of the criminals.  <page 96>
+
+  CHAPTER X  Zailm offered the position of Secretary of Records--bringing him in close contact with the Rai, and all of the Princes, which he accepts. He is requested to go on an errand of courtesy to the country of the Suernii--a nation much more advanced in mystic knowledge than the Poseidii.  <page 101>
+
+  CHAPTER XI  Recital of Princess Lolix regarding an exhibition of Magic power.  <page 111>
+
+  CHAPTER XII  The unexpected happens. Prince Menax reveals his affection for Zailm and asks him to be his son.  <page 121>
+
+  CHAPTER XIII  The language of the Soul.  <page 128>
+
+  CHAPTER XIV  The adoption of Zailm. Description of the Incalithlon, or Great Temple,--The Incalix Mainin. The Rai of the Maxin. Establishment of the Maxin or Unfed Fire of Incal and the Book of the Law. Rai Gwauxln and Incalix Mainin "Sons of the Solitude."  <page 129>
+
+  CHAPTER XV  Zailm's mother deserts him and returns to the mountain. Brain fever. The vase of malleable glass for Ernon, Rai of Suern, with Poseid inscription.  <page 138>
+
+  CHAPTER XVI  The aerial voyage to Suern. Parting two miles above terra firma. The storm. Sowing seeds at sunset--three hundred and fifty miles horizon. Waiting the cessation of the storm. Friends at home appear in the mirror of the Naim. The Suernii a strange and angry people, rebelling against the rule of the Sons of the Solitude, who strove to lift them up. Death of Rai Ernon. His body, by command of Rai Gwauxln, taken back to Caiphul to pass through the Unfed Fire.  <page 146>
+
+
+[p. 7]
+
+  CHAPTER XVII  Impressive funeral of Rai Ernon, attended by the Sons of the Solitude.  <page 161>
+
+  CHAPTER XVIII  Rai Gwauxln tenders Zailm Suzerainty over the land of Suern. He hesitates, as he is yet an undergraduate at the Xioquithlon; but as the Emperor promises him that the Governor whom as Envoy-in-Special of the Rai of Poseid, he (Zailm) had appointed over Suernis should execute the duties of the position until himself should be legally capable of doing so, he accepts the almost imperial honor, and is dismissed to the completion of the pleasure trip interrupted by the death of Rai Ernon. They visit the Umaurean (present American) colonies of Poseid, which are described. The Grand Canon of the Colorado is not merely the gradual product of time and water and weather, but of sudden formation through volcanic action. "The hand of Pluto was the major worker;" 12,000 years ago he saw a sea cover that region, which "fled away into the Gulf of California." Visit to the building on the summit of the greater of the Three Tetons, in Idaho, rediscovered by Professor Hayden while on the same expedition which made known to the modern world the famous Yellowstone region--Professor Hayden once a Poseida, attached to the government body of scientists stationed there. Visit to the copper mines, in the present Lake Superior region. Present of a knife of tempered copper. Incalia, west of the chain now known as the Rocky Mountains. Toward home, East, then South. Forsaking the realms of air for the depths of the sea at the rate of a mile a minute. (Illustration.) Reproved by his father over the naim for recklessness.  <page 166>
+
+  CHAPTER XIX  Home again. The problem of teaching the Suernii. These people, having lost their seeming magic power, require tuition in the arts of life. Zailm and his vice-regents accomplish this. The latter records of this people to be found in the history of the Judaic race. Death of Lolix's father; her indifference at hearing of it. Slumbering of conscience.  <page 177>
+
+  CHAPTER XX  Duplicity. Graduation at the Xioquithlon. Festivities in honor of the graduates. Sadness of the Emperor at his nephew's wrong-doing.  <page 183>
+
+  CHAPTER XXI  The mistake of a life. The demand of karma. Atonement is not undoing. Christ atoned--we must undo. Reincarnation is expiation.  <page 186>
+
+
+[p. 8]
+
+  CHAPTER  XXII Zailm asks Anzimee to be his wife. She confides her joy to Lolix, who drops fainting to the floor, but does not betray the secret of Zailm and herself. In an interview she resigns him to his new love, but the shock unsettles her mind, and in the evening she appears before the assembly in the Great Temple, where the announcement of the coming marriage is being made, and a most exciting scene occurs, closing with the dramatic death of Lolix, through the magic art of the High Priest.  <page 191>
+
+  CHAPTER XXIII  A witness before the criminal. Remorse of Zailm. Speeding away on his vailx, for three months he wanders in agony of soul, that takes him for a time out of the body. Finding Lolix, he weeps over her and their child. Then a glorious radiance breaks over the scene, and One whom he has seen before is beside them and gives them rest. (Illustration.) At last he goes home, to learn that his father has died of grief at his supposed death. The shock of his unexpected return nearly causes the death of Anzimee. Confession to Anzimee and forgiveness. Departure for the mines of Southern Umaur. The electric generation of water. Loss of the vibrator of the naim, thus destroying communication with home. Finding of the cavern house and getting fastened therein. Hunger and thirst. Astral visit of Mainin, the High Priest. He promises to send help, but comes again taunting Zailm, blaspheming Deity. A glorious visitor appears, who blasts Mainin into outer darkness. To Zailm He gave "Peace and Sleep." (Death.)  <page 199>
+
+  CHAPTER XXIV  Awaking in the astral he returned to camp. Succeeding in making his men understand that they must return to Caiphul, he returned thither by exertion of will power, to be greeted by the Emperor, who alone could see him, thus: "What! Zailm! Dead! Dead!" Entrance to and "life" in Devachan. References to earlier earth lives. Completion of Devachan and reincarnation on earth.  <page 220>
+
+BOOK II
+
+  APPENDIX  Seven Shasta Scenes.  <page 242>
+
+  CHAPTER I  In another personality--that of Walter Pierson, an American citizen. Orphaned in infancy--roving life on the sea. Is a soldier in the war of Secession. Next is a gold miner in California. Quong: companionship with the Tehin on trips among the mountains. Philosophizing. Meeting with the grizzly bear and witnessing his docility at Quong's command.  <page 249>
+
+[p. 9]
+
+  CHAPTER II  The Lothinian Brotherhood. Reclamation of one on the wrong path. The mystic note. Offer to sell his mine; reason, want to go "home." The mountain lion and the deer. Visit to the Sach in Mount Shasta. Description of the lodge-room.  <page 259>
+
+  CHAPTER III  Pentecostal address of Mendocus, Master. Invocation ceremonies. A visitor from Pertoz--Mol Lang--"has come to induct one of their number, Quong, into the 'land of the departed,' and another, Walter Pierson, or 'Phylos,' to take home with himself."  <page 275>
+
+  CHAPTER IV  Visit to one enjoying life's rewards in the astral life; "As a man soweth so shall he reap." Visit to a Devachanic home. Temporary return to earth. Difference between Devachanic concepts and the objects conceived of. Who was the daughter?  <page 295>
+
+  CHAPTER V  Mol Lang is home in Hesper. " It is good to be at home again." Meeting with Phyris, his Alter Ego.  <page 315>
+
+  CHAPTER VI  Sohma's teachings. The better methods. The key to all wisdom. Phyris' thought creations. In the library. Books transported from earth to Hesper--(Venus.) Magic glasses. Magical growing of fruits through the power of the symbol.  <page 321>
+
+  CHAPTER VII  Phyris' magical painting which was a prophecy. Mol Lang's teachings. Why it is more wrong to take animal life than vegetable life. "Thou canst not compensate the animal for its lost opportunities, but a plant thou mayest." Farewell of Mol Lang. Other inhabitants of Hesper. A heritor of many lives. Faith replaced by knowledge. Of such is the kingdom of heaven. Phyris tells him of previous lives, but says that he will forget them "until he comes again." She teaches of the Crisis of Transfiguration. She takes him back to the Sagum in Mt. Shasta. Parting for a little time.  <page 337>
+
+  CHAPTER VIII  Awaking in the Sagum. Taking up earth-life again. "Do unto others as thou wouldst be done by." Sale of the mine. Travel. Meeting with Lizzie, the reclaimed one. Home to Washington. Marriage.  <page 352>
+
+
+[p. 10]
+
+  CHAPTER IX  A little retrospection--Meeting with the chela in Hindostan--a message from Mendocus. Stirring of Hesperian memories. Remembrance of a visit to the Sun with Sohma. The Navaz currents. Discontent with life. Death of little daughters. Starting on a sea voyage with Elizabeth. Storm and wreck and--Death. Home again to Pertoz. Home, now; Earth, with its ills, left behind forever, and Karma satisfied.  <page 360>
+
+  CHAPTER X  After the years, returned. Phyris as tutor and guide. Creation of a body for use in Hesperus. Teaching by the Voice of the Spirit. "Go into the Holy Place." (Illustration.)  <page 376>
+
+  CHAPTER XI  "To be or not to be! That is the question." The critical ordeal--temptation met and conquered.  <page 383>
+
+     BOOK III
+  CHAPTER I  "Ye shall reap as ye have sown." Perception.  <page 394>
+
+  CHAPTER II  Victory and Praise. Life ended. Being just begun.  <page 395>
+
+  CHAPTER III  Retrospection: Phyris and Phylos scan their Atlantean lives--Lolix and Elizabeth.  <page 396>
+
+  CHAPTER IV  The decline of Atlantis during several thousand years. Decadence of Science. Aerial navigation and many scientific instruments forgotten. National depravity and ruin. Blood sacrifice in religion. Beginning of human sacrifice. Disappearance of the Maxin Book and the Unfed Light. Earthquake and deluge and sinking of Atlantis. Retrospective look at the time of Zailm in the continent of Lemuria, ages before Atlantis. Captives offered up to the gods. A sacrifice for love. (Illustration.)  <page 398>
+
+  CHAPTER V  Karmic retrospection: "Man's inhumanity to man."  <page 409>
+
+  CHAPTER VI  Why Atlantis perished.  <page 410>
+
+  CHAPTER VII  The Transfiguration.  <page 412>
+
+  NOTE BY THE AUTHOR  <page 414>
+
+  THE MIGHTY CAP STONE  <page 411>
+
 
 [p. 11]
-
- 
 
 GLOSSARY.
 
@@ -219,12 +255,9 @@ Zo--personal pronoun, possessive my or mine.
 
 Rai--Emperor or monarch, as Rai Gwauxln, pronounced Wallun.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 13]
 
- 
 
 AMANUENSIS' PREFACE.
 
@@ -338,36 +371,30 @@ Footnotes
 
 ^21:1 Revelations, XXII, 18-19; also I. Tim. VI., 3-12.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
  MAP OF ATLANTIS
  From A Dweller on Two Planets
 
- 
+
  MAP OF ATLANTIS
  From An Earth Dweller's Return
 
- 
+
  ATLANTEAN WORLD MAP
  From An Earth Dweller's Return
 
- 
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
+[p. 24]
+[p. 25]
 
-[p. 24][p. 25]
-
- 
 
 BOOK THE FIRST.
 
- 
+
+
 
 CHAPTER I.
 
- 
 
 ATLANTIS, QUEEN OF THE WAVE.
 
@@ -495,11 +522,11 @@ about and found a jagged stone which had fallen from the cliff above and struck 
 
 What a different scene rising Incal shone upon, in place of that of the previous morn! When I looked at the, proud peak, the red light of the sun showed that one full half of it had been riven away and swallowed up in "some mysterious cavern." Aye, truly,
 
-	 
-		"Mountains rear to heaven their head in their bald and blackened cliffs,
-		 And bow their tall heads to the plain."
-		
-		 Nearer by, where other ridges had been, and where the awful reeling of the cliffs had , right at my feet, indeed, no more was any rocky spire, nor peak, nor cliff there forever! Instead was a great lake of steaming water, whose thither shores were veiled by the softly settling ashes and clouds of steam condensed by the cold air a fine misty rain, the weeping of the stricken globe over its recent agony! Hushed, was all the noise; quieted, the trembling; ceased, the fervid streaming of the lava.
+
+        "Mountains rear to heaven their head in their bald and blackened cliffs,
+         And bow their tall heads to the plain."
+
+         Nearer by, where other ridges had been, and where the awful reeling of the cliffs had , right at my feet, indeed, no more was any rocky spire, nor peak, nor cliff there forever! Instead was a great lake of steaming water, whose thither shores were veiled by the softly settling ashes and clouds of steam condensed by the cold air a fine misty rain, the weeping of the stricken globe over its recent agony! Hushed, was all the noise; quieted, the trembling; ceased, the fervid streaming of the lava.
 
 That part of the ridge where I had lain had escaped, for the most part, the general rending. But even it had suffered, so that the path ahead of me, which I had been accustomed to travel in my trips to the peak, was gone, a huge block of probably thousands of tons weight having slidden into the pit below, making absolute erasure of the path, which had crossed that very place. I sought another and, in climbing about in the dull light, came to a part of the ridge which lay on the far side from the sun, which, as yet, was not more than two perilously narrow ledges, lakes of hot water below, impassable steeps overhead, suddenly a dull red bar of light shone athwart my course! Looking for its source, I saw that the light streamed through a wide crack in the beetling cliff above. The bottom of this crack was not far below me and, instead of becoming narrowed out, had a floor as wide as any part of
 
@@ -523,14 +550,11 @@ every mine a tithepayer to the empire, and that a mine worked without acknowledg
 
 The means having been forthcoming, the removal of my residence from the country to the city of the Rai was next in order. Our farewell to the old mountain home and our installment in the new one in Caiphul will be passed over in silence.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER II
 
- 
 
 CAIPHUL
 
@@ -564,11 +588,11 @@ And it was so.
 
 In preceding pages the promontory of Caiphul was described as reaching out into the ocean from the Caiphalian plain and as visible from a great distance at night because of the glow of light from the capital. For three hundred miles westward from Numea the peninsula projected outwards from the plain, averaging almost to its extreme cape. a breadth of fifty Miles and rising much like the chalk-cliffs of England directly from the ocean to a height of nearly one hundred feet to reach a plain almost floor-like in its evenness. On the point of this great peninsula was Caiphul or "Atlan, Queen of the Wave." Beautiful, peaceful, with its wide spreading gardens of tropical loveliness,
 
-	 
-		"Where a leaf never fades in the still, blooming bowers,
-		 And the bee banquets on thro' a whole year of flowers,"
-		
-		 its broad avenues shaded by great trees, its artificial hills, the largest surmounted by governmental palaces, and pierced and terraced by, the avenues which radiated from the city-center like spokes in a wheel. Fifty miles these ran in one direction, while at right angles from them, traversing the breadth of the peninsula, forty miles in length, were the shortest avenues. Thus lay, like a splendid dream, this, the proudest city of that ancient world.
+
+        "Where a leaf never fades in the still, blooming bowers,
+         And the bee banquets on thro' a whole year of flowers,"
+
+         its broad avenues shaded by great trees, its artificial hills, the largest surmounted by governmental palaces, and pierced and terraced by, the avenues which radiated from the city-center like spokes in a wheel. Fifty miles these ran in one direction, while at right angles from them, traversing the breadth of the peninsula, forty miles in length, were the shortest avenues. Thus lay, like a splendid dream, this, the proudest city of that ancient world.
 
 At no point did Caiphul approach the ocean nearer than five miles. Though it had no walls, around the whole city extended a huge moat, three-quarters of a mile broad by an average of sixty feet in depth and supplied by the waters of the Atlantic. On the north side, a great canal entered the moat-a canal in which the outflowing waters of a large river, the Nomis, created an outgoing current of considerable swiftness. A current was thus naturally made to cause suction through the entire circle of the moat, of which the ocean supply entered at an ingress on the south side. In this manner efflux into the sea of all the drainage of the artificial circular island on which stood the city was allowed. Immense pumping engines forced fresh ocean water through large stone pipes and conduits all over the city, flushing the drains, furnishing motive power for all requisite purposes, for electric
 
@@ -668,14 +692,11 @@ our fallen ancestry. Glory be to our Father that His children surely, if slowly,
 
 It may be a seemingly inopportune intrusion, but I must here briefly describe the electro-odic transit system of Caiphul, and the other cities, towns and villages scattered throughout the empire and its colonies. The description is of the local transit-carriages only. On each side of every avenue was a broad tessellated pavement for pedestrians. A line of massive, bottomless stone vases in which throve ornamental shrubs and foliage plants stood upon the curb, and on either side of these was a metal rail, placed at a height of about nine feet, and supported upon davits similar to those from which ship-boats are swung. At regular distances other rails crossed these main runners, rails capable of being raised or lowered to form a switch-junction, a simple lever effecting this process. These rails served as cross streets, there being in comparatively few instances any paved street underneath the rails on any but the great radiate avenues. On the maps of the City Department of Transit these main and cross rails looked like the web of a garden spider. For each transit-district there were multitudes of carriages, having aut-odic mechanism, whereby they were made to speed at tremendous swiftness with their passengers; but collisions could not occur, as the conveying rods formed a double-track system.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER III
 
- 
 
 FAITH IS KNOWLEDGE ALSO, AND IT GIVETH TO REMOVING MOUNTAINS
 
@@ -699,14 +720,11 @@ a mine-owner in the State of California-and a successful one, too. It so much mo
 
 In the next chapter I purpose devoting some pages to a consideration of physical science, as understood by the Poseidi; more especially will I refer to the prime principles upon which it was based, inasmuch as neglect, to do this would necessitate the taking of many statements ex cathedra which otherwise might be clearly understood at the moment.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER IV
 
- 
 
 "AXTE INCAL, AXTUCE MUN"
 
@@ -758,16 +776,14 @@ Footnotes
 
 ^62:1 NOTE--Redlight is stated to occur at 395,000,000,000,000 vibrations of that "ether" which by Phylos is termed the last form of matter below where matter ceases and mind begins. And the highest visible light vibration is placed at 790,000,000,000,000. So says science. But Phylos says: "Vastly higher than the high purple range where light ceases ordinarily to be visible, the One Substance again vibrates visibly. As a synchronous harp-string that responds to key of low C, for example, struck on another harp, will also respond to every C in the whole register, be it low, or middle or high, so the One Substance responds at 831,000,000,000,000; at, again, the next octave of vibration, and again at the next, where it becomes visible as the fatal Unfed Light, called in Atla the "Maxin," and again, by the Tchin as the "Vis Mortuus."
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 67]
 
- 
+
+
 
 CHAPTER V
 
- 
 
 LIFE IN CAIPHUL
 
@@ -973,14 +989,11 @@ Rai Gwauxln touched a service-button, whereupon an attendant entered, to the gui
 
 So ended an audience which influenced the course of the years and bent life's great twig, making me feel a proud consciousness of being a repository of the trust of a revered friend, a consciousness which has ever proven most patent in this world of trials and temptations.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VI
 
- 
 
 NO GOOD THING CAN EVER PERISH
 
@@ -1012,11 +1025,11 @@ In this year A. D., 1886, chemists count the process costly which produces the m
 
 Of aluminum was the giant tower of the Maxt constructed. I could see its base from where I stood, an enormous cube of masonry, then the superstructural round shaft of solid metal of the tower proper, a dully white, tapering column, lit by lunar rays. From base upward, my gaze traveled until it rested on the top, an apical point nearly three thousand feet in height. Entranced by this crowning triumph of the scene, I gazed at the heaven-piercing shaft; sentinel over the garden city, warding off the lightnings, when the lord of thunder was abroad; and all my thought was of its grandeur, and its majestic beauty.
 
-	 
-		"How often, oh, how often,
-		 In the days that have gone by-"
-		
-		 I have stood and gazed on some scene of loveliness, or of sublimity--handiwork of God, or possibly of man--God in man! And, as I have looked, my soul sang with praise, and my breath was the breath of inspiration. Always in such an experience, the soul, be it that of man or beast, takes an advance step. However much a soul may be steeped in sin or misery, synonymous terms, an inspiration breaks over it, and bears away a little of its sordidness, a little of its pain and fever.
+
+        "How often, oh, how often,
+         In the days that have gone by-"
+
+         I have stood and gazed on some scene of loveliness, or of sublimity--handiwork of God, or possibly of man--God in man! And, as I have looked, my soul sang with praise, and my breath was the breath of inspiration. Always in such an experience, the soul, be it that of man or beast, takes an advance step. However much a soul may be steeped in sin or misery, synonymous terms, an inspiration breaks over it, and bears away a little of its sordidness, a little of its pain and fever.
 
 So, therefore, the glories and marvels of Atlantis the Great were not in vain. Thou and I, reader, lived then, and before then. The glories of those long-dead centuries seen by us have lived enshrined in our souls, and made us much, aye, most, of what we are, influenced our acts, soothed us with their beauty. What, then, though the forms of the dim, mysterious past are effaced from all existence save in the record of the great book of life, the soul? Their influence lives, and forever. Shall we not, then, strive that our labors may ennoble, may live in soul and in spirit, and be looked back upon by ourselves and others, even as I, here, look back upon the record of my dead, but ever-living, past? It is a great joy thus to have attained the eminences of the spirit which enable me to scan the history of lives from which I passed through the portal of the grave; lives which now I am returned to gaze upon through the eyes of a different personality, a personality strung, greatest one of a
 
@@ -1024,14 +1037,11 @@ So, therefore, the glories and marvels of Atlantis the Great were not in vain. T
 
 chain, like pearls upon a thread, teaching me I AM I! Smoky, some of these pearls; black, others, or white or pink, aye, some are even red! Could tears add to their number, I would have more.; oh! so many more, for the white ones are so few, and the smoky, the black and the red, so many. But my pearl of great price is my last life. Of white is it, and by my Master was it cut cruciform. When He gave it me, He said, "It is done." Verily so! It marks the junction of finity with infinity. So is it the period set to all time, for me, save I elect.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VII
 
- 
 
 CONTAIN THYSELF
 
@@ -1079,7 +1089,6 @@ RESURGAM CHRISTOS
 
  "Close Not the Ends of My Cross."
 
- 
 
 [p. 92]
 
@@ -1089,14 +1098,11 @@ Footnotes
 
 ^90:1 NOTE.--Do not confuse "undoing" with "atonement." Christ atoned; we must undo, see note, page <page 236>.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VIII
 
- 
 
 A GRAVE PROPHECY
 
@@ -1136,14 +1142,11 @@ Much I marveled at first to hear these words, thinking that perhaps the speaker 
 
 ground, knowing not what to think and filled with an indefinable fearsomeness. As he ceased utterance, and bade me peace, I raised my eyes to look him in the face, to find to my bewilderment that not a soul was in sight, but that I stood alone in the great plaza surrounding a fountain whose jet seemed like molten silver in the moonlight. Dumbfounded, I looked about on every side. Had I been dreaming? Certainly not. Were the words of the mysterious stranger true, or false? Time will satisfy thy curiosity, my reader, as it did mine.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER IX
 
- 
 
 CURING CRIME
 
@@ -1197,14 +1200,11 @@ As I went to my home that evening, I resolved to add the science of prophylactic
 
 sometimes wished that I had submitted myself for treatment at the hands of the State, for it would at least have prevented the commission of errors which have wrought much misery, to me, and to others by me. That I did not, is as well, not only on the principle that in our Father's kingdom whatever is, is best, but also because no one can in any way whatever, shirk the responsibilities inbound in character by the karma of all preceding incarnations. To have so submitted myself for correction would have been an evasion of the ordeal, a sort of cowardly attempt similar to the act of the self-murderer who seeks to avoid trouble on earth by suicide, and who in every ease escapes nothing, not one jot nor tittle of the law of God. Instead, he piles his miseries and penalties mountains higher and prolongs through inexorable karma, and other earthly incarnations, his anguish. Thus it is with those who die by self-destruction; but those who die by unavoidable causes involuntarily, are not visited by such penalties. So the Poseid culprits who could in no wise avoid the treatment were benefited, whereas for me voluntary submission would have sown dragon's teeth for my pathway. Penalties, observe, concern not those who know and, knowing, do God's will.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER X
 
- 
 
 REALIZATION
 
@@ -1334,14 +1334,11 @@ Footnotes
 
 ^106:1 It hath been ever thus; the seed sown in the Acre whereof the corners am marked by posts of which the first hath but one side, the second five sides, the third six sides, but the fourth again only five, hath ever been scorned by man. That seed groweth a tree seventeen-branched. So was Suern. In another day it would be watered by Poseid; later it must be in Poseid. Yet again this would be after it was pruned by its Sower. Then it must grow till the day's end, and become great in the next day. But greatest at the end of that day. I have spoken a riddle that whoso unfoldeth it proveth him of the Tree I have spoken, and filled with deathlessness. Hear, O Israel! Seek, O Manasseh, and Ephraim, seek! Land of the Starry Flag, open thine eyes, and thou, too, O Mother land!
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XI
 
- 
 
 THE RECITAL
 
@@ -1447,11 +1444,11 @@ At length she resumed wearily, sadly:
 
 "What then befell so filled all spectators with horror, so wrought upon their superstition, that for full five minutes after, scarce a sound was heard. Of all those veteran warriors not one was left alive. At the gesture of the Suernis their heads fell forward, their grasp was loosed on their spears, and they fell as drunken men to the earth. Not a sound, save that of their precipitation; not a struggle; death had come to them as it comes to those whose hearts stop pulsing. Ah! what frightful power hast thou, Suernis!"
 
-	 
-		"For the Angel of Death spread his wings on the blast,
-		 And breathed in the face of the foe as he passed."
-		
-		 Sennacherib was unknown then; the Salda princess knew not of the poem; but we do, my reader, thou and I; that is enough.
+
+        "For the Angel of Death spread his wings on the blast,
+         And breathed in the face of the foe as he passed."
+
+         Sennacherib was unknown then; the Salda princess knew not of the poem; but we do, my reader, thou and I; that is enough.
 
 While describing the action of the Rai of Suern, the princess had risen to her feet from her place by the side of Menax, simulating at the same time the fatal gesture of Ernon of Suern. So apt had been this mimicry that the group of listeners on our left had involuntarily cowered as her arm swept over their heads. The Saldu noticed them shrink, and her lip curled with scorn.
 
@@ -1551,14 +1548,11 @@ Footnotes
 
 ^121:1 Building for flowers.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XII
 
- 
 
 THE UNEXPECTED HAPPENS
 
@@ -1604,11 +1598,11 @@ The reader is aware how the brown-haired, blue-eyed, queenly girl of far away Sa
 
 If the Princess Lolix was on the threshold of womanhood, so was this fair one, the Princess Anzimee. Slight, delicate, womanly, the daughter of a long line of patrician ancestry; my senior and superior in the ranks of study at the Xioquithlon, if my junior in years; I loved her, yet carefully concealed the fact. Each of my friends who reads this will know what I feel when I avow unwillingness to describe Anzimee, and bid each to place in this Poseid life-frame the picture of his own best-loved one.
 
-	 
-		"Each heart recalled a different name,
-		 But all sang 'Annie Laurie.'"
-		
-		 Prince Menax caught sight of his daughter at nearly the same moment as I did, and a look of mild surprise overspread his face at her presence, when he had supposed the Xanatithlon
+
+        "Each heart recalled a different name,
+         But all sang 'Annie Laurie.'"
+
+         Prince Menax caught sight of his daughter at nearly the same moment as I did, and a look of mild surprise overspread his face at her presence, when he had supposed the Xanatithlon
 
 [p. 125]
 
@@ -1648,14 +1642,11 @@ Poseid derived her greatness from her educational superiority, a greatness which
 
 Poseid. Foremost amongst nations, art thou so because of woman--and Christ. Thou wilt keep in the van because of them, and eclipse all the world beside when the happy karmic day shall have arrived which places woman not below, not above, but by the side of man on the rock of esoteric Christian education, the granite of knowledge and faith, which withstands the winds and storms of ignorance. Built on such foundation, the National house shall not fall; built on other, great shall be the fall of it. Here is wisdom: myriad serpents are in a man; in thee; keep them. Now ye are slaves. Be ye masters instead. But, alas! this Way is narrow; few will to find it.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XIII
 
- 
 
 THE LANGUAGE OF THE SOUL
 
@@ -1673,14 +1664,11 @@ I then departed from the prince and from the sweet girl who had been with us dur
 
 It seems a little singular that the language which is translated thus should have a similar sound and import as to-day used by the people of my home planet. At that old day I raised my hands aloft and exclaimed: "Star, O star of my life!" To-day I turn awhile from precipitating this history in astral word-things, turn to my Alter Ego, and say: "Phyris, Phyrisa." This is her own dear name, and signifies "Star of my soul." Peculiar, is it not, that twelve thousand years should pass, and I, member of another race of human beings, in another mansion, find so little change in the language of the soul?
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XIV
 
- 
 
 THE ADOPTION OF ZAILM
 
@@ -1766,10 +1754,10 @@ rectitude, but only as a warning were the words taken. Yet I knew afterwards, al
 
 As we turned away, an Incala, who had been present, began playing on the great organ of the temple; then the silences of the vast auditorium responded as no human voice could make them do.
 
-	 
-		"On the winds the bells' deep tones are swelling--"
-		
-		 The echoes rang again and again as the thundering voices of the great organ pealed forth, thrilling the soul with its mighty harmony. Rays of many-hued lights, some brilliant, some soft-tinted as those of a spectroscopic image of the moon, played from point to point in exhausted air-tubes, and as the colors changed, so did the notes of music, for every ray of light, whatsoever its source, is a pulsing choral note, if developed rightly. Thus the stars sing.
+
+        "On the winds the bells' deep tones are swelling--"
+
+The echoes rang again and again as the thundering voices of the great organ pealed forth, thrilling the soul with its mighty harmony. Rays of many-hued lights, some brilliant, some soft-tinted as those of a spectroscopic image of the moon, played from point to point in exhausted air-tubes, and as the colors changed, so did the notes of music, for every ray of light, whatsoever its source, is a pulsing choral note, if developed rightly. Thus the stars sing.
 
 The Rai did not go with Menax and myself, when the conclusion of our business was reached, but remained with the Incaliz Mainin. With him Gwauxln was more familiar, his friendship more deeply intimate than with any other human being. And the reason was that both be and Mainin were Sons of the Solitude and had been youths together in the days ere public favor had marked the one for Rai, the other for Incaliz, these both being elective positions, the office of High Priest being the only ecclesiastical office which could be filled by
 
@@ -1791,14 +1779,11 @@ Footnotes
 
 ^137:1 I, Cor. vii., 3, 4, 5, 7, 8, 9, 29, 31, 32.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XV
 
- 
 
 A MATERNAL DESERTION
 
@@ -1808,14 +1793,11 @@ What an anomalous position was this. Here was I, son by adoption of one of the I
 
 Having sent the promised excort for her, what was my surprise on returning to the palace, at learning from my father that instead of coming she had sent a message in writing. I hastily broke the seal and read, in her fine Poseidic chirography, the simple command:
 
-	 
-		"Zailm, come to me.
-		
-		
-			 
-				PREZZA NUMINOS."
-				
-				   [p. 139]
+
+        "Zailm, come to me.
+            PREZZA NUMINOS."
+
+[p. 139]
 
 I went. Somehow an icy feeling of apprehension was about my heart, a presentiment of something harrowing. When I arrived at the house, my mother, looking, as I thought, rather pale, said:
 
@@ -1923,16 +1905,14 @@ I said no more, for it at that moment dawned upon me that the pursuer followed u
 
 Menax now arose, bade the company good-bye and a pleasant trip, and then, Anzimee having arisen also, he put his arm about her and came back to me. As I stood up he passed his disengaged arm around me and thus we stood for some moments. Then releasing us, he ordered the two deckmen to throw grapples across to the other vessel, which at that moment grated alongside. The next instant he stepped on board the other vailx and signed to loose grapples. Thus we parted, high above the green earth, two miles beneath, he to return, we to go onwards.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 146]
 
- 
+
+
 
 CHAPTER XVI
 
- 
 
 THE VOYAGE TO SUERN
 
@@ -1956,15 +1936,15 @@ At about the tenth hour it was reported that Necropan was beneath, and at this s
 
 and to allow them the privilege we settled down to spend the night on an elevated ridge, high enough to be above malarious influences, for we were near where modern Liberia lies.
 
-	 
-		"The proud bird--The Condor of the Andes,
-		 That can sail thro' heaven's unfathomable depths,
-		 Or brave the fury of the northern hurricane
-		 And bathe his plumage in the Thunder's home,
-		 Furls his broad wings at nightfall, and sinks down
-		 To rest upon his mountain crag.
-		
-		 Though we called it Sattamund, or the Wasted Land, yet it was not such an and region then as it is now. Water, if not as abundant as it was in Poseid, was abundant enough to give a wealth of tropical trees of the hardier sorts, sufficient at least to hide the nakedness of the slopes and hills of that old seabed. There were even a few saline lakes there, broad and blue, and it was around these that the population was centered. But the same dread catastrophe that overtook fair Poseid laid its terrible hand upon Necropan, and its beauty of verdure went out from the land, because the geological changes withdrew all the water from the surface, and hid it so that only artesian augers could find it. The same mighty throe rent the rocks through and through in Southwest Incalia, and to-day there is in that arid region scenery most fantastic, weird past the power of my pen to describe, where flows the Rio Gila, the Colorado, and Colorado Chiquita. But I will reserve the description, and when it is given it shall be in other words than mine, so that thou and I, my friend, shall together have the pleasure of enjoying a fine word-painting.
+
+        "The proud bird--The Condor of the Andes,
+         That can sail thro' heaven's unfathomable depths,
+         Or brave the fury of the northern hurricane
+         And bathe his plumage in the Thunder's home,
+         Furls his broad wings at nightfall, and sinks down
+         To rest upon his mountain crag.
+
+Though we called it Sattamund, or the Wasted Land, yet it was not such an and region then as it is now. Water, if not as abundant as it was in Poseid, was abundant enough to give a wealth of tropical trees of the hardier sorts, sufficient at least to hide the nakedness of the slopes and hills of that old seabed. There were even a few saline lakes there, broad and blue, and it was around these that the population was centered. But the same dread catastrophe that overtook fair Poseid laid its terrible hand upon Necropan, and its beauty of verdure went out from the land, because the geological changes withdrew all the water from the surface, and hid it so that only artesian augers could find it. The same mighty throe rent the rocks through and through in Southwest Incalia, and to-day there is in that arid region scenery most fantastic, weird past the power of my pen to describe, where flows the Rio Gila, the Colorado, and Colorado Chiquita. But I will reserve the description, and when it is given it shall be in other words than mine, so that thou and I, my friend, shall together have the pleasure of enjoying a fine word-painting.
 
 In Poseid and Suern, and wherever civilization extended its scepter, it was the universal law, and mankind's pleasure to obey the heavenly mandate which the general accordance with the solar life spirit taught us required the planting, instead of careless rejection, of O seeds of goodly flower or fruit, for shade, for beauty, for utility, wherever it chanced that a favorable spot offered, either in the habitats of man or in the untrodden wilderness. Indeed, in such trips as our party was then taking, it was a matter of religious significance to take great quantities of seeds and to scatter them from the vailx-decks
 
@@ -1972,7 +1952,6 @@ In Poseid and Suern, and wherever civilization extended its scepter, it was the 
 
 at nightfall, both as an offering to Incal, as His sublime symbol set in the west, and also that the dews of night might insure germination, and this ceremony was also held to be an acknowledgment of the Goddess of Increase, Zania. Thus the wilds came to bloom as the rose; and to-day the world is heritor of that sowing of seed; the indigenous cereals, the wheat, for the origin of which many ingenious but insufficient theories have been put forth, and the varieties of palms that make the tropics famed for the grace of their cocoas and dates, and every genera of the Chamaerops. And these things are because man, woman and child found pleasure in that olden time in "planting seed by the wayside." Go thou and do likewise, that the waste places may become full of beauty and be a joy forever. All hail to Arbor Days, which fulfill the injunction of Christ; they will surely make a return, and some an hundred fold. A small pocket now and then will hold many a seed for planting, and though thou heedest not its sort, so that it be goodly, yet the Father hath said, "It shall bring forth after its kind."
 
- 
 
 THE STORM
 
@@ -1986,10 +1965,10 @@ from Navaz, our forces for propulsion as well m for repulsion, or levitation, th
 
 As the windows, being frosted over, obscured our view, and as the night promised furious weather, we had recourse to books, music and to conversation with one another, and, through the naim, with our friends at home in faraway Poseid. No authority had Murus (Boreas) over the currents from Navaz. The evening had not far advanced when it was suggested that the storm would most likely be heavier, and the wind wilder nearer the earth, and so the repulse-keys were set to a fixed degree, making nearer approach to the ground than was desirable impossible as an accidental occurrence. We might, if it were generally agreeable, take advantage of our privilege and enjoy the sensation of being in the midst of the storm, ourselves safe and under full speed,
 
-	 
-		"And brave the fury of the Northern hurricane."
-		
-		 The partial novelty might make us sleep better, when, the evening passed, we should have gone to our staterooms. I, therefore, approved the plan, and gave orders to the conductor to descend to a height of about twenty-five hundred feet. Down we dropped. Our lights were made low in order to produce a partial gloom, the better to enjoy the full fierceness of the tempest, and we sat near the windows where we could hear, if not see. To the eye, naught would have appeared outside save entire blackness; to the ear, the loud beating of the rain upon the metal shutters was plainly, delightfully apparent. Against the sharp points of prow and stem the wind howled and shrieked like an army of demons. At times when the vailx was struck, broadside by some counterblast, it would careen and tremble, but it kept on its way, determined as a thing of life. The experience was enjoyable, if not entirely novel, for it spoke to us of the power of man over matter, and taught us of the things of God, Incal to us, Master of all things and of ourselves, who by Him had this authority over the elements.
+
+        "And brave the fury of the Northern hurricane."
+
+The partial novelty might make us sleep better, when, the evening passed, we should have gone to our staterooms. I, therefore, approved the plan, and gave orders to the conductor to descend to a height of about twenty-five hundred feet. Down we dropped. Our lights were made low in order to produce a partial gloom, the better to enjoy the full fierceness of the tempest, and we sat near the windows where we could hear, if not see. To the eye, naught would have appeared outside save entire blackness; to the ear, the loud beating of the rain upon the metal shutters was plainly, delightfully apparent. Against the sharp points of prow and stem the wind howled and shrieked like an army of demons. At times when the vailx was struck, broadside by some counterblast, it would careen and tremble, but it kept on its way, determined as a thing of life. The experience was enjoyable, if not entirely novel, for it spoke to us of the power of man over matter, and taught us of the things of God, Incal to us, Master of all things and of ourselves, who by Him had this authority over the elements.
 
 [p. 151]
 
@@ -2023,41 +2002,41 @@ Unsuspiciously, she asked:
 
 Anzimee blushed, but made no other sign, merely dropping her long lashes as I looked at her, while I said, "Truly! Then from my heart-this" (a popular favorite, by the way):
 
-	 
-		"Ere the heart can know its own,
-		 Ere the doubts of life are o'er,
-		 Love in our hearts must have grown
-		   To the heights of heaven's shore.
-		 Truly, love is sought in vain
-		   In other place than in the heart;
-		 True love always hath its pain,
-		   When from purity we part.
-		 May we cease from every strife,
-		   While in lovely verse enshrining
-		 Incal's blessing in our life;
-		   With His peace it e'er entwining.
-		 So is melody divine,
-		   When the music of the soul;
-		 'Tis betrothing thine and mine,
-		   While the centuries unroll.
-		 Yet our hearts are young and gay,
-		   Seeking ever fairest bowers
-		 Where shall bloom from day to day,
-		   All the beauty of the flowers.
-		 There is one of all the rest,
-		   That alone for me is blooming;
-		 Deep the tendrils in my breast,
-		   Find forever their entombing.
-		 Shall I pluck it while in bloom,
-		   Ready for the gardener's gleaning?
-		 Could I take forever home
-		   What, unto me, is no dreaming?
-		 Yea, beloved, we shall rejoice
-		   In His blessing evermore;
-		 List'ning to the gentle voice,
-		   That as One--we do adore."
-		
-		 Thus it was within the vailx, song and pleasure; without was the storm, risen up after us. Into the teeth of the furious gale plunged our long spindle, giving no sign exteriorly, even had any one been there to see, of the light and warmth, laughter and song, of the human freight and songbirds within its staunch shell, amidst the flowers, a drifting bit of the tropics, safe from boreal blasts. No sign, save only the gleam of the crimson fore and aft lights.
+
+        "Ere the heart can know its own,
+         Ere the doubts of life are o'er,
+         Love in our hearts must have grown
+           To the heights of heaven's shore.
+         Truly, love is sought in vain
+           In other place than in the heart;
+         True love always hath its pain,
+           When from purity we part.
+         May we cease from every strife,
+           While in lovely verse enshrining
+         Incal's blessing in our life;
+           With His peace it e'er entwining.
+         So is melody divine,
+           When the music of the soul;
+         'Tis betrothing thine and mine,
+           While the centuries unroll.
+         Yet our hearts are young and gay,
+           Seeking ever fairest bowers
+         Where shall bloom from day to day,
+           All the beauty of the flowers.
+         There is one of all the rest,
+           That alone for me is blooming;
+         Deep the tendrils in my breast,
+           Find forever their entombing.
+         Shall I pluck it while in bloom,
+           Ready for the gardener's gleaning?
+         Could I take forever home
+           What, unto me, is no dreaming?
+         Yea, beloved, we shall rejoice
+           In His blessing evermore;
+         List'ning to the gentle voice,
+           That as One--we do adore."
+
+Thus it was within the vailx, song and pleasure; without was the storm, risen up after us. Into the teeth of the furious gale plunged our long spindle, giving no sign exteriorly, even had any one been there to see, of the light and warmth, laughter and song, of the human freight and songbirds within its staunch shell, amidst the flowers, a drifting bit of the tropics, safe from boreal blasts. No sign, save only the gleam of the crimson fore and aft lights.
 
 While the others retired for the night to their various state
 
@@ -2107,15 +2086,14 @@ On every countenance seemed to rest a perpetual expression of anger. Why, I pond
 
 such magic feats as these. None ever got something for nothing. These people gaze upon the foes who come to menace them in their homes--and they are not!
 
-	 
-		                         "It passed o'er
-		 The battle plain, where sword and spear and shield
-		 Flashed in the light of midday--and the strength
-		 Of serried hosts is shivered, and the grass,
-		 Green from the soil of carnage, waves above
-		 The crushed and moldering skeleton."
-		
-		 What Poseida could do these things? Rai Gwauxln, Incaliz Mainin, but no more, at least none known to the public even by repute. But no man of all Atl had ever witnessed much display of such power on the part of either, and with the masses it was mere repute. I was favored beyond most Atlanteans in this respect.
+        "It passed o'er
+         The battle plain, where sword and spear and shield
+         Flashed in the light of midday--and the strength
+         Of serried hosts is shivered, and the grass,
+         Green from the soil of carnage, waves above
+         The crushed and moldering skeleton."
+
+What Poseida could do these things? Rai Gwauxln, Incaliz Mainin, but no more, at least none known to the public even by repute. But no man of all Atl had ever witnessed much display of such power on the part of either, and with the masses it was mere repute. I was favored beyond most Atlanteans in this respect.
 
 I noticed in our visits in and about the capital a thing which cast a shadow over me,, that his people did not love Ernon, however much they respected him and feared his power. That the Rai was aware of my knowledge of this dislike was obvious from his conversation.
 
@@ -2213,20 +2191,15 @@ It was, as I reflected upon it, something of a novelty to be piercing the air at
 
 As we traveled westward the sun seemed to remain as it was when we left Ganje, for its speed, or that of the earth, rather, was the same as our own. We had been on the way for five hours and had covered considerably over half of the distance home, the whole journey being something like seven thousand miles. The remaining two thousand miles would occupy some three hours for transit, a length of time which seemed to my impatient desire so long, that I paced the floor of the salon in very fretfulness. I have seen, since the days of Poseid, a time when a vastly slower progress would have seemed swift, but then the past had a veil obscuring it so that comparison was impossible--
 
-	 
-		"Man never is, but always to be blest."
-		
-		 
-		
-		 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+        "Man never is, but always to be blest."
+
+
+
+
 
 CHAPTER XVII
 
- 
 
 RAI NI INCAL--ASHES TO ASHES
 
@@ -2254,23 +2227,18 @@ The funeral was over. As we who abode in Caiphul turned to depart, we. saw that 
 
 been hundreds of Incaleni, Sons of the Solitude in astral form, gathered at the funeral of their brother. Yea, verily, had the Sons come to witness the impressive ceremony where all that was mortal of their dead fellow was restored to the keeping of the elements of nature.
 
-	 
-		"But no man knows that sepulcher,
-		     And no man saw it e'er,
-		 For the angels of God upturned the sod
-		     And laid the dead man there."
-		
-		 
-		
-		 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+        "But no man knows that sepulcher,
+             And no man saw it e'er,
+         For the angels of God upturned the sod
+             And laid the dead man there."
+
+
+
+
 
 CHAPTER XVIII
 
- 
 
 LE GRAND VOYAGE
 
@@ -2310,11 +2278,9 @@ But Umaur lay ahead of us, and ignorant of the misdeeds-to-be of our national po
 
 Umaur was the region of the quarries of Poseid and of many of its rich mines of mineral wealth. Here, too, were vast plantations, and east of the mountains were regularly planted groves of the rubber tree, the genuine Siphonia Elastica of botany. Here also flourished the Cinchonas, as well as many other trees now indigenous to South America, colonized plants from Poseid. Until planted abroad by Atlanteans these vegetable treasures never grew outside of Poseid, and to-day the wild forests of peculiar South American trees and shrubs are the direct descendents of our regularly cultivated farm and plantation products in Umaur. In that olden time the Amazon river ran within dykes across the continent, and the trackless
 
- 
 
  AERIAL-SUBMARINE VESSEL, ENTERING THE WATER
 
- 
 
 [p. 169]
 
@@ -2376,10 +2342,10 @@ so also the grandeur of America will be upheld by the western and southwestern S
 
 Man likes pleasant places to live in; he likes those lands where Mother Nature is amiable and laughs with abundant harvests upon slight provocation; man likes to live in a fruit-land, and where shall he find anything more to his mind than this same southwest and west of the Incalia of yore? Along the ocean shore and back to the Sierra Nevada mountains is the region where, under Poseid dominion, lay a province not second in beauty to the lake region along the shores of Miti. And it bar, retained its fair charm, while that of the other has given place to drifting sands and cactus and the mesquite, and has tenantry of the Moloch lizards, rattlesnakes and prairie dogs. It is no more the
 
-	 
-		"Union of lakes and union of lands"
-		
-		 that it was in that olden time.
+
+        "Union of lakes and union of lands"
+
+         that it was in that olden time.
 
 When we finally left Incalia, that we might return home to Caiphul, the last of our colonial lands visible was the coast of Maine, for we journeyed eastward, then south.
 
@@ -2407,15 +2373,12 @@ enjoyed the pleasant ocean breeze, which blew in the same southern direction in 
 
 We saw that if we traveled home by the straight course, we would not reach Caiphul under two days, and, having set our desires on reaching it by the next morning, the prospective delay was so tedious that we decided to run in on an angle. That is, we would head our vailx: southeast for the Necropan coast, thence southwest for Caiphul, and though the extra distance would be several thousand miles, the increased speed attained would allow us to reach our destination in time to take our breakfast at home.
 
-	 
-		Beautiful Caiphul,
-		   There's no place like thee;
-		 Queen of Atlantis
-		   And Queen of the Sea.
-		
-		 
-		
-		 
+
+        Beautiful Caiphul,
+           There's no place like thee;
+         Queen of Atlantis
+           And Queen of the Sea.
+
 
 Footnotes
 
@@ -2423,14 +2386,11 @@ Footnotes
 
 ^173:1 The Three Tetons we situated in northwestern Wyoming, but Wyoming as a territory was not in existence at the time referred to, haying been formed in 1868 from parts of Idaho, Dakota and Utah. A small part of Yellowstone Park is in Idaho.--Kings Hand-book of United States.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XIX
 
- 
 
 A WELL-MET PROBLEM
 
@@ -2512,16 +2472,14 @@ The last barrier was fallen. Conscience slumbered. Thoughts of Anzimee were put 
 
 But Incal smote, not then, but afterwards through the ages. He smote not then; conscience slept the sounder, but passion awoke.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 183]
 
- 
+
+
 
 CHAPTER XX
 
- 
 
 DUPLICITY
 
@@ -2561,14 +2519,11 @@ of mind. But that night passed without any further disquiet, as so many others h
 
 As I walked with Lolix in the great hall of Agacoe, I remarked the many glances of admiration bestowed upon her beauty by the many gentlemen we met, nobles of high degree. She had indeed grown to have a loveliness of face and figure, and best of all, of character, which was no longer heartless, but very gentle since her sad experience of secret motherhood and consequent disbarment from its innocent joys, since the child might not be known as hers. She had had offers of honorable marriage find refused them, knowing even as she did so that the fact of their proffer was a proof of my having spoken falsely when I told her that the laws of Poseid forbade our marriage. But her love for me, if it suffered, was faithful and knew no lessening. And she kept the secret well and the more closely for my sake, wretch that I was! As I looked upon her, I felt that she was very dear to me. But Anzimee was more so, and therefore the hideous tragedy went on. I knew that from love of me Lolix had first repressed heartless remarks, then taken an interest in relieving suffering for its own sake, and so had become transformed from a beautiful thorn tree to a glorious rose of womanly loveliness, with few thorns indeed. Had I really any conscience deserving the name, that I did not come out before the world and take Lolix as my wife after all this boundless love for me? No, not in Poseid. Conscience had not slept; it had never been existent; it was yet to be born, and grow in a later time. Thus did the nemesis of judgment still withhold her stroke.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XXI
 
- 
 
 THE MISTAKE OF A LIFE
 
@@ -2604,10 +2559,10 @@ In pursuance of my plan, I proposed to obtain the spoken affirmation of the love
 
 Canst thou dissociate, reader, thy horror at the one action sufficiently to take interest in the recital of my profession of love made to Anzimee, after I had hidden from my own sight the evil of my life? It may be almost futile to try; yet it is possible to forget anything out of sight, at least to such a degree.
 
-	 
-		"That one may smile, and smile, and be a villain."
-		
-		 More especially is it easy to smile when the evil is in such a fax, far past tense, is atoned, and the villain is one no longer. Thou wilt pardon me if I hint the Way of at-onement. Of all my thousands of years of my many lives, to which in this history I can but briefly allude, I draw for thee one lesson that the weary pilgrimage hath taught me, and in my soul I pray thee heed it. For I am longing for my release, when I may go out into the blessed realms that mine eyes have seen, mine ears heard, and myself been amidst, with Him who openeth and no man shutteth, and shutteth and no man openeth. So this know, and these things; so long as any that read my words turn aside, and will not to know and do His Way, so long do ye keep me out of my part in the Great Peace, until His spirit shall cease to strive with thee, or hinder thee. I am working and sacrificing that ye may know that Way; and tread it. Yet some of you will, even at the finality, be of them that, denying Him, are by Him denied. Out of all the glorious systems of worlds, only Earth denieth, for acknowledging Him by words and crying, "Lord, Lord," they yet hate one another in their serpent-dominated hearts. Think not that I use any figure of speech when I say "serpent"; microscopists know better. "He that soweth to the flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit have Life everlasting." They that are alive have crucified the flesh with its affections. Some will close the eye and the ear to my message I have of Him. By that shall the seed of Eternal Life be closed out of their souls, and they shall die. [*1] But so
+
+        "That one may smile, and smile, and be a villain."
+
+More especially is it easy to smile when the evil is in such a fax, far past tense, is atoned, and the villain is one no longer. Thou wilt pardon me if I hint the Way of at-onement. Of all my thousands of years of my many lives, to which in this history I can but briefly allude, I draw for thee one lesson that the weary pilgrimage hath taught me, and in my soul I pray thee heed it. For I am longing for my release, when I may go out into the blessed realms that mine eyes have seen, mine ears heard, and myself been amidst, with Him who openeth and no man shutteth, and shutteth and no man openeth. So this know, and these things; so long as any that read my words turn aside, and will not to know and do His Way, so long do ye keep me out of my part in the Great Peace, until His spirit shall cease to strive with thee, or hinder thee. I am working and sacrificing that ye may know that Way; and tread it. Yet some of you will, even at the finality, be of them that, denying Him, are by Him denied. Out of all the glorious systems of worlds, only Earth denieth, for acknowledging Him by words and crying, "Lord, Lord," they yet hate one another in their serpent-dominated hearts. Think not that I use any figure of speech when I say "serpent"; microscopists know better. "He that soweth to the flesh shall of the flesh reap corruption; but he that soweth to the Spirit shall of the Spirit have Life everlasting." They that are alive have crucified the flesh with its affections. Some will close the eye and the ear to my message I have of Him. By that shall the seed of Eternal Life be closed out of their souls, and they shall die. [*1] But so
 
 [p. 191]
 
@@ -2619,14 +2574,11 @@ Footnotes
 
 ^190:1 NOTE--in this connection read the last age of this book, which closes the history given of a Life redeemed upon His Cross.--Ed.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XXII
 
- 
 
 ZAILM PROPOSES
 
@@ -2684,13 +2636,13 @@ word, so be it! But leave me now, for I am almost crazed! Yet remember, my darli
 
 With these words she stopped, arisen and come before where I sat, and placed her arms around me, drawing me into a embrace. A moment thus, then her lips, chill as those of one who keepeth company with Death, met mine in one long, sobbing kiss! She released her clasp, stood an instant, and was gone. So she left me. Long I sat in the midst of the flowers in the great conservatory at Roxoi.
 
-	 
-		"The blossoms blushed bright--but a worm was below,
-		 The moonlight shone fair--there was blight in the beam;
-		 Sweet whispered the breeze but it whispered of woe,
-		 And bitterness flowed in the soft-flowing strewn."
-		
-		 KARMA DISPOSES
+
+        "The blossoms blushed bright--but a worm was below,
+         The moonlight shone fair--there was blight in the beam;
+         Sweet whispered the breeze but it whispered of woe,
+         And bitterness flowed in the soft-flowing strewn."
+
+KARMA DISPOSES
 
 That night the banns of my coming marriage with Anzimee would be announced by the Incaliz Mainin in the great temple, for in cases of high social rank it was customary thus to add extra formality to the publication. If, during the ceremony, a death was to occur within the Incalithlon, custom decreed that one entire year must elapse before consummation of the marriage rites. In any event one month must pass after the banns, which were in consequence declared immediately following the engagement. For reasons of his own, Mainin the Incaliz desired that Anzimee should not wed any one; but as he had no authority over and but little acquaintance with her he kept silent respecting his wishes.
 
@@ -2774,14 +2726,11 @@ her consent make Lolix my honored wife; but it wag forever too late in that life
 
 Anzimee knew nothing of the awful reality; she had been too much stunned by the sudden knowledge of her friend's insanity. She must not know, if it were possible to prevent her learning of it. We went to our carriage and, solemn the one, stunned the other, and wildly remorseful the third, got in and went home to Menaxithlon. Home? I felt that the peace of hone was no more mine! Life had become a desert over which stalked the skeletons of despair, regret and sorrow; overhead a moonless sky, underfoot in the night a howling waste of sand, blown hither and thither by curbless winds. Lolix was gone, Anzimee would never be mine, as I felt in prophetic forecast of soul, and so, with bowed head, I sat in the midst of the desert of my days and let the phantoms dance about and mock me, unheeded.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XXIII
 
- 
 
 A WITNESS BEFORE THE CRIMINAL
 
@@ -2953,11 +2902,11 @@ And now a fearful, glorious and wonderful sight appeared. The night had come whi
 
 calm but awful expression, though not of anger or any human emotion. For an instant the wondrous eyes gazed upon me, then turned to Mainin. He then spoke, calmly, musically, and while I listened all my pain left me, though the words were of fearful import:
 
-	 
-		                              "To feel
-		 The perfect calm o'er the agony steal."
-		
-		 The voice was like my conception of the tones of Incal, as He said:
+
+        "To feel
+         The perfect calm o'er the agony steal."
+
+         The voice was like my conception of the tones of Incal, as He said:
 
 "I shall not, O Mainin, enumerate thy crimes--thou knowest them every one. Thou hast been fellow with the Sons, and they taught thee all they knew, and of Me thou learnedst more than they could teach, aye, centuries agone. I knew thy way; I knew its evil, yet interfered not, for thou art thine own master, even as all men are self-masters; few, alas, are faithful! But thine altitude of wisdom, prostituted to selfishness, to sin, to crime, more utterly than any other man hath dared, is thy destruction. Thy name meaneth 'Light,' and great hath thy brilliancy been; but thou hast been as a light adrift on the seas, a lure to death of all them that follow thee, and these have been myriad. Thou hast blasphemed God, and jeered in thy soul, saying, 'Punish!' but thy day was not come. Wherefore thou wert let go unrebuked. It made thee bold, and thou wouldst go on, even now. But lo! Anzimee thou shalt not harm, for she is handmaiden of Christ, even mine own daughter in service. Thou hast well merited the penalty, and because thou hast knowingly dared it, lo! now shall it be dealt out to thee. I would it were avertible. But thine is one out of a myriad of cases, more heinous because thou art wise, not ignorant. But as thou art an ego, a ray from my Father, and now give out no more light, but darkness only, I will cut thee off for a season, for thou shalt neither destroy more of my sheep, nor be let to leave unexpiated the evil thou hast done. It were better for thee couldst thou cease to exist. But this may not be of an ego. I can but suspend thee as a human entity and cast thee into the outer darkness to serve as one of the powers of nature. Get thee behind me!"
 
@@ -2989,14 +2938,11 @@ Footnotes
 
 ^220:1 St. Matthew, xii, 23.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XXIV
 
- 
 
 DEVACHAN
 
@@ -3100,13 +3046,13 @@ Thereupon Merin Numinos led me within the great rambling house to what I must ca
 
 found things here such as I had been wont to dream of some day carrying to realization, then the new realities, which, after all were not new, seemed wholly satisfactory, with the added charm of achievement, though I could not recall the old.
 
-	 
-		"The whole scene which greets mine eyes,
-		 In some strange mode I recognize
-		 As one whose ev'ry mystic part
-		 I feel prefigured in my heart."
-		
-		 Nature here, though presenting some novelties, was not different enough to excite special attention.
+
+        "The whole scene which greets mine eyes,
+         In some strange mode I recognize
+         As one whose ev'ry mystic part
+         I feel prefigured in my heart."
+
+Nature here, though presenting some novelties, was not different enough to excite special attention.
 
 One day I arose and departed from the scenes of this reproduced boyhood's life. The curtain rose on things derived from the later life after leaving Pitach Rhok for Caiphul, and I found myself now in the midst of acquiring knowledge even to the great degree of a Xio-Incala, a degree greater than even any scientist of the modem world has achieved. But this phase of devachan soon passed, because, not having reached such a degree on earth, nor having even tried to do so, I had no real basis from which to draw devachanic scenes. Thus passed the time around me, sometimes with real egoii of deceased earthly persons who had worked with me intimately on earth, and so had with me to reap the results of the collaboration. At other times I was alone with my concepts, which, however, seemed as real as actual persons, for all seemed absolutely real. Lolix was here in her better aspects; but the sin of our day was held against our return to earth.
 
@@ -3144,10 +3090,10 @@ they so far wrong, for there is no other death than the mere change from objecti
 
 Religion taught in that old age as it now teaches, that with death came the cessation of all earthly sorrow. This is true for a time limited by the length of the soul's sojourn in devachan. These earth-born mists do not intrude there for the reason that being earth born they must of necessity have abiding places on earth and influence only those on earth.
 
-	 
-		"The evil that men do lives after them."
-		
-		 Verily; and in the form of crystallized disposition to do wrong, lies in wait for their return to earth life; it is the wrongly so-called "Adamic" tendency to sin, and while the sinner is free of its power in devachan, the seed, like tares with the wheat, is ready to grow a harvest of sorrow along with the growing life of the new incarnated one; and until some good action shall atone for evil done, this evil will continue to grow. Fortunately, man hath an eternity in which to make repayment, [*1] and though following God's laws and being true to right, whatever its source, the tares are little by little uprooted. A good act is the erasure of a bad, and once performed
+
+        "The evil that men do lives after them."
+
+Verily; and in the form of crystallized disposition to do wrong, lies in wait for their return to earth life; it is the wrongly so-called "Adamic" tendency to sin, and while the sinner is free of its power in devachan, the seed, like tares with the wheat, is ready to grow a harvest of sorrow along with the growing life of the new incarnated one; and until some good action shall atone for evil done, this evil will continue to grow. Fortunately, man hath an eternity in which to make repayment, [*1] and though following God's laws and being true to right, whatever its source, the tares are little by little uprooted. A good act is the erasure of a bad, and once performed
 
 [p. 237]
 
@@ -3173,18 +3119,18 @@ In communion with these ideals I had my reward, for nothing occurred contrary to
 
 earth. But this will suffice to hint to the reader that truths lie here and sweeten the
 
-	 
-		"Thoughts of the last bitter hour . . . 
-		 Of stern agony, and shroud and pall."
-		
-		 I hope, my friend, that this effort to render death less terrifying, by relating my own experiences of it, will be fraught with success, and that these words may so sustain thee that thou shalt
 
-	 
-		                          "Approach thy grave
-		 Like one who wraps the drapery of his couch
-		 About him, and lies down to pleasant dream ."
-		
-		 Zerah Colburn, the marvelous boy mathematician, did not acquire his knowledge in the schools of this modern age, but brought it, a legacy from the dead centuries, his past lives, his latent power was educed. I will not argue with thee, friend, that if thou hadst had a past life on earth, thou couldst "not have forgotten it, but would have brought memory of it with thee." No, I argue not. I only leave it with thine own intelligence to decide if I be not right, when thou rememberest that habits of life grow from repeated actions of boyhood, the details and every recollection of which are gone. And knowing that this is so, decide, if thou thinkest it not absurd, that actions of a life experienced century times centuries agone would be possibly recollected, more especially when all the intervals was spent on a different plane of life, whereon no single memory ever intruded, could not by the laws of God. I know whereof I speak.
+        "Thoughts of the last bitter hour . . .
+         Of stern agony, and shroud and pall."
+
+I hope, my friend, that this effort to render death less terrifying, by relating my own experiences of it, will be fraught with success, and that these words may so sustain thee that thou shalt
+
+
+        "Approach thy grave
+         Like one who wraps the drapery of his couch
+         About him, and lies down to pleasant dream ."
+
+Zerah Colburn, the marvelous boy mathematician, did not acquire his knowledge in the schools of this modern age, but brought it, a legacy from the dead centuries, his past lives, his latent power was educed. I will not argue with thee, friend, that if thou hadst had a past life on earth, thou couldst "not have forgotten it, but would have brought memory of it with thee." No, I argue not. I only leave it with thine own intelligence to decide if I be not right, when thou rememberest that habits of life grow from repeated actions of boyhood, the details and every recollection of which are gone. And knowing that this is so, decide, if thou thinkest it not absurd, that actions of a life experienced century times centuries agone would be possibly recollected, more especially when all the intervals was spent on a different plane of life, whereon no single memory ever intruded, could not by the laws of God. I know whereof I speak.
 
 -------------
 
@@ -3198,7 +3144,6 @@ NOTE.--But one will come after me who shall tell thee more of the Great Deep of 
 
  End of Book First
 
-  
 
 Footnotes
 
@@ -3208,24 +3153,18 @@ Footnotes
 
 ^236:1 Do not confuse "repayment" with "atonement." Jesus makes atonement for us with God. We can only begin to repay, when, having obtained forgiveness through Jesus, we try to Live Him. Until we consecrate ourselves to Christ, we can not have recognized that we are HIS because HE owns us. When we recognize this, then we recognize that HE owns us, and we own HIM. Then, but not until then, can we even begin to repay our karma. And if we "Go and sin no more," then HE will equalize our to karma, and we be released unto HIM, released or leased again! Karma closes for one who thus is atoned for, and his opportunity for reparation begins. For such an one no more incarnation is necessary, for hath he not the SON? And that is Eternal life. What mean I by having the Son? And by being consecrated to Christ? In this, then, only the church postulate? Nay, more, friends. The Divine is eternal, infinite. The Human is finite. When the awakened man comes to know himself, he chooses which way he shall go. The choice is the crossing of the Divine by the Human; it is ownership by the Son. which in within.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 242]
 
- 
 
 SEVEN SHASTA SCENES
 
- 
 
 INTERLUDE
 
- 
 
 By Frederick S. Oliver, Amanuensis
 
- 
 
 I
 
@@ -3235,10 +3174,7 @@ If there are "sermons in stones and books in the running brooks," then is "Tchas
 
 all things and "ever is justice done." The patriotic Americanism of the Northern Pacific Railroad topographers reinstated on the company maps musical "Tacoma," tossed to rubbish the imported name, and rebuked one egotist's vanity. That "Shasta Buttes" will ever know a parallel experience is problematical; if not, 'tis perhaps as well, for American gratitude willingly concedes the privilege of nomination of this proud peak to its friend, and, in the '60s, champion of our national autonomy -------- Russia. So much for a kind of mental view, past and present, of this pride of the crags and peaks.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 II
 
@@ -3250,10 +3186,7 @@ Leaving Dollarhyde's, the road wound as directly as possible up a two-mile stret
 
 a great canyon, which became lost to view "in the dawn's early light." The summit at last! But still no sun in the sky. All beneath was yet quietly resting 'neath the sway of Morpheus. Ah! what is that? Away in the south is a huge, dim mass, dull gray below, but, where its peak holds aloft the sky, 'tis rosy, glowing pink. As the youth gazes, spellbound, Old Sol dispels the valley glooms, thrusts aside the night, and the new day is born. The rose tints are gone, but also the gray, and in their place appears a giant, pointed cone of purest white, albeit streaked at its base with black lines, each some awful gorge. It rises not like other mountain piles, from ranges rivalling its own height; no, all alone it stands forth from its high plateau, piercing heaven's blue, from base to summit, eleven thousand feet, from ocean's plane to apical peak thirty-five hundred more--Shasta, O, Mt. Shasta.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 III
 
@@ -3265,19 +3198,13 @@ All through that region forest fires have raged many weeks; all the valleys lie 
 
 in hue. It is the largest; sharp-summited, white, shrouded in eternal snows, Mt. Shasta rises, a noble island in the murky ocean about it, nine thousand feet.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 IV
 
 Night. Otherwise the same scene. Our miner sits in his tent door, meditating on the novel beauty of the scene before, below him. A north breeze has rolled the smoky sea silently away and left no sign. Beneath the tent outspreads a vast abyss, dark, silent, "the night's Plutonian shore." Our miner's fancy fills it with golden phantoms. Only the stars, "night's tall tapers," lighten the gloom. But far away east, over ranges of lesser mountains, dim shapes couched in the darkness, far away, miles real as well as seeming, familiar shadowy shape of vast, uncertain size appears to shut from sight vision of some awful conflagration. Look! It grows, it brightens, till on the charmed eyes bursts a sudden, intense spark, then a full flame in Ieka's side--'tis the moon at its roundest! And now Ieka's snows glow in its ray like molten silver, the dark abyss before, beneath the tent lightens, the phantoms flee, while over all, sublime, glorious, supreme, rises Shasta's argent image.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 V
 
@@ -3287,10 +3214,7 @@ Traveling, southward, miner no more, the youth bends his course. A year agone th
 
 we gaze at it from its own base, we feel an indescribable sense of awe. And we liken the mount, with the flaming forests glowing at its feet and its own muffled form rising in obscured grandeur, to a silent sentinel by his watchfire, wrapped around with his cloak, and meditating on the trust he has kept, lo! these many ages, still keeps, and forever!
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 VI
 
@@ -3302,10 +3226,7 @@ are filled with a strange disquiet; see the waxing light, and--in a fearful wond
 
 Now the void of night vanishes, hills stand forth, silvery spots and streaks appear as the dawn lights lakes and rivers, and at last, no fog obscuring, in the distant west, seventy miles away, is seen a great gray plain, the Pacific's broad expanse. To the south, interrupted streaks of silver show where flow Pitt and Sacramento rivers, while over two hundred miles away behold an indentation of California's central coast, marking the Golden Gate, and San Francisco's world-famed bay.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
 
 VII
 
@@ -3317,41 +3238,39 @@ We recline on the brink of a deep blue crystal pool, idly casting pebbles into a
 
 What secrets perchance are about us? We do not know as we lie there, our bodies resting, our souls filled with peace, nor do we know until many years are passed out through the back door of time that that tall basalt cliff conceals a doorway. We do not suspect this, nor that a long tunnel stretches away, far into the interior of majestic Shasta. Wholly unthought is it that there lie at the tunnel's far end vast apartments, the home of a mystic brotherhood, whose occult arts hollowed that tunnel and mysterious dwelling: "Sach" the name is. Are you incredulous as to these things? Go there, or suffer yourself to be taken as I was, once! See, as I saw, not with the vision of flesh, the walls, polished as by jewelers, though excavated as by giants; floors carpeted with long, fleecy gray fabric that looked like fur, but was a mineral product; ledges intersected by the builders, and in their wonderful polish exhibiting veinings of gold, of silver, of green copper ores, and maculations of precious stones. Verily, a mystic temple, made afar from the madding crowd, a refuge whereof those who, "Seeing, see not," can truly say:
 
-	 
-		"And no man knows . . .
-		 "And no man saw it e'er."
-		
-		 Once I was there, friend, casting pebbles in the stream's deep pools; yet it was then hid, for only a few are privileged. And departing, the spot was forgotten, and to-day, unable as any one who reads this, I cannot tell its place. Curiosity will never unlock that secret. Does it truly exist? Seek and ye shall find; knock and it shall be opened unto you. Shasta is a true guardian and silently towers, giving no sign of that within his breast. But there is a key. The one who first conquers self, Shasta will not deny.
+
+        "And no man knows . . .
+         "And no man saw it e'er."
+
+Once I was there, friend, casting pebbles in the stream's deep pools; yet it was then hid, for only a few are privileged. And departing, the spot was forgotten, and to-day, unable as any one who reads this, I cannot tell its place. Curiosity will never unlock that secret. Does it truly exist? Seek and ye shall find; knock and it shall be opened unto you. Shasta is a true guardian and silently towers, giving no sign of that within his breast. But there is a key. The one who first conquers self, Shasta will not deny.
 
 This is the last scene. You have viewed the proud peak both near and far; by day, by night; in the smoke, and in the clear mountain air; seen its interior, and from its apex gazed upon it and the globe stretched away 'neath your feet. 'Tis a sight of God's handiwork, sublime, awful, never to be forgotten; and as thy soul hath rated itself with admiration thereof, in that measure be now filled with His Peace.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 249]
 
- 
 
 BOOK SECOND
 
- 
+
+
 
 CHAPTER I
 
-	 
-		"I have called you friends, for all things that
-		 I have of the FATHER I have made known unto you.
-		
-		 With Chapter Twenty-four of Book First closed the last devachanic experience of a personal life history, a history enacted over one hundred and twenty centuries ago. It has its good and its bad phases. Under the social rules and customs of a people whom the modern world regarded as pure myth until after the cruise of the "Challenger" and the "Dolphin," there existed a personality whom those who have followed this history thus far know by the name of "Zailm," an Atlantean cognomen not less euphonious than its significance is interesting, viz: "I live to love."
+
+        "I have called you friends, for all things that
+         I have of the FATHER I have made known unto you.
+
+With Chapter Twenty-four of Book First closed the last devachanic experience of a personal life history, a history enacted over one hundred and twenty centuries ago. It has its good and its bad phases. Under the social rules and customs of a people whom the modern world regarded as pure myth until after the cruise of the "Challenger" and the "Dolphin," there existed a personality whom those who have followed this history thus far know by the name of "Zailm," an Atlantean cognomen not less euphonious than its significance is interesting, viz: "I live to love."
 
 According to his narration, Zailm's youth was that of an obscure mountaineer. He was possessed of an overmastering ambition to make his name blaze among those of the noble of earth. He succeeded in his ambition, for his name, his wealth, his social and political position became of the highest of the aristocracy of a proud and, in myriad ways, marvelous people. If he failed in one particular, if his moral life became awry, his record in other respects was most commendable. For the one failure he paid dearly, and, if you credit his own apprehensions, the payment would not be complete for many along, long year after you would have lain
 
-	 
-		"--Down with the patriarchs of the infant world--
-		 With kings, the powerful of the earth--the wise, the good,
-		 Fair forms, and hoary seers of ages past"
-		
-		 You have a view of Zailm, that boy so obscure, that man so celebrated throughout a land not  to-day, nor ever
+
+        "--Down with the patriarchs of the infant world--
+         With kings, the powerful of the earth--the wise, the good,
+         Fair forms, and hoary seers of ages past"
+
+You have a view of Zailm, that boy so obscure, that man so celebrated throughout a land not  to-day, nor ever
 
 [p. 250]
 
@@ -3439,16 +3358,14 @@ Once more the granite boulders shone silvery in the glorious summer moonlight; t
 
 But there in the moonlight, the sky of my soul was also clear. But neither man moved, neither spoke.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 259]
 
- 
+
+
 
 CHAPTER II
 
- 
 
 A SOUL IN PERIL
 
@@ -3488,7 +3405,7 @@ The reason assigned for the interest taken in me made nothing clearer, so I fell
 
 [p. 262]
 
-In the afternoon I went to town, telling Quong that I would meet him there if access to the Sach was as convenient from there as from the mine. 
+In the afternoon I went to town, telling Quong that I would meet him there if access to the Sach was as convenient from there as from the mine.
 
 On my way into town I met an acquaintance at whose very popular liquor saloon I had more than once taken refreshment, thinking it no harm, for I drank moderately. When we came near his place, on the main street, he insisted on my tying my horse and coming in to have a social glass with him. But the idea of acceptance jarred, and I felt that it disturbed the calm reflections which had filled my thoughts on parting with the Tchin. Quong never drank liquor, smoked, or was aught but  in his habits. But I entered, resolved not to take any form of spirituous liquor. The scene presented was familiar: men stupid, foolish, or excited from their potations, and public women mingling with the crowd in the place. Previoussly to the week just passed these sights were viewed by me with indifference. But now they seemed revolting in the extreme. One exemplification of the satanic influence of liquor I saw with different emotions now from those of other days: a fair, beautiful girl, a moderate user of liquor, not reached to the depths as yet, but a wanton, for all her education, culture and refinement; beginning life in the midst of the influences of school, church and home, in the far Eastern States, but fallen through a man's heartless treachery, and that cruel and equally heartless judgment of society--that whited sepulcher, outwardly stainless, but secretly worse than the victims it stones with its merciless opinions. All the worse is this pharisaical spirit in that it lets the betrayer go free.
 
@@ -3662,14 +3579,11 @@ Footnotes
 
 ^272:1 NOTE.--This was in one of the walls of one of the vast canyons which seam the sides of Mount Shasta, in Northern California.--Author.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER III
 
- 
 
 TAKE THEREFORE NO THOUGHT FOR THE MORROW
 
@@ -3879,14 +3793,11 @@ Footnotes
 
 ^292:1 I Samuel xxviii, 14-15.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER IV
 
- 
 
 PAYING LIFE'S REWARDS
 
@@ -4086,14 +3997,11 @@ Footnotes
 
 ^311:1 See note page <page 236>.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER V
 
- 
 
 HUMAN LIFE ON VENUS
 
@@ -4157,14 +4065,11 @@ Footnotes
 
 ^320:1 St. John xvi; 13.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VI
 
- 
 
 AN INDIRECT ANSWER
 
@@ -4328,11 +4233,11 @@ It was Phyris, who gave me a seeming pair of spectacles. They were indeed specta
 
 for I did not know then, I found myself seemingly amid scenes of most familiar aspect. All the mental pictures conjured up by vivid perusal of Scott's famous poem, "The Lady of the Lake," all the voices of its characters became seen and heard, as if I were on the spot where all was said to have transpired. For the time I was transported by means of those magical eyespieces into the mental world of Walter Scott, which, while he wrote,
 
-	 
-		"Lay around him like a cloud,
-		 A world he could not see."
-		
-		 except with the vision of the creative imagination.
+
+        "Lay around him like a cloud,
+         A world he could not see."
+
+         except with the vision of the creative imagination.
 
 The whole was presented in a few moments, for thought is swifter than the senses, and when the King threw his golden fetters over Malcom's neck and laid the chain in fair Ellen's hand, without waiting for the rest Phyris withdrew the wonderful spectacles from my eyes and said:
 
@@ -4370,14 +4275,11 @@ Footnotes
 
 ^337:1 Genesis, i, 12.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VII
 
- 
 
 "THE DESERT IS BEFORE THY FEET"
 
@@ -4539,14 +4441,11 @@ Footnotes
 
 ^350:1 Cor. vii; 1 to 9; also 29, 31, 32, 36, 37 and 38.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VIII
 
- 
 
 OLD TEACHERS TAUGHT OF GOD
 
@@ -4686,16 +4585,14 @@ With a convulsive sob she rested in my arms, and cried as if her heart would bre
 
 Our wedding was quiet, and after it we went for a brief trip abroad, going only to England, and in a short time returned home.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 360]
 
- 
+
+
 
 CHAPTER IX
 
- 
 
 THEY WHO HEED HAVE PEACE
 
@@ -4797,19 +4694,19 @@ I had lashed myself to the deck cleats to avoid being washed overboard. So now I
 
 ere I again bade Mendocus farewell, and with Phyris and Mol Lang went home to Pertoz, home now, my own attained plane, and "Earth with its dark and dreadful ills" left behind forever, but not Earth with its mighty secrets of life. Yes, Terre, is. if insignificant, a point whence the Human soul reaches out into the boundless sidereal universe and formulates its laws, knows them, and is greater than all. I was come to leave the Earth where so many incarnations had known me.
 
-	 
-		                            'Twas a time
-		 For memory and for tears. Within the deep
-		 Still chambers of the heart a specter dim,
-		 Whose voice was like the wizard tones of Time
-		 Heard from the Tomb of Ages, points its cold
-		 And solemn finger to the beautiful
-		 And holy visions that have passed away,
-		 And left no shadow of their loveliness
-		 On the dead waste of life. That specter lifts
-		 The coffin lid of Hope and Joy and Love."
-		
-		 O Earth! point in the heavens, yet type of all the stellar universe.
+
+        'Twas a time
+         For memory and for tears. Within the deep
+         Still chambers of the heart a specter dim,
+         Whose voice was like the wizard tones of Time
+         Heard from the Tomb of Ages, points its cold
+         And solemn finger to the beautiful
+         And holy visions that have passed away,
+         And left no shadow of their loveliness
+         On the dead waste of life. That specter lifts
+         The coffin lid of Hope and Joy and Love."
+
+         O Earth! point in the heavens, yet type of all the stellar universe.
 
 Shall I descend a moment to figures? Shall I speak numbers almost inconceivable? I will. Just for a moment think of what we have come to know in the schools of Earth, think of our human civilization that permits us new comprehensions, see the parallel of how we measure time and distance compared to the Indian, who measures one by "moons" and the other by "looks," one being the interval between one full, or new moon and the next; the other being how far he can look and distinguish a man. Civilized man measures by years and by miles, and science by "light-years." "How much is a light-year? In the time of one second light travels one hundred and ninety-two thousand miles, approximately. In one year there are thirty-one million, five hundred and fifty-six thousand, nine hundred and twenty-nine seconds; hence the distance of a light-year is the multiplied product of one figure by the other, briefly, the inconceivable distance of sixty trillion, five hundred and fifty-three billion, ten hundred and fifty thousand miles. All that, and yet we see a star in the northern heavens said to be one hundred and eighty-one light-years distant from
 
@@ -4877,14 +4774,11 @@ Footnotes
 
 ^365:1 Job xxxviii, 7.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER X
 
- 
 
 AFTER THE YEARS, RETURN
 
@@ -4972,9 +4866,6 @@ And I, knowing obedience, went into a room built of stone, apart from the house.
 
  SYMBOLIC PICTURE IN THE "HOLY PLACE"
 
- 
-
- 
 
 [p. 383]
 
@@ -5002,19 +4893,16 @@ Footnotes
 
 ^382:3 St. Luke: iv, 2.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER XI
 
- 
 
 TEXT: ST. MATTHEW IV
 
 "To be, or not to be: that in the question."
-                                                      --HAMLET.
+    --HAMLET.
 
 That was indeed the question when I arose one morning, and knew that the event of the Crisis would that day decide whether or not I had Eternal Life, whether I was for the Spirit, or the Second Death.
 
@@ -5158,20 +5046,17 @@ Friend, thou mayest have trouble in understanding this strange union. Yet, ponde
 
  End of Book Second.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 394]
 
- 
 
 BOOK THE THIRD
 
- 
+
+
 
 CHAPTER I
 
- 
 
 YE SHALL REAP AS YE HAVE SOWN. THE PERCEPTION
 
@@ -5183,14 +5068,11 @@ in protoplasmic life, and thence evolutionize up, up, up along the myriad incarn
 
 ----------------
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER II
 
- 
 
 JOB xxxviii:7
 
@@ -5202,14 +5084,11 @@ beginning, neither end, and is not under the dominion of Time, every ego hath ev
 
 Down all the realms of light echoed the paeans of praise, as when the "Morning stars sang together and the Sons of God shouted for joy."
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER III
 
- 
 
 "Fair forms and hoary seers of ages put, an in one mighty sepulcher."
 
@@ -5235,16 +5114,14 @@ Footnotes
 
 ^397:2 St. John xv: 13.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 398]
 
- 
+
+
 
 CHAPTER IV
 
- 
 
 THE FALL OF ATLANTIS
 
@@ -5254,11 +5131,11 @@ Again we looked over Atlantis, and saw many things else. The Zailm time possesse
 
 We saw the world as Zailm. saw it: Suern, with its millions of people; Necropan, with its ninety-odd millions; Europe, then a barbarian land, only about one-sixth its present area; and Asia, not so large in extent then as now, but containing over a half million of souls. But the sparkling, brilliant civilization which was more than peer of even proud to-day, that was glorious Atl! Eleven hundred millions of people, civilized or but semi-civilized, and as many more scattered over the continent and islands of the seas who were utter barbarians--such was the world of Zailm, generally viewed. The numbers of the human race, and especially their increase during several generations, has appalled the pessimists. But the greatest of pessimists, Malthus, need have felt no alarm had he but known. Because:
 
-	 
-		"The world goes up and the world goes down,
-		 And the sunshine follows he rain."
-		
-		 There are a varying number of people always in the world; now more, now less; for as a soul comes to Earth (having been in devachan) a soul passes from Earth into devachan. But now two come while one goes, or two go while one comes, relatively. Wherefore the world is apparently encroaching upon the sources of supply, or again the supply of all things exceeds demand. But only a fixed number of Human Rays went forth from the Father, and only so many have Life, or ever will have. But these come and go as the tides ebb and flow, now on Earth, now in Heaven. Malthusians need not fear.
+
+        "The world goes up and the world goes down,
+         And the sunshine follows he rain."
+
+There are a varying number of people always in the world; now more, now less; for as a soul comes to Earth (having been in devachan) a soul passes from Earth into devachan. But now two come while one goes, or two go while one comes, relatively. Wherefore the world is apparently encroaching upon the sources of supply, or again the supply of all things exceeds demand. But only a fixed number of Human Rays went forth from the Father, and only so many have Life, or ever will have. But these come and go as the tides ebb and flow, now on Earth, now in Heaven. Malthusians need not fear.
 
 Zailm had been my personality.
 
@@ -5324,10 +5201,10 @@ One man and his family who lived apart partook not of the general wickedness. Tr
 
 from the befriending Sons of the Solitude, who came to them in astral shape. And so these better men of Atlantis began to build a great vessel. It was clumsy, but secure, and had room to receive several of all kinds of useful animals found in Atl, and to simple ignorant Nepth these constituted every animal on earth, for he knew nothing of other lands across seas, scarce knew of the provinces in Incalia or Umaur, for in these last days communication was not closely kept up. His neighbors and friends jeered and reviled him as a blasphemer, and he and his sons as men crazed. But the years lapsed, and the great ark of refuge grew, until one day it was complete. Then Nepth and his sons provided it with ample stores, and they took the animals from the pens wherein they had placed them as they captured them in years past. Indeed, most of these animals had been born in captivity and were tame, so long had Nepth carried on all works together, not knowing just when the dread prophecy was to be fulfilled. The final preparations were none too soon completed. Only a few days elapsed ere the earth shook and trembled in a frightful manner. Rivers left their beds, or sank through vast crevices in the earth; mountains shook till they were left as hills, and
 
-	 
-		"Bowed their tall heads to the plain."
-		
-		 A crevice opened close by the vessel of refuge, and the river which, half a mile wide, had flowed past to the ocean, fifty miles away, now poured with a mighty roar into the opening. For three days this awful turmoil continued. A man came, beseeching for admittance. But Nepth said: "Nay, thou wouldst never believe in other days. I told thee then this land should sink under the seas, and thou didst revile me. Now go thy way and tell all thou dost meet that 'Nepth spake truly.'"
+
+        "Bowed their tall heads to the plain."
+
+A crevice opened close by the vessel of refuge, and the river which, half a mile wide, had flowed past to the ocean, fifty miles away, now poured with a mighty roar into the opening. For three days this awful turmoil continued. A man came, beseeching for admittance. But Nepth said: "Nay, thou wouldst never believe in other days. I told thee then this land should sink under the seas, and thou didst revile me. Now go thy way and tell all thou dost meet that 'Nepth spake truly.'"
 
 Three days of horror, and three nights. Death stalked through the land, for the mountains fell on the plains and floods swept unrestrained. But the worst was to come. On the morning of the fourth day it seemed as if the rains of heaven would drown all, yet the thundering and turmoil was not lessened.
 
@@ -5359,11 +5236,9 @@ He nodded to the chief slave, who threw the captive boy on a sort of altar besid
 
 "Ha!" he replied, "I will prove that true," and he struck the bared breast of the tongueless lad with his own dagger,
 
- 
 
  FIRST SACRIFICE OF SELF FOR LOVE OF ANOTHER
 
- 
 
 [p. 409]
 
@@ -5389,14 +5264,11 @@ Footnotes
 
 ^400:1 II. Peter iii: 10.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER V
 
- 
 
 "MAN'S INHUMANITY TO MAN"
 
@@ -5406,14 +5278,11 @@ Again the dead past revealed another scene. I saw myself in the person of an ill
 
 pursued, and he was ever hungry in the midst of plentitude, and lazy when action was necessary. This state begot disease, and the product of (in his previous life) "man's inhumanity to man," was afflicted with cancer of the stomach. This killed the ferocious appetite, and the sybarite, free of this, set to work to cure himself. Finding he must fail, he sought comfort in religion, and went forth to the wilderness to become a religious hermit. Now, a hermit's life is one of uselessness to mankind. In that lone state my individuality lost opportunities to cultivate moral strength by worldly contact, and behold me after death come again to life as Zailm, weak enough to sin with Lolix and beget then a karma that lasted, with newly got vigor, till only a few years ago, punishing me more bitterly than death, as thou, knowest. If Zailm, had sorrow, thou knowest he had also joy. So every life-karma is made up of sunshine and shadow. "A tooth for a tooth?" Yea! But also "for a kiss a kiss."
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VI
 
- 
 
 WHY ATLANTIS PERISHED
 
@@ -5431,14 +5300,11 @@ Then, indeed, was the day come when ripeness was on the land and on the people. 
 
 reincarnated, and shall see its scientific people repeat, but on a higher plane, the attainments of Atla. As the centuries pass it shall see the successive enfleshment of those souls which in Atla, made that land proud, prouder, proudest. But it shall do more, for America hath developed that soul-element which, when her people were Poseidi, was first faintly traced. So, though repeating, it shall do more--it shall have all Atla's marvels wedded to the glorious soul foreseen for mankind by Him of Nazareth. It shall flourish so, and then, in the fullness of its time, decay. But that shall not be for four and a half centurial decades.
 
-     
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
- 
+
 
 CHAPTER VII
 
- 
 
 THE TRANSFIGURATION
 
@@ -5458,14 +5324,10 @@ I have spoken. Peace be with thee.
 
  The End.
 
- 
 
-    
-A Dweller on Two Planets, by by Phylos the Thibetan (Frederick S. Oliver), [1894], at sacred-texts.com
 
 [p. 414]
 
- 
 
 NOTE BY THE AUTHOR
 
@@ -5485,19 +5347,18 @@ Many have been my references to America as being Atlantis come again; much hath 
 
 lost  over their lower selves won no place in the Seventh. In the closing years of the spent cycle one deserted his helpless wife; verily, he really deserted his birthright in the New Age. Another sought, being weak-willed, to drown worries in wine; be but drowned his soul's advanced merits. A wife was faithless to her wedding vows; the Door of the New Time is fast against her. A thief stole, what? His own life's rewards. One there was who deprived another of physical life; he also erased his own name from TO-DAY'S roll-call. One swore to keep a vow, but broke it often; in this New Day, after the grave shall claim his physical being, be shall not again awaken, having lacked will to live. A man was buried with high honors who at merciless cost to his fellowmen enriched his bank account; a gravestone near as costly as pure gold rears above his mortal, aye, and under it is also the dead hopes of resurrection. She sold her body; purchased and purchaser form an unhallowed company in Yesterday's catacombs, whence they shall not emerge to see the light of To-day until, cycles afar hence "death and hell give up" their inhabitants. Such is a brief glimpse into a Closed Record. Turn the page. Another did deeds of love; love and doers thereof live through all the days, forever. One smiled when a smile was heroic and cheered faint souls; one visited the sick and prisoners; one clothed a naked stranger; and one gave half of her last crust, though only to a starving dog. Verily, all these shall receive their reward in the Day now dawning. The bad are not all bad, neither the good wholly good. She who lived a life of shame, yet ever kept hope of better things burning in her inmost heart, and longed for death to release her, since man would not:
 
-	 
-		"Looked beyond the shadow of the late unhallowed years,
-		 To the far, far distant upland, where yon glimmering light appears."
-		
-		 Verily, she shall be chastened, and made new, in the glory of To-day; but the chastening is a weary ordeal, and slow. As the Great Karma handles her, so handleth it all others, for it is Christ's mercy, which healeth every soul's-hurt.
+
+        "Looked beyond the shadow of the late unhallowed years,
+         To the far, far distant upland, where yon glimmering light appears."
+
+Verily, she shall be chastened, and made new, in the glory of To-day; but the chastening is a weary ordeal, and slow. As the Great Karma handles her, so handleth it all others, for it is Christ's mercy, which healeth every soul's-hurt.
 
 [p. 417]
 
-During many,  centuries prophecy hath looked forward to. the end of the Age as a time of awful woe, and has pictured dread  of terminal horror. Am I come to say that all these predictions shall fail? Is the book of the Apocalypse, mere allegory? Would it were! But as the Poseid age was stricken, this one must also be which has just passed. Shall
+During many, centuries prophecy hath looked forward to. the end of the Age as a time of awful woe, and has pictured dread  of terminal horror. Am I come to say that all these predictions shall fail? Is the book of the Apocalypse, mere allegory? Would it were! But as the Poseid age was stricken, this one must also be which has just passed. Shall America, the Glorious, together with the rest of the world, meet similar woe? Alas, worse, though not by water but by fire. Shall all be wiped out of existence, leaving a planet in ruins? Unto the end of full obedience and the coming into harmony with divine law shall the lash be applied; words may not portray the scenes. This is the Message of the End of the Age:
 
-America, the Glorious, together with the rest of the world, meet similar woe? Alas, worse, though not by water but by fire. Shall all be wiped out of existence, leaving a planet in ruins? Unto the end of full obedience and the coming into harmony with divine law shall the lash be applied; words may not portray the scenes. This is the Message of the End of the Age:
-
-"The day of vengeance is in mine heart, and the year of my redeemed is come nigh"-Isaiah. "Behold, the day . . . that burneth as an oven."--Malachi.
+      "The day of vengeance is in mine heart, and the year of my redeemed is come nigh"-Isaiah.
+      "Behold, the day . . . that burneth as an oven."--Malachi.
 
 The Hour hath struck. And yet in all of this there is no mystery, no supernatural penalty, no capricious infliction by an offended personal God, and nothing of "man's necessity, God's opportunity." It is all of Man's own doing. He hath wandered from the Way, and hath for the God-nature in him, which he should have revered and nourished, substituted worship of Self and of Mammon; hath cast out Love, and placed violence, lust, greed and all the riotous animalism in him in command of his life. Man is his own judge and executioner. Man is the type and the universe is the print; Nature patterns after Man, not Man after Nature. He, a being, of free-will, hath brought all coming woes of judgment to be inevitable; he must endure; as he hath sown, so must he reap. O Man, forgetter of Love, of Mercy, of Right; breeder of Hate, of Cruelty, and of the inhumanity that hath and still doth make countless millions mourn, is it possible that thou hast been blind to the handwriting on the wall? Alas, yes, thou hast! Rampant is the Spirit of selfishness, of greed, of merciless gain; its hand guides the trains and steamers, clicks the telegraph keys, operates the telephone and cables, makes a mockery of free speech, shackles the press so that it dares to
 
@@ -5517,10 +5378,10 @@ The disciples asked the Great Master, saying: "Teacher, when will these things b
 
 Friends, know ye the meaning of the name Jerusalem? That it meaneth "Vision of Peace?" Verily, so it doth. One by one during the years all the signs of the end of the Age but one were fulfilled; but these were "only the beginning of sorrows," for still the Spirit of Liberty abode here and there in the breasts of lovers of their fellowmen. That Spirit wrapped itself in the glorious folds of the Stars and Stripes and proclaimed the imperishable declaration, of human equality, granting unto all that freedom which Americans for themselves demanded. But now the "Vision of Peace" is finally encompassed by armies, the last gap being filled with blue-coated soldiers forcing Mammon's commercial shackles upon alien peoples in tropical islands. Ah, the Starry Flag droops mourn fully low above the freedom-birthright sold for a mess of pottage. My People, O my People! As ye have sown, so must ye reap. The Vision of Spiritual Peace is wholly clouded by the dust of armed camps, and no gap is left unobscured. "Then shall the end come." A Son hath continually called from on High:
 
-	 
-		"Stand from under! Get into the shelter of that Cross."
-		
-		 In all the expiatory time must indeed those who thought no wrong suffer? Ah, thought no wrong. In every life, whether theist's, atheist's or merely one ignorant of any doctrine of belief, there comes a time when the inward Spirit beseeches the soul to go up higher. It pleads again and again and yet again so -long as faintest hope remains. Omission too, hath its penalty: "How shall we escape if we neglect so great salvation?" echoed throughout the past Age. Fire burns a babe's fingers as badly as it does an adult's. There were and are those who lived and live the Cross. These shall not suffer,
+
+        "Stand from under! Get into the shelter of that Cross."
+
+In all the expiatory time must indeed those who thought no wrong suffer? Ah, thought no wrong. In every life, whether theist's, atheist's or merely one ignorant of any doctrine of belief, there comes a time when the inward Spirit beseeches the soul to go up higher. It pleads again and again and yet again so -long as faintest hope remains. Omission too, hath its penalty: "How shall we escape if we neglect so great salvation?" echoed throughout the past Age. Fire burns a babe's fingers as badly as it does an adult's. There were and are those who lived and live the Cross. These shall not suffer,
 
 [p. 421]
 
@@ -5546,21 +5407,20 @@ such amazing powers, though few, will be the people, yet will there be some who 
 
 The wrath of God is love's severity. All shall be converted from lower into higher.
 
-	 
-		"A glory shines across the coming years,
-		 The glory of a race grown great and free. 
-		 'Twas seen by poets, sages, saints and seers,
-		 Whose vision glimpsed the dawn that is to be.
-		 A shining shore is by the Future's sea,
-		 Whereon each man all stand among his peers
-		 As equal; and to none shall bend the knee.
-		 Awake, my soul, shake off your doubts and fears;
-		 Behold the hosts of darkness fade and flee
-		 Before the magic of the Morning's face;
-		 And hear the sweet and wondrous melody
-		 That floats to us from far-off golden days--
-		 It is the choral song of liberty
-		 It is the anthem of the coming Race".
-		
-		 
+
+        "A glory shines across the coming years,
+         The glory of a race grown great and free.
+         'Twas seen by poets, sages, saints and seers,
+         Whose vision glimpsed the dawn that is to be.
+         A shining shore is by the Future's sea,
+         Whereon each man all stand among his peers
+         As equal; and to none shall bend the knee.
+         Awake, my soul, shake off your doubts and fears;
+         Behold the hosts of darkness fade and flee
+         Before the magic of the Morning's face;
+         And hear the sweet and wondrous melody
+         That floats to us from far-off golden days--
+         It is the choral song of liberty
+         It is the anthem of the coming Race".
+
 
