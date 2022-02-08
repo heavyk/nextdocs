@@ -8693,6 +8693,36 @@ this capacity was very enticing to the noseboys. they wanted what I had. I "woke
 
 [2]: they're only perceptual differences. they differ in physical conditions, so between the two women they appear different, yet they are conceptually quite similar
 
+### 2022-02-07 18:42 - AC concepts
+
+I don't really know how to explain this idea. I wrote that I think that these concepts of understanding feeling-normally and feeling-purposefully are extremely powerful concepts that aren't really understood very well yet. I will extend my claim and state that I believe they are roughly the equivalent upgrade for social dynamics as AC electricity was for consumer devices.
+
+they're actually quite comparable actually. business-as-usual feels exactly like DC electricity does. they both try to continue to move in the same direction, returning to their source only after having completed the full circuit. AC electricity changes directions flowing both ways, allowing for less resistance.
+
+I do believe that AC transmission is likely superior to high-voltage DC transmission, however with some key differences. tesla originally designed the system to only have one wire (with the earth as common ground for everyone) and was working on removing wires completely. the problem with the two-wire setup is they are giant antennas and also giant capacitors. this creates all sorts of difficulty (not to mention twice as much copper).
+
+safety was then a problem so a third ground wire was added (in most countries). that style of fixing problems was labeled as "hotfixing" when we were in tuenti. it's just patching up a haemorrhaging wound to stop the bleeding, but but the problem isn't understood well enough to solve it yet... this reminds me a lot of the early AC installations.
+
+in the business-as-usual-vs normal concept I brought up the subject of "fallen-angels" briefly because I wanted to note the similarity to the fallen-angels and to business-as-usual mentality. I would say there is similarity to DC electricity as well.
+
+presently and for many thousands of years I believe many "fallen-angels" have occupied and are occupying positions of power. and so, because  reality they live in must in some way be compatible (that is, reflect) their mentality, AC electricty had to be modified from tesla's original conception of it to fit into the fallen-angels' mental box.
+
+---
+
+I believe that a similar thing is going to be happening with these concepts. I have mentioned it numerous times now, but there is a difference between feeling physical sensation and feeling emotional sensation. emotional sensation can cause physical sensation and vica-versa -- so, we rarely notice the emotional sensation, believing (for example) the heartache to be the emotion instead of the powerlessness.
+
+likewise, just like AC, I believe these concepts are and will continue to be adapted to fit into the fallen-angels' conceptualisation of reality[^1]. and additionally, also like AC was for consumer devices, with the limitations imposed by their conceptual box, the modern computing was born. artificial intelligence and all sorts of interesting technology exists today that wouldn't have otherwise if we all could fly, move objects with our minds and access the conceptual plane (with the numerous programs that exist there).
+
+what I'm saying is that you wouldn't think that AC electricity would produce microprocessors (which incidentally run on DC), but it happened. I have no idea what sort of new thing will emerge from the limitations that their mental condition imposes on this reality.
+
+each time this happens, I believe it forces otherwise mental attributes (eg. artificial intelligence) down into the physical plane and expands further out into the technical perspective of reality (rather than the mental).
+
+thoth is said to have said that the universe is mental. we just need to find a way to control the mind with technology, so no more thinking needs to be done (or a logical program can be designed to do the thinking for them). I really believe that technology is the fallen-angels' only saviour:
+
+technology that can logically accomplish desired results in this universe, without any need to change their way of conceptualising it.
+
+[1]: see fallen-angels and @[newblog](2022-01-18 01:14).
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
