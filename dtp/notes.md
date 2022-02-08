@@ -1,0 +1,63 @@
+notes
+
+casi-modo
+taste of their own power
+01-14
+
+guy Warren Ballard - I AM foundation
+download aslan faction / industrial mixes
+
+vscode plugin
+
+we can be heros
+
+
+###
+
+```
+The Puritans believed that tension and struggle were permanent elements of the cosmic scheme because of the eternal struggle between God and Satan. Professor Michael Walzer, in his intriguing book, Revolution of the Saints: A Study in the Origins of Radical Politics, explains their belief this way:
+
+As there is permanent opposition and conflict in the cosmos, so there is permanent warfare on earth ... This tension was itself an aspect of salvation: a man at ease was a man lost.
+```
+
+---------
+
+power structures and stuff
+
+con-artist's paradise and magnetic brain treatments
+
+pp 51
+
+Thus we behold modern employers often doing of free will what the ancient Poseid did because of law, namely, sharing profits with their employees.
+
+The Superintendent is equal to all the underlings. Hence, employers, when not themselves managers of the business, shall pay to managers a salary equal to the combined wages of the subordinates.
+
+Poseid, like other countries then and since, had its social castes, as the governmental, the literati and ecclesiastics, the artisans, a limited military, which served it as a police and sanitary corps, and so on through the usual familiar list.
+
+... the turban of the Sovereign was of pure carmine-hued silk; of the councilors, a wine red, and of lesser officials, a pale pink. The turbans of the soldiery were deep orange for the ranks, and lemon chrome for the officers. Pure white marked the priesthood, and gray the scientific, the literary and artistic classes. Blue distinguished the artisans, mechanics and laborers, while, green denoted all who, for any reason, either immaturity or educational lack, did not enjoy the right of suffrage.
+
+In course of time beings of the genus homo were evolved, one man and one woman, and then Incal had placed woman spiritually highest and above man, a position which she had lost through an attempt to enjoy a fruit which grew on the Tree of Life in the Garden of Heaven. But in doing this she had, according to the legend, disobeyed Incal, who had said that His highest, most progressed children should not enjoy this fruit, for whosoever did should surely die, because no mortal being could have immortal life and also reproduce its kind. The legend read: "I have said unto my creatures, attain perfection and study it evermore, and such is endless life. But whoso enjoyeth this tree, can not contain self."
+
+Incal, the Father of Life, was not supposed to punish His children except that He made the laws of nature self-executive, His immanent, will, and if any one transgressed these the guilt was inexorably punished by nature, it being impossible to set in motion a cause without a consequent effect; if the cause was good, so also was the consequence.
+
+honourable and pompous language for interacting
+
+worthiness bjs
+
+My opinion of myself rose in degree when I felt that I was held in such high favor
+
+weird recounting of the jehova event
+
+the even stranger hand holding and hair touching of the hair with prince menax
+
+prophecy and LOA hold up
+- the prophecy seems strangely connected to the time traveling prophet of jesus
+- the prophecy is not the motivator of the story, but his recollection of the prophecy
+- it seems that the prophecy was injected event designed to alter his trajectory through time -- something the author himself remarks
+
+It is needless to say the proof was satisfactory, and thereafter the mysterious stranger revised the laws and provided then the code which had ever since governed the land. He had said that whosoever should add to or take from his laws, that person should not come into the Kingdom of Incal until "I am come on earth for the final judgment."
+
+so much emphasis on words, deeds, behaviour, and action. "Be ye doers of the word, and not hearers only."
+- it appears that *words* make reality, which is why *law* is so important, an agreement of words.
+
+
