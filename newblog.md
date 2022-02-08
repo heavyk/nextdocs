@@ -8661,9 +8661,11 @@ we really are shaping up to be atlantis 2.0, however, I believe the main differe
 
 I just woke up from a few strange dreams they are related to the business-as-usual-vs-normal concept I was editing yesterday, as well.
 
-the reaction was that business-as-usual is a very feminine thing to do. I'm afraid so. a lot of men do it as well -- and in fact, I would say that entire present government has its foundations laid on business-as-usual practises.
+the reaction was that business-as-usual is a very feminine thing to do. I'm afraid so. a lot of men do it as well[^3] -- and in fact, I would say that entire present government has its foundations laid on business-as-usual practises, as well.
 
-in my opinion this is the true epidemic that is going on, and the reason why I feel like my work on transforming that concept into feeling-purposefully and feeling-normally, has been such a big deal for me. I really don't think that people truly understand the power of those concepts; they really do open up the world to where it feels entirely unlimited.
+in my opinion this is a human condition, and is much more of an epidemic than covid is.
+
+being sucht a large problem, I feel like my work on transforming that concept into feeling-purposefully and feeling-normally, is brand new, never been done before, stuff. for me, it has completely transformed every aspect of reality for me. I really don't think many people truly understand the power of those concepts; they really do open up the world to where everything is possible, and the only limitation imposed is my own, which is how I feel about it.
 
 likely, from nosebook's perspective, they've had enough of me proving this to be true, and are firmly in the, "this is a dangerous concept for people to understand" territory. as usual, they'll do what they always do and try to get rid of it...
 
@@ -8692,6 +8694,8 @@ this capacity was very enticing to the noseboys. they wanted what I had. I "woke
 [1]: I need to shorten this concept. it's a basic transformation that I use a lot. maybe something like introduce-their-feeling. I kinda like it because introduce, in spanish has a sexual connotation.
 
 [2]: they're only perceptual differences. they differ in physical conditions, so between the two women they appear different, yet they are conceptually quite similar
+
+[3]: for a relatively comprehensive list of the various brotherhood factions and organisations, I refer you to the "gods of eden" by william bramley
 
 ### 2022-02-07 18:42 - AC concepts
 
