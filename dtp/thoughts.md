@@ -82,3 +82,69 @@ it seems plainly obvious to me that the atlantian age they were eating from the 
 I believe that the two "trees" are the hemispheres of the brain, so if my supposition is correct, the majority of the world would be left-handed and we'd probably see predominance of right-to-left writing. he describes books and stuff from that era, and if any exist today, none remain available to the public.
 
 handedness may have to do with the orientation of the brain to the sun. if the earth were to flip over or rotate the opposite way, looking at the sun while rising the left and right hemispheres of the sun would be exactly opposite if we rotated opposite.
+
+### chapter-ll - the description of jehova
+
+in the early part of the book (chapter 11), there is a retelling of events where jehova smites an army, then mechanically animates their bodies to walk into the nearby river to be eaten by the crocodiles. the description is so bizzare, I wrote some notes:
+
+- it sounds like jehova is a sort of conceptual prograg that can be given orders to.
+- the author calls jehova the power of the sun (incal).
+  - I believe that conceptual programs (emotions and the such) run on sun the same sun juice.
+  - the author refers to this as the "night-side"... the unseen part of the sun's effects.
+  - atl harnessed that power for their machines and weapons which destroyed everything in an area, but suerni (jehova) and necopani (egypt) could use the same power to (consciously) only affect specific targets
+- of the ones that he spares from death, the program decides that they will become prophets and go around telling people about the power of jehova so that more people will believe in its power
+- the sense that I get is that jehova runs on belief. it seems to be constantly trying to get people to beleive its words.
+  - so long as the things it says keep coming to pass, it fuels the belief, however if things it says *don't* come to pass, it loses belief and therefore power.
+  - it's kind of like a parasite, utilising the creative potential of humans to keep itself alive, while not having itself its own creative power.
+  - as such, it has a strong case of "needing to be right"
+  - it also uses powerful/violent displays to continue its belief
+    - kind of reminds me of jehova telling moses that he will harden the pharoah's heart so that more and more powerful displays can be made
+- when telling a person something, it must activate (put a lot of energy into) a part of the person's brain which is responsible for creating reality (brain stem? pre-motor cortex?). jehova wouldn't then need to do any work, as it's only our own creative potential that is attracting this reality; I think we're the ones manifesting jehova's words.
+
+I haven't finished the book yet, but it seems this is a very important point the author is wanting to make. there are three major players in this book:
+
+- atlantis (incal's technology)
+- suerni/jehova (incal's belief and word power)
+- necropan/osiris (incal's ???? dunno yet)
+
+then, there is a pivot of a woman. again this is a four character/symbol/identity story of 3 boys and a girl that reminds me of "hunchback of notre dame".
+
+there is a weird part in the middle of this chapter as well, where prince menax is shocked that women are allowed to woo the men in saldi culture -- very remenicent of the description of the gypsy by frollo see @[newblog](2022-01-23 00:04) and @[newblog](2022-01-23 15:27). the females here are probably are going to be like esmerelda, symbolic of the primitive spirit, lustful and inspirational of desire in the atl hero, zalim numinos (quasimodo).
+
+the chapter ends with a comparison to the saldu princesss (lolix) and the american maiden:
+
+> The princess said these last words ("... Power, my god, work so swift destruction!") musingly, apparently lost to her surroundings as she sat with clenched hands, admiration depicted on her beautiful face and her glorious blue eyes with their far-away look, but oh! so heartless, so cruel, after all. Queenly in figure, commanding in personality, beautiful, wonderfully beautiful, the world now, as then, would call the Princess Lolix; indeed she bore a most startling likeness to thine own fair American women. But these are not like her, really. She, lioness-like, sided ever with the triumph-power. But the real American maiden, sympathetic, true as steel, graceful as a bird, sweet as a rose just blown--like Lolix in these three last traits, but ceasing to parallel her further, for she of to-day clings to her father, her brother, her lover, come sunshine, come storm, success or adversity--faithful unto death. Such have their reward.
+
+- lolix:
+  - power hungry (wants to triumph)
+  - heartless (to tragedy and loss of life)
+- the american maiden:
+  - sympathetic (to tragedy and difficulty)
+- both:
+  - true as steel
+  - graceful as a bird
+  - sweet as a rose just bloomed (blown)
+- women up to the present (not sure to-day atlantis or to-day 1890's):
+  - clings to her father, brother (men in the family), and lover, come:
+    - sunshine:
+      - "we can feel good and enjoy good conditions together"
+    - storm:
+      - "we can also survive bad conditions together"
+    - success:
+      - "I love you when things feel to be going well"
+    - adversity:
+      - "I also love you when things don't feel so good"
+      - "no matter how cranky and obnoxious you get,I'm going to stick with you"
+  - such have their reward...
+    - I think this is a comment on women clinging to deadbeats and not going after what they want like lolix and her desire to be with powerful jehova wielding men.
+    - it could also be foreshadowing
+
+the chapter concludes with her renouncing her country for its powerlessness, and saying that because she can't be with the jehova wielding king, she would settle for staying in poseid.
+
+menax rebukes her for being so willing to forsake her country and gods so easily. 
+
+the author then reflects on how she could be so feminine (all the stuff listed above minus lolix section), but hasn't yet fully realised that she too is sympathetic (when she blooms). he also links her feminity to her desire to solicit an emotional reactions (opposite of sympathy), but instead (because of her heartlessness) received the opposite: a rebuke.
+
+### chapter-12 - weird masculine affection and family concerns
+
+
