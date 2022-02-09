@@ -8771,11 +8771,11 @@ so, if we boosted the signal really strong, the good part about that is at some 
 
 anyway, there is one thing that I liked (or disliked depending on my perspective) is that leaving things like that would certainly leave a lot of desire for my future return some day. it's inevitable, but let's assume for a moment that the contrived problem creates a number of replica solutions that split off from the problem, and that my eventual incompatibility would certainly be such an event -- that means I can come back to sabotage it and make an even worse contrived problem to solve... this is the alpha-omega concept.
 
-anyway, assuming that women were either selected by me or they dominated the situation, it would create desire to try and get me into action much quicker than this time around. the problem with that is the nature of the alpha-omega concept. the omega (that's me) has to take on the present situation of the world and because he's goods at it, the power structures prevent (maybe it's self-sabotage) him from accomplishing anything with that situation, thereby "killing" that previous concept in him.
+anyway, assuming that women were either selected by me or they dominated the situation, it would create desire to try and get me into action much quicker than this time around. the problem with that is the nature of the alpha-omega concept. the omega (that's me) has to take on the present situation of the world and because he's goods at it, the power structures prevent (or maybe it's self-sabotage) him from accomplishing anything with that situation, thereby "killing" that previous concept in him.
 
-the concept in power right now is mutual-back-scratching, so that's what will be killed. the one coming into power is the feeling-purposefully one, so that will be at the hight of its power. rememer that's feeling *emotionally*, rather than feeling *physically*. if I had to guess, this sounds to me like trying to get me into a situation when I'm younger with a bunch of girls...
+the concept in power right now is mutual-back-scratching, so that's what will be killed. the one coming into power is the feeling-purposefully one, so that will be at the hight of its power next time. rememer that's feeling *emotionally*, rather than feeling *physically*. they'll try to convince you of to feel physically how you want to[^3]. if I had to guess, this sounds to me like trying to get me into a situation when I'm younger with a bunch of girls...
 
-that's a huge disaster, because I need to spend some time to figure out the new way, and it's pretty difficult to do that with other people around because frankly, no one cares about this stuff. do you think that I could accomplish the understanding I have now if I were still with raquel or any other girl? I find it very unlikely.
+that's a huge disaster, because I need to spend some time to figure out the new way, and it's pretty difficult to do that with other people around because frankly, no one cares about this stuff. do you think that I could accomplish the understanding I have now if I were still with raquel or any other girl? I find it very unlikely[^2].
 
 there is one saving aspect to it though because in the conceptual progression, there is always a reversal of orientation, inward-looking to outward-looking and vice-versa. this follows that pattern in that this era is dominated by individuality (nosebook has a diffeernt presentation for everyone), while nosebook (being an era behind) used to be a bunch of individual power dominators, now has to work together as a group, otherwise the whole thing falls apart. so, it fits with the counter-rotating spheres of outward progression...
 
@@ -8785,7 +8785,17 @@ I guess we'll have to see what happens.
 
 finally, I want to remind the reader of the dream just prior of a bunch of tough dudes running around with uzi machinne guns looking at something that appeared to be a trap, but that was only in appearance. they took it apart and it was nothing.
 
-[1]: one of the most common critisisms of my technique is the lack of control that I have over the manifestation. there are infinite number of realities that can satisfy a feeling, and for posititve manifestations, most people want to get the exact, person, house, car, or situation their imagination envisioned. my technique says that none of those matter, as they will all satify the feeling equally. well, similarly in negative manifestations, there are an infinite number of manifestations that can satisfy a feeling, so they are all reflections of the feeling.
+or, this whole thing could just be another way to waste more time so that the manifestation can build up even bigger[^3]...
+
+not sure...
+
+[1]: one of the most common critisisms of my technique is the lack of control that I have over the manifestation. there are infinite number of realities that can satisfy a feeling, and for posititve manifestations, most people want to get the exact person, house, car, or situation their imagination envisioned. my technique says that none of those matter, as they will all satify the feeling satisfactoraly... similarly, in negative manifestations, there are also an infinite number of manifestations that can satisfy a feeling, so all of these seemingly different awful physical manifestations are all just reflections of the same feeling.
+
+[2]: it took me 30+ years to finally *begin* to figure out what is really happening in society. at a young age, I was completely clueless and very naive. girls tend to desire that I *don't* figure anything out. instead, they just want me to love them for who they are. that clearly doesn't work out very well when I feel I *must* understand the way my environment works.
+
+    most of that understanding came from altered states of consciousness and pondering things while alone. even the most intelligent person that I knew (daniel) couldn't help me to understand most things. IMO, they must be encountered alone. no one has the answers. most people are just going around pretending they do -- and, for as much as I know now, I *still* I don't even consider myself to understand things very well. like everyone else, I'm figuring it out as I go. certificate-of-ignorance
+
+[3]: the idea of feeling physically how you want to feel, feels a lot like during sex, you have to feel the way you want to feel (physically) or else you'll orgasm too early and miss out on all of the expanded consciousness that comes with the "cosmic orgasm" that happens after letting it build sufficiently and not giving in to the desire to orgasm quickly. [TODO: reference to mantak chia]
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
