@@ -8797,6 +8797,30 @@ not sure...
 
 [3]: the idea of feeling physically how you want to feel, feels a lot like during sex, you have to feel the way you want to feel (physically) or else you'll orgasm too early and miss out on all of the expanded consciousness that comes with the "cosmic orgasm" that happens after letting it build sufficiently and not giving in to the desire to orgasm quickly. [TODO: reference to mantak chia]
 
+### 2022-02-09 16:27 - this afternoon's reactions
+
+I woke up this afternoon with the sense that they have a pretty big cucumber growing on the vine, and it just keeps getting bigger. it seems to have something to do with DTP book I'm reading. the sense that I get is that there is a flaw or something that I'm saying (I think it has to do with the time split) and the problem is they don't really have a way to set me "straight" on it -- so, adopt a less-damaging narrative.
+
+the final reaction felt like they have a pretty big problem in general trying to steer me. without the internet, it's difficult to get content they want me to see into my hands (before, it could just show up on my youtube). the other problem is it sounds like the whole explanation of my interaction with jerrica revealed to them that I see through women pretty well. it's true that I still have more trouble with men (as they seem to make more logically sounding illusions), whereas for example with jerrica it's plainly obvious the way she feels and her dramatisation of what's manifesting. I have no sympathy for her -- which is probably what she wanted when we all huddled around her to her elaboration of the events that cause her so much grief. she likely has no intention of changing anyway, so like my interactions with mr. motor, I can have as much fun as I want pointing out the problem. isn't she too, also pointing out the problem? I believe in that sense we're quite harmonious to eachother.
+
+on reflection, I believe this is going to become somewhat of a problem. I was reminded of jaxx and how jessica must appear completely transparent to him. I haven't heard anything, but she's probably having a more and more difficult time keeping up her business-as-usual charade with him around.
+
+---
+
+the next part was a dream with that guy that figured out the primes' relation to square roots and the alpha/omega symbol on the coffer in the king's chamber the great pyramid (robert grant). he handed me a mechanical sphere and told me it was a prototype, and that he would sell it to me for his first sale. I told him I didn't have any money. he said something I didn't understand and I responded that I will have a look at it, tell him what I think and report any bugs I find. I started to say I'm good at finding flaws in products when I "woke up" suddenly.
+
+I started thinking about the situation in that dream in contrast to the feeling I had about them believing females to be transparent to me, and I had a sort of "prophetic" sense come over me after having a scene pass which felt like me calling him out on an obvious illusion (mistruth) to cover some fallen-angel stuff. the prophetic voice began and said something to the effect of, "I'll point out a lot of tricks so that you can build up quite a capacity to hold me in the illusion that you want me to see and I'll fall for it, but I'll stay true to my course and your own illusion will eventually ..." I'm reminded now of marcos. I can't remember if the result of my staying my course would be bad or good for them, or both. it felt kind of like both to me, so I guess it could go either way. it also felt like one of those things that alters the trajectory of something in time (like zailm's prophecy). weird.
+
+I think actually the prophecy there and also my interaction with jerrica actually has the effect of detering them from making action, probably, like I said, to waste even more time.
+
+---
+
+I don't really know what it all means but I'm starting to get the sense that I'm not really here to do anything other than to optimise the problem and make sure they have as much capacity to maintain their business-as-usual for what may actually be the next 1000 years of  'peace". I'm quite hopeful for it, actually. that means this is the sabotage half of the split.
+
+in relation to that weird thing I wrote about altering the trajectory of time with two machines: one that can tune into another moment in the past, and the second to transfer consciousness into a compatible body (@[newblog](2022-01-28 21:12) and @[newblog](2022-01-29 01:25)).. well, in that entry I explained that optimising for the worst, knowing for certain that I will arrive to the future "great attractor", I don't change the position of the great attractor in time, but I greatly increase the velocity which it arrives there.
+
+I do actually believe now that is what is happening. it explains the custodians and all sorts of things, and is likely the sun that is the top of the chain of custodial command designed to make that curve the steepest possible -- meaning, the unchanging problem has to become even more resiliant so that they can hold out for even longer in their business-as-usual. imagine then that the great attractor is located in time right before the great split, and is adjusting to ensure maximum holdout and maximum velocity, so is the largest possible "cosmic orgasm".
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
