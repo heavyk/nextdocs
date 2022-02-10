@@ -54,20 +54,156 @@ We, as Poseidi, knew that the mysterious nations across the waters were possesse
 
 > It hath been ever thus; the seed sown in the Acre whereof the corners are marked by posts of which the first hath but one side, the second five sides, the third six sides, but the fourth again only five, hath ever been scorned by man. That seed groweth a tree seventeen-branched. So was Suern. In another day it would be watered by Poseid; later it must be in Poseid. Yet again this would be after it was pruned by its Sower. Then it must grow till the day's end, and become great in the next day. But greatest at the end of that day. I have spoken a riddle that whoso unfoldeth it proveth him of the Tree I have spoken, and filled with deathlessness. Hear, O Israel! Seek, O Manasseh, and Ephraim, seek! Land of the Starry Flag, open thine eyes, and thou, too, O Mother land!
 
-weird recounting of the jehova event
 
-in country of the princess lolix and the 140 other women come from a nation called saldi. she is called "saldu" (female saldi) in many cases too. in spanish and other latin languages, the word "sal" means salt that is, like the "salt of the earth" or salt in the alchemical process. weird how the saldu is like the electrolyte (salt) between the positive and negative terminals in this story.
+### chapter-ll - the description of jehova
 
-the even stranger hand holding and hair touching of the hair with prince menax
+see @[dtp/thoughts](jehova)
 
-prophecy and LOA hold up
-- the prophecy seems strangely connected to the time traveling prophet of jesus
-- the prophecy is not the motivator of the story, but his recollection of the prophecy
-- it seems that the prophecy was injected event designed to alter his trajectory through time -- something the author himself remarks
+princess lolix and the 140 other women come from a nation called saldi. she is called "saldu" (female saldi) in many cases too. in spanish and other latin languages, the word "sal" means salt that is, like the "salt of the earth" or salt in the alchemical process. weird how the saldu is like the electrolyte (salt) between the positive and negative terminals in this story.
 
-It is needless to say the proof was satisfactory, and thereafter the mysterious stranger revised the laws and provided then the code which had ever since governed the land. He had said that whosoever should add to or take from his laws, that person should not come into the Kingdom of Incal until "I am come on earth for the final judgment."
+I haven't finished the book yet, but it seems this is a very important point the author is wanting to make. there are three major players in this book:
 
-so much emphasis on words, deeds, behaviour, and action. "Be ye doers of the word, and not hearers only."
-- it appears that *words* make reality, which is why *law* is so important, an agreement of words.
+- atlantis (incal's technology)
+- suern/jehova (incal's belief and word power)
+- necropan/osiris (incal's ???? dunno yet)
 
+then, there is a pivot of a woman. again this is a four character story of 3 boys and a girl that reminds me of "hunchback of notre dame".
+
+there is a weird part in the middle of this chapter as well, where prince menax is shocked that women are allowed to woo the men in saldi culture -- very remenicent of the description of the gypsy by frollo see @[newblog](2022-01-23 00:04) and @[newblog](2022-01-23 15:27). the females here are probably are going to be like esmerelda, symbolic of the primitive spirit, lustful and inspirational of desire in the atl hero, zailm numinos (quasimodo).
+
+the chapter ends with a comparison to the saldu princesss (lolix) and the american maiden:
+
+> The princess said these last words ("... Power, my god, work so swift destruction!") musingly, apparently lost to her surroundings as she sat with clenched hands, admiration depicted on her beautiful face and her glorious blue eyes with their far-away look, but oh! so heartless, so cruel, after all. Queenly in figure, commanding in personality, beautiful, wonderfully beautiful, the world now, as then, would call the Princess Lolix; indeed she bore a most startling likeness to thine own fair American women. But these are not like her, really. She, lioness-like, sided ever with the triumph-power. But the real American maiden, sympathetic, true as steel, graceful as a bird, sweet as a rose just blown--like Lolix in these three last traits, but ceasing to parallel her further, for she of to-day clings to her father, her brother, her lover, come sunshine, come storm, success or adversity--faithful unto death. Such have their reward.
+
+- lolix:
+  - power hungry (wants to triumph)
+  - heartless (to tragedy and loss of life)
+- the american maiden:
+  - sympathetic (to tragedy and difficulty)
+- both:
+  - true as steel
+  - graceful as a bird
+  - sweet as a rose just bloomed (blown)
+- women up to the present (not sure to-day atlantis or to-day 1890's):
+  - clings to her father, brother (men in the family), and lover, come:
+    - sunshine:
+      - "we can feel good and enjoy good conditions together"
+    - storm:
+      - "we can also survive bad conditions together"
+    - success:
+      - "I love you when things feel to be going well"
+    - adversity:
+      - "I also love you when things don't feel so good"
+      - "no matter how cranky and obnoxious you get,I'm going to stick with you"
+  - such have their reward...
+    - I think this is a comment on women clinging to deadbeats and not going after what they want like lolix and her desire to be with powerful jehova wielding men.
+    - it could also be foreshadowing
+
+the chapter concludes with her renouncing her country for its powerlessness, and saying that because she can't be with the jehova wielding king, she would settle for staying in poseid.
+
+menax rebukes her for being so willing to forsake her country and gods so easily. 
+
+the author then reflects on how she could be so feminine (all the stuff listed above minus lolix section), but hasn't yet fully realised that she too is sympathetic (when she blooms). he also links her feminity to her desire to solicit an emotional reactions (opposite of sympathy), but instead (because of her heartlessness) received the opposite: a rebuke.
+
+### chapter-12 - menax' weird masculine affection and importance of family
+
+menax reveals how important family is to him, even desiring to see someone who resembles his son (zailm) and the ridiculous amount of emotion emitted. this seems setting up for a part in the future where family values are important.
+
+the next is a comparison between the two main women (anzimee and lolix)
+
+> Two girls--Lolix of Sald, and Anzimee of Poseid! A wide continent separated their two countries, but a yet greater distance was between the daughters of the two lands. Lolix, with no sympathy for those in pain, no sorrow for those in mortal agony; Anzimee, at the very antipodes of such traits of character.
+
+after menax presents anzimee her new brother, their hands touch and he feels unworthiness to receive her love, even though (being reminded of his prophesied future sin) no sin has stained his record *yet*. he believes the prophecy, and that he wwill soon sin.
+
+finally a weird pro-america, pro-jesus bit to finish off the chapter:
+
+> America, thou art beloved by me even as was Poseid. Foremost amongst nations, art thou so because of woman--and Christ. Thou wilt keep in the van because of them, and eclipse all the world beside when the happy karmic day shall have arrived which places woman not below, not above, but by the side of man on the rock of esoteric Christian education, the granite of knowledge and faith, which withstands the winds and storms of ignorance. Built on such foundation, the National house shall not fall; built on other, great shall be the fall of it. Here is wisdom: myriad serpents are in a man; in thee; keep them. Now ye are slaves. Be ye masters instead. But, alas! this Way is narrow; few will to find it.
+
+### chapter-13 - soul language?
+
+one thing that strikes me is how much hand-holding and dependence on others. yet at the same time, in other places on the planet life seems rather trivial with the amount of people willing to engage in warfare. the atlantians seem to have chilled out and are no longer aggressive because of the mystical powers of suern/jehova and necropan/osiris.
+
+this ultra codependent nature on other people manifests itself in weird interactions between people. after the hair touching and hand holding, menax (his new father) asks if zailm will stay in the palace for the night. he responds,
+
+> "My father, I fain would stay; but is it not duteous that I go unto my mother this night and set her at ease? She hath an infirmity of nervousness that can not well withstand my absence at night."
+
+wait, so he can't leave his mom alone for one night because she gets nervous? presumably only he believes that only he can put her to ease.
+
+menax goes, "ok, we'll bring her to live here then."
+
+he leaves and notices the star sirius and makes express mention that it's flashing red (meaning that we're traveling away from it, rather than toward it like today, shining blue).
+
+he talks about how, "Phyris, Phyrisooa Pertos!" which is: "Star, O star of my life." sounds very similar to the same saying of people on his *home planet*...
+
+since he's a dweller of two planets, is he suggesting that his normal home planet isn't earth but in orbit of one of the sirius stars? it's a weird comment. he calls it the language of the soul (that is the immortal part of the body)
+
+the other really strange thing is the author interjects a tidbit saying that he will pause transmitting in the astral and turn to his *alter ego*, "phyris". I'm not sure if this is saying that the astral version perceives two separate incarnations of himself one as phyris (sirius) or what...
+
+anyway, it seems phyris is a foreshadow to a future thing -- probably something to do with women given the close of the close of the previous chapter (where he desires them to be equals).
+
+then another weird thing happened as I just finished up that part and was pondering the astral sirius guy claiming his alter ego to be a star, thinking about how I too believe that my alter ego is also a star. right then, the song on the headphones says, "from star to star" -- and the sense that I got is hard to describe, but maybe the author and myself are more similar than different... we're really different though. some of the stuff he writes about christ, atonement and karma are so super cringe I can't stand it. I'm really having to hold back a lot ridicule to some of the author's VERY OUTDATED IDEAS.
+
+### chapter-14 - adoption and high priests
+
+they go to the main temple, a giant pyramid twice the size of the great pyramid that reminds me of the "pyramid of the sun" in central america. in there, there is this giant triangular platform that has an "unfed fire" coming out of a crystal.
+
+it was installed by a peculiar type that had similar powers to ernon/jehova. when asked who he was, he said:
+
+> "I am from Incal. Lo, I am a child of the Sun and am come to reform the religion and life of this people. Behold Incal is the Father and I am the Son, and He is in Me and I am in Him."
+
+this is some pretty serious christ symbolism here. the important thing to note though is that he claim to be the son of the father *sun*. personally, I regard the sun to more feminine than masculine, so I wonder how the sun got its masculine identity. it either started with this guy or was there previous. the creation myth says that the women messed up trying to get the forbidden fruit and so that may have been the end of the female sun then and became masculine since. not sure...
+
+after making such a claim he proved it by healing people and then for his final trick he drew a square 5.5 feet either way (so, 11^2 feet?) and out of it appeared a great white perfect cube of quartz, blew on the rock and since fire has been coming out of it. (note the cube, blowing and fire symbols)
+
+this was a big enough miracle for people to allow him to reform the laws and code of atlantis. of course just to top things off, after reforming the laws, he says:
+
+> He had said that whosoever should add to or take from his laws, that person should not come into the Kingdom of Incal until "I am come on earth for the final judgment."
+
+it's funny that custodial activity seems to be present even in the channeled retelling of events that happened 12000 years ago...
+
+for maximum effect and maximum obedience, he sculpted the laws into the side of the quartz crystal of unfed fire with his finger with laser precision.
+
+he then prophesies the destruction of atlantis:
+
+> "Hearken unto me. This is my law. Behold it also written on the Maxin-Stone. No man shall remove it, lest he die. Yet after centuries have flown, behold! the Book shall disappear in sight of a multitude, and no man shall know its place. Then shall the Unfed Light go out, and no man be able to rekindle it. And when these things have come to pass, lo! the day is not far off when the land shall no more be. It shall perish because of its iniquity, and the waters of Atl shall roll above it! I have spoken."
+
+bear in mind, that it's pretty possible that all of the laws that this guy setup and wrote in that stone either had an influence on or were the laws that became the laws mentioned in the early chapters. I wonder why the author is going out of his way to show the progression in laws?
+
+---
+
+the last part is foreshadowing of that the high priest, a "son of the solitude" will betray another "son of the solitude". considering this betrayal foreshadowing being placed in the same chapter as the apocalyptic prophecies and the telling that their return to ruler positions, I sense a coming custodial intervention. when searching for "son of solitude", it appears that jehova wielding ernon is also a "son of the solitude"
+
+### chapter-15 - his mom deserts him
+
+so, despite his idea that he is the only one able to put his mom's nervousness to ease, instead of going to live in the palace with the nobility she explains that having heard of his fortune, she is now released from the shackles of caring for him and decides to marry an old lover, prior to his father which she never loved because it was an arranged marriage. she's moving in with her new second husband.
+
+hearing that his mother does not care for him nearly as much as he thougtht she did, he goes unconscious and has brain fever for 2 weeks (22 days) just from hearing that his mom didn't care for him as much as he thought she did. all his hard work in the university was for her and for anzimee, who fortunately now his sister.
+
+menax, is frightened at how close he came to death and his mom peaces out considering menax' nurses as or more capable than she. he tries again to see her later, but she's not happy to see him. this apparently is a painful subject for zailm. she's supposed to care, right? not be heartless.
+
+anzimee isn't heartless though. studying hard to be a physician, she wants to help people. he finds out she nursed him back to health while he was unconscious.
+
+he's going on a the trip to suernis and anzimee will join them. they're circumnavigating the globe, visiting tropical, semi-tropical, temperate and frigid areas.
+
+lolix is jealous of anzimee getting zailm's attention, though she continues to pretend to be unaffected by it.
+
+### chapter-16 - voyage to suern
+
+he mentions that the sahara wasn't fully desert yet. it still had some green parts and tropical trees. though previously a seabed, it used to be much greener than it now is for them. a similar disaster happened in north africa that happened to atlantis which sucked all the water out of the environment and broke (rent) the rocks "through and through" (probably the process that made all of the quartz sand). he mentions that this happened also in "southwest incalia" -- so like arizona, southern utah and the grand canyon area.
+
+king ernon explained that he didn't send the chaldean women for purposes of lust. he sent them so they can be taught a lesson. he goes on this whole thing about how nature doesn't account for your knowledge of the law before returning the punishment, saying nature won't spare a baby falling off a cliff for lack of knowledge of the danger as an example.
+
+the suerni people never seemed to smile (not because of contemplation), but their default state, seemingly to be constantly filled with anger/wrath.
+
+despite their countenance of perpetual anger, they seem to possess mysterious capability to manifest the food they desire to eat out of nothing with some mysterious force. all types of good food, but not meat.
+
+what was a magnificent display of power that no atlantian would ever see, was normal everyday stuff for the suerni.
+
+suerni people did not love their ruler ernon as the atlantian people did king gwauxln.
+
+suerni people have always been ruled by the sons of solitude, which have tried to initiate the entire population into the understanding of night-side of nature. most didn't care so much for it and the few that did, devoted theirselves to it and desiring to leave the presence of the less-energetic people, became full-blown sons of solitude.
+
+to enforce the purity of the people for the utilisation of this night-side of nature, ernon put laws and exacted them with punishment, to which the people rebelled. they'd rather be unclear sinners than pure vessels for the work of the night-side of nature. it seems that the suerni are the first ones beginning to show signs of major fatigue concerning the enforcement of laws. seems that rebellion against power structures and their laws is coming soon, probably starting in suern and then going global.
+
+---
 
