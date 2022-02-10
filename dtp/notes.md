@@ -8,6 +8,10 @@ guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
 
 vscode plugin
+md plugin src
+
+nodejs and download manual
+old repo (for reference)
 
 we can be heros
 
@@ -210,4 +214,10 @@ it seems that the suerni are the first ones beginning to show signs of major fat
 ### destruction of atlantis
 
 > Umaur, where in eight centuries more they must find a refuge who should be so fortunately fated as to escape from Poseid, until, "Queen of the World" no more, she sank beneath the waves of the, Atlantic. Eight centuries, whose lapse would see the proud Atlantean become so corrupt that his soul no more reflected the wisdom of the Night-Side because, the calmness of morality being fled, the key to nature's Penetralia would have been lost, and with it his dominion over the air and the depths of the sea.
+
+### karma and atonement
+
+> Will is the only Way to Christ.
+
+the weird "God doesn't exist" bit from mainin
 
