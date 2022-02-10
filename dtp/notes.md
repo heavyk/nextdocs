@@ -203,7 +203,11 @@ suerni people did not love their ruler ernon as the atlantian people did king gw
 
 suerni people have always been ruled by the sons of solitude, which have tried to initiate the entire population into the understanding of night-side of nature. most didn't care so much for it and the few that did, devoted theirselves to it and desiring to leave the presence of the less-energetic people, became full-blown sons of solitude.
 
-to enforce the purity of the people for the utilisation of this night-side of nature, ernon put laws and exacted them with punishment, to which the people rebelled. they'd rather be unclear sinners than pure vessels for the work of the night-side of nature. it seems that the suerni are the first ones beginning to show signs of major fatigue concerning the enforcement of laws. seems that rebellion against power structures and their laws is coming soon, probably starting in suern and then going global.
+to try and get his people to be masters rather than creatures of circumstace for the utilisation of this night-side of nature, ernon made laws and exacted them with punishment -- to which the people disliked him. most would rather be unclean sinners than pure vessels for the work of the night-side of nature.
 
----
+it seems that the suerni are the first ones beginning to show signs of major fatigue concerning the enforcement of laws. seems that rebellion against power structures and their laws is coming soon, probably starting in suern and then going global.
+
+### destruction of atlantis
+
+> Umaur, where in eight centuries more they must find a refuge who should be so fortunately fated as to escape from Poseid, until, "Queen of the World" no more, she sank beneath the waves of the, Atlantic. Eight centuries, whose lapse would see the proud Atlantean become so corrupt that his soul no more reflected the wisdom of the Night-Side because, the calmness of morality being fled, the key to nature's Penetralia would have been lost, and with it his dominion over the air and the depths of the sea.
 
