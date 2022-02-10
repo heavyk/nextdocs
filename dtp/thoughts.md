@@ -51,7 +51,7 @@ the appearance of this book is also in the weird events list. I randomly decided
 
 this book excites thought in me which covers such a wide range of topics that I just love so far editing and writing out all the new thoughts inspired by this book.
 
-### weekdays and planes of existence
+### weekdays-and-planes - weekdays and planes of existence
 
 the datekeeping is a bit different and slightly strange for atlantians:
 - week: 11 days
@@ -172,3 +172,6 @@ It is needless to say the proof was satisfactory, and thereafter the mysterious 
 so much emphasis on words, deeds, behaviour, and action. "Be ye doers of the word, and not hearers only."
 - it appears that *words* make reality, which is why *law* is so important, an agreement of words.
 
+### laws - laws and rebellions
+
+in the chapter I'm reading now (@[dtp/dtp](chapter- 1-16)), ernon is explaining how the 

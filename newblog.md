@@ -8821,6 +8821,72 @@ in relation to that weird thing I wrote about altering the trajectory of time wi
 
 I do actually believe now that is what is happening. it explains the custodians and all sorts of things, and is likely the sun that is the top of the chain of custodial command designed to make that curve the steepest possible -- meaning, the unchanging problem has to become even more resiliant so that they can hold out for even longer in their business-as-usual. imagine then that the great attractor is located in time right before the great split, and is adjusting to ensure maximum holdout and maximum velocity, so is the largest possible "cosmic orgasm".
 
+### 2022-02-09 20:06 - possible new look at laws
+
+in the chapter I'm reading now (@[dtp/dtp](chapter- 1-16)), ernon is explaining how the suern people have been ruled over by the brotherhood organisation of that time (sons of the solitude), which is an organisation of magical teachings of the invisible (night-side) forces of nature. it teaches solitude and celibacy and a high moral code to be able to use the magic without destroying yourself with it.
+
+apparently, this organisation is directly linked to to the incalene (students of the sun) and has governmental power positions in all the three superpowers of that time. anyway, the suern people have been chosen by "God" to be initiated as an entire population into these unseen forces of nature.
+
+because of their teaching, the suerni regularly do incredible displays of power to do simple things like eating dinner (manifesting the food they want with a simple gesture).
+
+turns out the suerni don't want to be initiated so much. they'd rather "sin" and follow their animal tendencies. so they hate ernon (the present ruler) because they'd rather have the pleasures than the chastity required for the magic. ernon wants the people to be pure so he tried putting laws into place and punishing those disobeying the purity laws (sounds a bit like early HRE). consequently, the people hate him even more for the laws.
+
+---
+
+there is also this other aspect to the book which is really strange, where the author goes out of his way to describe the socialist structure of the atlantian government rulers (who is elected and loved by the people) and also various laws as well.
+
+the atl government owns everything and essentially rents it out to the populace. they have the regular con-artists and schemesters as any society does, but the atl govt treats this bad behaviour with magnetic therapy to deaden the part of the brain that gets excited with schemes or greedy operations.
+
+tl;dr - the author wants the reader to pay attention to the laws.
+
+---
+
+there is also considerable emphasis placed on the power of ones word and the truthfulness of it -- like, how reliable is your word?
+
+laws are sort of like word agreements, so if you agree to something then you are expected to adhere to it. however, if you don't, then there is punishment. ernon believes that the punishment for disobeying the law should be exacted even if one is ignorant of the law. though morally upright, he's very heavy-handed.
+
+this is a striking comparison to the atl who are making exceptions all the time for things. they have a very loose system, kinda like the socialism I experienced in spain. if you're not causing problems, then you don't get bothered for disobeying certain laws. it's very loose there and you can get an exception if you know the right people.
+
+---
+
+so, as I was thinking about it, there seems to be a pretty big problem with laws in general because some people (for whatever reason) want to disobey them. like I said the atl solved this problem with magnetic therapy. I haven't got to the next part in the book, but I imagine the suerni are going to rebel as soon as ernon is gone (I know he's going to die soon), and I figure that this rebellion against "laws" (really anythting telling anyone what to do) is going to go global, and the whole system will start to fall apart.
+
+I don't know if this is the beginning of the end or not, but given the way the author has presented the ideas, there is a major problem that is arising with laws and words having so much power.
+
+there is also a subplot developing as well between the two girls, anzimee and lolix. lolix is heartless, power hungry, and jealous. however, anzimee is nurturing and cares for life and pleasure.
+
+what this tells me is that the girls represent the opposite end of the laws spectrum. on one side there is the suern and jehova with their displays of power and heavy-handed punishment (matching lolix who likes that), while on the other side the atlantians with their technology, pleasures, but caste system, power structures and centralised authority but also very caring and socially integrated.
+
+they both sound to me like bad implementations of something that is desired and both destined to fail spectacularly.
+
+the suern mix powerful LOA concepts with angry people, and a heavy-handed law system. their social structure is very flat, but people are pissed off.
+
+the atl have many inefficient power structures and chain of command for simple things[^1]. everything is command based. even they way they talk, nearly every sentence has a command to the other person. they're all running around telling each other what to do, and they have a very tall social structure complete with a caste system. most atl aren't unhappy though because their high technology affords the lower class more pleasures (even good housing is cheap and available from the govt). at last resort, if any difficulties arise, they simply magnetically treat them away.
+
+---
+
+long intro... anyway, all that got me thinking about how laws will be changing in the future. I believe governments have used laws as a system to steer people away from unwanted and toward other things. nowadays, though, I don't know that laws are going to be very effective for steering people. in the system that I described the new 11 planes of existence (see @[dtp/thoughts](weekdays-and-planes)), the new 5th plane, just below the new 4th plane (thrust), is a plane I called "YHVH".
+
+I called it that because it's the non-physical counterpart to the identity plane. after looking at yourself from the outside in, you notice that you are just tuning to a concept of yourself (and the way you look reflects that). I considered that this is what jesus accomplished when he died on the cross. however, if I'm just tuning to myself, one quickly realises that tuning to something else means a different version (split) of myself somewhere else in time. I can now begin to perceive myself as a trajectory through time. I become my own "great attractor" (see @[newblog](2022-01-28 21:12)).
+
+looking at these trajectories from the non-physical perspective is what I called the "thrust" layer because you can alter its trajectory like you can a movie plot -- by adjusting the main thrust of the events being perceived. that's 9 layers of perception.
+
+to go further, I called this next two the YHVH and identity layers. again one further degree of separation from myself in the temporal/thrust would be to alter that with various characters or identites. these too are just other versions (or splits) of myself. that interact with me to adjust my own trajectory.
+
+so, what is "me" -- or, *who* is "me"? if me is an entire group (lets say a legion) of me's that are all interacting with each other and everyone is given power to create more of these identites to interact with myself, you begin to think of "me" perhaps as the species of humans.
+
+it's called YHVH, because "I am that I am" who am "I"? it's a play on words: I am [that/that] I am. "I am that" or "that I am"?
+
+---
+
+what I'm saying, is that if nosebook has this capability now to steer people by altering the "thrust" of the moment in time by changing out the different identites (think agent smith), then they don't need to use laws to try and regulate people anymore. in fact, laws become the most uncomfortable and inefficient way to steer people.
+
+think about it... ^)
+
+[1]: it takes them many many people and many actions to do what one guy with the power of jehova can do effortlessly. because of their manifestation capability they don't need most infrastructure, farms or crops. 
+
+
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
