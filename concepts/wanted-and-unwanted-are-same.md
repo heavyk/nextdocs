@@ -10,3 +10,9 @@ for the sake of this example, let's pretend you're a pure tone. even if you coul
 you are not a pure tone though. you have had many desires and they, like you are always moving. this in itself produces an infinite set of upper harmonics.
 
 that's really awesome news because you can infinitely "go toward" (better tune yourself) to who you really are (your source).
+
+---
+
+a physical example of this may be something like a slide. from one perspective (the bottom), it looks like a slippery steep mountain to climb, but from the other it looks like a fun way to return back to earth. it's the same object, just looking at it from opposite perspectives.
+
+similarly, all things go through stages of expansion and contraction. if you tried to only go for expansion, it would be like breathing in indefinitely. to make the contraction appear like something wanted rather than unwanted, it's often nice to look at it like the removal/destruction of a thing is making a space for the new thing -- just like breathing out is making space for new air.

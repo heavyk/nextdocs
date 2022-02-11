@@ -256,3 +256,29 @@ I do not however believe he was a slave owner or angel investor buying up cheap 
 ---
 
 anyway that expansion that I'm fairly certain jesus did on the cross it also means that 5d perception was greatly expanded and has a much wider diversity of concepts available in it now.. that's about as close as we could get back then to navazzimin before crossing over. it's quite possible that it's getting another pretty big expansion now, and that's why I'm not-needing-the-manifestation for so long. the longer I wait, (the more I jebait, lol) -- the bigger the space. more bandwidth means better control... you're still the tuner though. no one can ever do it for you (though, they'll attempt to convince you they can, for sure)
+
+### karma and LOA
+
+after writing the above yesterday, I had some more reactions on karma, and I think I can provide some insight.
+
+the idea that you attract people vibrationally similar to you is obvious, so it'll be also the case for families, friends and also enemies going from life to life. it's quite possible that your mortal enemy in a previous life could be your lover or best friend in the next. each interaction adds more, amplifying and increasing intensity, so groups of people with similar vibrations will constantly be interacting with each other.
+
+consider now the concept of wanted-and-unwanted-are-same: imagine two things vibrationally similar to you. both could look unwanted (evil, enemies) or both could look wanted (friends, lovers). or, one could look wanted while the other unwanted.
+
+the only difference is how you perceive those similar vibrations.
+
+usually the difference between one thing looking wanted or unwanted is the conditions associated with them. have you ever seen that movie princess diaries? it's a frumpy girl with hideous glasses, and she's totally forgettable. as soon as she takes off her glasses, changes her hair and other conditions, she appears quite differently.
+
+so, because appearance dramatically affects how one person perceives another, we've learned to make the best presentation possible with words and appearance.
+
+looks can be deceiving though...
+
+---
+
+the nice thing is that every one of these "evil" people causing problems is they amplify both yours and their vibration. that's a good thing. it's really up to you to decide how you want to feel/perceive the thing.. it could be either good or evil, and the more similar to you, the stronger that good or evil, feels.
+
+so, yeah I guess you'll "karmically" attract similar vibrations all the time, but you ultimately decide in your own expectations/perception (and the conditions or social class you see them in) if they're going to be good or evil.
+
+there's no punishment or none of that other stuff. that's custodial oppression designed to keep you striving to do the impossible: attempt to rid yourself karmically of a similar vibration to you by labeling it evil and fighting against it -- when, in fact, you will just keep attracting (repeating) the same intraction with them over and over because your perception has changed little each time (they're still "evil").
+
+I don't think it's important to tell people how they should perceive things; that's for the ones desiring to manipulate ideology to get what they want. karma as punishment is definitely an ideology that will lock you into repeating the same thing over and over. repeating the same thing is only good if you're profiting from people who believe it it. repeating the same thing also retards progress quite considerably.
