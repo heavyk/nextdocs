@@ -11,8 +11,16 @@ you are not a pure tone though. you have had many desires and they, like you are
 
 that's really awesome news because you can infinitely "go toward" (better tune yourself) to who you really are (your source).
 
----
+#### the slide
 
 a physical example of this may be something like a slide. from one perspective (the bottom), it looks like a slippery steep mountain to climb, but from the other it looks like a fun way to return back to earth. it's the same object, just looking at it from opposite perspectives.
 
 similarly, all things go through stages of expansion and contraction. if you tried to only go for expansion, it would be like breathing in indefinitely. to make the contraction appear like something wanted rather than unwanted, it's often nice to look at it like the removal/destruction of a thing is making a space for the new thing -- just like breathing out is making space for new air.
+
+#### the moon
+
+another example of this could be the moon and its brightness we'll consider to be desirable. therooughout the month we see the moon go from full brightness to complete darkness. however, it's the same moon -- even, the same side of the moon -- just, our perspective of it has changed: we saw it from behind the sun, in front of the sun, to the left of the sun and to the right of the sun. each of these different perspectives caused the moon to appear more desirable or less.
+
+### a walk to the beach
+
+consider another example where you decide to walk to the beach (or any other place desirable). the walk to the beach naturally feels more wanted than the return. however, it doesn't have to be. there is no reason that returning from the beach should be any less enjoyable than the walk toward it.

@@ -282,3 +282,101 @@ so, yeah I guess you'll "karmically" attract similar vibrations all the time, bu
 there's no punishment or none of that other stuff. that's custodial oppression designed to keep you striving to do the impossible: attempt to rid yourself karmically of a similar vibration to you by labeling it evil and fighting against it -- when, in fact, you will just keep attracting (repeating) the same intraction with them over and over because your perception has changed little each time (they're still "evil").
 
 I don't think it's important to tell people how they should perceive things; that's for the ones desiring to manipulate ideology to get what they want. karma as punishment is definitely an ideology that will lock you into repeating the same thing over and over. repeating the same thing is only good if you're profiting from people who believe it it. repeating the same thing also retards progress quite considerably.
+
+### mainin: there is no god, ernon: yahuh!!
+
+there's an interesting connection between ernon and mainin in that ernon says that to use the night-side forces, one must be morally upright, for having serenity of soul:
+
+> "Morality aids serenity of soul; hence it is profitable to the Incalene, above all things, to be moral. But man is an animal in his corporeal self, and the passions thereof are pleasant. Love is of twofold nature: love of God and of the Spirit, pure and undefiled, and love of sex, which may likewise be pure, though if the dominion of the animal in man be over it, and so not so that of the human, it shall cause the man to sin, for then it is lust. I have sought that the Suerni may know the law, that they maybe the masters, not the creatures, of circumstance. But because they know a few things of magic, and in the greater feats were aided by the 'Sons' dwelling amongst them, lo, they are content. And behold! they rebel against punishment on account of the lustful nature they do indulge, and curse me mightily because I exact obedience to the law, and penalty for the infraction thereof; and they curse my brother 'Sons' who do aid me, therefore is their wrath which it hath so troubled thee to witness. My people do things strange in thy sight, O Poseida, yet have no -wisdom why it is so, and work their wonders heedless of Yeovah. Wherefore they are a brood of sorcerers, and do not work white magic, which is beneficent, but black magic, which is sorcery. It shall work them exceeding woe. I would, O Zailm of Poseid, have taught these my people faith, hope, knowledge and charity, which same make pure religion undefiled."
+
+---
+
+the problem here with what he is saying is that later on mainin is using the night-side of nature's forces to project himself into the room where zailm is locked. mainin also says that he spent 300y in his body with the utilisation of night-side forces. it seems that the purity and morality that ernon wanted for his people doesn't actually need to be. "evil" people like mainin seem to have not only quite a command over this night-side, but can use its capability to to turn people to stone, deceive and such.
+
+so is it really the morality that enables the utilisation of the night-side, or is it more like a "law" (functionality) of the environment that anyone can use however they please? to use his own example, he says that gravity is a law of nature and will kill an innocent baby just the same as an educated man falling over a cliff[^1].
+
+in another part of the book, the author explains that gravity (attraction) is just an aspect of the light-side of nature, and so therefore repulsion or levitation is of the night-side. just as one can "use" gravity to stay on earth, so can one "use" levitation to float above the earth.
+
+ernon was incorrect in assuming that morality is necessary to allow one to use the night-side of nature.
+
+ironically, he inforced his morality with "laws"... *shakes head*.
+
+I'm not being hard on ernon. I completely understand him. of all of the characters in this book, I'm the most similar to ernon. I fully understand his agony over the suerni' lack of desire to understand the night side of nature.
+
+for me, the subject of morality isn't really a law-based one. I just don't find lying, cheating, manipulation, etc. to feel very good. I don't even steal as, I too have been stolen from and don't like how it feels -- not because of a law am I more moral, but because if I try to lie to people, my brain has a lot of stories it has to keep straight and there's no "serentity of soul" in that. personally, I don't really care that anyone else does these things, because it's ultimately them, not me, that has to figure out what they want. I really don't care what anyone else does at this point.
+
+from my perspective now, there is no evil, there is no sin, and there is no "God" (as punisher or mediator). all of the attributes we have given to "God" are all a fundamental part of nature -- that is, the law of attraction. you (who you think is "God") are actully punishing yourself.
+
+---
+
+I think ernon belived the light/night-side to be a function/force of nature anyone can use, because he makes the distinction between white and black magic.
+
+instead, for ernon this more about whether there is a "God" -- an arbitrator and punisher for wrongdoing -- or not.
+
+it appears to me that ernon made the mistake of trying to make what is right and wrong for him, the same for everone else.
+
+the next thing is that if he believed in a God, (jehova) that punished for disobedience to the laws, then that punishment that ernon received from "God" was just his own attraction of punishment for his "sin".
+
+---
+
+even though I believe that ernon believed that the light/night-side of nature to be able to be used by anyone however they pleased, jehova however was not quite so universal in application.
+
+right before he died, he withdrew the capability for the suerni to manifest food with a prayer. jehova is not a fundamental aspect of nature. it's a conditional interface (like a program) to this aspect of nature, and can be reprogrammed by its user (ernon).
+
+it doesn't say whether jehova is a creation of ernon or not, but I think it might well be. it may predate him, but for the sake of this discussion I assume it is.
+
+I think ernon had constructed a system based on his own moral code, with everything from what to eat to how to behave, and he called this thing jehova. he would call upon his belief system to perform things, and because he believed it would, it would. the more people believed in this "God" the more powerful things it could perform.
+
+in reality, jehova is just an organised extension of the human's creative potential. jehova used our own creative potential to make the miracles happen. we were doing it. jehova is kinda like a concept that runs on belief and focuses belief. the more we believe it can do, the more it can do.
+
+[1]: there's an interesting resonance in the story as well with the other son of the solitude that tried to kill zailm falling out of the vailix yet the brain damaged commissioned, not being held for fault of their deaths (though he could have saved them if he weren't stupid).
+
+### eronn and sexuality
+
+ernon likely never had a mate. he didn't leave any heirs to the throne. it's possible he had a mate much earlier on and they had all died. he was likely quite old. in a few places, it gives the imression that he had been the rai of suern for quite a long time, perhaps centuries even. he also displayed the capacity to die when he wanted to die, meaning he had power over his own life and death.
+
+in the above quote, ernon kind of makes a weird statement. first, he says that love has two forms: love of "God" (jehova or incal) and of "Spirit" (of what? light/night-side of nature?) which is pure and undefiled -- and the love of sex which can be pure only if the man is dominant over the animal instinct and not the other way around.
+
+he's saying that love of "God" and of "Spirit" is pure love, which is what I'm assuming that the sons of the solitude learn about. the other type is love of (the pleasure of) sex. he says that sex can also be pure too if man is dominant over his animal desire for pleasure. if not, that's lust and therefore "sin". I'm fairly certain that solitude is key to learning this, hence sons of the solitude.
+
+seems he believes that one can only access "love" if one first loves "God" more than the animal desires for pleasure.
+
+trying to read between the lines and figure out what sin is, it sounds like: love for a woman (or sex) can replace one's love for God. it's that love of pleasure of the animal nature (which replaces love for God and the Spirit) which is "sin". sin appears to be animal reactions.
+
+### the author and sin
+
+I investigated this concept of "sin" a bit further to see what other context the word for sin is used in. I postulated that "sin" may be a concept of the amanuensis, but it appears to be of the author himself. rereading @[dtp/dtp](letter-from-the-author), there are some startling admissions. I'll cover those in the next section, but first, the part about sin:
+
+> Readers of my book, "Two Planets," may consider awhile over those passages concerning the sin of the Princess Lolix and of Zailm
+
+> in place of being slaves to are masters over desire, ye have undone sin
+
+> I had hoped to hinder thy confession of thy life-sin with Lolix unto Anzimee
+
+in the middle of the book (though I haven't got there yet), he finds himself in the afterlife he talks with "mol lang" (a theosophical ascended master, reincarnation of ernon explains to the author in the afterlife) who says this about sin:
+
+> Compensation is God's law. If thou doest a thing and can not compensate for it, that is sin; but if thou art able to make proper balance, it is no sin.
+
+this description sounds more like electricity than a penal code. it also indicates that ernon has changed his tune a bit about sin -- sin, no longer disobedience of "God's law", but that compensation (clearly a force of nature) must be enforced, so the inability to return return balance to something is the reason for sin. I mean, if I take 100 electrons out of something, it wants to get those 100 electrons back somehow...
+
+punishment is attracted by you based on your concept of things, and so is this definition with regards to compensation.. everything wants to return back to its source or balanced state. charge differential is what creates motion and everything is ultimately out of balance and always in motion. combine both punishment/LOA and compensation with perception and that focus in relation to your source (I AM) as a trajectory through time, and that's pretty much where I'm at. the problem with these definitions is that it's really difficult to figure out what's really happening and could benefit tremendously from some simplification.
+
+just trying to figure out what in the world "sin" is, is proof enough that all of this stuff is so complicated. I believe that complicated and ritualistic is how the priests want it to be though. if it were simple to understand, then the priests wouldn't have such a great of an illusion to hide behind.
+
+after that part, when it goes back to the author talking about sin, it returns back to law and animal nature and stuff like that.
+
+---
+
+the takeaway I have from this is that the author really believes in this "sin" stuff. it's some blend between being subservient to animal desires and not obedient to the law, but mostly sex and desire in general.
+
+I've read some of the ending segments while searching around for sin and can give this book the unquestionable custodial seal of approval. I'll cover that soon as I get there ... from what I've read so far, it's pretty hilarious.
+
+it makes me wonder if out there somewhere is another version of earth with a whole bunch of guys working super hard to atone their sins and transgressions between catastrophes.
+
+### the author's startling admissions
+
+from @[dtp/dtp](letter-from-the-author):
+
+> 
+
+### custodial seal of approval.
