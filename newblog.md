@@ -8885,7 +8885,49 @@ think about it... ^)
 
 [1]: it takes them many many people and many actions to do what one guy with the power of jehova can do effortlessly. because of their manifestation capability they don't need most infrastructure, farms or crops. 
 
+### 2022-02-11 20:02 - no ....
 
+I don't really know how to explain how I feel this evening waking up. last night and yesterday, I had been thinking about my brief relationship with patricia, and it really was unfortunate because it couldn't have ever worked no matter how much I would have wanted it to. I was the problem, mostly. I had far too many looming problems in madrid at the time, and I was in berlin at the time to work on the unhosted project. we boasted nearly all of the same things as the 4privacy thing that destin talked about once. the whole idea of that was to build another social network, but with a backend that was encrypted and private. the goal was to get that going and then surely people would see how good this is, and want to use our social platform rather than facebook or tuenti.
+
+there were a lot of hurdles and I was beginning to realise some of its impossibility. there are so many advantages to having a lot of data about the user, and there are so many great things that can be done with that data, I was starting to wrestle with the idea that maybe I want to go full shill and try to make another site even more intrusive to the user's privacy than facebook is, but actually do it right -- actually use that data to provide useful things to the user and stuff like that. it was kind of too late though, because I/we had been saying for so long how important privacy is, we would sound like hypocrites[^1].
+
+anyway, my point is the unhosted project was sort of like my opportunity to get back into the social networking scene again. I intended on doing a better job at it than I did with tuenti, and because we wanted to do it distributed data model, it would be a whole lot more work than centralised database. it was going to need a lot of work and require some innovation to set us apart from the rest of the world. I planned on spanding lots and lots of time working on it.
+
+there were a number of difficulties to this. the main being my drinking problem at the time. I was drinking far too much for me to actually be productive the way I wanted to be. I also lacked any sort of stability. for as much as zaryn is unstable, he always made sure I had the conditions necessary to produce what I wanted to make. in some ways, I think I thought maybe that patricia could provide that, but I wasn't really trying to rely on her for that. I wanted to figure things out for myself.
+
+the other major difficulty was that while I was in berlin a series of strange occurrances happend where I found some time traveler's web page that transported me into a whole new frame of consciousness. they taught about how to use symbols and talked about using a sequence to program. I felt like I could see this sequence, and I had wanted to make a way to program a computer using only 4 keys, like those old ... it was like "dance dance revolution" where arrows came down the screen and you matched the sequence to the rhythm and song. well, something like that, cept I used colours shapes and elements (fire, water, earth, etc) to represent different intentions in the program. variable names were also sequences, kind of like notes and colours (I had synethesia pretty badly when I was in berlin). this idea occupied my time a lot.
+
+also, I had just discovered this "sirian guide to human development" document, and the idea of 7 planes of consciousness totally resonated with me. I could see it so clearly, I would go around telling people in bars that I had found the secret to the universe and explain to them the 7 planes of perception. the idea was still new to me, but I really believed it. I drew out even numerous diagrams of it to patricia so that we could talk about it, because I found her inisight and discussion very mind expanding.
+
+both of those things (the use of symbols and the 7 planes of reality) unquestionably formed the person I am today...
+
+for as much as I wish things could have been different, I also don't. though nothing I set out to accomplish in berlin came about, I how muchthat short time of my life unexpectedly changed it for the better. I was mostly incoherent back then because these big ideas were trying to occupy the same space as my emotional flailing about. they required me to become clear-headed to truly appreciate them. I regret nothing.
+
+---
+
+long intro again... as I was waking up, I was thinking about how impossible it felt when I was in berlin to try and figure out how to be productive and create those things ideas while at the same time being in a relationship. it really feels pretty undesirable.
+
+I get the sense that this feeling is something like christof in truman show reinforcing the water trauma so that truman doesn't want to get out. the reason why I say that is because when I go back and think about all of my attempts to mix creativity with girls, the result has always been negative. the sense that I had is, "we can't just have fun all the time; we need to *work*" -- and that's where my efforts to explain to them as well as the tuenti party animals -- that "working" really hard isn't really working for me. it's so much fun watching something come to life and become something that other people can use and enjoy. I don't it to feel like work!
+
+the other thing I felt is that somehow my creativity was some sort of threat to the relationship -- like I was going to spend all of my time on that rather than them. I decided that could easily be solved if we were simply working on the same thing and enjoying the same thing taking shape.
+
+this didn't really ever happen though. usually, I was met with a feeling that feels exactly like mr. motor getting pissed off whenever I want to program or something[^2] -- hence, the reference to christof in the truman show.
+
+it really is the weirdest thing how any efforts I have to become creative are met with a lot of resistance. I don't really mind, as they may be too big of steps, as I'm going next logical step/state right now. 
+
+keep-it-in-the-centre
+
+the other conclusion to draw from this is, that you may think that despite the amount of resistance to these things -- cause I know that girls don't *need* to constantly feel threatened by my creativity -- that's probably an illusion produced by manufactured dreams by christof -- but, the concept is still the same today as it was back then. I'm just going to keep going at doing me, and others who want to join will find their way there naturally. I just keep doing me, and it'll work out eventually.
+
+for those wondering, it may be quite a while... I realise the other side of this is that nosebook is resisting having to go their own way for as long as possible. they literally won't go their own way until it becomes physically impossible for them hold me away from all the stuff they're resisting. I'm in no rush. I had a look today and I seem to continue to get massive vision upgrades without even watching stars, so there really is no need to do anything. I'll let them have as much time as they need. no rush from me.
+
+I'm obviously just taking things one step at a time, and I'm enjoying my writing right now. I'm going to try and continue to organise it more. that may lead to other things, but the restriction of no internet and only the capacity to download a limited number of things inspires me to be more deliberate about the resources I download for the next week or two.
+
+we'll see what happens...
+
+[1]: later on I returned back to my efforts to find a way to build a social platform on an equally paranoid premise to centralise basically all indicies and things like than -- and then to use encryption, not as a means for privacy but verification that it's actually the user and not some spambot. unique keys for identity a distributed system is imprtant for spam filtering. also, requiring unique signatures for nearly every transaction could even increase the ability to track the user, perhaps... I kept this advancement a bit of a secret, but I don't think that idea was going anywhere either. I used secure-scuttlebutt with the hopes of making this a distributed mobile-only social network (new-friends)... it had some revolutionary new ideas like a 2d creatable environment instead of a page (augusto liked memes and I wanted a user-constructable environment like the sims or how I imagined stick of truth could be). I kinda still want to do that idea as it's expanded even more since... man I have so many ideas, but no capacity to do any of them... *sigh*
+
+[2]: like, I'm writing a lot lately, and I need a way to organise these documents and parse them for errors so I wrote on my todo list to download nodejs and the instructions on how to make plugins for vscode. this garnered mutiple motor roars and a bad feeling.
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
