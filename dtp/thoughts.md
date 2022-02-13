@@ -373,10 +373,112 @@ I've read some of the ending segments while searching around for sin and can giv
 
 it makes me wonder if out there somewhere is another version of earth with a whole bunch of guys working super hard to atone their sins and transgressions between catastrophes.
 
-### the author's startling admissions
+### my present theory surrounding this book
+
+I just finished up @[dtp/dtp](chapter-1-23) and I noticed starting the next chapter that its tone is quite different, beginning to describe the differences between the eartly, phychic, and spiritual planes... before I do that, I have this idea that came to me while reading that chapter.
+
+this book appears to document a moment in time roughly 12kya that prepared the world for a major cataclysm. the book itself is even called "dividing the way", a reference to that. I believe he'll talk more about  that as I continue further, but I wanted to mention some of the key moments.
+
+at the beginning of the book, there is a guy that catches zailm's attention and gives him a prophecy about his life. that man is later revealed to be none other than jesus himself that gave him the prophecy. I believe that was the first inflection of time.
+
+after his prophecy plays out, zailm is in dispair flying around alone in his vailix when he's lifted out of his body:
+
+> Then a glorious radiance broke over the scene, and the Cross Bearer was beside us as we stood, clasping each other and our child. He whom I had seen by the moonlit fountain, years before, stood by us again.
+
+he gives quite an interesting dissertation, the highlight of which is another prophecy:
+
+> He must at-one his heart to Me first, then go again into the field of woe, yet not in a body of flesh but of spirit. And he must find his victims and struggle with them till he turn them back from whence he led them.
+
+he's then commanded to go to sleep. he wakes up and goes to the city, throws the stone statue of lolix into the fire and then makes plans to go to south america to mine minerals while he's waiting for the inability to wed anzimee to pass.
+
+he goes to do the mining and is interested in going into this 16^3ft stone structure where he locks himself inside it. after 7 days, mainin appears to him and does the bad-guy dissertation of revealing his bad-guyness right before the hero dies... he says that he has been following anzimee around for multiple lifetimes (so he's a fallen-angel), and has been trying to get revenge to her. that appears to be his motivator, but he reveals his efforts also extend to all of humankind:
+
+> I have counteracted the good done by Ernon of Suern, so that he died of a despairing heart. I do thus that I may, if possible, wither all the hopes of humankind, turn them down from the infinite path, down to demonhood, death and destruction. Ernon worked to the exaltation of mankind; I to its depression; so we came in conflict, and I won.
+
+so, let's recap:
+- jesus gives zailm a prophecy that bad things will happen
+- after the bad things happen, he gives him another prophecy about having to work out his karma for the bad things he first prophesied would happen
+- he gives zailm a command to fall asleep, and when he wakes up, he decides he will go to mine in south america
+- in south america he finds a stone house that is strangely clean of sand with perfect (no mortar) joinery and then accidentally locks himself inside
+- mainin shows up and reveals he's a fallen-angel, traveling from body to body causing problems:
+  - he devoted his life to bringing ruin to anzimee
+  - he wants to bring gwauxaln problems[^1]
+  - he worked to foil ernon's plans to get the forces of the night-side into the hands of the people
+
+ok, so he's definitely bad-guy material. this is pretty james bond script-esque at this point with the bad guy reveals all at the end bit, when it really goes the dramatic distance... mainin tries to "prove" that "God" doesn't exist:
+
+> Thinkest thou now I can have belief in a God? Bah! If God exists, I fear not; yet let Him punish!"
+
+then, of course...
+
+> And now a fearful, glorious and wonderful sight appeared.
+
+it appears this whole story was an extra elaborate setup to "prove" that "God" is real. and that jesus will save us if we follow his laws. the weirdest bit is the part where he tells zailm:
+
+> "I have said that these things should come to pass, and did prophesy unto thee in that city called Caiphul, and thou heardst me, yet heeded not."
+
+I reread the whole thing he said by the fountain and there was nothing to heed. he only told him that bad things will happen in his future and that he would appear again to smite the bad-guy (but not save him). he continues...
+
+> But now thou wilt heed me, for I speak great words of GOD,--and the world is His. Yet now no man knoweth me; but in a far day I will come again, yea! I will enter in and dwell as a perfect human soul, and make that Man first fruit of them that sleep the sleep which is change, so that by me he shall be exalted above Death. Then shall men get them up, and mock me, being unbelievers, and shall crucify me, yet shall I, that am become Jesus the Christ, not be harmed, but mine earthly house only. And they shall be forgiven, for they will not know what they do.
+
+I'm really unclear as to what exactly zailm is to "heed". the whole thing is just another prophecy about a later guy on the earth called jesus.
+
+the weird bit in there is the part where he says he will enter into the body of jesus as a perfect human (what would he be otherwise) soul and will make jesus the first result of them "that sleep the sleep which is change". since when is sleep change? he then commands zailm to sleep.
+
+---
+
+anyway, back to the judgement that jesus gives to mainin for his deceptive ways: he kills mainin and and banishes him to become a "power of nature":
+
+> "I can but suspend thee as a human entity and cast thee into the outer darkness to serve as one of the powers of nature."
+
+so now mainin is told by jesus mainin will become a fundamental force of nature to continue to inspire people to do evil, while zailm is told to "heed" jesus and explain that jesus will be crucified so that he can gain power over death and forgive them.
+
+in short mainin is to work the deceptive path of darkness, and zailm is to work the path of light telling people about the christ. knowing LOA, mainin is the force which keeps christ alive by fighting against it, and zailm and his other theochristian adepts are the christ's marketing/promotion team (see @[dtp/thoughts](startling-admissions)).
+
+---
+
+this is kind of a crazy setup going on here, because what it looks to me is happening is that this "christ" here is kind of like "jehova 2.0". this "christ" here is using the same trick jehova was explained to be doing by making powerful/moving displays of command in order to garner people's belief in him.
+
+this christ doesn't seem to be doing any horrific violence like the OT jehova did. instead his mission seems to be getting rid of the "bad guys" with powerful displays of force. he's more like a proto-superhero than a saviour. he's clearly manipulating trajectories through time to influence events to maximise believe in him.
+
+also notice in the previous section that he doesn't say that he is the guy named jesus, but that he enters in to jesus as a "perfect human soul". this guy is not jesus, though they occupy the same body for a while... he's admitting to being a fallen-angel, and he identifies himself this way:
+
+> I am reached unto the perfection of the Seventh Principle and am Man, also the Son of Man, yet more than any man, for I am in the Father and the Father is in me. But all men who will may follow me and be by me in the Kingdom, for are we not all children of One, our Father? I am He, Christ; that which I am, the Spirit of every man is.
+
+so, there was this other theosophical document I read a while ago channeled by kuthumi called, "an extraterrestrial view of creation". in it, it talked about this 7th ray deceiver that runs around deceiving people that he is "God". the reaching of the perfection of the 7th principle reminded me of that.
+
+as a result, I'm actually convinced that this christ is indeed the one that is prophesied to make a return soon. I'm actually fairly convinced of it, actually. I really do believe that these events did transpire so that the timeline is altered in such a way that this "christ" can rule the world in "peace". kind of a crazy admission by me, however, I want to be clear that guy is not me... it's possible that he's an alter-ego of me or some derivative... (see fallen-angels for my theories about how this "christ" is actually the negative fitness function of the genetic algorithm) anyway, I'm not totally sure, but it doesn't matter.
+
+it's a pretty elaborate setup to convince mainin and zailm in one go that they should work really hard to conivnince people to believe in his "laws" and his "righteousness".
+
+---
+
+as we shall see in the next section, it appears as if this whole ordeal was contrived through a series of powerful encounters with light beings in astral dimensions to get zailm to come to the conlusion, through a series of lifetimes, that he too needs to spread the word about the laws of this "christ"... seems he's quite the evangelist. it also reminds me of paul's conversion on the road to damascus.
+
+[1]: "For that same end shall the Rai be brought low, and at the last she who is the object of my chiefest wrath [anzimee] shall not know good from evil, so that her name shall be a scorn in the mouths of the people."
+
+### startling-admissions - the author's startling admissions
 
 from @[dtp/dtp](letter-from-the-author):
 
-> 
+> I make no pretenses when I say that I--Theochristian student and Occult Adept--am one of a class of men who do know, and can explain these mysteries.
 
-### custodial seal of approval.
+he's an "adept" and in another place he talks about how he's on another planet influencing people on this planet through the astral (psychic) plane.
+
+> I, with other Christian Adepts, influence the inspirational writers and speakers through an ability to exert the control of our trained, and therefore more powerful, minds over theirs, which are enormously less so.
+
+he's admitting that their powerful mental influence is where so many humans are getting so much of this custodial nonsense. the thing is they can only receive it if they're resonant to it.
+
+> Hence, when the people ask for bread, our media give it to them. Who are these, our media? They are all men or women, in churches or out, who bear witness of the Fatherhood of God, the Sonship of Man, and the Brotherhood of Jesus with all souls, irrespective of creeds or ecclesiastical forms.
+
+he's saying directly that he (and other "theochristian adepts") are directly behind most of these brotherhood organisations that work light. some want "light" and "truth" so they give it to them. they are the opposite of mainin ("the imitator") who spreads darkness and corruption and immorality. if someone wants darkness, mainin will answer, and if they want light, these theochristian adepts will answer. thus, he admits:
+
+> Because these, our writers and speakers, have wrought for human good, so shall, and so does, good come to themselves, bread from the waters. [...] Observing the cry for more light, more truth; observing also how great is the recompense, up springs the imitator, who have no light of inspiration, no conception of the real truth, not of the laws of the Eternal. What does he? Watch! With a pen whose shaft is imitation, and whose point is not of the gold of fact, but of the perishable metal of selfish greed, this person writes. He dips his pen into the ink of more or less thrilling sensationalism, muddy with the dirt of immorality and nastiness, and he draws a pen picture illumined by the tallow-dip of lust and corruption. There is in his work no lofty aim to inspire his readers; he deals with the lowest aspects of life, and, ignorant of the inexorable penalty for sin
+
+up til now in the book, it strongly reminds me very much of the "illuminati" way of presenting things. they design two seemingly different paths: one will be the "right way(tm)" while the other "opposite" path the "wrong way" or "left path". both of them are disempowering ideologies that obfuscate the true mechanism of connecting to your source (by the way you feel). it manipulates and hijacks your emotion with ideology by appeals to power and authority. that allows them to tell you to override your emotion with laws and commands to do things the right/wrong way. both the light and dark (right and wrong) do this by appealing to our physical senses with powerful displays -- and good-guy defeats bad-guy plot narratives (9/11, gulf war, etc) and righting the wrongdoings of others to the victims.
+
+it's crazy man, I don't really doubt the authenticity of this book. these events or something similar could easily have produced the world we live in today. likewise, I don't doubt that there are quite a few people on this planet that truly believe (as does this author) in this stuff too.
+
+I realise this document may potentially cause a few people to experience righteous indignation. I'm not at all sorry. maybe send me some love, light, and truth ~)
+
+### custodial seal of approval

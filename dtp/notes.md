@@ -25,7 +25,7 @@ The Puritans believed that tension and struggle were permanent elements of the c
 As there is permanent opposition and conflict in the cosmos, so there is permanent warfare on earth ... This tension was itself an aspect of salvation: a man at ease was a man lost.
 ```
 
----------
+### general book notes and topics
 
 power structures and stuff
 
