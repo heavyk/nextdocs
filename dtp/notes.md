@@ -14,6 +14,8 @@ md plugin src
 nodejs and download manual
 old repo (for reference)
 
+russion media player
+
 we can be heros
 
 

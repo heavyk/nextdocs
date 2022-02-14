@@ -373,7 +373,7 @@ I've read some of the ending segments while searching around for sin and can giv
 
 it makes me wonder if out there somewhere is another version of earth with a whole bunch of guys working super hard to atone their sins and transgressions between catastrophes.
 
-### my present theory surrounding this book
+### my-theory - my running theory surrounding this book
 
 I just finished up @[dtp/dtp](chapter-1-23) and I noticed starting the next chapter that its tone is quite different, beginning to describe the differences between the eartly, phychic, and spiritual planes... before I do that, I have this idea that came to me while reading that chapter.
 
@@ -447,7 +447,7 @@ also notice in the previous section that he doesn't say that he is the guy named
 
 so, there was this other theosophical document I read a while ago channeled by kuthumi called, "an extraterrestrial view of creation". in it, it talked about this 7th ray deceiver that runs around deceiving people that he is "God". the reaching of the perfection of the 7th principle reminded me of that.
 
-as a result, I'm actually convinced that this christ is indeed the one that is prophesied to make a return soon. I'm actually fairly convinced of it, actually. I really do believe that these events did transpire so that the timeline is altered in such a way that this "christ" can rule the world in "peace". kind of a crazy admission by me, however, I want to be clear that guy is not me... it's possible that he's an alter-ego of me or some derivative... (see fallen-angels for my theories about how this "christ" is actually the negative fitness function of the genetic algorithm) anyway, I'm not totally sure, but it doesn't matter.
+as a result, I'm actually convinced that this christ is indeed the one that is prophesied to make a return soon. I'm actually fairly convinced of it, actually. I really do believe that these events did transpire so that the timeline is altered in such a way that this "christ" can rule the world in "peace". kind of a crazy admission by me, however, I want to be clear that guy is not me[^2]... it's possible that he's an alter-ego of me or some derivative[^3]... anyway, I'm not totally sure, but it doesn't matter.
 
 it's a pretty elaborate setup to convince mainin and zailm in one go that they should work really hard to conivnince people to believe in his "laws" and his "righteousness".
 
@@ -456,6 +456,12 @@ it's a pretty elaborate setup to convince mainin and zailm in one go that they s
 as we shall see in the next section, it appears as if this whole ordeal was contrived through a series of powerful encounters with light beings in astral dimensions to get zailm to come to the conlusion, through a series of lifetimes, that he too needs to spread the word about the laws of this "christ"... seems he's quite the evangelist. it also reminds me of paul's conversion on the road to damascus.
 
 [1]: "For that same end shall the Rai be brought low, and at the last she who is the object of my chiefest wrath [anzimee] shall not know good from evil, so that her name shall be a scorn in the mouths of the people."
+
+[2]: here, because I said in the intro that I think this book feels "written to me" and that I think I'm a part of this "dividing the way", I'm reinforcing the idea that I am the pre-game show (at most). the real "christ" will likely come afterward, we're probably going to appear similar though, as he'll probably be using my genetics and a lot of the things I say.
+
+[3]: see "fallen-angels" for my theories about how this "christ" is probably the negative fitness function[^4] of the human genetic algorithm
+
+[4]: the idea here is that instead of creating a race based on wanted, I believe that the human race is to create what is wanted, but to create what is unwanted (the contrived problem), and then let LOA and the natural evolution of desire, create the wanted aspect. in this system, the "genetic algorithm" is optimising the bad-guy, rather than the good-guy. each iteration, the baddest bad guys are selected for their bad-guy fitness. only the strongest and toughest survive. they are the "hostile environment" forcing us to evolve the wanted aspect of it. they're not the creative ones. we are. they follow rules and datasets of physical conditions, and try to convince us to the same
 
 ### startling-admissions - the author's startling admissions
 
@@ -479,6 +485,4 @@ up til now in the book, it strongly reminds me very much of the "illuminati" way
 
 it's crazy man, I don't really doubt the authenticity of this book. these events or something similar could easily have produced the world we live in today. likewise, I don't doubt that there are quite a few people on this planet that truly believe (as does this author) in this stuff too.
 
-I realise this document may potentially cause a few people to experience righteous indignation. I'm not at all sorry. maybe send me some love, light, and truth ~)
-
-### custodial seal of approval
+### custodial seal of approval.

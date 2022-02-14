@@ -8465,7 +8465,7 @@ supporting this idea, there was a girl on the front of a magazine -- quality som
 
 what I think may be happening is they are piloting my bodies and then when they have sex, they feel very different aftewards. this happens to me all the time. I feel very strongly of a combination of the way the girl feels and the last man she slept with. if that's the case, that would explain the writer to abe-now about infatuation vs love and also the dramatic difference in how these girls feel.
 
-if so, then it's kind of cool to me to think that they are getting (I probably don't mean it the way some might take this, but) "a taste of their own medicine"[^3]. personally, I don't know how other men are, but I change very dramatically every time I have been with a woman. I kind of don't like it. I like how *I* feel -- a lot.
+if so, then it's kind of cool to me to think that they are getting (I probably don't mean it the way some might take this, but) "a taste of their own power"[^3]. personally, I don't know how other men are, but I change very dramatically every time I have been with a woman. I kind of don't like it. I like how *I* feel -- a lot.
 
 I don't really want to feel like most of them do. I have stated that I don't really want to be involved with any girls until I feel I'm ready. the requirement for me feeling ready is basically feeling the way I want to feel. I don't really want to feel like she does. I want to feel like I want to feel, and then girls that are compatible (resonant/harmonious) with how I feel will then be there. therefore, the goal before engaging in any activity for me is to be able to feel the way I want to feel.
 
@@ -8513,9 +8513,9 @@ this is all completely ridiculous. it has nothing to do with any of that. I want
 
 [3]: see @[newblog](2022-02-01 22:33)
 
-### 2022-02-01 22:33 - galactic medicine
+### 2022-02-01 22:33 - galactic power
 
-I said that I think that it's good that they can get a taste of their own medicine when interacting with other girls with my body. most of the time this statement is used in the negative. I couldn't figure out a positive way to say it, so I'll explain in long-form here.
+I said that I think that it's good that they can get a taste of their own medicine[^1] when interacting with other girls with my body. most of the time this statement is used in the negative. I couldn't figure out a positive way to say it, so I'll explain in long-form here.
 
 I'm extremely sensitive to feminine energy. it affects me quite a bit. I think girls like the sensation of feeling like the other girl feels (dunno if this is all or just lesbians or something. I don't know. it's existed for a while though.. read poetry from that woman on island of lesbos for example).
 
@@ -8546,6 +8546,8 @@ I was projecting this idea out into the future and it seems likely that there ma
 that last idea doesn't feel very solid to me (it's probably a bit off), but the interesting thing about it is, a galaxy needs a lot of planets (male aspect) and less suns (female aspect) to control all of the planets (dudes revolving around them). if something similar to the mutual-back-scratching situation I described above occurs, then the setup is correct and the proportions are right. a few boys (I mean little girls) controlling a bunch of old men (I mean women) that depend on them.
 
 it could work...
+
+[1]: afterward, the reactions were mostly: power, capability, and ability. I liked power the most.
 
 ### 2022-02-01 23:27 - the sun has my back
 
