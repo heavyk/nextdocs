@@ -8931,6 +8931,98 @@ we'll see what happens...
 
 [2]: like, I'm writing a lot lately, and I need a way to organise these documents and parse them for errors so I wrote on my todo list to download nodejs and the instructions on how to make plugins for vscode. this garnered mutiple motor roars and a bad feeling.
 
+### 2022-02-14 06:54 - so who is this "christ"?
+
+I edited @[dtp/thoughts](my-theory) to respond to some reactions to what I said about this "christ" that the book has to offer.
+
+one of the reactions was about who is this perfected/corrupted 7th ray that they are talking about? is it mr. motor? to that I would say, it's pretty unlikely. a long time ago, I talked about how I think that jesus figured out in his baptism/ NDE that his physical self is not who he really is, and so from his "spirit" (conceptual,5d) he can project down into the astral, much the same as how a person has a dream or vision and translates those concepts into visual representation most like how the person interprets that. that's why he would appear so differently to so many people -- because they were the ones doing the translation/interpretation of the the concept that is being presented to them. some people would see an old wise man while others perhaps a child.
+
+depending on how you conceptualise (perceive) yourself to be will change your appearance to yourself, and the concept that is transmitted to others.
+
+I think the best example of this could perhaps be found in my encounter with mr. motor out on the field. I saw a heavy-set guy kinda similar in shape to harvey weinstein but about my height. he was looked very nervous and frightened to me -- as if I intimidated him. I asked if he was OK, and he told me he had a gun. confused, I went on my way to look up the hill to see what is going on with the other car up there.
+
+I walked up and on my way back, he sped past me very quickly as if he was being chased or didn't want to talk to me again. I felt a sense of alarm to my presence. that was the last time I saw him outside of his car.
+
+so, let's assume for a moment that he's using jesus' genetics and can produce an illusion (based on my imagination) of how he wants me to see him.
+
+that may have gone very wrong. it's possible that you all saw something very different from me. I had reactions that said that I had just met mr. motor, however I refused to believe them because it seemed impossible to me that a massive worldwide network is being run by someone with such terrible fright. I've met a lot of business guys in my life and they all have this "I'm going to push my way through things and they're all going to be done the way I want them done" -- and I would imagine that mr. motor perpetually berates his employees for not getting the thing he ordered done, to be "done right".
+
+those forceful business types are not at all representative of the guy I saw on the field. there are a number of possiblities of what's possible:
+
+1. that guy was a minion of mr. motor
+2. I saw him the way he really is, rather than the illusion
+3. he projects an illusion, but the way I interpretted that illusion had him looking heavy-set and frightened.
+
+I find the first to be unlikely, because why then would he drive away so quickly? I believe as I was walking up to the top there he jumped over to relive the interaction from my perspective and realised that either his illusion didn't work on me, or his illusion was translated by me as frightened. neither of those would be wanted from his perspective.
+
+it's quite possible that all of you guys didn't see what I see, instead, seeing the way you would interpret him to be -- so the noseboys said, "oh, yeah that's the bossman" and others saw whatever. if everyone sees the same illusion they always see when looking at him, then nobody will notice.
+
+---
+
+long intro.. it was purposefully off topic.
+
+I really don't know if mr. motor is the "christ" or not. it doesn't really matter though because it's all an illusion anyway. personally, I think mr. motor is a artificial creation -- a sort of clone run by a set of rules, kind of like a program -- a conceptual program.
+
+there's very little difference in my mind between a lot of these "fey" and mr. motor.
+
+things of fey: gnomes, elves, sprites, etc. I believe are "thoughtforms" or as I call them "conceptual programs" -- which are entites that can project theirselves and interact with the physical when the physical merges with the astral. this seems to be possible in locations with magnetic anomalies, church services, rituals, comets, and other electrical phenomenon.
+
+in short, they are conceptual focusing mechanism that projects down into the astral -- much like how I believe jesus realised he could do. the higher up you go in frequency in this plane of consciousness, the more abstract (spiritual) things get. these conceptual programs continue to exist as long as people experience and believe them -- which is the reason why I think that jehova is one of these conceptual programs.
+
+I'm beginning to think that the genetic algorithm mentioned in @[dtp/thoughts](my-theory#4) is actually a conceptual program.
+
+if that's the case, then for this conceptual program to interact with us successfully, it needs high enough energy levels that the astral can mix with the physical. I believe that for roughly half of the time in our cycle with sirius (12ky) this mixing is possible all over the planet, and the other half the energies are too low and require specific circumstances to enable this mixing.
+
+so, if my supposition is correct, that the "custodians" are nothing more than a thoughtform or a conceptual program, then you would imagine that it requires its "adepts" to be capable of perceiving the astral (4d) form of perception. it would instruct its minions to perform certain rituals to highten the energies to allow better transmission.
+
+we're all connected to the astral. the astral is basically just the imagination. you can overlay the physical with it and perceive it instead of the physical thing. like if I wanted to see a red cube in my space, I would imagine a red cube and it *should* appear to me in front of my eyes.
+
+the reason why it usually doesn't though is because I see (believe) the physical more than the imagination. I see the physical because it's a stronger signal than my imagination is.
+
+when energies are higher in the brain (pineal gland, etc), then the imagination can be overlaid on top of the physical
+
+we're all connected to the astral plane, but usually we believe the physical more because it's a stronger signal than the astral.
+
+so, if the way the custodial conceptual program communicates to us is through the astral plane, then it's interested in making sure its adepts (the bad-guys it's optimising) are able to see that while the rest of us do not have a strong enough imagination signal to see that world. it would optimise us to see only the physical plane and be concerned with that and that only (materialism).
+
+---
+
+so, like I mentioned, for roughly 12ky the conceptual program can operate in secret and only communicate with its chosen ones (night-side). however, the other 12ky[^3] the two will mix (day-side), and so the conceptual program needs to figure out how to operate in secret even when energies are high. the dtp book is describing the end of the day-side, before we begin to enter into the period where all of it operates in secret. you can see the governmental and social structures (even the interactions between the girls) that prophesy the struggle that has fallen on humankind since the destruction of atlantis.
+
+we're at the opposite time right now; we're going into the day-side again, so the astral will mix with the physical.
+
+the way I believe they got around this the last day-side was to give people commands and instructions on what to do and what to see. as long as people remained within that reality structure, they saw what they were supposed to see[^1]. notice how zailm doesn't have out of body experiences until he has strong emotional influences, and when he does, right away the "christ" (conceptual program) is right there to greet him and tell him what to do next and to keep believing in the laws and commandments.
+
+that plan, clearly will not work this time around. people have tired a little too much of being told what to do and how to look at things. we've evolved to sort of be a bit distrusting of laws and their enforcers.
+
+this time around, we aren't going to be told what to see and operate on laws and commands. instead, I think something slightly different is in store. it requres that the network is up and running and everyone is attached to it. that way, we see the illusion that they want us to see, rather than what's really there. I really wish that I could talk to others and get them to describe what I saw on the field with mr. motor. I have a feeling many people saw diffrent things. I'm not sure what I saw though[^2].
+
+---
+
+the next thing to think about is what this "christ" aims to do... he wants to work out our "karma" such that we choose ourselves to eliminate our animal instincts and operate based on a set of laws and commands.
+
+the elimination of animal instincts and desire seems fairly obvious. I imagine if I were trying to run a system, whereby, for the next 1000y, I would need to keep people running with as little random as possible. desire and "animal instincts" are a huge problem for computers to model, because they operate on a realm that is not at all physical. there is no DNA sequence that will describe a child's desire.
+
+if I were designing a system where we are to keep humans running business-as-usual for 1000y more, I would want to ensure that change is as gradual as possible and that undesirable interactions (like feedback loops, unexpected behaviour changes, or unexpected route changes) could be avoided. the system would need to keep everything in balance and everyone neutralising and canceling each other's actions out.
+
+---
+
+to this, what I believe is happening here in this pre-game show is I'm kind of forming the dividing line between the conceptual and the physical. if you like creating your own reality and the unpredictable manifestations that come with feeling things into place, that's the kind of people that I would definitely *not* want on this planet. instead, if you like having someone give you direction or if you like to visualise your manifestations in your imagination so the program can create a neutralising counter-manifestation for you (so long as you're worthy to have it), then this planet is definitely for you.
+
+I have a feeling that the "christ" will have authorised processes and methods to get the  manifestations that you want -- and they'll come. the system just needs to make sure that it can have everything in place so that the manifestation doesn't disrupt the business-as-usual. as such, you'll probably be instructed in a more regimented and predictable form of desire which won't take the whole system out of balance.
+
+I'll call it, "compensation" -- in the karmic sense: if you do something wrong to someone and cause them to feel bad (to compensate for someone else's feeling good), then you must at-one this with something positive later to keep your karma balanced and perfectly compensated.
+
+or, to look at it in the positive form: only if you perform the "right" (lawful) things to get what you want, can you get compensated for the action with the manifestation of your desire.
+
+so, who is the "christ" that's coming. it's still too hard for me to tell, but so far it sounds more like a program than a person. I still have half the book to go though...
+
+[1]: as it ramped up, I think the "reptile" part of the brain was influenced the most and people lived in a sort of permanent dream-like reality where, similar to mesmerism (not hypnosis.. he describes it in the book) where you are able to take commands and operate as if you were lucid, however without actually remembering it (ie. "missing time" with UFO encounters)
+
+[2]: the reason why I say this is because imagine for a moment that mr. motor is the present physical body that perfected/corrupted 7th ray resides in right now and I saw his body for how it really looks, when everyone else sees the illusion that he's projecting... that means, 100% of the time he's pretending to be an alpha type when he's really the exact opposite of it. he must know this, and that distance between how he sees himself and what he projects to others must be growing such that it's getting out of control. his "secret" -- that he's just a frightened guy, and not the illusion he presents to people must be terrifying. I don't know how that could be possible.
+
+[3]: I say 12ky to use even numbers. I think the last 2-3 cycles they were roughly even. however, I think jesus kind of changed that. as bramley illustrates in "gods of eden" the effect that christianity has had in delaying human progress is quite significant, and though it is causing a delayed manifestation, I think energies are much higher. I think there really is 1000y missing and we're only 11ky since the destruction of atlantis and because things are so much more energetic, we're starting to experience (because of our own attraction rather than our proximity to the star sirius) day-side energetic conditions much earlier than we should. I also think the 1000y of "peace" is the sun wanting to power up considerably more before its next "equinox" alignment to sirius and outburst of energy.
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
