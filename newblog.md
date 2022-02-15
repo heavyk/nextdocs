@@ -9023,6 +9023,80 @@ so, who is the "christ" that's coming. it's still too hard for me to tell, but s
 
 [3]: I say 12ky to use even numbers. I think the last 2-3 cycles they were roughly even. however, I think jesus kind of changed that. as bramley illustrates in "gods of eden" the effect that christianity has had in delaying human progress is quite significant, and though it is causing a delayed manifestation, I think energies are much higher. I think there really is 1000y missing and we're only 11ky since the destruction of atlantis and because things are so much more energetic, we're starting to experience (because of our own attraction rather than our proximity to the star sirius) day-side energetic conditions much earlier than we should. I also think the 1000y of "peace" is the sun wanting to power up considerably more before its next "equinox" alignment to sirius and outburst of energy.
 
+### 2022-02-14 18:41 - the law of "compensation"
+
+I just looked and it appears that the book talks more about rewards and stuff, plus "mol lang" has a lot more to say, so likely there will be further illumination of what they mean regarding the law of compensation.
+
+after I wrote the yesterday's entry (feels long ago because I've slept), I immediately noticed that I automatically assumed that if one person feels good, then another has to feel bad. this however, most likely isn't the case. feeling good or bad is just becoming more or less tuned to something. it really doesn't have to do with anything to do with the wave. one vibration (like a sound) may sound good to you, while to me, it doesn't. so I think that part is erroneous. I recognised it when I wrote it but didn't have a better solution, and after thinking about it, I decided to write a larger bit about it. it's a bit speculative because I don't have certain bits of data to support my ideas or not.
+
+---
+
+let's start at the beginning: I believe that this whole plan of the "christ" coming is to put a system in place, designed by the sun, to get put the earth in a position where no major magnetic activity on this planet is happening for the next 1000 years, before her next big blowout. I'm pretty certain that the strength of the magnetic field (amplified by us) causes the earth to spin more rapidly and the increased magnetic field causes more solar activity. I don't have the data, but I believe there is a strong or even direct correlation between human emotion and solar activity. the stronger the emotion, the stronger the magnetic fields, and so therefore the stronger the attraction from the sun for the resources for that manifestation (for lack of a better word, I've been calling them "protons" (tesla called it "the light"). this is undesirable as more manifestation usually means stronger emotion, and this continues in a feedback loop until the sun's activity gets so strong that the solar activity forever changes society with a mini-nova, nova, etc.
+
+the idea of the law of compensation for me is the idea that if you have one person feeling / experiencing one thing on one side of the planet, then it needs to have the opposite happen to cancel out these magnetic fields. this is where I don't have the data. I don't know what would happen if you were to have everyone on the night-side of the planet experiencing the opposite experience of the ones on the day-side of the planet. I know that already occurs to some degree, as it looks like DC biased AC waveform. so here's my first attempt to figure out the law of compensation:
+
+#### a system for manifestation
+
+a set of rules needs to be developed whereby the manifestation of a person's reality can be roughly predicted so that the proper opposite magnetic field can be created...
+
+like, if something big happens that produces a strong magnetic field in one zone can be offset by the opposite orientation magnetic field in some other (antipodal?) place. this is so the system can preempt bigger things. this likely will take the form of the "law" or the ruleset that people use to get the manifestations that they want.
+
+the more predictable people can become in their thoughts, feelings, and actions, the more the system can compensate properly to maintain no major magnetic field anomalies. this is important because it seems that magnetic anomalies allow us to interact with the astral plane, and that is undesirable for the custodians to remain operating in secret.
+
+#### the creation of the magnetic field
+
+I don't know if the field can be created artificially or if it has to come from humans to be good enough to negate the effects. the reason why I say this is because I'm fairly certain that tesla's world system can create magnetic fields anywere on the planet, and so his system could do the majority of the compensation. I find this idea to be somewhat prone to negative feedback effects similar to the ones produced by box-consciousness.
+
+for some reason, I don't feel that trying to compensate artifically is the way to go. I think that it's important that people do their own attracting so there isn't such a big disparity between the vibration of the people and the one the machine (like the great pyramid) has to create to compensate.
+
+I think 20-40% of the population is asleep at any given moment, and so the sleeping ones can be used to do a lot of this vibrational counter-action in their sleep. they will inevitably continue to vibrate similarly when they wake up and so therefore attract similarly as well.
+
+it feels to me like the point is to get rid of the major low frequency vibrations and then let people do their own high frequency tuning. the system will continue to get better and better at compensating for higher and higher frequency vibrations.
+
+#### the effect
+
+the desired effect is have this planet continue on with the standard 365.2425 day year, with no change, the standard model the same and every bit of reality that we hold so true to continue on completely business-as-usual.
+
+the planet's vibration will rise so considerably and we'll be doing things like flying and other stuff like that but with no crazy psychedelic effects. everything will appear just as it does today, with no major catastrophes, a fully controlled (business-as-usual) weather system (because I know how we feel changes the weather), and the amount of anomalous weather events lowered to business-as-usual levels as well.
+
+to everyone looking around, it'll probably look as if we're doing a lot of really cool stuff -- probably lots of advances in technology like tons of flat screens and stuff -- but nothing significant will happen. I kind of see it sorta like everyone going around having a lot of physical pleasure cause it can be compensated for, but mostly just reacting to conditions.
+
+in that sense, I see us becoming kind of like a large machine. the ones running the show with YHVH/thrust perception will also constantly introduce more characters and story elements to counteract our vibrations.
+
+#### my thoughts on this idea
+
+I don't really see a system like this as a dystopia, because so many people will be getting all of the stuff that they want. there will be systems to manifest everything anyone could want and ways to compensate to ensure it doesn't cause an imbalance.
+
+the thing I don't know is if we are going to be required to stay on this planet, or if we can extend out to other parts of the solar system or even other solar systems. I really believe this whole thing is the sun's doing and she's the one manipulating it all into place. fight against it however you want, but it just makes it worse. so, like me and nosebook, I recommend settling in and figuring out how to feel the way you want about whatever conditions are present.
+
+because this thing seems also to be connected to sirius b (tesla mentioned it indirectly in his "last interview" and also this book seems to mention sirius as well). so, if it's the case of sirius, then perhaps the custodial thing goes up even higher than the sun, and it's sirius that is planning a tremendous outburst at the equinox time (1ky away) and the sirius moving group is going to become a galaxy. if that's the case then it'll be likely that we can perhaps go other places in this solar system and maybe even other stars. I just don't know.
+
+from my perspective, I just follow my instinct and write/do the things I feel inspired to do (which is what I resonate with). I believe this will become the natural state of everyone here on earth in a relatively short period of time. only the system of compensation needs to be setup.
+
+#### why does it all have to be implemented in the negative?
+
+I personally don't have any problem with just following my instinct and doing the next thing that I feel. that's what I do here. I just write the things that come to me and try to put them into the most readable form.
+
+to answer the question, I don't really know, but if I had to guess, I would say that the reason is likely to give an out to the ones that don't want to be a part of this setup. if the perfected/corrupted 7th ray is real, then it gives him a chance to split off anytime that they want to go their own way. they probably won't do it until they're absolutely forced to do it, so that gives them a good basis to build up another system of deception to try and see if they can finally get earth deceived that he is in fact "God".
+
+however, if the perfected/corrupted 7th ray is just a narrative element to alter the thrust of events on this planet (which I believe is the case), then I would guess that all the same thing. you want to optimise the unwanted aspect and then let that naturally produce the wanted. I can assure you that it won't be too long of the same old broken models before people are desiring to come up with something that works a little better.
+
+I think each iteration of the models over the next era will get closer and closer to building a science of how reality is created mentally (thoth: universe is mental), which can also describe what we would call "magic". we'll come up with a working model of the intergration of science and magic, such that all physical conditions attracted can be predicted and therefore compensated for.
+
+I don't really think that's a dystopia. I think there's a lot of desire for that.
+
+#### what do I think about it?
+
+I mean it's definitely an idea, but it's not really my deal. I don't really need to worry about it though. I just keep doing whatever I'm doing and reality reflects how I feel. I then update my perception to find a way to feel the way I want, rinse and repeat. for me, it's literally no different than what I'm already living.
+
+there are a lot of unknowns though that make it difficult to look at. it could potentially be an improvement on conditions, but that's not really what I'm looking for.
+
+for example, if they could get this system of compensation setup today, then I suppose I could have a manifestation, because its effects could be compensated for. imagine for a moment that the 7th ray "God" did actually decide to split off and he waited some time for the full system of compensation to be implemented, he would have a really good toolset to perform even more deception because he could essentially negate all positive manifestations, slowing progress down to nearly flat. as long as the system can compensate, then secrets can be kept again and the custodial idea of material reality is the only reality can live on.
+
+I think it will be found that these vibrating magnetic fields are the medium for many psychic phenomena. if they can get rid of that, they can keep their thoughts secret from us.. I believe thoughts as they traverse the neurons in the brain create a magnetic field, and that magnetic field can be felt in relation to you (your source), and so that's why each thought feels good (harmonic/resonant with your source) or bad (dissonant with your source). finally, nothing really at all if it's too high frequency or level too low amplitude to be detected (the still quiet voice).
+
+they have essentially been using this "law of compensation" on me this entire time, but my sensitivity is growing so rapidly, it's quite possible they may have to let me go from their reality (eg. the split) soon as my sensitivity is more than their machines can compensate for. as such, I think the system is already pretty well in place. this "law of compensation" idea just allowed me to put a name to it.
+
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
