@@ -9015,7 +9015,7 @@ I'll call it, "compensation" -- in the karmic sense: if you do something wrong t
 
 or, to look at it in the positive form: only if you perform the "right" (lawful) things to get what you want, can you get compensated for the action with the manifestation of your desire.
 
-so, who is the "christ" that's coming. it's still too hard for me to tell, but so far it sounds more like a program than a person. I still have half the book to go though...
+so, who is the "christ" that's coming. it's still too hard for me to tell, but so far it sounds more like a computer program, than a person. I still have half the book to go though...
 
 [1]: as it ramped up, I think the "reptile" part of the brain was influenced the most and people lived in a sort of permanent dream-like reality where, similar to mesmerism (not hypnosis.. he describes it in the book) where you are able to take commands and operate as if you were lucid, however without actually remembering it (ie. "missing time" with UFO encounters)
 
@@ -9096,6 +9096,74 @@ for example, if they could get this system of compensation setup today, then I s
 I think it will be found that these vibrating magnetic fields are the medium for many psychic phenomena. if they can get rid of that, they can keep their thoughts secret from us.. I believe thoughts as they traverse the neurons in the brain create a magnetic field, and that magnetic field can be felt in relation to you (your source), and so that's why each thought feels good (harmonic/resonant with your source) or bad (dissonant with your source). finally, nothing really at all if it's too high frequency or level too low amplitude to be detected (the still quiet voice).
 
 they have essentially been using this "law of compensation" on me this entire time, but my sensitivity is growing so rapidly, it's quite possible they may have to let me go from their reality (eg. the split) soon as my sensitivity is more than their machines can compensate for. as such, I think the system is already pretty well in place. this "law of compensation" idea just allowed me to put a name to it.
+
+### 2022-02-16 10:19 - dunno what to write...
+
+I want to write something, but I don't know what... so, I'll start with recent events.
+
+yesterday night I woke up feeling pretty sore and tired. it's like the more energetic I get, the worse I feel when I wake up. it's not really all that big of a problem though.
+
+I had a weird dream where I was the jewish red cross (like the old england flag) bloodline. I was interacting with other brits (they appeared more blue to me) and they seemed to treat me strangely, like bad things would happen to me and they would just carry on as if nothing was happening, even though I was white like they are. it was a weirdly racist(?) dream. I don't know what to think about it... so I'm jewish huh? greg was making fun of my jew-fro the day previous so maybe that spawned the dream.
+
+the other funny reaction was this weird disbelief as if the previous entry had some incredibly significant parts about it.. they must have talked to someone while I was asleep or something. I really don't know. my reaction to them was, "well, someone has to do it". right, like it's not that big of a deal...
+
+the other funny reaction was something like, "he thinks we're just machines programmed to perform this theatre (reminds me of the mechanicals in midsummer's night dream)
+
+> certain problems cause computers to get stuck in a particular loop. the loop leads to meltdown, but before they crash, they become aware of their own structure (quote from song playing right now)
+
+the reaction was kind of funny because they can't possibly believe that the whole story of the th
+
+> the computer has sense of its own silicon nature and it prints out the ingredients
+
+... turns out, that is a quote from a movie, "Pi (1998)", but it's funny that it played right when I was talking about these guys seemingly becoming conscious that they're essentially programmed to behave the way they do.
+
+that must be it, cause in yesterday's entry (@[newblog](2022-02-14 06:54) even though it feels a million years ago), I was talking about how I think the "christ" sounds more like a computer program than a person.
+
+I mean, there is that one kuthumi's "extraterrestrial guide to creation" where it describes the creators of this universe being supervised by their parents, and they worked real hard at it and it was such a "paja mental" that three entire layers of perception were combined into the astral (4d) and the physical (3d) added later.
+
+the thing is that story makes sense to me because I could totally see how supervision and lots of hard work would produce someone that has such a bad case of "imposter syndrome". I mean, it makes sense to me and stuff. I suppose it's possible, but in a world where hollywood runs the show, I would imagine that the the story is just an adaptation or "based on a true story". I mean, let's be real for a moment: if I had to train a bunch of machines to believe in a reality, I'm fairly certain that I would use as much of a viseral experience that I could -- sight, sound, etc. and make the story feel so real that it's believable. you know, like hollywood does...
+
+maybe, another way to say it would by like in psychology... you know how if you beat your kids, it's a much higher probability that your parents also beat you... well, same thing. if the kids use story to create motivation (marketing), I find it quite likely that their parents also do the same.
+
+so, yeah I see the kuthumi's story being entirely plausible, but then again wouldn't the more simple answer be that it's just a retelling of another story to make the present circumstances feel more epic? I find it more liely an adaptation of a story than a real one.
+
+---
+
+while in the shower, I had an idea. it's nearly the same as the previous one, but a few changes here and there. I'm going to retell the idea almost entirly.
+
+usually, I'd start with the supposition that terence and the mushroom are right about there having been a split. it has flaws like, "OK, then where'd jesus come from" the difficulty of figuring out if jesus created the split on purpose or not. personally, I believe it's part of the design of the evolution. however, as an alternative to that, I want to expand on the idea I started in @[newblog](2022-01-29 01:25).
+
+in that setup, imagine that the sun is just about to nova and someone decides to alter the trajectory of not just theirself, but the entire planet. some of the planet will not want to do this and some will, and that's the nature of tuning into another timeline anyway -- you leave them behind.
+
+so a whole bunch of us decide to adjust the timeline so far back, that we take it all the way to atlantis and as far back as we can go. we install the custodial system to systematically oppress the humans, so that the timeline of progress is somewhere between flat and linear. each time it rises up, something happens which tanks progress.
+
+remember the s-shaped curve that creeps along seeingly with barely any change until right before the inflection point, it rises sharply -- very sharply? well, that's the idea. we figured out how to systematically tank progress by installing various "golems" or "clones" into positions of power attempting to prevent any progress.
+
+normally, the curve would look like a nice and steady exponential curve, rising exponentially. our goal is to make it look more like a square wave. if you've looked at a square wave on the ocilliscope, you will notice that it wiggles a little bit before rising or falling. I like to think of that as similar to that one veritassium video where the bike has to go right a little before going left. the idea is to kind of allow you to shift the weight...
+
+I don't claim to fully understand it, but I know that I feel that effect all the time in trasitions between things. abraham says the phrase, "you have to know what you don't want, so you can know what you do want"[^1].
+
+the idea in that timeline is that if you know for sure that you will arrive to the present moment (1000y from now right before the sun is about to nova for example), then no matter how hard you try to prevent the timeline from making it, it will definitely make its way to the present. you know that because you're there now.
+
+so, what I think we did is we created a whole bunch of "bad-guys" conceptual programs that project theirselves down into the astral plane and try to manipulate the planet.
+
+---
+
+so, whether you look at it from the front where the bad-guys are the hostile environment in which the creative types find their way toward what they want (like a plant), or if you look at it from the back where 1000y from now the sun is about to nova a bunch of us decided we wanted to see how big we can make her go. it doesn't really matter. the point is, it's gonna be epic, whatever it is.
+
+---
+
+slightly off-topic, but as I was writing that, it made me think about how the sun is sort of like a woman. I don't know time scales, but imagine for a moment that you were a woman and -- so, think -- ok, this is probably going to come out wrong...
+
+you know how, it's not so much the actual sex that makes it the thing, it's the buildup to it that makes it a more sensational experience? like imagine, that the sensation was rising for not just like hours, but it was like it was just an idea that you had for weeks or so, but then one morning when waking up, it feels like it's starting to build up and then like it seems like the whole day begins to accelerate more and more until finally later it starts to feel more and more like a reality...
+
+so, you know how there's like this moment when it feels like it's gone "over" the limit and there's no way to push it back down... well, instead of it being like a gradual rise... it's accerating very rapidly and there's so much no way to stop it?
+
+something like that is what I imagine the sun feels like...
+
+so, yeah, it got me thinking about how it would be possible to emulate that effect for real people. I'll have to think about it. should be possible.
+
+[1]: this was the original idea behind flipping a coin. if the coin indicated to me that I should do something, and then then I began to do it and it didn't feel right, I would change it. it wasn't until started to go the "wrong way", that I could feel it was the wrong way...
 
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
