@@ -1,9 +1,9 @@
 notes
 
 casi-modo
-taste of their own power
 01-14
 
+midsummer's night dream (and other works)
 guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
 filip nikolaevic mixes
@@ -16,6 +16,7 @@ old repo (for reference)
 
 russion media player
 
+pi 1998
 we can be heros
 
 

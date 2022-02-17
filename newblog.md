@@ -9157,7 +9157,7 @@ slightly off-topic, but as I was writing that, it made me think about how the su
 
 you know how, it's not so much the actual sex that makes it the thing, it's the buildup to it that makes it a more sensational experience? like imagine, that the sensation was rising for not just like hours, but it was like it was just an idea that you had for weeks or so, but then one morning when waking up, it feels like it's starting to build up and then like it seems like the whole day begins to accelerate more and more until finally later it starts to feel more and more like a reality...
 
-so, you know how there's like this moment when it feels like it's gone "over" the limit and there's no way to push it back down... well, instead of it being like a gradual rise... it's accerating very rapidly and there's so much no way to stop it?
+so, you know how there's like this moment when it feels like it's gone "over" the limit and there's no way to push it back down... well, instead of it being like a gradual rise[^2]... it's accerating very rapidly and there's so much no way to stop it?
 
 something like that is what I imagine the sun feels like...
 
@@ -9165,6 +9165,39 @@ so, yeah, it got me thinking about how it would be possible to emulate that effe
 
 [1]: this was the original idea behind flipping a coin. if the coin indicated to me that I should do something, and then then I began to do it and it didn't feel right, I would change it. it wasn't until started to go the "wrong way", that I could feel it was the wrong way...
 
+[2]: see @[newblog](2022-02-16 22:48)
+
+### 2022-02-16 22:48 - elements of the buildup
+
+after writing that yesterday, I went to go sit in the sun and think about it and it's definitely not desirable to have a gradual rise. I was meaning over the course of a whole day, but I think in the sun's case there are more than one day.
+
+the bible says that a day is like 1000y, but I highly doubt it because the "great year" would have only 24 days in it. I think the 1000y increments are probably more like months or half-months. for this example I will use jupiter's orbit of 11.87y as the measurement for 12h. therefore, it's nearly the same to say that one year is like an hour for the sun, with 2 solar cycles composing a day/night cycle. I'll just figure there are ~1024 solar days in the great year[^1].
+
+so, following that logic, we can imagine that the destruction of atlantis is about 500 days (0.5y) ago, and the sudden emergence of cro-magnon around ~1500 days (1.5y) ago[^2]. the mars colony is probably at least 750ky to 1Mya, our time, so like ~ 35-42ya for the sun.
+
+---
+
+that means that things have definitely been building for quite a while now and a lot of cataclysms have happened since this started (1-2 big ones per year at least). in a relationship setup, you may consider these cataclysms sort of like relationship disasters. they happen and you recover from them and it's not that big of a deal.
+
+one peculiar thing I noticed about terence's "novelty theory" is that it's not a straight line up. there are small fluctuations, but also really big ones too. it doesn't just go up all the time, sorta like gas prices graph. so the buildup should have fluctuations in it.
+
+one of the things that I noticed with raquel is that it's important to withdraw from time to time. it gives a moment to relax and establish a new baseline. from there it's possible to go higher. if I tried to just go up up up, then it kind of created negative effects. the way I mean it like that is that up up up has both a kind of pain and pleasure sensation to it, so the important part is that when pulling back, is to remove the pleasure sensation so that it's desired again. if only up, then the sense of pleasure was lost to the feeling of discomfort.
+
+imagine gas prices: imagine that the prices only went up. people would get much more infuriated by the constant rise -- however, if there are periods where the prices drop for a little while to allow people's anger to cool off, then they can begin to rise again. same thing.
+
+that sort of thing happens on the micro-scale all the time in the form of conversation and playful interaction. on the macro-scale, this manifests sort of like levels that are passed where you can't go back. once you've kissed, then it's pretty difficult to say, "OK, now we never can kiss again." it takes a cataclysm of sorts to reset that barrier.
+
+for a society, each of these levels should mark the arrival something new or novel ("disruptive"), in which the arrival of it changes things so greatly it appears that you can't go back (need).
+
+the micro-scale seems to interact with our desire in the form of want, while the macro-scale seems to interact with our desire in the form of need.
+
+that's all for now... I'll keep thinking...
+
+[1]: assuming the great year is exactly 24ky, then 24000/2048 = 11.71 which is pretty close to jupiter's orbit period. it's probably somewhere in there, meaning that there are ~1024 days in the great year. close enough for me. anyway, for some reason it just feels right to divide the great year by 2^11
+
+[2]: the weird thing about these day/night cycles is the book says that atlantis started their day at noon meridian, so like summer solstice. we start our day at night meridian, so like winter solstice. if the great year starts with the closest to sirius, then the great year also starts at noon meridian (summer solstice) and the cataclysms happen at the great year sunrise/sunset (equinox).
+
+### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
