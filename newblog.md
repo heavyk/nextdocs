@@ -8729,7 +8729,7 @@ technology that can logically accomplish desired results in this universe, witho
 
 [1]: see fallen-angels and @[newblog](2022-01-18 01:14).
 
-### 2022-02 15:16 - potential disaster and thoughts on the dream
+### 2022-02-08 15:16 - potential disaster and thoughts on the dream
 
 I woke up this afternoon with a weird feeling after having a number of weird dreams...
 

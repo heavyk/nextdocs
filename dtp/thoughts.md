@@ -459,9 +459,8 @@ as we shall see in the next section, it appears as if this whole ordeal was cont
 
 [2]: here, because I said in the intro that I think this book feels "written to me" and that I think I'm a part of this "dividing the way", I'm reinforcing the idea that I am the pre-game show (at most). the real "christ" will likely come afterward, we're probably going to appear similar though, as he'll probably be using my genetics and a lot of the things I say.
 
-[3]: see "fallen-angels" for my theories about how this "christ" is probably the negative fitness function[^4] of the human genetic algorithm
+[3]: see "fallen-angels" and "negative-evolution" for my theories about how this "christ" is probably the negative fitness function of the human genetic algorithm
 
-[4]: the idea here is that instead of creating a race based on wanted, I believe that the human race is to create what is wanted, but to create what is unwanted (the contrived problem), and then let LOA and the natural evolution of desire, create the wanted aspect. in this system, the "genetic algorithm" is optimising the bad-guy, rather than the good-guy. each iteration, the baddest bad guys are selected for their bad-guy fitness. only the strongest and toughest survive. they are the "hostile environment" forcing us to evolve the wanted aspect of it. they're not the creative ones. we are. they follow rules and datasets of physical conditions, and try to convince us to the same
 
 ### startling-admissions - the author's startling admissions
 
@@ -484,5 +483,69 @@ he's saying directly that he (and other "theochristian adepts") are directly beh
 up til now in the book, it strongly reminds me very much of the "illuminati" way of presenting things. they design two seemingly different paths: one will be the "right way(tm)" while the other "opposite" path the "wrong way" or "left path". both of them are disempowering ideologies that obfuscate the true mechanism of connecting to your source (by the way you feel). it manipulates and hijacks your emotion with ideology by appeals to power and authority. that allows them to tell you to override your emotion with laws and commands to do things the right/wrong way. both the light and dark (right and wrong) do this by appealing to our physical senses with powerful displays -- and good-guy defeats bad-guy plot narratives (9/11, gulf war, etc) and righting the wrongdoings of others to the victims.
 
 it's crazy man, I don't really doubt the authenticity of this book. these events or something similar could easily have produced the world we live in today. likewise, I don't doubt that there are quite a few people on this planet that truly believe (as does this author) in this stuff too.
+
+### the-father - who is the father?
+
+starting in on reading again I started in the 23rd chapter, which is like the 11th hour of the first book. after writing the latest entries like @[newblog](2022-02-14 06:54), the whole sense of the chapter has changed for me. the part about christ being the perfected/corrupted 7th ray illuminated for me an interesting set of words ... "the father".
+
+I thought the father is said to be the seed of humankind. however, let's look to see what the book describes it as. before blasting mainin, the christ says to him:
+
+> "... But as thou art an ego, a ray from my Father, and now give out no more light, but darkness only, I will cut thee off for a season, for thou shalt neither destroy more of my sheep ... "
+
+then, talking to zailm, he says:
+
+> "... Fear not for thine own safety, for I blast not thee; neither worship me, but my Father who sendeth me. I am reached unto the perfection of the Seventh Principle and am Man, also the Son of Man, yet more than any man, for I am in the Father and the Father is in me."
+
+it struck me that this "Father" sounds like a cool-kids club or some type of organisation. to illustrate, if I replace the word "Father" with "brotherhood", the sentences there now make even more sense[^1].
+
+I searched for the word "Father" and the book has a lot more to say about it, so I'll likely update this section in the future, but initial analysis gives me the impression that the "Father" is the old name for the conceptual realm. a very very strange coincidence if in fact my supposition is right about all of these entities being "conceptual programs" projecting theirselves down to the astral, and those given power on earth need to have the secrets to access the astral plane with expanded audio and vision (clairvoyant eyes).
+
+interesting...
+
+assuming that the "Father" is the conceptual plane, this idea makes me want to talk about the phrase, "be therefore *perfect* just as thy Father [in heaven] is perfect". because then what is perfection?
+
+I remember from christianity that perfection comes when christ returns. just did a search for perfection in the book and it refers to the "perfect human plane" and perfect dimensions. it really sounds to me like perfection is a conceptual form of perception (5d) where you always see what you want to see.
+
+I'm reminded of that weird phrase where "christ" says, "Man first fruit of them that sleep the sleep which is change". this gives me the impression that the physical plane is the plane of change and the perfected plane does not have change. this fits pretty well into my definition of the conceptual plane. I describe it as being timeless (eg. the feeling of anger is the same today as it was thousands of years ago; same with love or fear), and that plane can be perceived as a trajectory or timeline because whatever you tune to will be what you experience, and what you experience will tune you to the next thing. it's a linear progression unless you're consciously choosing how you wish to react to something, thereby consciously tuning to something other than what the default reaction would tune you to.
+
+so, it looks to me like "Father" = 5d conceptual plane, and perfection is the ability to tune to what you want rather than following the chain-reaction of events through time.
+
+let's continue...
+
+another quote:
+
+> "for are [all men] not all children of One, our Father? I am He, Christ; that which I am, the Spirit of every man is."
+
+he's saying that the spirit of every man is the "christ". interesting. now, I'll look for "Spirit" now ... here's a good one. "mol lang" explains it clearly:
+
+> "Thou hast come through the portal; lo! physical nature and laws do not reign here; they reign in the objective world, but not here, for this is the subjective world, in no sense physical or existent, nor perceptible to senses belonging to matter. Yet it is real, for Spirit is real, and subjective states, no less than objective ones, are born of the Spirit of the Father. This is another of the Mansions in His House. It is farther from the earth than the farthest star of the sky, because in no wise of material nature. Things of earth to the inhabitants of this world are but dreams, and vice versa. To either, the other seems unreal. This we are in is the 'Far away home of-the soul.'"
+
+his description of the "Father" further supports my previous supposition, and says that all sujective states are born from the "Spirit of the Father". it looks to me like "Spirit" is a person's source or inner being. inner beings have inner beings, in the objective sense of things, but if we look at it subjectively -- or, frequentially, then we see that all spirits resonate with the source of the "Father". "christ" expresses this by saying we're all children of the "Father" and "mol lang" says we're "born of the Father".
+
+to put it into my concepts, the "Father" is the upper desire (1) and conceptual (5) planes working together to create the physical (7) body. the physical entity works out its karma through incarnations into the physical and works on it's return back to the "Father" -- that is, the return to "perfection" where one perceives from the spirit looking down, rather than from the physical looking up.
+
+the Spirit appears to be something similar to the "law of attraction" or the "law of compensation". these are the simple logic/laws that the universe operates on. compensation is like addition/subtraction, while attraction is like division/multiplication.
+
+in a spatial sense, the spirit would like the present state of a "source" and so therefore would represent the finite set of paths possible from its present state back to its source. all sources have a source (or, all inner beings have an inner being).
+
+in a subjective or frquential sense, all everythting resonates with its original frequency and are simply derivatives of it. because such a diversity of frequencies extend out of the original (the one), the original frequency is a much much higher frequency, being able to resonate with such a wide diversity.
+
+each time we deviate from our resonance with the one original source, we cause an expansion of the one (all that is) because it resonates with us too.
+
+in objective sense, the Father is in us, and we are in the Father. we all extend out (or are extensions) of the same source (father). therefore, we're all born of the same "father" because every "father" has a "father".
+
+---
+
+what looks to be happening, is that negative-evolution is happening all the time inside of each of us individually on the micro-scale. however, it also appears to be happening all the time on the macro-scale as well... it's quite possible that this pattern extends all the way to the source of all that is. it's definitely possible it's happening all the way up to the galaxy as well...
+
+---
+
+for this solar system and planet, I would guess that the "Father" is the original conceptual program and source (1,5) whereby wanted is created. fallen-angels are conceptual programs too, but they've fallen down to the physical plane and control that, creating the hostile environment for the creation to find a way to return back to its source or, "return back to the Father". each return causes a huge explosion of wanted for those going/returning and a cataclysm for those wanting to stay.
+
+each creation evolved in this way (negative-evolution), has to find its way back to the "Father" or back to its source... that is, "find your alignment with your inner being" -- and you know how well your alignment is by how good you feel.
+
+each divinding of the path everyone chooses which way they want to go (see: negative-evolution)
+
+[1]: with the exception of the "I am in the [brotherhood] and the [brotherhood] is in me" -- like how can the brotherhood be in him? (no homo)
 
 ### custodial seal of approval.
