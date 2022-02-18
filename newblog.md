@@ -9215,6 +9215,61 @@ so, if I were trying to create the most velocity, the more creative I would get 
 
 do to the reflective nature of things, all things that I think I'm doing to someone else, I'm really doing them to myself. I've been trying to think of a good way to explain this concept clearly. coming soon...
 
+### 2022-02-18 01:16 - my thoughts from starbucks yesterday
+
+I noticed a few things yesterday while at starbucks. I feel very uncomfortable around girls and it's mostly because I don't want to give the wrong impression.
+
+a considerable amount of the stuff that I'm writing is a slo-mo realisation that I'm the reason for all of my difficulty. it's pretty likely that it's a group of us, but I'm probably the ringleader, so I take full responsibility for it all.
+
+I'm essentially saying that it's desirable to find as many vunerabilities in myself. LOA is just that -- attraction -- so each time, I will attract even stronger than the previous iteration. obviously, there's a point where there simply isn't another way to sabotage myself any longer. so, I'm basically saying it could be a while.
+
+I really don't like the idea of "stringing people on". it's one of the most disagreeable aspects of many sales angles. if someone wants something, and you know that, you can string them along to rise the price or create more anticipation for the thing. it's sorta like those pre-release sort of things where there's a ton of hype for a thing and then often it just doesn't live up to the hype. I feel kind of like that. at the moment, I just can't live up to the hype.
+
+---
+
+in nearly all social circumstances, I fail pretty hard at meeting people's expectations, so I often times just stay and work on something that interests me instead. there are a lot of pump up types out there that can make a good show. I don't really want to make a good show.
+
+I started to talk to the first girl to my left about that (she was  studying economics), because for running a business, making a good product is a LOT different than marketing. these days, almost everything is marketing because people are so visual, almost everyone is doing their own marketing and promoting and putting on a good show at this point, that on the business/administration side of things it doesn't make a lot of sense to try and be hard-worker anymore[^2] (though it is good for product). those days are done. nowadays, it seems that it divides into expressing quality through your passion or being able to make an attractive presentation.
+
+so, that makes me pretty much product focused. I care tremendously about how the product functions and interacts with the user. that's what I most enjoy doing. I don't just mean material things; when I say "product", I mean language (like english) or concepts we use to interact with each other. I've been thinking quite a lot on how we can optimise our own interaction with each other both using technology, but also with other communication medium like creating symbols and images in space.
+
+I've long been fascinated by the mushroom that said, "I'll show you what I mean to say" and then a living coloured orb appeared and I understood what the "christ" means. that one interaction has continued to reveal itself to me even up to the present. how can such a rich quantity of diverse ideas be packed into a single thing, that I'm not totally sure how visible it was -- like, if you were looking in my imagination at the reality technician when he "said" that (it may have been telepathic communication), and then held up his hands, would you "see" what I saw? does everyone see the same thing, or is it like LOA where one can only see the image there that they resonate with? I have a feeling it's the latter.
+
+*that* is a product I want to create and bring to the world. that's interesting to me. I feel like it's possible too. as such, I just don't really have much capability at the moment to actually create that, so it's been on my TODO list for a while now. do girls fit into this? I don't know.
+
+for the creation of it, I think the first thing to do is to begin to mix the astral and physical planes together so that visual images can be seen. or, somehow find a way to teach people to see and hear things that aren't visible or audible. for me, that capacity came about with the exploration of concepts. I found that everything felt different, and even the same thing in different moments of time felt different to me. there is some aspect to that which is the nature of the object or the environment or time that it's in, while the other significant part of it is my perception of the object. it takes a bit of practise to triangulate and isolate what's coming from where, but it reveals quite an expansive world that is sitting just below the physical senses.
+
+so, for the creation of it, I don't know if girls mix, cause I'm still not sure all that needs to be done -- however, for the marketing of it, yeah, girls sell things well. if a lot of girls are using a product, people want to join it; that's for sure.
+
+---
+
+there's another thing that is a bit of a problem that will kind of derail almost everythting that I said above about product -- and that is that for me, I've noticed that good-feeling is important for creation. I'm sort of like the motor, so good-feeling is like gasoline. you put some in and out comes something creative. it basically never fails. I have no end to my creativity. I've tried to see if there's something I can think of which is impossible, but even the most difficult of challenges, after some time to reflect, I can come up with a partial solution -- or at least know where to start or how to rethink the objective to come at it from another angle[^1].
+
+so, you could see how the apparent solution would be to just find ways to feed me good-feeling and get a creation out. in fact, I could easily see a world where this is the case. I have based some of my dystopic matriarchical power structure on this idea. they like technology, potions, and shiny things -- so I could easily imagine that a bunch of dudes like me could be "used" to fuel their condition-based reality. they need/want conditions to produce a feeling that they can't produce theirselves.
+
+an obvious example of this (using my own situation), I could imagine a sort of like advanced kid monitoring service where the parent/guardian could get real-time updates on the kid (location, vital stats, emotional state, etc) and setup alarms for physical/emotional/thought conditions, and built-in ways to distract the kids from certain unwanted ideas and impant their own ideas of things they want the kids to do into the kids heads feeling like a "good idea"
+
+this technology service would offer them the "peace of mind" to let their children be more free, knowing that if they get into undesirable physical/emotional/thought circumstances.
+
+see how the technology can fill in for them the conceptal incapacity to perceive their children as doing well and knowing that they will find their way?
+
+---
+
+in my dystopian matriarchical society, this is exactly what happens. the women essentiall leverage the pleasure that they can provide to get the technology conditions that can fill in for their inability to conceptualise what they want. they need guys like me who take good-feeling as input and output their desire in the form of technology and product realities.
+
+as you can see, this is exactly opposite to what I want to create -- which are people capable of feeling the way they want to feel, rather than using technology/conditions to produce those feelings.
+
+I do feel like I/we are speeding toward a world where my matriarchical dystopian reality actually becomes reality. LOA is nuts, and it's probably part of the sabotage.
+
+the whole goal of any sabotage designed to tank the timeline is to convince people to try get the feeling they want with physical conditions (or money) -- so physical up to conceptual, rather from the conceptual down to physical.
+
+obviously, I'm sticking to my desired path. I know where I want to be, how I want to feel, and from what perspective I wish to see myself from. from that vantage point, the physical doesn't matter; you can have any physical appearance you want.
+
+[1]: eg. perhaps it's not a good idea to propel something at nearly light speeds, however, if instead the destination were to attract the traveler, faster than light speeds could be reached.
+
+[2]: I think the trump administration was the turning point on this one. even the popular youtube channel, "economics explained" in one of his videos even notes how economists make predictions more now based on how well they'll do in ratings than for accuracy [TODO: video reference: economics predictions, doom and gloom]. even economists are putting on the on the marketing and sales hat now.
+
+### a bit more on "perfection"
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
