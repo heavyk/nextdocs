@@ -9197,6 +9197,24 @@ that's all for now... I'll keep thinking...
 
 [2]: the weird thing about these day/night cycles is the book says that atlantis started their day at noon meridian, so like summer solstice. we start our day at night meridian, so like winter solstice. if the great year starts with the closest to sirius, then the great year also starts at noon meridian (summer solstice) and the cataclysms happen at the great year sunrise/sunset (equinox).
 
+### 2022-02-17 12:01 - thinking aloud at starbucks
+
+one thing that I thought about on the walk to starucks is how the ideas I wrote about last night in @[dtp/thoughts](the-father) combine with the ideas of @[newblog](2022-01-29 01:25). they don't feel in conflict to me but I can see how they could be perceived to be.
+
+when I think about the leapfrogging through the timeline sabotaging all the way to increase the velocity of the trajectory toward the great attractor, I have to think about how I would do it. if I tried to install a system where the population is to worship a sphagetti monster, it just wouldn't work. after all, we would be infmuencing the timeline by putting thoughts in people's heads, so they have to be at least beievable. if they didn't resonate with the person, they wouldn't get the message -- so it has to haveslme resonant aspect to it. it has to be "wicked", that is, slightly twisted. or, it has to exploit some aspect ot the nature of a person. in this sense, money is an easy way to exploit a person. everyone has a price, so you just keep finding a way to influnce a person to do something unproductive.
+
+this is why I consider it like "fuzzing" for human behavior: it only works, if there a weakness that can be exploited. I suppose that's another way to look at "working out your karma" or "being perfected" -- the idea is that you're perfected when there's no more ways to exploit you to tank the timeline.
+
+hey writing these at starbucks is kind of fun :)
+
+---
+
+ok, now that we need to exploit exploitable people and it needs to be something wicked, then it's pretty easy to see how all you have to w=do is to just take something real and then complicate it and give it weird names, and exploit people's desire for recognition and influence -- sorta like mainstream science. it's really not all that different. the more complicated and more it obfuscates what's really happening, the more you can tank the timeline. that's the goal.
+
+so, if I were trying to create the most velocity, the more creative I would get finding new ways to put plausible but bad ideas into my own and other's heads. you see, the most easy to influence is yourself, so I'm certain that the all of it is me exploiting my own weaknesses and creating new characters to alter the events in my own life. that's why I call it self-sabotage.
+
+do to the reflective nature of things, all things that I think I'm doing to someone else, I'm really doing them to myself. I've been trying to think of a good way to explain this concept clearly. coming soon...
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat

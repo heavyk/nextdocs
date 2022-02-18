@@ -3,15 +3,12 @@ notes
 casi-modo
 01-14
 
-midsummer's night dream (and other works)
 guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
-filip nikolaevic mixes
 
 vscode plugin
 md plugin src
 
-nodejs and download manual
 old repo (for reference)
 
 russion media player
