@@ -9269,6 +9269,49 @@ obviously, I'm sticking to my desired path. I know where I want to be, how I wan
 
 [2]: I think the trump administration was the turning point on this one. even the popular youtube channel, "economics explained" in one of his videos even notes how economists make predictions more now based on how well they'll do in ratings than for accuracy [TODO: video reference: economics predictions, doom and gloom]. even economists are putting on the on the marketing and sales hat now.
 
+### 2022-02-19 00:33 - taking my own medicine
+
+I just woke up from a series of dreams where they were asking me which girls I wanted to start with -- as if I didn't have a choice -- like this is what we're doing...
+
+I seemed to be avoiding the question and/or giving nonsensical answers. the only answer I remember was "chelsea's sister" which is a really weird way of saying it and I had to think about it cause I didn't know other chelsea's in my life with sisters than erin. erin has to be jessica's age, and I don't konw what I was saying. it was weird. the only other chelsea I knew was chelsea royer, so I appear to have been avoiding the question.
+
+---
+
+so I started to think about why I'm so against the girls thing in general.. I want to have power over my appearance. I seem to be smiling a lot more, and I can sense people's recognition of my missing teeth still, but mostly because I don't have a mental image of myself, I still get very surprised when I see myself in the mirror and I notice I don't have teeth. as such, I really do want to wait until I have power over my appearance first.
+
+I don't really mind how long it may take, as this along with many other things is just another way to self-sabotage any manifestations. from that perspective, I definitely don't want to have any manifestations for as long as I can continue to self-sabotage myself.
+
+it's unfortunate that I'm self-aware on this, because normally the way it would go is because it's all attraction, even though the manifestation is sabotaged, each time that happens, a new situation is attracted even stronger than the failed one. either your vulnerabilities will no longer exploitable, or the manifestation will be attracting so powerfully, it's impossible to avoid it.
+
+my teeth are definitely a physical condition that causes me to feel a certain way, and what I wrote above is definitely needing a condition to change so that I can feel good.
+
+that means, I kind of have a choice here... I can either keep choosing to continue needing a physical condition to change so that I can feel good -- or, I can decide that I can't change the physical condition (right now), but I can find a way to feel good about it anyway...
+
+---
+
+as a metacommentary on that, there was this interesting event that happened after writing yesterday's entry (@[newblog](2022-02-18 01:16)), in relation to the part where I talked about how from my perspective I want to try and sabotage myself as much as I can so that I essentially "perfect" myself in the sense that no longer any more physical circumstances can cause me to feel different than how I want to feel. I would be completely unstoppable.
+
+if this whole setup is to allow the sun a considerable amount of time to power up, then the goal is to keep all good-feeling people away from manifestaions and held in bad-feeling physical conditions, while the bad-feeling people can have manifestations that produce good-feeling conditions. therefore, if I were a good-feeling person and I had a good-feeling manifestation, that could set the sun off, and that would defeat the purpse of the buildup. therefore, if I were to be "perfected" then, even though I may be desirable, I wouldn't really show up again until the sun is ready to go.
+
+there was further speculation on this as well, considering that the dystopia that I envisioned is a bunch of guys that turn good-feeling into technology and things designed to compensate for women/girls lack of desire to change how they conceptualise something. I then described likely a similar product that the noseboys have already built for them. I was describing the noseboys, not myself. obviously, it's a mutual-back-scratching situation, as the noseboys probably need physical conditions to feel good.
+
+well, the noseboys, if they're using my genetics, they would only be producing other x3 boys. it's pretty likely that eventually, there will be so few x2 girls left on the planet...
+
+I can't really describe the reaction very well, but it seems that the noseboys know there is a definite relationship between girls and their sexual activity to solar activity. there must also be a correlation between the emotional quality of the activity as well. like probably it takes thousands of prostitutes' lifeless sex to equal one really good interaction -- like if two good-feeling people were to have sex.
+
+so, assuming some version of that is true[^1], then it's no problem if the noseboys want to continue to feel bad, and use girls as their method of producing good-feeling to continue to create their technology. this is likely the replacement for me. I won't be here forever, so they need a way to replace the good-feeling that I create, and if they can get that from girls in a mutual-back-scratching way, good for them.
+
+so, the idea here is that by being "perfected", in the alchemical 
+sense, I'm essentially saying that I can't show up again until the sun is ready to go. when that happens, there will be few girls left and they'll almost all certainly be controlled/maintained by the joint leadership of the women and the noseboys.
+
+in short, that means I don't get a manifestation for a long long long time... or, maybe that gets sabotaged[^3] too -- dunno. I don't think it matters that much, because I'm learning it's not so much the physical conditions, but how I feel about them...
+
+[1]: it has to be, because I know that at least here on earth, two good-feeling people having sex has a dramatic impact on the conditions of the air[^2] and if it's having that effect on the earth, by proxy, it's also affecting the sun as well.
+
+[2]: it was wierd, because even in my bad-feeling state, I noticed that every time that raquel and I had good sex, right after, there were a whole bunch of planes painting cloud-lines in tbe sky.
+
+[3]: at the end of the next cycle, and I show up, I was originally thinking that the sabotage would probably be an epic fail of some sort.. like, there are only a few girls remaining on earth and I'm supposed to have sex with them but because the noseboys are controlling everything, they cause me to have a terrible performance -- or I have a terrible performance without their help... either way, no big explosion... just a big letdown.... today though, I thought maybe instead, that another alternative sabotage would be to create x4 girls. that's pretty far into the future though, so I wanted to just put the idea out there.
+
 ### a bit more on "perfection"
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
