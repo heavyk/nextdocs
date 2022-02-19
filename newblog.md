@@ -9201,19 +9201,29 @@ that's all for now... I'll keep thinking...
 
 one thing that I thought about on the walk to starucks is how the ideas I wrote about last night in @[dtp/thoughts](the-father) combine with the ideas of @[newblog](2022-01-29 01:25). they don't feel in conflict to me but I can see how they could be perceived to be.
 
-when I think about the leapfrogging through the timeline sabotaging all the way to increase the velocity of the trajectory toward the great attractor, I have to think about how I would do it. if I tried to install a system where the population is to worship a sphagetti monster, it just wouldn't work. after all, we would be infmuencing the timeline by putting thoughts in people's heads, so they have to be at least beievable. if they didn't resonate with the person, they wouldn't get the message -- so it has to haveslme resonant aspect to it. it has to be "wicked", that is, slightly twisted. or, it has to exploit some aspect ot the nature of a person. in this sense, money is an easy way to exploit a person. everyone has a price, so you just keep finding a way to influnce a person to do something unproductive.
+when I think about the leapfrogging through the timeline sabotaging all the way to increase the velocity of the trajectory toward the great attractor, I have to think about how I would do it. if I tried to install a system where the population is to worship a spaghetti monster, it just wouldn't work. after all, we would be influencing the timeline by putting thoughts in people's heads, so they have to be at least beievable. if they didn't resonate with the person, they wouldn't get the message -- so it has to have some resonant aspect to it for it to work.
 
-this is why I consider it like "fuzzing" for human behavior: it only works, if there a weakness that can be exploited. I suppose that's another way to look at "working out your karma" or "being perfected" -- the idea is that you're perfected when there's no more ways to exploit you to tank the timeline.
+it has to be "wicked" -- slightly twisted, in that it has to contain just enough truth to resonate with the person, however at the same time obfuscate what is really happening.
+
+or, it has to exploit some aspect ot the nature of a person. in this sense, money is an easy way to exploit a person. everyone has a price, so you just keep a person held under some influnce to continue something unproductive because they *need* money.
+
+---
+
+this is why I consider it like "fuzzing" for human behavior: it only works, if there a weakness that can be exploited. I suppose that's another way to look at "working out your karma" or "being perfected" -- the idea is that when you're "perfected" you can no longer have any vulnerabilities that can be exploited to tank the timeline.
 
 hey writing these at starbucks is kind of fun :)
 
 ---
 
-ok, now that we need to exploit exploitable people and it needs to be something wicked, then it's pretty easy to see how all you have to w=do is to just take something real and then complicate it and give it weird names, and exploit people's desire for recognition and influence -- sorta like mainstream science. it's really not all that different. the more complicated and more it obfuscates what's really happening, the more you can tank the timeline. that's the goal.
+ok, now that know we need to exploit exploitable people with slightly twisted versions of what's really happening, then all that needs to be done is take key aspects of the backbone of a society like science, religions, psychology, government, etc. and then complicate the stuff that works, give it weird names so a select few can understand it, and only allow the power-hungry to have positions of influence. their desire for recognition and influence mean that they will do anything to keep the position, no matter how bad their ideas are.. anything that is simple needs to become overly complicated and introduce multiple layers of overhead. the more complicated everything is, the more it obfuscates what's really happening so it's difficult for any one person to see what's really happening. that's the goal.
 
-so, if I were trying to create the most velocity, the more creative I would get finding new ways to put plausible but bad ideas into my own and other's heads. you see, the most easy to influence is yourself, so I'm certain that the all of it is me exploiting my own weaknesses and creating new characters to alter the events in my own life. that's why I call it self-sabotage.
+so, if I were trying to create the most velocity, I would have to get pretty creative in new ways to put bad but plausible ideas into my own and other people's heads. you see, the most easy to influence is yourself. most people know their own weaknesses, so it's pretty easy to exploit theirselves.
 
-do to the reflective nature of things, all things that I think I'm doing to someone else, I'm really doing them to myself. I've been trying to think of a good way to explain this concept clearly. coming soon...
+it's a funny thing to me how vulnerable so many sales people are to good sales pitches. it appears to me that they're using ways they know they could be exploited to buy a product to exploit other people.
+
+well, likewise I'm fairly certain that almost all of this (if not all) is just me (or a group of us) exploiting my (our) own weaknesses and creating new characters/golems to alter the trajectory/thrust in my own life. that's why I call it self-sabotage.
+
+do to the reflective nature of things, all things that I think I'm doing to someone else, I'm really doing them to myself. to take the example of the salesperson trying to exploit their own weaknesses in others, by doing that, they are attracting more of that into their life. it's very likely there will be others that try the same sales techniques on them, and hopfully they will recognise them and not fall for their own exploits. by recognising them, they attract them further until avoiding their own exploit enough creates enough attraction that finally someone is able to figure out how to exploit them with their own sales technique.
 
 ### 2022-02-18 01:16 - my thoughts from starbucks yesterday
 
