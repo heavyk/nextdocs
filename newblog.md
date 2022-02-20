@@ -9370,11 +9370,17 @@ personally, I *love* that feeling. my case is the opposite: if I get a little bi
 
 so, if instead of that, I could feel like I'm constantly on the verge of feeling the manifestation of something rather than actually feeling it, that would be really nice.
 
-I really enjoy getting close to feeling the manifestation but not actually feeling it. by nature, I'm too good at manifesting so I would rather just string myself on for as long as possible instead of having to deal with the reality of whatever that is.
+I really enjoy getting close to feeling the manifestation but not actually feeling it. by nature, I don't want to deal with the reality of whatever that feeling is, so instead of dealing with the physical manifestation (and all of the downsides it causes), I'd rather just string myself on for as long as possible feeling the feeling rather than having the manifestation.
 
-once I have a much more diverse set of things that I can feel/be, then I feel more comfortable with reality, because I'm flexible. I can be anything I want to be. I don't ever have to commit to anything. if I don't like something, I just switch how I feel and my reality changes.
+once I have a much more diverse set of things that I can feel/be, then I feel more comfortable with reality, because I'm more flexible. I can be anything I want to be, so I don't ever have to commit to any single reality manifestation. if I don't like my reality, I just change how I feel and my reality changes.
+
+for me, because emotion is so vivid, feeling my reality is more preferred than actually experiencing it. I like *feeling* the girls -- I don't however want to try and figure out how to actually do all of that physical action. this is why I've been going on about how I prefer to just let the automatons do the action, allowing me to just kind of "feel" that experience from an outside perspective. now,whether that automaton doing the action is "me" from a 5d perspective[^2], or temporal "me"s from a 6d perspective or multiple temporal me's from 7d -- doesn't matter.
+
+I think I prefer the feeling (memory) of the experience more than the actual experience. if I could perpetually feel like I'm remembering my experience, that would be great (kinda like permanent deja vu).
 
 [1]: I'm like 99.999% sure this is how jesus was able to "heal" so many people. he just saw the parts he wanted to see, and they appeared to him as perfect.
+
+[2]: you are not your body. in 5d, the automaton that you would believe is "nou" is just a refluction of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, happy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
 
 ### 2022-02-19 19:12 - perfection vs satisfaction
 
