@@ -9374,11 +9374,45 @@ I really enjoy getting close to feeling the manifestation but not actually feeli
 
 once I have a much more diverse set of things that I can feel/be, then I feel more comfortable with reality, because I'm flexible. I can be anything I want to be. I don't ever have to commit to anything. if I don't like something, I just switch how I feel and my reality changes.
 
-
 [1]: I'm like 99.999% sure this is how jesus was able to "heal" so many people. he just saw the parts he wanted to see, and they appeared to him as perfect.
 
+### 2022-02-19 19:12 - perfection vs satisfaction
 
+I realise I introduced some confusion into the previous entry without meaning to. I started equating perfection with satifaction by saying that "it's perfect" and "it's satisfactory" are nearly the same.
 
+I then went on to describe how satifsaction is nice because it's like a physical sensation, to which I then introduced the idea of satisfaction as being complete or perfect in the example of being full. all of the burgers from $1 up to $1bn have the potential to satifsy me equally, and their satifaction depends more on me than the quality of burger. if I double the price and purchase a higher quality burger, then I don't get more satifaction. all price range of burgers (health nuts -- just go with it) meet the minimum requirements for making feel full or satisfied. the quality of the burger does not force me to feel more or less satisfaction (full).
+
+so, then, what I did is tried to explain this by saying that if I am already satisfied (full), then I don't need/want the burger to make me feel satisfaction, because I AM already satisfied.
+
+I think that gave the impression that I was saying that by accomplishing the feeling of being full, I no longer ever want to eat a burger... metaphors and examples fall apart often times for simple things like this...
+
+in a world of attraction, you attract the reality around you that feels like you do, so if you were able to feel satisfied, you would notice a lot of people around you that display a lot more satisfaction than dissatisfaction, because they resonate with you there. if you're a dissatisfied person, do you know how annoying a satifsied person is? if you're an imperfect person, do you know how annoying a perfect person is? see what I mean?
+
+so, actually, quite the opposite. I am certain that my desire to continue on the way I'm going is part of this "dividing of the way". they have their way of doing things and I have my way of doing things. when I become the embodiment of everything that one would normally use girl and sex to feel like, my entire world will reflect that. I'm not saying like just a little bit, I mean like -- the change will be so significant that I'm fairly certain that most people will not join me. they'll be too busy stuck in their reality of not feeling like that and needing things outside of them to feel that way.
+
+I associate this form of perception with 5d, and seeing everything as perfect or satisfying -- so basically, when "I get connected"
+
+as you can see, what I'm saying is that when they (we/I) can no longer exploit my vulnerabilities to keep me interested in the physical manifestations/conditions rather than how I feel/conceptualise my world, then it will be impossible for them to keep me held in 3d perception. when this happens, I'm fairly certain is when the split happens. in my perspective, my reality will only include those that resonate with my perception.
+
+I find it hard to believe we'll continue to share a reality at that point. if I were to go up right now, we probably would share the same reality and it would be very uncomfortable for a lot of people that want/need certain things to feel the way I feel.
+
+as an example: imagine the way I feel dominates the planet. if you don't resonate with how that feels, it'll feel pretty uncomfortable. so, if you need coke to feel that good. well, you're only comfortable for as long as you have coke.
+
+that's obviously completely unsustatinable. so many people would feel very poorly, most notably the ones running the show. so, they have me held artificially to a lower setting. I *should* be seeing 5d right now, but I'm not. it's performing a similar thing to what I believe jesus did when he conquered "death" -- he essentially expanded the distance between how far you can go into the abstract zone (higher frequency) before body loses its capability to make sense of things, you lose sense of reality and lose sense of physical reality and "die".
+
+the same thing is happening now. they're holding me back from experiencing 5d right now and because of that it's considerably expanding the distance one can go into the abstract realm and still remain coherent. normally, if you were to go as far as I am now, a normal person would "die" because it's too abstract. the brain can't make sense of so much extra information, it gets around them with hyperbolic geometry and other psychedellic effects. well, since I can make sense of those higher frequencies, that capacity is being encoded into my genetics (just like the jesus bloodline).
+
+through mixing, that form of perception will eventually become the standard form of perception for people on this planet. nosebook, will treat everyone like they treat me, no doubt, and ensure that they are limited to a 3d reality no matter how good they feel. if you want to get out of the trap, you have to find a way to feel the way you want to feel no matter the circumstance -- or wait until the attraction is so strong that you manifest the reality anyway, and live out the "consequences" (there aren't any... just attraction), of the way you *really* conceptualise reality.
+
+you're only fighting yourself.
+
+---
+
+I didn't mean to give the impression that I would not ever be around girls or sex if I became that. quite the opposite; all aspects of my reality would reflect and inspire me to feel that *more* rather than less. now, how that plays out in manifested reality, it's hard to say exactly. how would you describe a 5d reality where all your thoughts create feelings which are visceral and vivid and create colours, patterns, or whatever you want? something like that. if you have fear or anxiety, that reality could be kind of uncomfortable, I'm certain -- like, every thought would feel like falling endlessly into a perilous dark hole.
+
+so, figure out how you want to feel and feel that way. we'll get there.
+
+when I say, "perfect" -- I don't mean *you* need to be perfect to perceive it -- I mean, it's a perfect manifestation of how you perceive that vibration (perfect interpretation of that vibration). the environment itself will obviously continue to have the contrast between both unwanted and wanted. it's not like any of us are perfect -- and even after feeling good all the time, trust me, it's so satifying at times to just get into a heated discussion to feel some negative emotion again and watch bad things happen. it's good fun :)
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
