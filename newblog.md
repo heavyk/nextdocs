@@ -384,7 +384,7 @@ my intuition tells me that the skinwalker may also be a golem and is designed to
 
 I believe that on a bigger picture, there are quite a few people that want to become masters of perception, capable of transforming any bad-feeling into a good one by figuring out a new way to perceive the same concept from another angle which reveals desirable motion. so, this situation is attracted and quite desirable.
 
-I believe everyone wants to perceive, feel, and manifest whatever they desire. 
+I believe everyone wants to perceive, feel, and manifest whatever they desire.
 
 however, there are those that also wish to continue to rely on conditions because they still do not think they know what they want. they believe this because they're gaining a tolerance to the conditions that make them feel good. they still haven't come to the realisation that they're not looking for a thing to produce a feeling, but a form of perception to produce that feeling.
 
@@ -963,7 +963,7 @@ consider this to be the frame for the rest of this discussion.
 
 @[youtube](https://youtu.be/KznZcK7ksf4?t=974)
 
-on the subject of superman vs rocky, to me, it feels like they're trying to move away from the superman christ-like narrative and move instead toward a rocky-like narrative for heracles, who was born with godlike powers -- just he needs to train to be able to use them. 
+on the subject of superman vs rocky, to me, it feels like they're trying to move away from the superman christ-like narrative and move instead toward a rocky-like narrative for heracles, who was born with godlike powers -- just he needs to train to be able to use them.
 
 so, while I do identify a bit with heracles in this, I consider heracles to be the x3 models -- making my character hera :)
 
@@ -1677,7 +1677,7 @@ obviously, at any time one can change what frequency they're tuned into, but the
 
 ---
 
-from my perspective, that feeling is benficial, because it creates a strong desire to create more and more technology, and I like creating things. if someone wants to rely on technology to create the conditions that they want, I can channel that desire into reality. 
+from my perspective, that feeling is benficial, because it creates a strong desire to create more and more technology, and I like creating things. if someone wants to rely on technology to create the conditions that they want, I can channel that desire into reality.
 
 there are other people that believe that people who desire to to control can control them, and again I have the same perspective. more excuses (desire manifest as fear) for me to make technology for them to be controlled by.
 
@@ -2253,7 +2253,7 @@ when g2e decreases, pp increases
 when pe decreases, g1p increases
 when g1e decreases, g2p decreases
 
-something like that. it's pretty difficult to try and relate these in maths identiteies, but the idea is that they balance each other out. 
+something like that. it's pretty difficult to try and relate these in maths identiteies, but the idea is that they balance each other out.
 
 so like imagine I'm a person living on the planet and I'm not in either of those groups. I want better conditons, so that means I desire for g2e to decrease. if I am desiring for someone else to have more disharmonious vibrations, then that means I too am tuned into that so that means that I'll begin to have an effect on the planet. the stronger one's perception, the more effect they have on the planet. therefore, because pe is decreasing, g1p will increase. if g1e decreases as a result, then g2p will increase.
 
@@ -2342,7 +2342,7 @@ interestingly, I think this was about the time that the great pyramid broke. tha
 
 I roughly put the zodiac axis as going between the galactic centre and taurus (aldebaron?). the left side of the zodiac I consider to be the masculine side. I also notice that the upper half has seems to be different as well. for example, though the left is masculine, there is a difference between the upper half and the lower half. in the upper half, there is where you have the stories of the amazonas. consider the upper half to be something more of a matriarchy and the lower to be more of a patriarchy.
 
-during the time these temples were being carved, there was a lot of goddess worship and "divine feminine" energy present. I find it likely that the majority of the carvings (if not all) were done by girls. they must be doing most of the carvings with their mental energy (maybe channeled through a copper instrument) and so then if that's the case, these carvings would be a sort of insight into their outlook. 
+during the time these temples were being carved, there was a lot of goddess worship and "divine feminine" energy present. I find it likely that the majority of the carvings (if not all) were done by girls. they must be doing most of the carvings with their mental energy (maybe channeled through a copper instrument) and so then if that's the case, these carvings would be a sort of insight into their outlook.
 
 they seem to have a whole different perspective on things, in that it appears that there is an iterative process that they're taking to decorating these temples. it seems also that they're quite scattered, leaving a part doing another idea they have, then coming back to it later. it definitely looks like they're going around just working on whatever "tickles their fancy" -- not too dissimilar to the way I do things[^2]. it's this idea of only working on the things that interest you and that you want to do. this keeps things interesting and avoids burnout because you're only working on the things that interest you. this is the opposite perspective of having some top-down mandated list of tasks that needs to be accomplished.
 
@@ -2372,7 +2372,7 @@ now, from my perspective this appears to be quite desirable. they have to try an
 
 the sense that I had when waking up was that they wanted to keep me as far away from being able to feel that physical/conceptual feeling. to describe this difference, I'd like to use an example. when I create something I am not at all like tesla, in that I usually don't have the final result idea in my head. most of the time, I have no idea what the final result will look like or any of its implementation aspects. I just have an idea of how it will feel. as I go, I get an idea which leads me to a thing which makes the creation feel more like how I want it to feel. if I get stuck too much on a difficult spot, I start to feel the difficulty which creates more difficulty. I then have to take a break and get back to how the creation feels, not the difficulty feels. when I do that I typically can see where the bug is or know the solution -- and it's because I can feel the created thing.
 
-extend that out a bit further and notice that the stronger I can feel something becoming a reality (without noticing the reality of its present state), then the faster the creation manifests. 
+extend that out a bit further and notice that the stronger I can feel something becoming a reality (without noticing the reality of its present state), then the faster the creation manifests.
 
 going back to the creation of these temples, it appears that there are multiple phases. the first is that the rough or blocky shape is created. this has sharp edges, and then those sharp edges are refined and smoothed out until they are smooth and perfect. I don't know who made the blocky shapes that were then intricately detailed, but personally, I don't see intricate details. I see blocky shapes that have a function, design, meaning, or purpose. later, when the details are added, they give it a unique and specific feel that the artist imbues into it.
 
@@ -2684,7 +2684,7 @@ as I have been paying attention to the zodiac, I have noticed that people have n
 
 it appears to me that each of the four quadrants have four triads in them. two MMF and two MFF. each gender is ruled by the opposite gender. the top left one is MMF. the two boys are aquaman and goat. these represent the two extremes of male tendency. one is "go with the flow" (aquaman) and the other one is "I'm doin it my way" (goat). the reason why I intro'd the last entry with the "american way" is because that very much is the theme of the USA. whether it's colombus and the crypto jews or the breakaway british colonies or tesla's trek to the land of dreams:
 
-> I wish that I could put in words my first impressions of this country. In the Arabian Tales I read how genii transported people into a land of dreams to live thru delightful adventures. My case was just the reverse. The genii had carried me from a world of dreams into one of realities. What I had left was beautiful, artistic and fascinating in every way; what I saw here was machined, rough and unattractive. A burly policeman was twirling his stick which looked to me as big as a log. I approached him politely with the request to direct me. "Six blocks down, then to the left,"he said, with murder in his eyes. "Is this America?" I asked myself in painful surprise. "It is a century behind Europe in civilization." When I went abroad in 1889 - five years having elapsed 
+> I wish that I could put in words my first impressions of this country. In the Arabian Tales I read how genii transported people into a land of dreams to live thru delightful adventures. My case was just the reverse. The genii had carried me from a world of dreams into one of realities. What I had left was beautiful, artistic and fascinating in every way; what I saw here was machined, rough and unattractive. A burly policeman was twirling his stick which looked to me as big as a log. I approached him politely with the request to direct me. "Six blocks down, then to the left,"he said, with murder in his eyes. "Is this America?" I asked myself in painful surprise. "It is a century behind Europe in civilization." When I went abroad in 1889 - five years having elapsed
 since my arrival here - I became convinced that it was more than one hundred years AHEAD of Europe and nothing has happened to this day to change my opinion.
 
 that passage didn't actually capture what I wanted to get across, because I cannot remember the part. however, this very much is the wild west -- the land of cowboys and "make your own rules" style of conduct. in spain it's all about who you know. here, it's not so much who you know (though some people think so), it's much more about making your own rules and then giving others or pretending you follow a different set of rules. hard to describe.
@@ -2879,7 +2879,7 @@ same.
 
 > There's a feeling I get when I look to the west
 > And my spirit is crying for leaving
-> In my thoughts I have seen rings of smoke through the trees 
+> In my thoughts I have seen rings of smoke through the trees
 > And the voices of those who stand looking
 
 just yesterday I was considering the idea of "westing" -- which is death.
@@ -3031,7 +3031,7 @@ I haven't written in a bit. I've been playing a game called mercenaries. I also 
 
 #### mercenaries-like split thinking
 
-as I've been playing mercs, I've noticed that it requires a certain type of thinking. I'm pretty good at that style of thinking but I find the interface to be clunky because I can't remember all of the speeds of each of the skills. also I think that speed should be a range because sometimes I want one effect after another, and sometimes before. it creates more unpredictability too becasuse I don't know when exactly my opponent will cast it[^1]. the game mode is really fun because it provides a structured way for me to begin to think a whole lot of moves into the future (rather than who knows what cards the opponenent has generated). 
+as I've been playing mercs, I've noticed that it requires a certain type of thinking. I'm pretty good at that style of thinking but I find the interface to be clunky because I can't remember all of the speeds of each of the skills. also I think that speed should be a range because sometimes I want one effect after another, and sometimes before. it creates more unpredictability too becasuse I don't know when exactly my opponent will cast it[^1]. the game mode is really fun because it provides a structured way for me to begin to think a whole lot of moves into the future (rather than who knows what cards the opponenent has generated).
 
 besides that, I also noticed that the game forces me to sacrifice individual mercs in order to win the game. it really creates this way to think where I build this kind of tree in my head of what different things can happen and then try to make the appropriate sacrifices in anticipation of my opponents moves, while at the same time doing as much damage to the biggest threats.
 
@@ -4311,7 +4311,7 @@ the sumerian culture sprung into existence in taurus. this crowning of the next 
 
 it is my belief that the aten thing is a real thing and that moses did discover what we now call "source" -- the thing that permiates everything, and is primarily what the sun is composed of. if you're a scientist this would be protons the earth/enki energy, while the air/enlil energy is electrons.
 
-however, as bramley points out, this maverick religion quickly gets commandoed by a 
+however, as bramley points out, this maverick religion quickly gets commandoed by a
 "shining one" called YHVH. I doubt that the moses of aten and the moses of YHVH are the same one. the custodians (which I think are none other than the aryans that moved to the south pole) rewrote[^4] the original tablets to give a whole new meaning, meanwhile encoding a number of other hidden meanings -- a very shakesperian sort of effort.
 
 the rewriters of the original 5 books of the torah were good at storytelling formula, and borrowed a number of akkadian stories, which were theirselves adapted from sumeria (garden of eden, flood, etc.).
@@ -4394,7 +4394,7 @@ instead, it's decided that anyone who wants to play on that piano has to find mu
 
 this dramatically reduces the number of players and types of music that can be played on the piano, so it is finally decided that a complicated system of resonating chambers will be installed around the piano designed to capture the sounds of the piano and transform them properly before being reaching the audience's ears.
 
-as more and more notes go out of tune, the system is rapidly becoming more and more complex transforming more and more of the sound. eventually, the system will be producing 100% of the sound and the out of tune piano is no longer needed. 
+as more and more notes go out of tune, the system is rapidly becoming more and more complex transforming more and more of the sound. eventually, the system will be producing 100% of the sound and the out of tune piano is no longer needed.
 
 #### toe fungas and a parasite
 
@@ -4656,7 +4656,7 @@ in contrary, based on my experience, it seems to me that girls conceptualise the
 
 so, now I need to define what I mean by logic and concept. logic is the path, and concept are all then entities in the world. logic is the meaning derived from the objects' interaction, while concept is the idea of what their ideal form is.
 
-the things can go both directions. if you have a person that perceives great importance (concept) in wealth and power (logic), then you can also have a person with that same logic that perceives very little importance (concept) in the wealth and power (logic). 
+the things can go both directions. if you have a person that perceives great importance (concept) in wealth and power (logic), then you can also have a person with that same logic that perceives very little importance (concept) in the wealth and power (logic).
 
 as an example of this, I seem to understand human psychology pretty well and I suppose if I wanted to try and manipulate people, I would be pretty good at it. I see its value in understanding how it works, not so that I can manipulate other people, but so that I can manipulate myself. to me it seems very inefficient to expend so much effort to manipulate other people, when I can just manipulate myself and my own perception. this is because I place a lot of importance on perception because I believe it's the precursor to reality, and literally it alters how you *see* that reality. manipulating people won't improve the way *I* perceive my world -- rather the opposite[^1].
 
@@ -5400,7 +5400,7 @@ I would continue on with reality for as long as necessary. I figured that nosebo
 I then followed up by saying that I don't think that will happen because that's such an undesirable reality for nosebook. instead, I think that they're more interested in hiding in their own version of reality because things will be too plainly obvious if they stay here.
 
 from their own timeline, I figured that they would begin to try and infiltrate our timelines. they'd start with all of the rapture branches, and then finally work their way up to mine. each time, they would get better and better at infiltrating the timeline and getting people to believe in disempowering ideas until they gain control over the power structures of those timelines. each timeline would have its own difficulty because some places would control many stars and planets while others would continue here on earth.
- 
+
 I had the impression that when they finally got to me, they would have to figure out how to take over a pretty large place because I want to utilise all the ideas I talked about to create my own stars and planets. they'd have a lot to try and take over.
 
 each time they took over, they would create another split just like this one. each iteration, I imagined that there would often be someone would end up creating an incompatible reality and so the process would continue.
@@ -5421,7 +5421,7 @@ it's simple. I will be waiting until I find my connection before I do anything. 
 
 it basically comes down to: I'm doing me and you're doing whatever you can to hang on. figure it out. I have my method to do things
 
-so, in the end this all appears as very clear evidence to me that these guys are having trouble hanging on and are trying to get another bailout. everything appears to be going as planned. 
+so, in the end this all appears as very clear evidence to me that these guys are having trouble hanging on and are trying to get another bailout. everything appears to be going as planned.
 
 ---
 
@@ -6110,7 +6110,7 @@ now, in the past, when "God" said that humans will no longer live for as long as
 
 if this was a change in the x-chromosome, then I started to wonder if the two chromosomes: xy and xx are acting as sort of the alpha/omega of these cycles. for example when you look at boys, they start out with very little difference to girls, but as they get older they start to enter puberty. if I imagine two moons opposite from each other. one is full and the other is empty. for boys, the x-chromosome must be in full when the boy is born, but it begins to wane.
 
-I tried to calculate it but I don't understand why I can't figure out how to use a calculator. anyway, the way it appears to me in my head 
+I tried to calculate it but I don't understand why I can't figure out how to use a calculator. anyway, the way it appears to me in my head
 
 [edit: incomplete. I got frustrated and gave up on writing this...]
 
@@ -6749,7 +6749,7 @@ I responded by saying that there is nothing that can be done. we live in a world
 I gave the example, "if you want other people to like you, you have to find a way to like yourself." and, "if you want other people to value you, you have to find a way to value yourself." you are the product that you are selling. think of it like being a sales person for yourself. you're trying to sell a product (yourself) to people as something smart, however you don't beleive the product (yourself) is smart. it's hard to sell a product you don't even pretend to believe in. only the more self-aware can detect when the salesperson is pretending to like the product (or theirself).
 
 that's good for now...
- 
+
 [1]: now that I think about it, during those rogebook games I didn't feel normal. I think if I had've been able to feel normal, I would have done much better.
 
 ### 2022-01-10 10:20 - not feeling better than normal
@@ -7007,7 +7007,7 @@ I don't believe in doing things the right way... you know, I think it's for the 
 
 ### 2022-01-11 21:25 - the biggest and strongest always win
 
-my goodness bramley gets me thinking about a lot of good stuff. at the end of chapter 15 he's talking about how violence brings about change: 
+my goodness bramley gets me thinking about a lot of good stuff. at the end of chapter 15 he's talking about how violence brings about change:
 
 ```
 The victorious use of violent force depends upon skills that have nothing to do with whether or not one's cause is a just one. The man who can draw his six-shooter the fastest is not necessarily the man with the best ideals.
@@ -7174,7 +7174,7 @@ in "gods of eden" bramley is commenting on an admittance in the book of mormon:
 ```
 The forced amnesia described in Mormon had several purported purposes, one of which was:
 
-> ... to ensure that our choice of good or evil would reflect our earthly desires and will, rather than the remembered influence of our All-Good Heavenly Father. 
+> ... to ensure that our choice of good or evil would reflect our earthly desires and will, rather than the remembered influence of our All-Good Heavenly Father.
 
 This is also an astonishing admission. It alleges that spiritual memory is dimmed so that people will base their actions on their concerns as material beings rather than upon their knowledge and remembrance of spiritual existence.
 ```
@@ -7190,7 +7190,7 @@ imagine being able to play your favourite game and every time it feels like the 
 he continues...
 
 ```
-This can only hamper the ability of individuals to attain a high level of ethics because true ethics must ultimately take into account a person's spiritual nature when confronted with an ethical dilemma. By reducing all questions of ethics to strictly earthly concerns, people are prevented from fully resolving those ethical questions that will start them on the road to full spiritual recovery. This restriction is precisely what the Custodians wanted, as revealed in the Old Testament: "God" did not want Adam and Eve to "eat" from the "tree of knowledge of good and evil" because it would lead to knowledge of how to regain spiritual immortality. 
+This can only hamper the ability of individuals to attain a high level of ethics because true ethics must ultimately take into account a person's spiritual nature when confronted with an ethical dilemma. By reducing all questions of ethics to strictly earthly concerns, people are prevented from fully resolving those ethical questions that will start them on the road to full spiritual recovery. This restriction is precisely what the Custodians wanted, as revealed in the Old Testament: "God" did not want Adam and Eve to "eat" from the "tree of knowledge of good and evil" because it would lead to knowledge of how to regain spiritual immortality.
 ```
 
 I've come to think of the trees of the garden of eden to be parts of the brain, where each hemisphere represents a different aspect or personality of yourself.
@@ -7223,7 +7223,7 @@ I don't know what to say about this, other than I'm definitely a pure communist,
 
 ```
 Hegel's idea of the "dialectic" can be explained this way: from a thesis (an idea or concept) and an antithesis (a contradictory opposite) one can derive a synthesis (a new idea or concept which is different than the first two, but is a product of them).
-Marx took this seemingly scientific idea and incorporated it into his theory of social history. 
+Marx took this seemingly scientific idea and incorporated it into his theory of social history.
 ```
 
 this is exactly how I do most of the transformations in my head. I don't limit myself to thesis/antithesis pairs though to make a synthesis. all concepts can be combined to produce a synthesis. this is precisely how constructive/destructive interference works in light and wave vibrations. nothing new here.
@@ -7267,7 +7267,7 @@ the second one is a conceptually true thing. ownership is a conceptual reality. 
 
 I don't know how to describe this so well. you "own" the things that are similar to you -- and what "you" is, is a concept. you are a concept of yourself. if you see yourself from the eyes of the planet, "you" are the planet, and you "own" everything on in/on it. you don't really own it. it's just vibrationally similar to you. if you put something into your body which is not vibrationally compatible with it, it tries to get rid of it. it says, this isn't me and tries to minimise its effects and return back to its "natural" state. so, in that sense, you don't "own" anything except the concept of who "you" are.
 
-the third one is similar cept I don't like the word "own" here in the positive sens. in that everything works together and vibrates with one another, no one really owns anything. you own the things you can chang. you cannot change the way an atom works. you can change how they are relating to each other, and so therefore can say, "I made this". these arrangements of energy are concepts, and you do own your concept of them. your concept of them is your consciousness and the way you arrange these concepts either works or it doesn't. if you could conceptualise the entire way that a planet works, your imagination would have a working version of that planet's physics as a part of "you". 
+the third one is similar cept I don't like the word "own" here in the positive sens. in that everything works together and vibrates with one another, no one really owns anything. you own the things you can chang. you cannot change the way an atom works. you can change how they are relating to each other, and so therefore can say, "I made this". these arrangements of energy are concepts, and you do own your concept of them. your concept of them is your consciousness and the way you arrange these concepts either works or it doesn't. if you could conceptualise the entire way that a planet works, your imagination would have a working version of that planet's physics as a part of "you".
 
 just like a single musical instrument doesn't own the orchestra or the music it's playing, you really only relate and interact with things. ownership as a whole does not exist either.
 
@@ -7289,7 +7289,7 @@ but yeah, synethesis :)
 
   each time that a direction change happens, is the "signature" of the wave. let's consider it the rhythm of the vibration. that rhythm is what the mind does pattern recognition on to tell you that it is that person's voice. each voice will have a slightly different signature to it in to how much time passes between each reversal.
 
-  unfortunately that got a bit too technical there. I need to find an easier way to explain that concept. 
+  unfortunately that got a bit too technical there. I need to find an easier way to explain that concept.
 
 [2]: changes in direction that happen at the same time can be summed together. this is why I think of them as vectors summing their velocities. the environment determines what happens to these velocities, like how much the amplitude is reduced (resistance, etc).
 
@@ -7403,7 +7403,7 @@ another thing for me to think about is how does this work in LOA rules. my initi
 
 this concept is truly a magnificent one. like I said I'm pretty  certain that I'm going to be utilising this same concept of custodians in the next planet that I move to. I'll be the engineer for the new species, create the unwanted concepts, and then incarnate into the new species along with the unwanted concepts.
 
-[1]: dad would tell me various different stories about failed attempts to discover the nature of the spirit realm, only to get caught up into various "occult" practises and other things that he discontinued. the sense that I had is that he felt those searches were misguided. they felt to me like the used advantage/disadvantage positions (like initiations) to achieve higher levels at someone / something else's expense. his explanations of his time in the occult felt like power and addiction to me. any time he saw me relying too much on any single thing like compters or something, he wanted me to do something to balance it (like gymnastics, reading, or working on something). 
+[1]: dad would tell me various different stories about failed attempts to discover the nature of the spirit realm, only to get caught up into various "occult" practises and other things that he discontinued. the sense that I had is that he felt those searches were misguided. they felt to me like the used advantage/disadvantage positions (like initiations) to achieve higher levels at someone / something else's expense. his explanations of his time in the occult felt like power and addiction to me. any time he saw me relying too much on any single thing like compters or something, he wanted me to do something to balance it (like gymnastics, reading, or working on something).
 
 ### 2022-01-18 11:06 - conclusion to galactic thinking
 
@@ -7588,7 +7588,7 @@ this is the same concept, just a different subject. thinking that pirating softw
 
 that's all really fine for them. I don't see anything wrong with anyone at whatever stage they are in their evoution-of-desire.
 
-when you look at my life right now, I don't have any needs or wants -- really. the only "want" I have right now is the one I wrote above: 
+when you look at my life right now, I don't have any needs or wants -- really. the only "want" I have right now is the one I wrote above:
 
 > I want to create. badly.
 
@@ -7750,7 +7750,7 @@ if they decide that they need to keep that operation a secret, then it's no prob
 
 when I was thinking about the noseboys producing the children, I had a strange reaction. I was reminded of an abe-now dialoge a long time ago where the writer is asking what the difference between love and infatuation is -- because after spending time with a girl, he "wasn't able to have clear thoughts". abraham explained that his "clear thoughts" were actually quite resistant thoughts and the reason why he wasn't able to think them is because the vibration of well-being and allowance was so dominant. his normal resistant thoughts were incompatible with his vibration after his time with her.
 
-being reminded of that, it gave me the sense that the noseboys had discontinued direct interactions with girls, so as to not lose their ability to think "clear thoughts". 
+being reminded of that, it gave me the sense that the noseboys had discontinued direct interactions with girls, so as to not lose their ability to think "clear thoughts".
 
 the impression it gave, is that they don't want to operate my body while it's interacting with a girl, and that they've been outsourcing that task to certain "authorised" (that is likely they already have expanded perception) people. the amount of people that use my perception and that will want to operate these bodies is probably not sufficient enough to satify the demand.
 
@@ -8194,7 +8194,7 @@ wow, long intro... I said all of that so that I could conclude on the previous s
 
 the next 1000y of "peace" doesn't need violence to ensure no significant improvement to the human condition happens. the war isn't over physical real estate anymore. wars are now fought in the mind for mental real estate.
 
-to really get that hockey stick to pop, you gotta flatten the timeline quite a bit; hopefully 1000y will do the trick. or, perhaps that's an echo of a future to come and I'm just planting seeds for it... 
+to really get that hockey stick to pop, you gotta flatten the timeline quite a bit; hopefully 1000y will do the trick. or, perhaps that's an echo of a future to come and I'm just planting seeds for it...
 
 so, what would a cucumber the size of a watermellon (in a glass jar) be called?
 
@@ -8371,7 +8371,7 @@ the many reactions tell me that I didn't explain myself well enough, so let's re
   - if I had of been conscious at the time when I flew, I likely would have insisted that they allow me the condition/manifestation
   - that would have been a regression on the progress I had made realising that andrea (or anything else) is the reason for how I feel.
   - I'm not necessarily looking for andrea or the flying
-  
+
 therefore, I'm looking for that feeling of freedom experienced from being able to feel the way I want to feel (which enables flight)
 
 - the way I (and those around me) feel constructs my world-view
@@ -8743,9 +8743,9 @@ I woke up with concern about the dream I wrote about in @[newblog](2022-02-07 15
 
 I may have picked up some of that feeling from jerrica the day previous when she was here or maybe the call from corina. the feeling was present in my daily life so it's not that out of place for it to be in a dream.
 
-anyway, I don't know if it was sexually or what but I was sujected to these women trying to introduce-their-feeling to me somehow. however, like I said, it's not hard for me to remain aloof (pay attention to how I interact with jerrica) and for me it's kind of funny to essentially pit these women against each other in competitions of who's conditions merit the most sympathy -- when in reality they are conceptually the same[^1]. in my perspective, they are arguing over who feels worse: 
+anyway, I don't know if it was sexually or what but I was sujected to these women trying to introduce-their-feeling to me somehow. however, like I said, it's not hard for me to remain aloof (pay attention to how I interact with jerrica) and for me it's kind of funny to essentially pit these women against each other in competitions of who's conditions merit the most sympathy -- when in reality they are conceptually the same[^1]. in my perspective, they are arguing over who feels worse:
 
-"I feel awful about something and attracted this" 
+"I feel awful about something and attracted this"
 
 "oh yeah well, I feel even worse than you did and so I attracted this other thing which made me feel even worse than you felt... I win!"
 
@@ -8885,7 +8885,7 @@ what I'm saying, is that if nosebook has this capability now to steer people by 
 
 think about it... ^)
 
-[1]: it takes them many many people and many actions to do what one guy with the power of jehova can do effortlessly. because of their manifestation capability they don't need most infrastructure, farms or crops. 
+[1]: it takes them many many people and many actions to do what one guy with the power of jehova can do effortlessly. because of their manifestation capability they don't need most infrastructure, farms or crops.
 
 ### 2022-02-11 20:02 - no ....
 
@@ -8915,7 +8915,7 @@ the other thing I felt is that somehow my creativity was some sort of threat to 
 
 this didn't really ever happen though. usually, I was met with a feeling that feels exactly like mr. motor getting pissed off whenever I want to program or something[^2] -- hence, the reference to christof in the truman show.
 
-it really is the weirdest thing how any efforts I have to become creative are met with a lot of resistance. I don't really mind, as they may be too big of steps, as I'm going next logical step/state right now. 
+it really is the weirdest thing how any efforts I have to become creative are met with a lot of resistance. I don't really mind, as they may be too big of steps, as I'm going next logical step/state right now.
 
 keep-it-in-the-centre
 
@@ -9311,7 +9311,7 @@ I can't really describe the reaction very well, but it seems that the noseboys k
 
 so, assuming some version of that is true[^1], then it's no problem if the noseboys want to continue to feel bad, and use girls as their method of producing good-feeling to continue to create their technology. this is likely the replacement for me. I won't be here forever, so they need a way to replace the good-feeling that I create, and if they can get that from girls in a mutual-back-scratching way, good for them.
 
-so, the idea here is that by being "perfected", in the alchemical 
+so, the idea here is that by being "perfected", in the alchemical
 sense, I'm essentially saying that I can't show up again until the sun is ready to go. when that happens, there will be few girls left and they'll almost all certainly be controlled/maintained by the joint leadership of the women and the noseboys.
 
 in short, that means I don't get a manifestation for a long long long time... or, maybe that gets sabotaged[^3] too -- dunno. I don't think it matters that much, because I'm learning it's not so much the physical conditions, but how I feel about them...

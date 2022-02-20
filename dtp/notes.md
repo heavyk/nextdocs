@@ -6,12 +6,10 @@ casi-modo
 guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
 
-vscode plugin
-md plugin src
+figure out how to trim trailing whitespace on save
+- add that as a feature to the plugin?
 
 old repo (for reference)
-
-russion media player
 
 pi 1998
 we can be heros
