@@ -9322,7 +9322,64 @@ in short, that means I don't get a manifestation for a long long long time... or
 
 [3]: at the end of the next cycle, and I show up, I was originally thinking that the sabotage would probably be an epic fail of some sort.. like, there are only a few girls remaining on earth and I'm supposed to have sex with them but because the noseboys are controlling everything, they cause me to have a terrible performance -- or I have a terrible performance without their help... either way, no big explosion... just a big letdown.... today though, I thought maybe instead, that another alternative sabotage would be to create x4 girls. that's pretty far into the future though, so I wanted to just put the idea out there.
 
-### a bit more on "perfection"
+### 2022-02-19 17:00 - a bit more on "perfection"
+
+I had a number of reactions to my previous entry. usually, I try to sleep before responding to reactions, but I think mr. motor insists that I do it now... lol.
+
+I was sitting outside and I really was enjoying the sun. it reminded me of how much fun it is to program in the spring/autumn during the day. the sunshine is just so amazing for getting my thoughts together. I will be doing some to get these concepts more organised, but the idea that kind of got me going a bit was the idea of starting my library over again. I don't have any of the old code that I used to have so I'll rewrite all of it. I guess that's pretty cool because I think it'll come out better the second time. not really sure that was a reaction so much as me just enjoying the sun.
+
+the other reaction almost certainly was mr. motor to the previous entry. it went something like, "oh no, he's going to go for the girls. we need to make sure to neutralise that idea before anything happens" -- to which I respond: don't worry. nothing is going to be happening. as usual, I'm totally in it for the long haul. I promise they'll have the maximum amount of time possible before any split or anything happens. there's nothing to worry about. like I said in the last entry, it's of maximum benefit to me to achieve as much "perfection" as possible. I'm pretty certain at this point that I'm exploiting myself and so like I said, I can either patch up the vulnerabilities and go to the next level, or I can keep waiting until the attraction becomes so strong it happens whether I'm ready or not.
+
+since the idea of having a manifestation that I'm not ready for is pretty terrifying to me: I like feeling like I can accomplish what I set out to do; I don't really want to just jump in to something without feeling good about it. therefore, it behooves me to patch up the vulnerabilities rather than just wait for things to go past the point of no return. I really don't mind making changes in myself which are improvements on my perception, so those should all be pretty easy to do.
+
+---
+
+finally, the part where I speculated that if the sun is triggered by sexual interaction, and we're going for the really long haul, then the goal is probably for no manifestation for a really long time.
+
+the reaction was something like, "oh but you'll miss out on all of these girls and stuff" -- something like that...
+
+so, I want to refer back to the evolution-of-desire concept. since desire-resolves-to-emotion, then I can see how some people would want or even need sex or whatever to feel a certain way. that's cool. what I'm looking to do is to give these guys all the time they need to get all of their stuff setup (hence the beginning reassurance that nothing will happen), so that I can accomplish that feeling *without* the physical conditons (girl or sex). instead of needing or wanting girls or sex to feel that way, IAM that feeling incarnate.
+
+my present circumstance is quite literally the best example of what I'm begging to learn that "perfection" is. I don't need or want something to feel a certain way. I AM that already.
+
+---
+
+I personally hate the word "perfection" because it's such a lofty thing to try and accomplish. I'm fairly certain that the reason why it's called perfection is because in 5d, everything looks perfect. everything perfectly resembles my interpretation of that vibration. why, because I'm seeing my own interpretation of it, so it's always perfect. even if I look at someone sick or unhealthy, they would still look "perfect" to me. they perfectly resemble the vibration that they present to me. so then, because wanted-and-unwanted-are-same, the trick then is to see the parts I want to see, and they would all appear to me as perfect[^1].
+
+the reason why abraham uses the word "satisfied" rather than perfect is because it's so much easier to understand. if I give you a list of requirements, and you give me something and I say, "that's perfect" or that "that satisfies the requirements", then it's the same thing. satisfied is a lot easier to understand too because we can associate it with a physical sensation, whereas "perfection" is difficult to describe viscerally.
+
+so, to give a good example of what I'm say, let's say that girls and sex are hamburgers. if I purchase a $1 hamburger, it's quality is very low but if I eat it and I'm really hungry it can satifsy me. for $3, the quality is much much better but the satifisfaction potential is about the same. at $5, the quality is again significantly better than the $1 burger, but it's satisfaction potential is still roughly the same.
+
+in fact, the satisfaction potential has more to do with me than it does with the burger. if I'm already satisfied and someone offers me a $10000 burger, I probably would still save it for later. or, let's say I decide to eat it, unable to pass up such an expensive burger. if, after that, someone brings me a third $1bn burger, I'm completely stuffed, so it's unlikely that I'll want to eat it then.
+
+I suppose that I don't need to feel hunger (dissatisfaction) in order to desire a burger. I could just like burgers and will eat one whether I'm hungry or not, but if I'm completely stuffed (satisfied), I won't likely try to force-feed myself a burger, no matter how expensive or valuable it is.
+
+---
+
+satifaction is like perfection. once you feel it, you don't need more of it because you are it. if I asked someone who's stuffed if they want to feel more stuffed, they would look at me funny.
+
+this really is the difference between being in the physical projecting an astral image/illusion of yourself for others to see vs being the thing, and then letting others perceive/interpret that vibration however they feel is best.
+
+---
+
+so, in response to the reaction, I'd say that I'm not missing out on anything. I AM that. I don't need or want that. I have that always...
+
+as I was thinking about this response earlier, I got a few reactions to it, and the most notable was the idea like, "you're always one step ahead" or "you're always just out of arm's reach" -- something like that, where it feels like I can't ever be "caught". this reminds me I have more to add to the casi-modo concept, as it applies here, but I believe that is the most exciting way to live. lily left me with a description of what it feels like to be a woman, where it always feels like I'm always on the verge of some strong emotion. I suppose that some do get there to manifesting the strong emotion, because I've seen women with strong emotions.
+
+personally, I *love* that feeling. my case is the opposite: if I get a little bit of emotion I AM that emotion. it completely narrows my vision, and closes out the entire rest of the world. if I feel really good or really bad, I'm completely in my own reality. it's like no one else exists for me. there are other people, and I'm bouncing ideas off of them and they're responding, but to me they don't really make much of a difference to me. I AM the way I feel. manifesting emotion into reality is too easy for me.
+
+so, if instead of that, I could feel like I'm constantly on the verge of feeling the manifestation of something rather than actually feeling it, that would be really nice.
+
+I really enjoy getting close to feeling the manifestation but not actually feeling it. by nature, I'm too good at manifesting so I would rather just string myself on for as long as possible instead of having to deal with the reality of whatever that is.
+
+once I have a much more diverse set of things that I can feel/be, then I feel more comfortable with reality, because I'm flexible. I can be anything I want to be. I don't ever have to commit to anything. if I don't like something, I just switch how I feel and my reality changes.
+
+
+[1]: I'm like 99.999% sure this is how jesus was able to "heal" so many people. he just saw the parts he wanted to see, and they appeared to him as perfect.
+
+
+
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
