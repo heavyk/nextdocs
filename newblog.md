@@ -9380,7 +9380,7 @@ I think I prefer the feeling (memory) of the experience more than the actual exp
 
 [1]: I'm like 99.999% sure this is how jesus was able to "heal" so many people. he just saw the parts he wanted to see, and they appeared to him as perfect.
 
-[2]: you are not your body. in 5d, the automaton that you would believe is "nou" is just a refluction of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, happy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
+[2]: you are not your body. in 5d, the automaton that you would believe is "nou" is just a reflection of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, unhappy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
 
 ### 2022-02-19 19:12 - perfection vs satisfaction
 
@@ -9439,6 +9439,34 @@ as crazy as it sounds, I believe they are absolutely essential to the things I w
 [1]: if you're a dissatisfied person, do you know how annoying a satifsied person is to be around? likewise, if you're an imperfect person, do you know how annoying a perfect person can be? see what I mean?
 
 [2]: this is a conceptual realisation -- that "you" are not the body but you are a concept of yourself. so if you believe yourself to be dead, you'll be dead. if you believe yourself to be alive, you're alive. you appear however you conceptualise yourself to be (projecting down to the astral from the conceptual), and other people will translate the way you conceptualise yourself to be anyway they see fit -- like in a dream -- with the best/perfect physical representation you can imagine for that vibration.
+
+### 2022-02-20 07:01 - the girl and her robot
+
+[TODO: royksopp song]
+
+this morning I edited @[newblog](2022-02-19 17:00) and added a note which was one of the most brilliant things I've written in a while (reproduced below). I was commenting on how I prefer to allow the automatons have to do all of the physical action. I'd like to expand on that a bit further...
+
+when I created tuenti, I hardly used the website. the website wasn't really all that fun for me to use yet. I could go on and comment on how drunk we got or that a girl is "wapa" but, it wasn't really what I wanted it or thought it could be. for me, the problem that it isn't yet what I think it could be didn't inhibit me from enjoying the creation of the page. I thought maybe when it had all of the features I wanted and stuff, then I would really like the page, however, I didn't find that to be the case.
+
+it didn't matter if I actually liked or wanted the creation myself, it was the act of flowing the energy that was so invigourating to me. so in the example, maybe original tuenti is like a $1 burger while later it became a $3 burger, it didn't matter to me as I enjoyed making the burger no matter how expensive or how high of a value it was given. it's the feeling of creating something that I enjoyed the most. I don't really mind creating things I don't personally want to use for people I don't particularly care for, but if I do want the creation myself or like the people, then it's better. the feeling for me is all that matters.
+
+a similar but perpendicular example to this may be masturbation. I've heard a lot of people tell me that they don't need other people to give them the physical manifestation because they can provide it to theirselves with manual stimulation. in this example, the person is saying that they *don't* care for the energy flow that happens between two people and just want the physical sensation.
+
+that doesn't work at all for me. I don't need to experience physical sensation that much. I prefer the feeling of energy moving in the creative process -- even if it's with someone I don't particularly care for. for me, that energy moving is the "feeling" that I'm talking about when I say that I'm not too interested in trying to get a physical manifestation or try to worry about all of the physical details of the interaction (which I often times get very wrong). my physical performance is usually pretty underwhelming.
+
+---
+
+the body is part physical and part conceptual (they meet in the imagination). I visualise this concept with the picture of "the girl and her robot". for me, the girl lives in my right hemisphere and she wants everything and has to have it, and then "I" (the robot) have to figure out how to make that happen in reality.
+
+I would really rather be in the girl's perspective than in the robot's perspective. I really like the idea that I can just desire/feel something and then enjoy the movement of energy as it's happening -- without having to worry about the physical implementation.
+
+the more automatons I can control with my feeling/desire, the more I can enjoy the feeling (movement of energy).
+
+```
+you are not your body. in 5d, the automaton that you would believe is "nou" is just a reflection of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, unhappy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
+```
+
+a final example would be to apply the concept to the creative output of this writing. you may think that I'm saying that I never want to deal with the physical manifestation of having to type and use my mouse to write this. my goal and what I'd love to do, is just think and and feel the flowing of the energy into what the manifestation of the words appearing on the screen here. however, until my computer can be influenced by my feelings, I have to deal with the physical manifestation of moving my mouse and banging away at the keyboard. I still type and stuff. it's not that big of a deal, but I don't really enjoy typing. it's uncomfortable and not even remotely pleasurable at all. sure, OK at least sex is pleasurable, so it has that -- but I'm not really looking for pleasure. I write here to listen to myself think "out loud". if I wanted pleasure I'd do something else. for me sex would be at most an energetic input which I later convert into something tangible. that creative energetic output for me is the real enjoyment. sex is about as fun as a dialup modem. it feels really slow, enefficient and takes a pretty lengthy handshake to connect.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
