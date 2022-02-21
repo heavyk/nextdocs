@@ -9468,6 +9468,38 @@ you are not your body. in 5d, the automaton that you would believe is "nou" is j
 
 a final example would be to apply the concept to the creative output of this writing. you may think that I'm saying that I never want to deal with the physical manifestation of having to type and use my mouse to write this. my goal and what I'd love to do, is just think and and feel the flowing of the energy into what the manifestation of the words appearing on the screen here. however, until my computer can be influenced by my feelings, I have to deal with the physical manifestation of moving my mouse and banging away at the keyboard. I still type and stuff. it's not that big of a deal, but I don't really enjoy typing. it's uncomfortable and not even remotely pleasurable at all. sure, OK at least sex is pleasurable, so it has that -- but I'm not really looking for pleasure. I write here to listen to myself think "out loud". if I wanted pleasure I'd do something else. for me sex would be at most an energetic input which I later convert into something tangible. that creative energetic output for me is the real enjoyment. sex is about as fun as a dialup modem. it feels really slow, enefficient and takes a pretty lengthy handshake to connect.
 
+### 2022-02-21 05:42 - initial thoughts on devachan
+
+last night, I skimmed @[dtp/dtp](chapter-1-24) before going to bed. I woke up with quite a few thoughts on it. first, I'm quite surprised that he details the difference between the concept (spiritual) world, the psychic (astral) world, and the physical world. that took me by surprise because I didn't expect such a clear definition of it. I'm pretty on-board with him on that.
+
+he then talks about how the psychic version of him is different than his conceptual (spirit) version. the psychic version roams around on the planet as a sort of ghost, disincarnate image of himself that doesn't know he's dead. it retains the psychic or mental habits of the physical version. gwauxln gets rid of that psychic version by putting it into the fire so that me can be free to make his full transition into devachan (heaven).
+
+I don't know if that still happens. I'm fairly certain that the "fallen-angels" don't ever leave that psychic body behind, not wanting to let go of their conceptualisation of reality. they then go around earth and influence its inhabitants like he influenced the horse or temporarily took control of the consciousness of the hunter in the vailix to write the message -- then, finding another body to enter and inhbit.
+
+in abe-speak, this process described is what they say is the "releasing of all resistance as you make your transition". I do think that we probably do leave that psychic/astral image behind, and it continues on as a sort of psychic "atomaton" -- for some people giving comfort to (or haunting) earthly inhabitants still tuned to the frequency of the astral image. it's pretty likely that the transition to the conceptual world happens instantly beecause that detuning of the psychic image has been automated by custodial forces, or energies aren't high enough on the planet anymore to sustain the astral body without proper conditions (that will change as we continue to approach sirius though), so it's quite likely that once again the psychic body can be sustained by the conditions here on earth and people will once again consciously make their transition or return to haunt/inhabit another body (though, again, I'd imagine custodial interference).
+
+personally, I've never had an NDE with the traditional astral perception where I'm looking down at my body and see physical things. I've only had astral vision in conscious dreams, after watching stars, or after reworking my vision from new mental breakthroughs in an ayahuasca experience. in all of those cases, I'm pretty sure that I would have continued to perceive the astral plane if nosebook hadn't of removed it or forced me to wake up from the dream (hence the custodial meddling of who gets access to the astral plane). it seems that they absolutely do not want me able to perceive anything in the astral. I assume they have a lot of secrets there.
+
+instead, my NDEs have been very abstract and colourful. I seem to have a knowing or knowledege that surpasses my ability to describe it here. it's sort of like a full concept of everything I was, am, and could be. -- I contemplate for a moment and then a good idea comes to me (much like how I write these entries), and then I begin to perceive a new trajectory... the more I focus on it the bigger and greater it becomes and then I'm back in the physical body again.
+
+that part where I focus on the new trajectory that seems to interest me has all of the aspects of his description of devachan, but it happens a whole lot faster. everything is an implementation of my own concept of it and it all is very nice. I jump into the physical experience and slowly I realise that my concepts are a little bit out of sync with "reality" -- or rather that I didn't know how, in the physical, to perceive the concept without resistance -- and the resistance of "reality" caused me to create something slightly different than the original concept I perceived in the NDE.
+
+I believe actually a very similar thing happens at night while I sleep. they probably talk to my astral image while I'm off finding a new trajectory that interests me. I've longed to try and retain consciousness of this conceptual world during sleep, and I think the only thing inhibiting me is my own resistance. that world feels very very good (even better than the astral), and I'm pretty sure that it's fully possible to do that.
+
+he kind of mentions this in the book too, saying that once you make it to devachan (concept world), you can't go back -- presumably, until you work out your karma, or are desiring to do so.
+
+he also mentions that everything in that world exists as an extension of yourself and the concepts you have interacted with in the physical. I postulate then (which is a similar perspective to my own), that you return to the physical to expand the diversity of concepts you have to create your reality in devachan.
+
+---
+
+the weird part about this chapter is the whole part about his reality. he notices a bunch of things he values (books) and they're all over the place -- something his mother would have never let happen. he also meets his father, rather than his mother, and his father turns out to be not the deadbeat his mom had made him out to be.
+
+... I mean, I guess... sure, that sounds really great and stuff, but it seems to me to be a really slow and inefficient way of coming to realise that reality can be different than how people tell you to perceive it -- and it's still OK. it feels to me like a bunch of hand-holding to kind of allow the deceased person to release resistance.
+
+I don't doubt that he had that experience because that world is a reflection of you and how you conceptualise things, so that must have been a reflection of the author's concept of reality at the time. it's just interesting to me to see how much different that reality is from what would be my own... it's soo slow!!!
+
+surely, there has to be a faster more efficient way to come to those realisations. no wonder, for this guy, karma (aka LOA) is so much work. my goodness.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
