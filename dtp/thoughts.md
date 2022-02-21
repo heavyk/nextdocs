@@ -548,4 +548,58 @@ each divinding of the path everyone chooses which way they want to go (see: nega
 
 [1]: with the exception of the "I am in the [brotherhood] and the [brotherhood] is in me" -- like how can the brotherhood be in him? (no homo)
 
-### custodial seal of approval.
+### heaven - thoughts on devachan
+
+the way he describes the density of devachan (low) and earth (high), summons the image of evaporation and condensation reactions. like, in devachan, you're in a low density environment, so when you get bored, you come to rest, that is condensate into physical incarnation again in a high density environment. death is losing dense matter and evaporating up into higher density. reincarnating is just condensation. it appears to me no different than the precipitation cycle: evaporate, condensate, then repeat.
+
+to explain this he says, if a medium brings low density matter down into a high density environment, this is similar to a low pressure cell -- a vortex bringing the low density air from higher in the atmosphere down, which is what causes the storm. similarly a low density ego in a high density environment can cause a psychic storm.
+
+> The barometer on a calm day registers at sea level a definite degree of air pressure, and at one mile above the sea, on the side of a mountain, let us say, the mercury in the tube has "fallen" to another definite but less degree. This is in both cases due to air pressure. If now one desire to have the pressure existing at a mile's height, will he go up to it, or will he, bring that altitude down to himself? In storm weather the barometer "falls" also, the air is less dense, meteorological changes have taken place which in effect have brought the high aerial altitudes (ie. the conditions prevailing in high altitudes), down to the lower level. But thus has a storm been created; superior conditions have forced one. So it is that by the exercise of superior force a medium at a "spiritualistic seance" can bring back or down a soul which had gone on through the grave; but it will give rise to a psychic storm, and these are exceedingly costly occurrences.
+
+he says that the psychic body lasts for as long as there is "sustaining magnetism" -- which corresponds with my theory that vibrating magnetic fields are felt as emotion, so he's sort of saying that as long as emotion sustains the psychic body, it can persist in the astral.
+
+he describes devachan as being composed of all of your concepts. no two people will experience the same world because no two people have the same set of concepts:
+
+> So also the heaven, the devachan, of one person is filled with his concepts of life, while that of his neighbor on either side--so to speak, is peopled with other peculiar mental properties. Now the state after the grave, and his or her knowledge, aspirations and trusts of life is the condition of harvest, where no one acts, but where the rewards of action in the preceding life are paid; it is the land of Lethe, where is no pain, sorrow, sickness or agony, for these earthly conditions begun on earth, and they perforce must be finished on earth. So karma decrees. Heaven is passive, not active, and results of knowledge are there assimilated by the soul; that is, made so that the new birth is like the succeeding page of a business ledger--all of the old lives, with the last added in.
+
+he does say though most people in the world are your concept of the person rather than the actual person (soul):
+
+> Thus passed the time around me, sometimes with real egoii of deceased earthly persons who had worked with me intimately on earth, and so had with me to reap the results of the collaboration. At other times I was alone with my concepts, which, however, seemed as real as actual persons, for all seemed absolutely real.
+
+so, it seems that the person you experience in your world is one of tuning. if you're tuned to who they really are, you'll meet their soul, but if you're tuned to your concept of them which is different from who they really are, you'll meet your concept of them.
+
+interesting to note that in this world, he sleeps -- so still, that means, there is some resistance which after a good rest lessens and allows that reality to be experienced. implying therefore that there are still less resistant forms of reality still (this may be coming soon).
+
+he reiterates that the people you experience are predominantly your concept of them, and that you will perceive your "enemies" that way (the concept), not as who they really are:
+
+> Anzimee, Menax, Gwauxln, Ernon, Lolix without the shadow, all those and thousands more who have no name to the reader were there. They did not come; no, they were with me, each as I had conceived. These were my concepts, for they were subjective, not objective; they were my ideals, not real people; and they formed my world. [...] in verity this after life is a reconstituted and inverted earth life, subjective now, instead of objective. My supposed friend may be a real enemy, yet if I die thinking him or her my friend, that concept is the one carried into the after life, and vice versa.
+
+> In meeting Anzimee, who yet lived on earth, I met sometimes my conception of her, sometimes her own higher self. [...] she so longed from me that it developed and enabled her to project her pure soul into my plane. This was not only pleasant and beneficial to her, giving her a hold upon things unseen, of which the apostle Paul speaks, but it was a holy joy to me to meet her thus; she could come to me, but I could not go back to her. There is no retrogression.
+
+he also says that interactions in this environment strengthened his mental capacities which could be used in future incarnations:
+
+> From these apparent actions my capacities were developed, and tests of the worth of my conceptions made. All of this resulted in making a concrete deduction which became a part of my mental being; hence in a new incarnation I would come forth to mankind possessed of phrenological organs of increased power in the handling of political and social questions. Perhaps this power would not be actively employed, owing to other tendencies being stronger; none the less the power would be augmented and ready for use upon demand. The same thing would prove true of all these souls really associated with me, both in previous-earth-and after-heaven, the results, values and summings-up of our contemporary devachan would give them new mental traits, or increase the force of their old ones, and reincarnation would reassociate us again on earth.
+
+so, it appears that the realisations that one makes in this conceptual world stay with a person and actually affect the physiology of a person (including the DNA?), allowing them greater proclivity to tune into these concepts (perceicved as capacities) on the physical plane.
+
+to illustrate this, he gives an example of "zerah colburn" -- someone I had to look up, but as a child had an incredible capacity to calculate incredible things with his mind. it appears though that his father tried to exploit him as a kid, and as he grew older, his capacity (or rather his ability to tune to it) faded, and the increasing resistance of losing his capacity must have manifest itself in the contraction of tuburculosis and an early death of 34yo.
+
+to add to that, I would say that something of the opposite is true for me. I have noticed that as I've gotten older and decreased resistance, I have noticed a far greater capacity to tune into this conceptual world. I call them conceptual programs, and I don't at all doubt that one can create and manipulate a wide variety of programs, ranging from from calculators and statistics to dream-like experiences which the person can acquire knowledge in an instant that otherwise would require years of physical experience ("I know kung-fu") -- or instant access to knowledge not yet learned (astral/akashic records?).
+
+he also explains (very verbosely) that one assimilates these concepts into their own identity (I AM) of the person and they become a part of them, the concept incarnate:
+
+> [...] just as my concepts disappeared when I had assimilated their value. They disappeared, because all the deeds of previous earth life had crystallized as traits of character, and they were ready for earth life again.
+
+he ends the book with coded words: 
+
+> I was ready for activity once more. I slept, and in this sleeping died out of that life of passivity into the waking of earth, a babe in a cradle. Born to see my Master in this life, and enter the Great Rest with him!
+
+and finally a prophesy of the future:
+
+> NOTE: --But one will come after me who shall tell thee more of the Great Deep of Life than I. Await her words. --Author
+
+I wonder who *she* is... probably a foreshadowing...
+
+### custodial seal of approval
+
+[TODO: outline the different custodial elements]
