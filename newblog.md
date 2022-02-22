@@ -9500,6 +9500,60 @@ I don't doubt that he had that experience because that world is a reflection of 
 
 surely, there has to be a faster more efficient way to come to those realisations. no wonder, for this guy, karma (aka LOA) is so much work. my goodness.
 
+### 2022-02-21 22:44 - how destructive would it be to reveal nature's secrets?
+
+I'm reading @[dtp/dtp](chapter-2-3) and there's a few things he says about this "unfed fire"-like flame that can be produced at will, and coming into contact with anything dissolves its material form and returns it back to nature.
+
+he is sworn to secrecy and doesn't want to reveal its secrets...
+
+> Suppose I revealed that secret? How long would it be until the world would find that the unscrupulous amongst men were using it to work undetectable murder? And its uses are many besides, for it is the principle in nature which governs transmutation, disintegration, decay, destruction, death.
+
+I strongly disagree with this statement. law. of. attraction, dude...
+
+that statement assumes that someone can *do* something to someone else, and the other person has no attractive power of their own. what complete nonsense. for all of their peace and calm, this is an incredibly worrisome statement. you may say, OK, by that logic, let's give all nations nukes, right?
+
+personally, I would have no problem with either revealing the secret to destruction decay and death -- and also to all nations having nukes -- even the irresponsible ones.
+
+I mean, you either create your own reality, or you don't -- it's that simple. so, let's say that someone blows the planet to bits... not any bigger of a deal than a person making their transition into devachan. the earth, like us too will recollect the concepts and return with greater capacities than previously attained. it's really not a problem.
+
+the real problem is fear of death or someone with the capacity to create your reality for you. the guy seems to have the capacity to know that no animal can create his reality for him, so bears and pumas don't fear or cause him harm, but he's scared of humans??? I think this is a legacy from the distant past -- something that has been repeated ever since some trickster decided it was time for everyone to start hiding and keeping secrets (even though it's literally impossible to hide or keep secrets).
+
+---
+
+so then after thinking that thought, a followup thought (or reaction) reminded me of the part in "gods of eden" where he says,
+
+> If Ea was a real person, then he appears to have been a genius who could get things done, but who was often careless about anticipating the consequences of how he went about accomplishing his goals.
+
+for me these "secrets" appear plain as day. nobody needs to initiate me or to tell me to keep any secrets, as I will do no such thing. I used to have the policy that if you tell me something is a secret, I will adhere to not revealing it to anyone. then after quitting tuenti I had a lot of spare time to listen to terence mckenna and smoke weed, at which point I adopted his, "don't tell me secrets; they will get told." to which I've adhered since, but have not been too vocal about (though I believe everyone is pretty aware this is my policy).
+
+personally, I don't believe it's a big problem to reveal these things. to the difficulty of many, I have been very vocal about the different levels of perception and how to attain them if one desires to do so. I feel no differently about this either. even the author, in his own words, says that the force is a very good force to have, for without it, there would be stagnation.
+
+this puts me clearly in league with ea, "careless about anticipating the consequences of how he went about accomplishing his goals".
+
+I believe that one should have the right to shoot theirselves in the foot, and a lot of reduction in creativity is performed in the name of safety and security. secrets, worries, fears, and doubts create friction that reduces the speed in which reality is created. I prefer instaneous, like devachan, but here in the physical.
+
+not everyone is like me though. as an example,  there are a lot of really fond users of rust-lang. I have no problem with that. I just find that kind of security too much extra friction. I reserve the right to shoot myself in the foot if I want to.
+
+I contend that it was ea himself that first instituted this vow of secrecy when creating the original "brotherhood" organisations and this vow of secrecy a vestage legacy that has surpassed its usefulness.
+
+bramley continues...
+
+> By engineering a work race (Homo sapiens), Ea wound up giving his enemies a powerful tool of spiritual repression. Ea then appears to have compounded the blunder by founding and/or empowering the early Snake Brotherhood which, after its reported defeat, continued to remain a powerful force in human affairs, but under the domination of the very Custodial factions that Ea and the original Brotherhood were said to have opposed. History indicates that the Brotherhood was turned under its new Custodial "gods" into a chilling weapon of spiritual repression and betrayal, despite the efforts of many sincere humanitarians to bring about true spiritual reform through Brotherhood channels all the way up until today. By reportedly creating a work race and the Brotherhood of the Snake, the "god" Ea had helped build a trap for billions of spiritual beings on Earth.
+
+---
+
+I do believe another trap for billions of spiritual beings is being built as we speak, and I'm definitely repeating ea's performance. sorry bout that... deal with it :)
+
+there's really nothing to fear though because I'm certain the brotherhood will ensure that no one ever gains access to this capacity to ensure everyone's safety.
+
+this is just another incompatible reality forcing a "dividing of the way" ... as usual with this book, it concludes such ridiculous ideas with particularly custodial affirmations:
+
+> In reason you can no longer ask why occult matters are so imperatively secret, for it must be evident that this fair earth would be made by the unscrupulous into a very hell of misery and crime, were they not thus secret. For a time those who chose to subvert their knowledge would seem to thrive and prosper, even though the world about them suffered. But subversion of the law is violation, and the penalty at last visited is in tenfold degree upon those who went most astray in their blindness and sin. It would cause them to curse the giver of such wisdom. Nine-tenths of the people of this world are unable to govern themselves well; they cannot in saneness expect to be made sharers of such awful knowledge as Siva represents. Men and women are really not following the Christ until every part of their own nature is held in an iron grasp of merciless subjection to high principles.
+
+---
+
+telling you... this book really feels like it was written to me directly. it's a very weird sensation.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
