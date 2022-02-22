@@ -9516,7 +9516,9 @@ personally, I would have no problem with either revealing the secret to destruct
 
 I mean, you either create your own reality, or you don't -- it's that simple. so, let's say that someone blows the planet to bits... not any bigger of a deal than a person making their transition into devachan. the earth, like us too will recollect the concepts and return with greater capacities than previously attained. it's really not a problem.
 
-the real problem is fear of death or someone with the capacity to create your reality for you. the guy seems to have the capacity to know that no animal can create his reality for him, so bears and pumas don't fear or cause him harm, but he's scared of humans??? I think this is a legacy from the distant past -- something that has been repeated ever since some trickster decided it was time for everyone to start hiding and keeping secrets (even though it's literally impossible to hide or keep secrets).
+the real problem is fear of death or someone with the capacity to create your reality for you. the guy seems to have the capacity to know that no animal can create his reality for him, because he knows that the animal must join him where he is (peace) or do something else. as a result, bears and pumas don't fear or cause him harm, but he's scared of humans??? balderdash!
+
+I think this secrecy stuff is a practise that has been around for a very long time, repeated over and over ever since some trickster decided (ea?) that it was time to start hiding the truth about how things work and keeping everything a secret. as bramley states, this too had unexpected consequences, as it formed the foundation for the new "corrupt brotherhood" to emerge. it's unclear to me whether it was an intentional error or unintended consequence.
 
 ---
 
@@ -9528,13 +9530,15 @@ for me these "secrets" appear plain as day. nobody needs to initiate me or to te
 
 personally, I don't believe it's a big problem to reveal these things. to the difficulty of many, I have been very vocal about the different levels of perception and how to attain them if one desires to do so. I feel no differently about this either. even the author, in his own words, says that the force is a very good force to have, for without it, there would be stagnation.
 
-this puts me clearly in league with ea, "careless about anticipating the consequences of how he went about accomplishing his goals".
+this puts me clearly in league with ea, "careless about anticipating the consequences of how he went about accomplishing his goals."
 
-I believe that one should have the right to shoot theirselves in the foot, and a lot of reduction in creativity is performed in the name of safety and security. secrets, worries, fears, and doubts create friction that reduces the speed in which reality is created. I prefer instaneous, like devachan, but here in the physical.
+I believe that one should have the right to shoot themself in the foot -- and a lot of the reduction in creativity has been performed in the name of safety and security. secrets, worries, fears, concerns, and doubts create friction that reduces the speed of creativity (also, the speed in which reality is created). my goal is to reduce that friction. I prefer instaneous manifestation -- like in devachan -- but here in the physical. you may say, "devachan on earth"
 
-not everyone is like me though. as an example,  there are a lot of really fond users of rust-lang. I have no problem with that. I just find that kind of security too much extra friction. I reserve the right to shoot myself in the foot if I want to.
+not everyone is like me though. as an example,  there are a lot of really fond users of rust (programming language) -- which emphasises saftey and security by increasing friction. I have no problem with that for others. however, when I'm creating, I prefer to have as frictionless of an environment as possible. I reserve the right to shoot myself in the foot if I want to.
 
-I contend that it was ea himself that first instituted this vow of secrecy when creating the original "brotherhood" organisations and this vow of secrecy a vestage legacy that has surpassed its usefulness.
+---
+
+I contend that it was actually ea himself that first instituted this vow of secrecy when creating the original "brotherhood" organisations. this vow of secrecy a vestigial legacy that has surpassed its usefulness.
 
 bramley continues...
 
@@ -9544,15 +9548,47 @@ bramley continues...
 
 I do believe another trap for billions of spiritual beings is being built as we speak, and I'm definitely repeating ea's performance. sorry bout that... deal with it :)
 
-there's really nothing to fear though because I'm certain the brotherhood will ensure that no one ever gains access to this capacity to ensure everyone's safety.
+there's really nothing to fear though because I'm certain the brotherhood will ensure that no one ever gains access to this capacity to ensure everyone's "safety".
 
-this is just another incompatible reality forcing a "dividing of the way" ... as usual with this book, it concludes such ridiculous ideas with particularly custodial affirmations:
+this is just another incompatible reality forcing a "dividing of the way" ... as usual with this book, it concludes such ridiculous ideas of needing to keep secrets with a series of particularly custodial affirmations:
 
 > In reason you can no longer ask why occult matters are so imperatively secret, for it must be evident that this fair earth would be made by the unscrupulous into a very hell of misery and crime, were they not thus secret. For a time those who chose to subvert their knowledge would seem to thrive and prosper, even though the world about them suffered. But subversion of the law is violation, and the penalty at last visited is in tenfold degree upon those who went most astray in their blindness and sin. It would cause them to curse the giver of such wisdom. Nine-tenths of the people of this world are unable to govern themselves well; they cannot in saneness expect to be made sharers of such awful knowledge as Siva represents. Men and women are really not following the Christ until every part of their own nature is held in an iron grasp of merciless subjection to high principles.
 
 ---
 
 telling you... this book really feels like it was written to me directly. it's a very weird sensation.
+
+### 2022-02-22 11:10 - theory on the vis mortuus/naturae
+
+it occurred to me that I should probably write out my present theory on it. I want to figure it all out for myself, and so, as always, it takes time to tune into it (think like binary searching for concepts) so it may be a while before I figure it out.. here's the thinking out loud:
+
+he gave a few clues in the book. the first is that it is magnetic vibration, and that he is the magnet. that means this is already a concept of way that a person feels. the aura of a person that extends around them vibrates this way (which is what causes the animals to feel his peace). this same thing is how I know that mental images (and real objects) can be projected (manifested) into physical 3d space. that same vibrating magnetic field is how you attract your reality (so also manifesting, just a bit slower).
+
+the next clue he gives is that only an adept can put out the flame, so it requires a rapidly vibrating magnetic aura (which adepts have to produce their expanded 4d+ vision).
+
+the circles he draws on the ground in @[dtp/dtp](chapter-2-2) have the creative force with the negative sign and the destructive force with the cross/posiive sign. the circles on the ground with the symbols in them is nothing more than a magician's scarf. it's to give you something to focus your attention. it isn't required to produce the effect.
+
+these positive and negative correspond pretty well to protons, photons, or aten (+) being the basic unit of consciousness that all reality is constructed from. in the physical plane, when unbalanced, it's the siva destructive principle (hence proton count making things more sour/acidic). however, these are just symbols. the negative symbol is interesting because it's not the creator; it's the *preserver* (vishnu). who's brahm? (the creator?) it's you.
+
+he says in another place that these are focal points (vortexes), where energy extends out of source (creates, output) or where the energy is returning to it's source (destruction, input). normally in a vortex, you have both of these happening in the same place, so a space needs to be made to create separation (unbalance) these polarities.
+
+---
+
+so, let's put these elements together and I'm relatively certain we'll come close to the answer.
+
+only adepts have a fast enough vibrating magnetic field to produce the effect, so the thing must be *felt* strongly. it also needs a space between the perceiver of the effect (quong) and the other polarity (earth).
+
+for the vis naturae effect he will personify the shiva principle, and then then focus the opposite polarity out into 3d space in the orientation he wants it to go. the effect is created with the vibration of his aura (personification of shiva) and the focus of consciousness on to the other polarity. quong is one terminal and the earth is the other terminal. the space is between.
+
+for vis mortuus, the opposite is performed. he embodies the principle of vishnu the preserver rather than shiva. the creator (perceiver, focuser) is you.
+
+---
+
+ok, that's my best guess so far of what's happening. I don't feel like I got it 100% right, as I probably mixed up my polarities. I'm pretty certain about the vibrating magnetic field and embodying one polarity while projecting the other one..
+
+I'd just need a little bit of experimentation or visual feedback (synethaesia) to figure the rest out[^1]. either way, just like the difference between poseidi and suerni capabilities, a vibrating magnetic field can be created and focused both consciously or technically. so, it can be found technically too; if someone at nosebook wanted to try this, they would only need to capture the feel of these principles and create the respective magnetic fields. I'm sure they're not too difficult to find.
+
+[1]: though, I don't actually find visual feedback to be necessary, like a thought, visuals also create an emotional response, so I just need to gain even more sensitivity is all. a long time ago, I postulated that as I can feel emotion/conceptsa more and more intensely, I'll be manifesting those concepts, not visually but as tangible objects into 3d space -- just like this fire. so eventually, I'll figure it out and perform it. I don't think it's super necessary to have the visual feedback; I'll probably be able to figure it out even still.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
