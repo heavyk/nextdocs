@@ -9628,6 +9628,74 @@ come at me, bro!!
 
 [1]: this is a terence joke I lifted from when he was trying to get information out of the buddhists about the nature of the DMT experience. he was surprised that they wanted him to perform a number of duties in order to earn the answers to his questions.
 
+### 2022-02-23 06:22 - power-displays and magnetic therapy
+
+it occurred to me when I woke up that the reason why there is such a lengthy initiation is because most who join are looking to do power-displays.
+
+there was a quote in the book, which I cannot find now, that said something like:
+
+> most want to learn this so they can make powerful displays, when the true seeker looks only for the principle, rather than the power (something like that).
+
+the other thing I noticed in this book were the random thoughts by the author,
+
+> did quong know that he has power over animals? [TODO: find quote]
+
+> I wonder if one day I can have power to create those miracles like the fire or the visuals [TODO: find quote]
+
+the author seems (in my opinion very well convinced by the power-displays). this is a running theme in the book. it was the grief that ernon conveyed before his transition, and a number of zailm's musings on the subject were also on this as well, comparing the poseid technological capacity to use the night-side of nature, in comparison to the necropani and suerni capacity to use it consciously.
+
+I love to anticipate things, so I imagine that the prophesied difficulty for walter will be inflicted not because of the desire for affection (like zailm), but probably something to do with power-displays. he then probably gets taught how the "laws" work later (compensation, etc.), by no other than "mol lang", the reincarnation of ernon, the one lamenting that the suerni had such magnificent power but didn't appreciate it, chosing instead to grumble and desired instead to "sin".
+
+---
+
+back to where I was... so, probably, like my own father, get attracted to tantra yoga[^1] and other things because of the physical manifestations (you see better, and have a more vivid experience, etc), but it probably becomes kind of like a "gateway" drug, when you realise there is much more to reality than was previously seen by the eye. I know for me, once I unlocked 4d, I was totally hooked. I knew that I could optimise this process and continue to expand my vision. I stated numerous times that I think it's depth is actually infinite. I don't believe the eyes have "pixels" -- but rather antennae, and so therefore the more sensitive the receiver, the more depth can be perceived... I believe I have really only scratched the surface and can easily go millions of times further than I am now[^2].
+
+once I figured out the technique, it totally became like a drug for me in the sense that I could perform a physical action (star-watching), and then could receive the benefit of more mental capacity. because of the similarity between star-watching and extended duration meditation, I imagine they are quite comparable in effect. I have regularly gotten vision upgrades when meditating, so I know it works.
+
+---
+
+later, I discovered that quiet situations make that meditation process easier (thanks, mr. motor) and a calm (unemotional) mental condition makes it a lot easier. obviously, this is far easier in remote places with little sound and a good view of the stars (like la vera), so I tried to optimise my conditions for a while.
+
+calm conditions can lower resistance, simply because there are less "triggers" to emotional outbursts, but in reality calm conditions are my choice. once I figured out how to feel the way I wanted to, star-watching became so easy that the kundalini would almost rise every time. I stopped it though because I'm not looking for the manifestation.
+
+---
+
+OK, what I'm trying to say with all of that is that this meditating thing reminds me of the magnetic therapy as a cure to mental illness in posedi culture.
+
+the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 343 (3+4+3) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwaulxn) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
+
+so, to combat this, they used "magnetic therapy" to dampen the grasp of greed and lust for power in the person's brain. although they called it a "cure", clearly the author states that it was only temporary. knowing that if you fight against something it'll only come back stronger. these con-artists just needed a few more generations before their brain (like my vision) would find a way around the magnetic dampening. the posedi were breeding con-artists.
+
+---
+
+likewise, I feel this book and those enticed by it are attracting those that like power-displays. the book is very visual (of which gives me little benefit). I imagine a normal reader sees the images the author presents, and totally misses the super duper custodial undertones, being completely "en rapport" with the visuals.
+
+the sense that I get is that this trend extends much further than just this book, and is an attribute of theosophy in general.
+
+like I said, I believe this "christ" that the thesophists follow is nothing more than jehova-2.0[^3] and this "dividing the way" is a repeat of the "exodus" -- where jehova hardened the pharoah's heart so that moses and jehova could do more power-displays. this built up belief in the people of the power this jehova has. like I surmised in @[dtp/thoughts](jehova), these conceptual programs "run" on belief and are just focusing the human's creative potential to produce these power-displays. I think a similar "exodus" is happening right now, with the "christ" (as presented by the theosophist movement) spearheading this exodus to garner more belief, like jehova did.
+
+---
+
+got sidetracked again... back to the buddhists; I believe that meditation is having a similar effect on the desire for spiritual power. as the magnetic therapy had on the desire for physical power and conditions in the atl government.
+
+I don't think it's a problem at all, because look at the progression: if you were ernon, you would want people to desire to have power-displays rather than take it for granted. you don't appreciate something until you don't have it anymore, right?
+
+appreciation is like desire, but for something that is present.
+
+appreciation is to desire as faith is to hope.
+
+when you desire something that is present, you appreciate it. you can't appreciate something unless you first desire it.
+
+so, for ernon, desire for power-displays is right on the path toward appreciating the power that the suerni had through jehova.
+
+after appreciation is the realisation that it's you doing the creation, and jehova/christ was just the magician's scarf (the focusing mechanism).
+
+[1]: though this is probably considered the "dark" or "wrong" path (can't tell the difference in reaction), I'm not here to judge its rightness or not. I'm explaining it's similarity to drugs, even endogenous ones.
+
+[2]: to the doubters out there, notice the rate of my progression. I would guess that I'm probably a few hundreds of times more than where I was when I started. in 3-6 months, that'll probably be thousands, and because my acceleration rate is going so fast. I don't find it at all inconceivable to be millions in a few years. I'm literally not even trying anymore and it's happening, because I know the mental process rather than trying to do it physically. a lot more can be accomplished with the correct vibrational (emotional) state and the manipulation of one's perception, than ever can be accomplished with physical action. there really are no limits, and if there are, my own genetics/biology is and will continue to make the changes it needs to, to accomodate the energy that I summon. no limits.
+
+[3]: it's interesting to note that it seems that mol lang (ernon), is the main promoter of these systems too. personally, I believe he knows what he's doing, and is just letting it happen. you can't get rid of people's desire for power-displays with any technique; they have to come to the realisation of what they want personally and individually. he sounds like someone who has command over the concepts and laws of nature and is more than willing to let those who want to use those laws however they wish to do so (without resttriction). so far, he sounds a lot like me, honestly... it's going to be interesting to keep going here.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
