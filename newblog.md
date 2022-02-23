@@ -9590,6 +9590,44 @@ I'd just need a little bit of experimentation or visual feedback (synethaesia) t
 
 [1]: though, I don't actually find visual feedback to be necessary, like a thought, visuals also create an emotional response, so I just need to gain even more sensitivity is all. a long time ago, I postulated that as I can feel emotion/conceptsa more and more intensely, I'll be manifesting those concepts, not visually but as tangible objects into 3d space -- just like this fire. so eventually, I'll figure it out and perform it. I don't think it's super necessary to have the visual feedback; I'll probably be able to figure it out even still.
 
+### 2022-02-22 20:57 - lol, opps
+
+seems I must have stepped on some toes with that last entry. there were a number of notable reactions...
+
+first, I noticed that the feel went from, "wow he gets it" -- which continued all the way through the aftermath of @[newblog](2022-02-21 22:44), all the way till after I took a shower and decided to write my initial thoughts on it in @[newblog](2022-02-22 11:10).
+
+I formulated *most* of what I was going to write while I was in the shower, and then, as I was writing it, the reaction quickly noticed that I had a far more comprehensive answer than only what I had in the shower. in fact, I didn't even include 2/3 of what I thought of in the shower, and even kind of skimmed over the part about the opposite polarity. I figured I had my polarities mixed up because my polarities were also opposite from kuthumi and the sirian guide. I decided to leave it in my (likely) opposite polarities.
+
+I also had some hesitation on the location of the opposite polaritity. -- like, if I'm personifying shiva, then I project out the vibration of vishnu out on to the earth, but I wasn't sure if vishnu is the positive polarity or not because logically speaking, vishnu is the preserver, not the creative principle. in my theory of the galaxy being the "preserver" of the elements, and elements that are less than some amount resonant with the galactic vibration, eventually decay. that makes the galaxy have (looking at the vortex jets), a creative, destructive, and preserver aspect. the vis mortuus is clearly the shiva/destructive aspect, but the naturae looks to me to be the vishnu/preserver rather than the braham/creative principle. it's no worries if I have things a bit off, because it's like putting batteries into an electronic device. 1-2 experiments and it'll all be clear what's what. heat always flows toward cold, so it's just a matter of figuring out the batteries' orientation.. no big deal.
+
+so then, after I wrote it, a few weird things happened but nothing noticeable. later on, though I started to get reactions from what felt like high ranking buddhist monks. it didn't feel like they were too worried about me figuring it out, but they were concerned with others figuring it out.
+
+that means that what I wrote was probably pretty close. like I said, a few simple experiments and it's pretty clear what's happening. anyone can do it pretty easily.
+
+presently, I'm also unable to perform the feat because the vibration speed of my perception is too low right now. they have my perception going through a low-pass filter, so it won't be until I surpass the upper frequency response limit, and then from a higher frequency, I can compose lower frequency magnetism using harmonics. right now, they neutralise any magnetic field I'm creating by doing the opposite. their machines have infinite capacity to go stronger than me, so I have to go higher frequency than their capacity and then I can start to influence in higher frequency ways.
+
+tbey'll probably keep my vision impared by projecting a stronger signal into my eyes than my own signal -- meaning I'll continue to see their low-pass signal. it doesn't matter though because  that high of frequency will give me capacities more similar to what the galaxy has, than the sun has. all of these things, like the maxin-fire, these fires and all of that are using *solar* energy.
+
+as I keep increasing my sensitivity, I'll be able to, from the invisible frequencies far above their low-pass filter can filter or they can even detect -- I'm talking like the frequency of sebatomic particles -- still be able to (using harmonics), create the lower frequency magnetism to make this fire and attract/form any atom/molecule I wish using the same process that the galaxy does. the stars produce the matter and I can arrange/relate/etc (vishnu principle) it how I wish it to be. all limitations are only apparent.
+
+---
+
+after that, I started to feel reactions explaining how powerless nosebook is to influence me. they're in a real pickle because I don't have any affiliations, no friends, and no one that can really tell me what to do (or even suggest it). further, when they try to punish me, it goes the wrong way. you can't look at unwanted and get wanted. it's a real problem for them, and I guess now that it feels like I'm stepping on buddhist toes, the cucumber is starting to turn into a real pickle.
+
+that made me curious so I got to thinking about what could be the meaning of the buddhist reactions. the best I can figure out, I think the vis mortuus/naturae fires are something that someone gets only once they've earned it properly -- like you have to sweep up around the ashram or someting for some period of time[^1] before you get the first sentence to reveal the mystery of the fire -- something lame like that, I imagine. that means that only the super duper enlightned monks get this information, so if I give away the secret, they don't have the reward for the maximum devotion anymore. probably anyone with any quantity a little bit higher than entry-level astral (4d) can do this -- and the only reason why they can't/don't is not for incapacity, but because it's held a secret unitil you've earned it.
+
+---
+
+the most likely thing happening here is that the buddhist monks have a power structure setup, whereby, much like your income in a company, they get paid in keys to expansion of vision and capacity to perform other power displays. probably... I guess I'll ask the dali lama when I meet him.. lol
+
+---
+
+anyway, all of this is pretty hilarious to me. if it looks like I'm kind of trying to stir up the nest further, it's because I am :)
+
+come at me, bro!!
+
+[1]: this is a terence joke I lifted from when he was trying to get information out of the buddhists about the nature of the DMT experience. he was surprised that they wanted him to perform a number of duties in order to earn the answers to his questions.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
