@@ -40,7 +40,7 @@ PHYLOS THE THIBETAN
 [1894]
 
 
-### (weird intro text)
+### weird-intro - (weird intro text)
 
 Scanned, proofed and formatted at sacred-texts.com, 2001-December, 2002, by John Bruno Hare. This book is in the public domain in the US because it was published prior to 1923.
 
@@ -1650,8 +1650,8 @@ Unsuspiciously, she asked:
 
 Anzimee blushed, but made no other sign, merely dropping her long lashes as I looked at her, while I said, "Truly! Then from my heart-this" (a popular favorite, by the way):
 
-        "until the heart can know its own,
-         until the doubts of life are o'er,
+        "Until the heart can know its own,
+         Until the doubts of life are o'er,
          Love in our hearts must have grown
            To the heights of heaven's shore.
          Truly, love is sought in vain
@@ -1884,7 +1884,8 @@ After taking counsel among ourselves, we decided not to make the farther norther
 Man likes pleasant places to live in; he likes those lands where Mother Nature is amiable and laughs with abundant harvests upon slight provocation; man likes to live in a fruit-land, and where shall he find anything more to his mind than this same southwest and west of the Incalia of yore? Along the ocean shore and back to the Sierra Nevada mountains is the region where, under Poseid dominion, lay a province not second in beauty to the lake region along the shores of Miti. And it has, retained its fair charm, while that of the other has given place to drifting sands and cactus and the mesquite, and has tenantry of the Moloch lizards, rattlesnakes and prairie dogs. It is no more the
 
         "Union of lakes and union of lands"
-         that it was in that olden time.
+
+that it was in that olden time.
 
 When we finally left Incalia, that we might return home to Caiphul, the last of our colonial lands visible was the coast of Maine, for we journeyed eastward, then south.
 
@@ -2816,7 +2817,7 @@ Mediumship is true; its ordinary explanation is false. The medium goes into a tr
 
 ### chapter-2-4 - CHAPTER IV - PAYING LIFE'S REWARDS
 
-"Phylos," said Mol Lang, "thou shalt now presently behold a man, all in a world of his own. He may not come to us, but we will go to him, and enter into perception of those things which he sees, and because we enter into his perception, therefore we shall be fellow spirits with him, not mere images of his conceptions. Then shall his environment seem as real to us as it does to him; nevertheless his world is (except for such visitors as ourselves, and those few, or perhaps many other souls who are on his identical plane) merely a world of him own conception; it exists not for him who is his neighbor, who will be, as we shall see, on a different psychic plane. Both persons will be existent in the Mansion of the Father, who thus giveth His beloved rest.
+"Phylos," said Mol Lang, "thou shalt now presently behold a man, all in a world of his own. He may not come to us, but we will go to him, and enter into perception of those things which he sees, and because we enter into his perception, therefore we shall be fellow spirits with him, not mere images of his conceptions. Then shall his environment seem as real to us as it does to him; nevertheless his world is (except for such visitors as ourselves, and those few, or perhaps many other souls who are on his identical plane) merely a world of his own conception; it exists not for him who is his neighbor, who will be, as we shall see, on a different psychic plane. Both persons will be existent in the Mansion of the Father, who thus giveth His beloved rest.
 
 "Let us enter into the state of that man; he is an inventor from the world of cause, and all about him shall we find evidences of his inventive dreams, which here seem to be real to him. On earth, he in imagination beheld multitudes of his fellow beings using his adaptations of mechanical and natural forces. He had motor railways which were free to the public, none indisposed to pay were obliged to do so. And he had designs of coin, which the mint (owned by himself, as he had desired while on earth, so that he might correct abuses) minted free for use by the people. So also with all other things which he had hoped to see realized on earth. Yet he died without it, and coming to the world of effects, finds it all (to him only) a fact. We will walk across this plain to the grove yonder, a mile."
 

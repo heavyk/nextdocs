@@ -97,3 +97,91 @@ now, when you think of intuition, it's a sequence of those points in time which 
 the final sense that he says is "innominate" is the one that I have labeled "YHVH" or "identity" -- which is the realisation that if "you" can be a trajectory through time, there is no real limit to who "you" is. you can be any conceptual derivative of yourself in both time or space. therefore, you can now begin to perceive yourself as the "Father" of all of the infinite concepts of yourself. if you "are" whatever you conceive yourself to "be" -- and you choose to see yourself as a rock, are you not a rock? isn't that real just like any other reality is real? out of that any and everything can be born. you, the "Son" have become the "Father" uncountable creations that now extend out of you.
 
 if we're in the 5th day of creation, then there are probably still two more 1000y cycles to go until that's created. you know, that's not actually all that long... it's quite possible that jesus walked the earth only 1000y ago... think about how much has changed since.
+
+### mysterious-stranger - merton fowler and the mysterious stranger
+
+in @[dtp.dtp](chapter-2-4), he goes to meet an inventor, who is very conceited. strangely enough, when had some weird things happen. when reading that, I immediately thought of tesla. I was waiting for the book to say it was tesla but it instead said that he minted mis own coins and designed trains. that inventor was, "merton fowler".
+
+I did searches for who that is, but only found opbituaries of people with the same name. since it's in such a influential book, I assume someone *must* have written something about it somewhere.. not even speculation as to who that could be. I even github doesn't have any mention of it at all. it doesn't even show up in password lists (that are on github) or anything[^1].
+
+I can't remember when it happened, but as I was reading, about this, I hear this nearly audible voice in my head that said "you", in response to my unspoken thought of "I wonder who merton fowler is?" a lot of stuff goes on in my head, and if I were to believe every voice in my head, I would be very confused. I hear voices in my head all the time.
+
+anyway, another thing cought my eye too, because in merton fowler's world, there is an unnamed author.
+
+> The Falls were in the devachanic realm of an author, who, while on earth, was a very pleasing writer, albeit extravagantly hopeful in his imaginative excursions and thought plays. This was, indeed, doubtless the reason of his popularity as an author. His mind dwelt on the sublime in nature, and on the good, the true, and the beautiful. Here in his heaven he lived his books, and found all about him the characters, the emotions, the delicate imagery and the sublime beauty which made his pages seem real to their readers
+
+it never says who the author is, but it says that merton fowler made him an organ:
+
+> I asked where the Falls were situated, and the inventor, Fowler, replied that a certain author of his acquaintance lived there, and had the pleasure of listening to a mammoth pipe organ made for him by the inventor, "By myself! All men whatever," said this egotist, "are beneficiaries of mine, and recognize me as the chiefest of human kind, and greatest of all living people!"
+
+feeling like this author perhaps could be mark twain because twain was also a writer that was good friends with tesla, I type in "mark twain organ" into google, and it comes up "twain's lament - organ music from mysterious stranger" I was very surprised to see the words "mysterious stranger" because a few notable places in the book, it's used as a title.
+
+even wierder is in the introduction (@[dtp/dtp](weird-intro)), the guy from sacred-texts.com making this text available and adding his own apocalytic prophecy to the beginning thanks an "Invisible Helper" for making it all possible. for some reason, when I read that the first time, I read "mysterious stranger" rather than "invisible helper" -- and remembered it that way.
+
+---
+
+it turns out that mark twain had a manuscript he had revised a few times (but never published) about a guy named satan, who consequently was the nephew of the biblical satan. he convinces people that he can fortell the future with magical feats (power-displays). the more people believe in him, the more he prophesies bad things... weird, right?
+
+I do a search for the words "mysterious stranger" in the book. the very first one is in the preface (@[dtp](preface)) where the amanuensis calls phylos the mysterious stranger:
+
+> [speaking about phylos...] after a long narration to both parents, they expressed a desire to hear the mysterious stranger also. This he would not grant, but permitted me to quote his words, talks and addresses, and at length I became so proficient that I could repeat what he said almost as fast as he spoke to me.
+
+the next one was the guy by the fountain that gives zailm a prophecy about his future "sin" or failure.
+
+> Were the words of the mysterious stranger true, or false?
+
+the next one is the guy who showed up and ruled the land for 434 days, reforming the laws of atl government and installing the maxin-stone.
+
+> It is needless to say the proof was satisfactory, and thereafter the mysterious stranger revised the laws and provided then the code which had ever since governed the land. He had said that whosoever should add to or take from his laws, that person should not come into the Kingdom of Incal until "I am come on earth for the final judgment."
+
+the final one is when lolix is convincing him to love her, he's reminded of the mysterious stranger by the fountain:
+
+> The last barrier was fallen. Conscience slumbered. Thoughts of Anzimee were put aside as one would shun an accusing angel. Did I think of Pitach Rhok and my days of sinlessness? Or of the mysterious stranger whom I had heard in awe in the first of my life at Caiphul?
+
+---
+
+so here's the weird thing: I read the plot synopsis of the "mysterious stranger" script and besides it being literary fraud (taking various of twain's works and mixing them together), the ending for this one (which I think twain wrote) has satan show the boys all kinds of religous fanatism, trials, burnings, etc. and explains it all by saying,
+
+    There is no God,
+    no universe,
+    no human race,
+    no earthly life,
+    no heaven,
+    no hell
+
+    It is all a dream--
+    A grotesque and foolish dream
+
+    Nothing exists but you.
+    And you are a thought--
+    
+    A vagrant thought,
+    A useless thought,
+    A homeless thought,
+
+    Wandering forelorn
+    Among the empty eternities
+
+---
+
+there is a lot there, so let's assimilate this. the "mysterious stranger" in twain's manuscript is a prophet that tells of future calamaties -- just like the man at the fountain. later, the man at the fountain is revealed to be the "christ"
+
+> Then a glorious radiance broke over the scene, and the Cross Bearer was beside us as we stood, clasping each other and our child. He whom I had seen by the moonlit fountain, years before, stood by us again. On His breast shone a Cross of Fire, which leapt or fell again in waves of undulating, living Light.
+
+...who also gives prophecy of future calamity and performs magical feats to get people to believe him -- exactly like the nephew of satan in the novel.
+
+the amanuensis identifies phylos as the "mysterious stranger" in the preface, and twain's novel ends with the nephew of satan telling you in a poem, that says:
+
+- There is no God
+- It is all a dream
+- Nothing exists but you
+
+so, I'm the creater of my own reality, huh? you're saying there is no "God" (outside of myself), and nothing exists but me (so I'm God)? I'm also the prophet of my own calamity, so I'm also "Satan" too?
+
+all of this is told in a chapter where they are traveling through the vast world of an inventor where everything is his own conception, others join him in his dream, and he thinks he is the greatest of all men:
+
+> By myself! All men whatever, are beneficiaries of mine, and recognize me as the chiefest of human kind, and greatest of all living people!
+
+this book is NUTS...
+
+[1]: it seems *very* strange to me that there would be so few results. if I take virtually any first and last name and put them into a search engine at this point, I should expect to find *something*. there seem to be tens to hundreds of "merton fowler"s that have lived recently too, so it's just weird that there are so few search results. it feels pretty weird, almost as if something is out of place or being hidden. I remember when I used to be able to use google to find all sorts of interesting things on the internet -- even tons of strange geocities pages and everything. now, it feels like the internet has grown a LOT smaller. anyway, I digress..
