@@ -2,7 +2,7 @@
 
 this time in @[dtp/dtp](book-2) it's the perspective of walter pierson, a later incarnation of zailm who is being introduced to the brotherhood of the "lothtians".
 
-#### 9/10ths
+#### nine-tenths - 9/10ths
 
 in talking about how the secrets of the occult should not be revealed to the unclean masses (my words, not his), there is a particularly elitist and presumptutive quote that reminds me of "original sin"
 
@@ -28,7 +28,7 @@ I don't know, but I sincerely doubt it, and it's kind of a double standard too, 
 
 so then, why is undetectable murder bad??? it sounds to me like it's just returning energy back to its source so it can extend out again. what's wrong with that? I see no problem with anyone's utilisation of "undetectable murder". I don't get it. I mean, think about for the moment a person who is severely depressed and does not want to carry on. instead of suicide, this is a painless and instant transition into devachan. isn't that, like a million times better than dying a decades slow death on pharmaceuticals?
 
-#### meduiums and spiritualists
+#### spiritualists - mediums and spiritualists
 
 mol lang keeps going on and on about spiritualists -- a term I had never heard of. it's a person who communicates with the dead.
 
@@ -42,7 +42,7 @@ in the book, they have just left for the spiritual world, leaving first the phys
 
 it also occurred to me that the reason why my NDEs (see @[newblog](2022-02-21 05:42)), I went directly to this world, completely skipping the astral/psychic bodies' perception.
 
-#### devachan, the senses, and the father
+#### devachan-senses - devachan, the senses, and the father
 
 mol lang explains to phylos that devachan is real, essentially because you can use your 5 senses there. he says that there are 7 senses though, adding intuition and another unnamed one.
 
@@ -62,7 +62,7 @@ following @[dtp/thoughts](the-father), I think the "Father" is the conceptual wo
 
 so, what I think this means is -- is that he's claiming that jesus is the first person to be able to say "I am a conceptual being projecting myself down into the physical". there is no separation between me and the concept of myself.
 
-#### the long devachan, "nirvana"
+#### nirvana - the long devachan, "nirvana"
 
 it has been mentioned a few times now that nirvana is the state that we'll all be in after the death and rebirth process has allowed us to fully return to the "Father" (conceptual world). this means that from there, all of us are now conceptual beings that consciously creating what we want to create.
 
@@ -86,7 +86,7 @@ I know this book keeps repeating the idea that there is no retrogression and one
 
 > They are peopled, but by beings of whom some are good, and some are evil; in the sight of the Eternal Cause, relatively good or evil. That which exists under laws inimical to man is evil to man, though not in itself evil. But these 'mansions' are set apart from one another that they may not interfere.
 
-#### the 7 senses and the 7 days of creation
+#### 7-senses - the 7 senses and the 7 days of creation
 
 > Matter is a One Substantiality, having not a single quality which any human sense can cognize. But force also is one of the creations of the Father. And force hath two polarities, the positive and the negative, absolute opposites. Now man on earth hath certain senses; seven are these senses: sight, hearing, feeling, smelling, tasting, intuition, and one innominate. These last are not yet evolved, for the fullness of days is not come; the Fifth Day is; but the Sixth and the Seventh are not. With the last, man becometh greater than he hath ever been.
 
@@ -95,3 +95,5 @@ it's wierd how well this corresponds to the additions that I want to make to per
 now, when you think of intuition, it's a sequence of those points in time which bring you to a conclusion, answer, result, or reality. intuition is a trajectory of feeling -- meaning it's temporal perception.
 
 the final sense that he says is "innominate" is the one that I have labeled "YHVH" or "identity" -- which is the realisation that if "you" can be a trajectory through time, there is no real limit to who "you" is. you can be any conceptual derivative of yourself in both time or space. therefore, you can now begin to perceive yourself as the "Father" of all of the infinite concepts of yourself. if you "are" whatever you conceive yourself to "be" -- and you choose to see yourself as a rock, are you not a rock? isn't that real just like any other reality is real? out of that any and everything can be born. you, the "Son" have become the "Father" uncountable creations that now extend out of you.
+
+if we're in the 5th day of creation, then there are probably still two more 1000y cycles to go until that's created. you know, that's not actually all that long... it's quite possible that jesus walked the earth only 1000y ago... think about how much has changed since.

@@ -9648,7 +9648,7 @@ I love to anticipate things, so I imagine that the prophesied difficulty for wal
 
 ---
 
-back to where I was... so, probably, like my own father, get attracted to tantra yoga[^1] and other things because of the physical manifestations (you see better, and have a more vivid experience, etc), but it probably becomes kind of like a "gateway" drug, when you realise there is much more to reality than was previously seen by the eye. I know for me, once I unlocked 4d, I was totally hooked. I knew that I could optimise this process and continue to expand my vision. I stated numerous times that I think it's depth is actually infinite. I don't believe the eyes have "pixels" -- but rather antennae, and so therefore the more sensitive the receiver, the more depth can be perceived... I believe I have really only scratched the surface and can easily go millions of times further than I am now[^2].
+back to where I was... so, probably, like my own father, get attracted to tantra yoga[^1] and other things because of the physical manifestations (you see better, and have a more vivid experience, etc), but it probably becomes kind of like a "gateway" drug, when you realise there is much more to reality than was previously seen by the eye. I know for me, once I unlocked 4d, I was totally hooked. I knew that I could optimise this process and continue to expand my vision. I stated numerous times that I think it's depth is actually infinite. I don't believe the eyes have "pixels" -- but rather antennae, and so therefore the more sensitive the receiver, the more depth can be perceived... I believe I have really only scratched the surface and can easily go millions of times faster (vibration rate) than I am now[^2].
 
 once I figured out the technique, it totally became like a drug for me in the sense that I could perform a physical action (star-watching), and then could receive the benefit of more mental capacity. because of the similarity between star-watching and extended duration meditation, I imagine they are quite comparable in effect. I have regularly gotten vision upgrades when meditating, so I know it works.
 
@@ -9662,7 +9662,7 @@ calm conditions can lower resistance, simply because there are less "triggers" t
 
 OK, what I'm trying to say with all of that is that this meditating thing reminds me of the magnetic therapy as a cure to mental illness in poseid culture.
 
-the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 343 (3+4+3) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwaulxn) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
+the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 434 (4+3+4) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwaulxn) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
 
 so, to combat this, they used "magnetic therapy" to dampen the grasp of greed and lust for power in the person's brain. although they called it a "cure", clearly the author states that it was only temporary. knowing that if you fight against something it'll only come back stronger. these con-artists just needed a few more generations before their brain (like my vision) would find a way around the magnetic dampening. the posedi were breeding con-artists.
 
@@ -9692,16 +9692,37 @@ after appreciation is the realisation that it's you doing the creation, and jeho
 
 [1]: though this is probably considered the "dark" or "wrong" path (can't tell the difference in reaction), I'm not here to judge its rightness or not. I'm explaining it's similarity to drugs, even endogenous ones.
 
-[2]: to the doubters out there, notice the rate of my progression. I would guess that I'm probably a few hundreds of times more than where I was when I started. in 3-6 months, that'll probably be thousands, and because my acceleration rate is going so fast. I don't find it at all inconceivable to be millions in a few years. I'm literally not even trying anymore and it's happening, because I know the mental process rather than trying to do it physically. a lot more can be accomplished with the correct vibrational (emotional) state and the manipulation of one's perception, than ever can be accomplished with physical action. there really are no limits, and if there are, my own genetics/biology is and will continue to make the changes it needs to, to accomodate the energy that I summon. no limits.
+[2]: to the doubters out there, notice the rate of my progression. I would guess that I'm probably a few hundreds of times more than where I was when I started. in 3-6 months, that'll probably be thousands, and because my acceleration rate is going so fast. I don't find it at all inconceivable to be millions of times faster in a few years. I'm literally not even trying anymore and it's happening, because I know the mental process rather than trying to do it physically. a lot more can be accomplished with the correct vibrational (emotional) state and the manipulation of one's perception, than ever can be accomplished with physical action. there really are no limits, and if there are, my own genetics/biology is and will continue to make the changes it needs to, to accomodate the energy that I summon. no limits.
 
 [3]: it's interesting to note that it seems that mol lang (ernon), is the main promoter of these systems too. personally, I believe he knows what he's doing, and is just letting it happen. you can't get rid of people's desire for power-displays with any technique; they have to come to the realisation of what they want personally and individually. he sounds like someone who has command over the concepts and laws of nature and is more than willing to let those who want to use those laws however they wish to do so (without resttriction). so far, he sounds a lot like me, honestly... it's going to be interesting to keep going here.
 
 [4]: right after he thinks about attaining this power that they have, the master mendocus tells him that he has to first pass through a trial to earn the power: "Verily, but not now, not until a time of trial be past. [...] Set not thy hand to the plow if thou canst not go to the end of the furrow; it is long and difficult to follow. The world hath not so hard a task as this to impose in all its power."
 
+### 2022-02-23 18:44 - a taurus in a china shop
+
+what I would recommend.. is just wait it out for as long as possible and then use the circumstances to start over... I don't know if it's worth trying to put humpty dumpty back together again...
+
 ---
 
-millions -> faster
+man, there are some pretty funny reactions to this one...
 
+the context, for those wondering, is the latest things I wrote in @[dtp/thoughts-2](nine-tenths).. though, it may not be that. I dunno really, but the part in @[dtp/thoughts-2](nirvana) where I talked about how jesus must have been the first, by accomplishing "equality with the Father", he created the first "mansion", or split of earth that exists equal to the "Father" (aka the conceptual world).
+
+it seems plain to me that each iteration is siphoning off the ones that want to create their own reality -- and each one will make their own "mansion". as mol lang says, there are many mansions...
+
+> They are peopled, but by beings of whom some are good, and some are evil; [...] these 'mansions' are set apart from one another that they may not interfere.
+
+I imagine that the sun is common to all of these "mansions", so if you combine what mol lang says there about the future of earth, with what I believe to be happening where they need to charge up for another 1000y before finally going nova... he also says we're in the 5th day -- so after the final day of creation is the day that "God" rests... sounds to me like a quasar
+
+from their perspective, they have to find a way to keep their charade going meanwhile fearing the sun's eventual outburst.
+
+the other reaction that I got is hard to say exactly, but it felt like there are more fallen-angels nowadays than there were initially -- meaning that they've been multiplying, and since they don't want to make their transition, they'll persist through the outburst. it feels like we're creating a whole galaxy of diverse earth-like planets where fallen-angels compete with us and theirselves to try and control the best conditions.
+
+it made me wonder though -- if they're multiplying, then a galaxy won't stop their multiplication -- just slow down the critical mass by spreading them thinner -- so, that makes me think that the galaxy will eventually be filled to a critical mass kinda like now where so many power structures exist and there is such competition for physical conditions, it forces again a repeat of this one where it's devachan on (all) earth(s in the galaxy).
+
+after that, who knows... maybe this is just the beginning of "going infinite". I desire and it becomes reality...
+
+very interesting...
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
