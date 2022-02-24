@@ -9598,7 +9598,7 @@ first, I noticed that the feel went from, "wow he gets it" -- which continued al
 
 I formulated *most* of what I was going to write while I was in the shower, and then, as I was writing it, the reaction quickly noticed that I had a far more comprehensive answer than only what I had in the shower. in fact, I didn't even include 2/3 of what I thought of in the shower, and even kind of skimmed over the part about the opposite polarity. I figured I had my polarities mixed up because my polarities were also opposite from kuthumi and the sirian guide. I decided to leave it in my (likely) opposite polarities.
 
-I also had some hesitation on the location of the opposite polaritity. -- like, if I'm personifying shiva, then I project out the vibration of vishnu out on to the earth, but I wasn't sure if vishnu is the positive polarity or not because logically speaking, vishnu is the preserver, not the creative principle. in my theory of the galaxy being the "preserver" of the elements, and elements that are less than some amount resonant with the galactic vibration, eventually decay. that makes the galaxy have (looking at the vortex jets), a creative, destructive, and preserver aspect. the vis mortuus is clearly the shiva/destructive aspect, but the naturae looks to me to be the vishnu/preserver rather than the braham/creative principle. it's no worries if I have things a bit off, because it's like putting batteries into an electronic device. 1-2 experiments and it'll all be clear what's what. heat always flows toward cold, so it's just a matter of figuring out the batteries' orientation.. no big deal.
+I also had some hesitation on the location of the opposite polaritity. -- like, if I'm personifying shiva, then I project out the vibration of vishnu out on to the earth, but I wasn't sure if vishnu is the positive polarity or not because logically speaking, vishnu is the preserver, not the creative principle. in my theory of the galaxy being the "preserver" of the elements, and elements that are less than some amount resonant with the galactic vibration, eventually decay. that makes the galaxy have (looking at the vortex jets), a creative, destructive, and preserver aspect. the vis mortuus is clearly the shiva/destructive aspect, but the naturae looks to me to be the vishnu/preserver rather than the brahm/creative principle. it's no worries if I have things a bit off, because it's like putting batteries into an electronic device. 1-2 experiments and it'll all be clear what's what. heat always flows toward cold, so it's just a matter of figuring out the batteries' orientation.. no big deal.
 
 so then, after I wrote it, a few weird things happened but nothing noticeable. later on, though I started to get reactions from what felt like high ranking buddhist monks. it didn't feel like they were too worried about me figuring it out, but they were concerned with others figuring it out.
 
@@ -9640,9 +9640,9 @@ the other thing I noticed in this book were the random thoughts by the author,
 
 > did quong know that he has power over animals? [TODO: find quote]
 
-> I wonder if one day I can have power to create those miracles like the fire or the visuals [TODO: find quote]
+> Would power like this of the Lothins ever be mine? ... the lighting of the darkness; the lifting of the great stone at the entrance; the Vis Viva and the Vis Mortuus; all this that I had seen and was to see ... Could I not hope to attain the power of doing likewise?
 
-the author seems (in my opinion very well convinced by the power-displays). this is a running theme in the book. it was the grief that ernon conveyed before his transition, and a number of zailm's musings on the subject were also on this as well, comparing the poseid technological capacity to use the night-side of nature, in comparison to the necropani and suerni capacity to use it consciously.
+the author seems (in my opinion] very well convinced by the power-displays and wants them for himself[^4]. this is a running theme in the book. it was the anguish that ernon conveyed about the suerni before his transition, and a number of zailm's musings on the subject were also of the possession of power, comparing the poseid technological capacity to use the night-side of nature, to the necropani and suerni capacity to use it consciously.
 
 I love to anticipate things, so I imagine that the prophesied difficulty for walter will be inflicted not because of the desire for affection (like zailm), but probably something to do with power-displays. he then probably gets taught how the "laws" work later (compensation, etc.), by no other than "mol lang", the reincarnation of ernon, the one lamenting that the suerni had such magnificent power but didn't appreciate it, chosing instead to grumble and desired instead to "sin".
 
@@ -9660,7 +9660,7 @@ calm conditions can lower resistance, simply because there are less "triggers" t
 
 ---
 
-OK, what I'm trying to say with all of that is that this meditating thing reminds me of the magnetic therapy as a cure to mental illness in posedi culture.
+OK, what I'm trying to say with all of that is that this meditating thing reminds me of the magnetic therapy as a cure to mental illness in poseid culture.
 
 the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 343 (3+4+3) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwaulxn) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
 
@@ -9695,6 +9695,13 @@ after appreciation is the realisation that it's you doing the creation, and jeho
 [2]: to the doubters out there, notice the rate of my progression. I would guess that I'm probably a few hundreds of times more than where I was when I started. in 3-6 months, that'll probably be thousands, and because my acceleration rate is going so fast. I don't find it at all inconceivable to be millions in a few years. I'm literally not even trying anymore and it's happening, because I know the mental process rather than trying to do it physically. a lot more can be accomplished with the correct vibrational (emotional) state and the manipulation of one's perception, than ever can be accomplished with physical action. there really are no limits, and if there are, my own genetics/biology is and will continue to make the changes it needs to, to accomodate the energy that I summon. no limits.
 
 [3]: it's interesting to note that it seems that mol lang (ernon), is the main promoter of these systems too. personally, I believe he knows what he's doing, and is just letting it happen. you can't get rid of people's desire for power-displays with any technique; they have to come to the realisation of what they want personally and individually. he sounds like someone who has command over the concepts and laws of nature and is more than willing to let those who want to use those laws however they wish to do so (without resttriction). so far, he sounds a lot like me, honestly... it's going to be interesting to keep going here.
+
+[4]: right after he thinks about attaining this power that they have, the master mendocus tells him that he has to first pass through a trial to earn the power: "Verily, but not now, not until a time of trial be past. [...] Set not thy hand to the plow if thou canst not go to the end of the furrow; it is long and difficult to follow. The world hath not so hard a task as this to impose in all its power."
+
+---
+
+millions -> faster
+
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting

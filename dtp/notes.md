@@ -220,3 +220,14 @@ it seems that the suerni are the first ones beginning to show signs of major fat
 
 the weird "God doesn't exist" bit from mainin
 
+### weird mol lang quotes
+
+> no great reform, nor anything greatly good, can succeed in any century, decade or year nominated by the number nine. Hence, human hopes will wax on wane, will seem to go forth to victory, but will meet only failure until the new century.
+
+but, I thought it was 1800's. is he saying that in the following centry (900's), it won't work until the following century (1000's)? weird.
+
+> I have so willed, my son, that the features of this visit to devachan shall be withdrawn from thee, and thou wilt remember them only as a vague, delightful dream [...] I have but to disassociate the astral body here formed by thine experiences, and thou wilt thereafter know this state only when that astral shall control thee as its medium.
+
+interesting, he's saying that just by perceiving/having the experience, that is what generates the psychic body. so the concepts experienced and the physical sensation, etc are what generate the psychic/astral body.
+
+this severing of the psychic body -- though, it's still there just not at a frequency that can be accessed from a "normal" state of consciousness -- may be precisely what is happening in those "missing time" experiences. there must be a way to ensure that the "memory" or the psychic body formed is detuned or retuned so that the experience can either be forgotten or "remember them only as a vague, delightful dream".
