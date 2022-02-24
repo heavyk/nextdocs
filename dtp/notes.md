@@ -231,3 +231,31 @@ but, I thought it was 1800's. is he saying that in the following centry (900's),
 interesting, he's saying that just by perceiving/having the experience, that is what generates the psychic body. so the concepts experienced and the physical sensation, etc are what generate the psychic/astral body.
 
 this severing of the psychic body -- though, it's still there just not at a frequency that can be accessed from a "normal" state of consciousness -- may be precisely what is happening in those "missing time" experiences. there must be a way to ensure that the "memory" or the psychic body formed is detuned or retuned so that the experience can either be forgotten or "remember them only as a vague, delightful dream".
+
+#### his 7-parts of the body
+
+- the I AM, or ego
+- the body of the spirit, or spirit-body
+- the human soul
+- the animal soul
+- the astral reflection of the two lowest principles:
+- vital force
+- earthly body thereby animated.
+
+very weird... there's a lot of stuff missing here. like .. he's missing all of the non-physical counterparts... where's source?
+
+what I think he's done is he's divided up the 3 lower layers into 7. so, above this would be source (where everything is equal). the very top of the conceptual realm, just extending out of source is the ego, followed by the spirit-body or, concept of yourself
+
+then, he has two souls, the human soul and the animal soul. I'm not sure what he means exactly by soul though...
+
+---
+
+however, it seems to make more sense if we remap his 7 onto my 5. the ego is the identity/YHVH. the spirit body is probably also in that definition too -- the concept you have of yourself. the human/animal soul is the temporal/thrust layer. the astral reflection is the imagination/relational[^1].
+
+the vital force I'd put somewhere between the imagination and the physical layers... I don't know why he makes it a body though because it doesn't make sense to have it as a body. I think what he's saying is that when you are sad, your energy (vital force) body is diminished, which is a reflection of how your emotion (eg. how you conceptualise yourself). I'll go with the imagination/relational[^1] there because your vitality is a living image of the way you feel. tough to say...
+
+finally, the animated body is obviously physical/desire.
+
+I really don't know why he splits it up this way...
+
+[1]: I call it relational because it's how concepts interact/relate to one another, but it could just as well be called their reflection or harmony to each other. each concept reflects back only the parts that resonate -- good or bad. 
