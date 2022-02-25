@@ -275,6 +275,14 @@ prolly means nothing... anyway, as I was reading, I noticed a strong sense of ho
 
 there is a lot I don't like about this guy. as an inventor, I like tesla much much better, however tesla bothers me in other ways -- mostly because he's so visual and perfection oriented (hence why I too think edison is more similar to me). I believe perfection to be a lofty ideal and prefer the diversity of difference. as such, I like how he things *feel* more than how they look -- though we share a common affection for efficiency --  something which merton did not at all have.
 
+TODO: note the apparent missing section in the text.
+
+#### final irony
+
+the biggest irony of the world that this book aims to explore (the subjective/conceptual devachan), *also* must be christless -- unless, of course, you add that concept into it -- and so therefore the "christ" is your world is *your* concept of the christ; it's not outside of you. so, inotherwords, you are your own "Christ" in your subjective world, too.
+
+restated, a christ can only exist in the physical/objective world, because in a subjective/conceptual world, the christ (outside of yourself) would be your concept of what a christ is, come to save you from the environment you created and other concepts in that environment, also created by you.
+
 [1]: it seems *very* strange to me that there would be so few results. if I take virtually any first and last name and put them into a search engine at this point, I should expect to find *something*. there seem to be tens to hundreds of "merton fowler"s that have lived recently too, so it's just weird that there are so few search results. it feels pretty weird, almost as if something is out of place or being hidden. I remember when I used to be able to use google to find all sorts of interesting things on the internet -- even tons of strange geocities pages and everything. now, it feels like the internet has grown a LOT smaller. anyway, I digress..
 
 [2]: I'm sorta insinuating that a very similar thing probably happened with edward de vere as well, as I think he too self-sabotaged himself with his own symbols as well. I downloaded "a midsummer's night dream" and it looks very much to be that way. with the fairy characters, "cobweb", "moth" (reference to what destroys earthly treasures) and "mustardseed" (as in faith like a mustardseed can move mountains and nothing will be impossible to you). additionally, there's nick bottom that wants to play all the parts -- just like the line that "satan" says, "Nothing exists but you" and "It is all a dream"... a play within a play.
