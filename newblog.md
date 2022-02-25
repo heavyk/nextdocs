@@ -9724,6 +9724,26 @@ after that, who knows... maybe this is just the beginning of "going infinite". I
 
 very interesting...
 
+### 2022-02-25 02:49 - leapfrogging time pickles (revisited)
+
+I just got done adding another section to @[dtp/thoughts-2](mysterious-stranger), where I figured out how to combine the elements of @[newblog](2022-01-29 01:25) with the ideas that mol lang was presenting about the "mansions" in the "Father" and how that could be creating the galaxy (see previous entry for thoughts on that). well, on an individual planet scale, there needs to be a system to power up. since both earths have devachan-like qualities, we need to alternate between physical (cause) and conceptual (effect), and then to conceptual (cause) and physical (effect). this lays down a framework to do so for those "managing" these "mansions" from the temporal/thrust or identity/YHVH layers of perception. it's the same idea, but perceived from opposite directions.
+
+---
+
+anyway, right before this, I believe a pretty good geomagnetic storm hit because I kept starting to "go up". it was starting to become so unmanageable, I figured that a few hours ago would be the last I'd be seen in this format. back when I was star-watching, the rise would be slow enough that I had plenty of time to catch it. however, just earlier, it came on so fast that my entire left leg went numb.
+
+I looked on my phone to see if there were any solar flares -- and there were a few, but nothing like really notable. a low level c-flare (!!), I'm pretty sure. let me tell you though... for just a c-flare, the impact was quite noticeable.
+
+all I could do is just lay in bed with a mixture of shivers cause I was so cold, so I put the blanket on but then right after burning up because my body is emitting so much heat. I could barely hold my eyes open, feeling very strongly like I needed to sleep, but every time that I would relax to sleep, I would rapidly start to "go up".. like so fast I didn't have much control.
+
+I thought for sure that if I didn't get up then, nobody would get these notes, because I didn't walk to starbucks. I was going to walk tomorrow anyway, but if I go up, I don't think my body will survive the process. I don't know how it'll be, but in that moment, I really didn't think I would make it to starbucks. I determined to get up and drink coffee and write this until the energy lowered again. what came out was what I mentioned above. I'm pretty happy with it. it was a pretty big mental breakthrough for me. I could feel it earlier, but I couldn't get it all together. I tried walking, I chatted with jaron, and mom, and still couldn't get it...
+
+I'm reminded of a theory I once had where I said that the flare provides the mental agility to make some changes, and then when the CME arrives, it's like the resources for implementation arrive. I wonder if that flare coincided with something I was writing...
+
+the other weird thing is during that impact, I kept kind of drifting in and out of consciousness, and though one side of me felt like I was surely going to die if I didn't find a way to lower the energy, another part of me could feel girls very very strongly. they kept passing in and out of my consciousness and it felt like things would be starting soon. though soon thereafter, I went back to thinking it's still quite a ways off...
+
+super crazy experience.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
