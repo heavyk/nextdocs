@@ -100,13 +100,15 @@ if we're in the 5th day of creation, then there are probably still two more 1000
 
 ### mysterious-stranger - merton fowler and the mysterious stranger
 
-in @[dtp.dtp](chapter-2-4), he goes to meet an inventor, who is very conceited. strangely enough, when had some weird things happen. when reading that, I immediately thought of tesla. I was waiting for the book to say it was tesla but it instead said that he minted mis own coins and designed trains. that inventor was, "merton fowler".
+in @[dtp/dtp](chapter-2-4), he goes to meet an inventor who is very conceited. strangely enough, some weird things happen when I'm reading it. my heart started racing and I immediately thought of tesla. I was waiting for the book to say it was tesla but it instead said that he minted mis own coins and designed trains. that inventor was, "merton fowler".
 
-I did searches for who that is, but only found opbituaries of people with the same name. since it's in such a influential book, I assume someone *must* have written something about it somewhere.. not even speculation as to who that could be. I even github doesn't have any mention of it at all. it doesn't even show up in password lists (that are on github) or anything[^1].
+I did searches for who that is, but only found opbituaries of people with the same name. since it's in such a influential book, I would've assumed someone *must* have written something about it somewhere.. not even speculation as to who that could be. even github doesn't have any mention of it at all. it doesn't even show up in password lists (that are on github) or anything[^1].
 
-I can't remember when it happened, but as I was reading, about this, I hear this nearly audible voice in my head that said "you", in response to my unspoken thought of "I wonder who merton fowler is?" a lot of stuff goes on in my head, and if I were to believe every voice in my head, I would be very confused. I hear voices in my head all the time.
+I can't remember when it happened, but as I was reading this introduction to merton fowler, I hear this nearly audible voice in my head that said "you", in response to my unspoken thought of "I wonder who merton fowler is?" a lot of stuff goes on in my head, and if I were to believe every voice in my head, I would be very confused. I hear voices in my head all the time.
 
-anyway, another thing cought my eye too, because in merton fowler's world, there is an unnamed author.
+#### who is the author?
+
+another thing caught my eye too, because in merton fowler's world, there is an unnamed author:
 
 > The Falls were in the devachanic realm of an author, who, while on earth, was a very pleasing writer, albeit extravagantly hopeful in his imaginative excursions and thought plays. This was, indeed, doubtless the reason of his popularity as an author. His mind dwelt on the sublime in nature, and on the good, the true, and the beautiful. Here in his heaven he lived his books, and found all about him the characters, the emotions, the delicate imagery and the sublime beauty which made his pages seem real to their readers
 
@@ -114,15 +116,15 @@ it never says who the author is, but it says that merton fowler made him an orga
 
 > I asked where the Falls were situated, and the inventor, Fowler, replied that a certain author of his acquaintance lived there, and had the pleasure of listening to a mammoth pipe organ made for him by the inventor, "By myself! All men whatever," said this egotist, "are beneficiaries of mine, and recognize me as the chiefest of human kind, and greatest of all living people!"
 
-feeling like this author perhaps could be mark twain because twain was also a writer that was good friends with tesla, I type in "mark twain organ" into google, and it comes up "twain's lament - organ music from mysterious stranger" I was very surprised to see the words "mysterious stranger" because a few notable places in the book, it's used as a title.
+feeling like this author perhaps could be mark twain because twain was also a writer that was good friends with tesla, I type in "mark twain organ" into google, and it comes up "twain's lament - organ music from mysterious stranger" I was very surprised to see the words "mysterious stranger" because in a few notable places in the book, those words are used as a title.
 
-even wierder is in the introduction (@[dtp/dtp](weird-intro)), the guy from sacred-texts.com making this text available and adding his own apocalytic prophecy to the beginning thanks an "Invisible Helper" for making it all possible. for some reason, when I read that the first time, I read "mysterious stranger" rather than "invisible helper" -- and remembered it that way.
+even wierder is in the introduction (@[dtp/dtp](weird-intro)), the guy from sacred-texts.com making this text available and adding on his own apocalytic prophecy to the beginning thanks an "Invisible Helper" for making it all possible. for some reason, when I read that the first time, I read "mysterious stranger" rather than "invisible helper" -- and remembered it that way.
 
 ---
 
-it turns out that mark twain had a manuscript he had revised a few times (but never published) about a guy named satan, who consequently was the nephew of the biblical satan. he convinces people that he can fortell the future with magical feats (power-displays). the more people believe in him, the more he prophesies bad things... weird, right?
+it turns out that mark twain had a manuscript called "mysterious stranger" he had revised a few times (but never published) about a guy named satan, who consequently was the nephew of the biblical satan. he convinces people that he can fortell the future with magical feats (power-displays). the more people believe in him, the more he prophesies bad things... sound familiar? maybe a little bit like jehova or this "christ"? weird, right?
 
-I do a search for the words "mysterious stranger" in the book. the very first one is in the preface (@[dtp](preface)) where the amanuensis calls phylos the mysterious stranger:
+I do a search in the book for the words "mysterious stranger". the very first one is in the preface (@[dtp](preface)) where the amanuensis calls phylos the mysterious stranger:
 
 > [speaking about phylos...] after a long narration to both parents, they expressed a desire to hear the mysterious stranger also. This he would not grant, but permitted me to quote his words, talks and addresses, and at length I became so proficient that I could repeat what he said almost as fast as he spoke to me.
 
@@ -134,7 +136,7 @@ the next one is the guy who showed up and ruled the land for 434 days, reforming
 
 > It is needless to say the proof was satisfactory, and thereafter the mysterious stranger revised the laws and provided then the code which had ever since governed the land. He had said that whosoever should add to or take from his laws, that person should not come into the Kingdom of Incal until "I am come on earth for the final judgment."
 
-the final one is when lolix is convincing him to love her, he's reminded of the mysterious stranger by the fountain:
+the final one is when lolix is convincing zailm to love her, he's reminded of the mysterious stranger by the fountain:
 
 > The last barrier was fallen. Conscience slumbered. Thoughts of Anzimee were put aside as one would shun an accusing angel. Did I think of Pitach Rhok and my days of sinlessness? Or of the mysterious stranger whom I had heard in awe in the first of my life at Caiphul?
 
@@ -142,25 +144,25 @@ the final one is when lolix is convincing him to love her, he's reminded of the 
 
 so here's the weird thing: I read the plot synopsis of the "mysterious stranger" script and besides it being literary fraud (taking various of twain's works and mixing them together), the ending for this one (which I think twain wrote) has satan show the boys all kinds of religous fanatism, trials, burnings, etc. and explains it all by saying,
 
-    There is no God,
-    no universe,
-    no human race,
-    no earthly life,
-    no heaven,
-    no hell
+        There is no God,
+        No universe,
+        No human race,
+        No earthly life,
+        No heaven,
+        No hell
 
-    It is all a dream--
-    A grotesque and foolish dream
+        It is all a dream--
+        A grotesque and foolish dream
 
-    Nothing exists but you.
-    And you are a thought--
-    
-    A vagrant thought,
-    A useless thought,
-    A homeless thought,
+        Nothing exists but you.
+        And you are a thought--
+        
+        A vagrant thought,
+        A useless thought,
+        A homeless thought,
 
-    Wandering forelorn
-    Among the empty eternities
+        Wandering forelorn
+        Among the empty eternities
 
 ---
 
@@ -184,4 +186,95 @@ all of this is told in a chapter where they are traveling through the vast world
 
 this book is NUTS...
 
+#### irony of the book
+
+for a book that is trying its hardest to try and prove that there is a "God", a "Father", and a "Christ" all using power-displays, -- the author (phylos) *must* have known the irony of using the words "mysterious stranger" to describe the "christ".
+
+not just the "christ" though; phylos, jehova, and mendocus are *also* using power-displays to garner belief coupled with prophesies of future calamity. this whole book is filled with people that need manifestations (power-displays) to believe boost their confidence in theirselves or the laws.
+
+all of this is happening in a chapter describing an inventor that is looking to create a "christless" world:
+
+> That man is arranging his concepts of a Christless life as gained on earth. When all is assimilated, he will recarnify on earth, and from his early childhood self-conceit and self-admiration will be his ruling characteristics. [...] out of his future egotism will arise self-confidence. His spirituality of temperament is large, his animal qualities well balanced and strong, and the good of all his conceit will manifest itself next as a governor of those forces which will lead men forward.
+
+it's saying that this inventor wants to create a christless world. christless means no saviour, which means no thing outside of yourself will be creating your reality for you. you attract, and therefore create, your *own* personal reality -- your own "mansion" in the "Father". by creating a christless reality, he's sort of putting the creation of these "mansions" into the hands of the people, rather than the most initiated or adept.
+
+this chapter sort of un-does everything this book tries to accomplish. if there is no christ, there's no sin, and if there's no sin, there's no need to at-one yourself to anything except your own self and your own desires.
+
+the way the dialogue goes, it's very difficult to perceive the implications of what it's saying, so it took me making the connection through the "mysterious stranger" reference.
+
+additionally, "christless" is nearly the same thing as saying "anti-christ" -- for which the message of this book is given by a 
+
+the chapter is very ironic in that sense...
+
+#### did twain help tesla to self-sabotage?
+
+I went for a walk to think about this and it occurred to me that it's quite possible that mark twain helped tesla to self-sabotage this timeline -- quite possibly even with this story.
+
+wikipedia says that all of the 5 different versions/fragments of the story were written after this book was written (according to the amanuensis, 1894), so it's quite possible that twain could have been inspired to write his novel as well, after this had already been written, thereby placing a bit of irony into this document.
+
+perceived symbols (like a dream or vision) can alter a timeline dramatically. a textual symbol can do-so as well. when I was in berlin I learned from some "time travelers" (their claim, not mine) how to use symbols to attract the future. I've learned a lot about how to do that since and -- essentially you just put symbols (that mean something to you) out in a place for others to see, and their contemplation of those symbols makes their version of that symbolic reality. it's not your version of the symbol, as they can be interpretted any way perceived -- and so, as with all things, wanted-and-unwanted-are-same.
+
+symbols are to timelines as media is to communication. the medium *is* the message.
+
+
+this symbolic manipulation to self-sabotage may be the very origins (and evidence) of the *iteratively self-sabotage your succcesses to build more velocity cause nothing is really lost cause it's all attration* -- technique. (as you'll see in the next sections)
+
+the final bit of irony for a book working so hard to produce a "christ", is that in a "christless" reality where everything you perceive is an extension of or resonant with your own concepts of reality, then there is nobody there to save you -- no saviour. if there's no one to save you, you *must* gain self-confidence because there's nobody to carry your cross for you. *you!*, are the alpha and also the omega.
+
+#### how does this self-sabotage fit into the bigger picture?
+
+since I believe we're on tesla's self-sabotaged timeline, and as mentioned above, I find it likely that the things rendered in twain's "mysterious stranger" not only affected tesla, but also changed the trajectory of this timeline in the reception of this book. "mysterious stranger" takes a very critical look at this book. I've only read the plot from tvtropes, but it seems that handsome (appearance) satan uses power-displays to become attractive to the boys and also the girls, and then uses their elevated perception of him to get them to believe in the calamaties he prophesises. knowing LOA, we know that "satan" here is just exploiting the "rapport" he built up with them to get the kids to attract that disaster -- just like jehova or "christ", "satan" in this novella is doing the same thing.
+
+I feel it's pretty plausible that twain conversed with tesla about these ideas presented in the "mysterious stranger". tesla also spent the later part of his life in eastern philosophy and things like that nature. he wrote about moses and the ark of the covenant, and studied the great pyramid at length, so he was studying the science laws governing the "magic" of the power-displays. tesla himself was also a bit of a magician using his own types of power-displays to build up buzz for his inventions.
+
+I feel very strongly that some combination of these symbols must have altered the trajectory of tesla's life just as "satan" did to the lives of the boys in that story. it's like a play within a play[^2].
+
+if that's true, then it's very likely to be self-sabotage (ie. them affecting theirselves from the future or from another timeline), which means that paves the way for a reality where there isn't a need for power-displays. that's probably where I come in. it's kind of like tag-team.
+
+this is just a theory to explain that tag-team idea, but I often times wonder about tesla's older brother that died early on. conceptually, he feels to me like JTB does for jesus. this is the hero-twins trope, where one self-sacrifices so that the other can rise.
+
+going on that a bit further, in the sirian guide, I can't remember how it goes exactly, but the three triads presented, feel to me like the same two dudes interacting with "venus". she takes on different roles in their various stages of development, but never the physical ones -- the dudes do that. I can't remember the first triad, but the second, osiris is paired with ra. the third triad (I think) vulcan is paired with thoth. what I remember is that the osiris/vulcan guy (different incarnations), is always paired with the ra/thoth guy, so osiris+ra, and vulcan+thoth.
+
+conceptually speaking, let's assume that these are the archetypical hero twins. one is successful (in their own element/ray) -- while the other self-sacrifices to allow the first to rise. one of them is physically oriented while the other is conceptually oriented... kind of like personifications of the difference between conceptual devachan and physical earth.
+
+the "christ" in this book is obviously a magician relying on power-displays and things of that nature, so very clearly falls into the hands of ra/thoth. the "christ" in this book identifies himself as the perfected 7th ray. "satan" in the "mysterious stranger" is also the magician 7th ray type.
+
+merton, is obviously the conceptual type, much more like 5th ray vulcan than 7th ray thoth. 
+
+so, what I see happening is that there are (at least) two earths, and these physical conceptual types go back and fourth gaining power by self-sacrificing their successes so that the other can do it the opposite way.
+
+vulcan finds success conceptually and subjectively, and then from a future standpoint (think leapfrogging time pickles) sabotages it so that thoth can come and win everyone over with power-displays, laws, sensational marketing, and good looks.
+
+he then, from that future standpoint, knowing that humans will arrive to where he is in the "future", he self-sabotages his own success and allows vulcan to once again find a subjective/conceptual success.
+
+it's basically like taking the conceptual/devachan and physical/earth condensation/evaporation cycle and doing it on a macro scale as well as the micro.
+
+---
+
+the number of earths doing this can be infinite. they don't even need to exist on the same timeline for it to work, and everyone can try out being a "christ" of a physical or conceptual nature -- just pair with your conjugate.
+
+this explanation of the leapfrogging physical/conceptual "christ"/anti-christ is the "linear" (derivative) perspective of my extra two perceptive dimensions (temporal+YHVH) and mol lang's explanation of clumps of people occupying different "mansions" in the "Father".
+
+
+#### thoughts on merton fowler
+
+I find his name to be really weird and I also really dislike his description in the book as well. to sort this out, I decided to look up what his name means.
+
+"mer" is ocean or water
+"ton" as a terminal seems to mean "unit"
+
+ocean unit, I guess..
+
+I took fowler to mean, someone who turns things fowl -- and, I suppose fowl could mean "wild bird" or "rotten".
+
+internet says merton in old english means pool enclosure or lake settlement. fowler means someone who hunts wild birds.
+
+my definition is interesting because it's opposites. it either turns fowl (ie. self-sabotage) or it turns into a wild bird (ie. freedom).
+
+prolly means nothing... anyway, as I was reading, I noticed a strong sense of how I hated his inventions. I find them to be very inefficient. all transportation requires an engineer. automation, dude! he also likes minting money -- ugh, I really dislike money. I do like coins more than bills though (2(euros) coin is my favourite), and I would *never* put my face on a coin; that's so pretentious and ridiculous. and, "the people's man" -- lol, is he a dictator or something??
+
+there is a lot I don't like about this guy. as an inventor, I like tesla much much better, however tesla bothers me in other ways -- mostly because he's so visual and perfection oriented (hence why I too think edison is more similar to me). I believe perfection to be a lofty ideal and prefer the diversity of difference. as such, I like how he things *feel* more than how they look -- though we share a common affection for efficiency --  something which merton did not at all have.
+
 [1]: it seems *very* strange to me that there would be so few results. if I take virtually any first and last name and put them into a search engine at this point, I should expect to find *something*. there seem to be tens to hundreds of "merton fowler"s that have lived recently too, so it's just weird that there are so few search results. it feels pretty weird, almost as if something is out of place or being hidden. I remember when I used to be able to use google to find all sorts of interesting things on the internet -- even tons of strange geocities pages and everything. now, it feels like the internet has grown a LOT smaller. anyway, I digress..
+
+[2]: I'm sorta insinuating that a very similar thing probably happened with edward de vere as well, as I think he too self-sabotaged himself with his own symbols as well. I downloaded "a midsummer's night dream" and it looks very much to be that way. with the fairy characters, "cobweb", "moth" (reference to what destroys earthly treasures) and "mustardseed" (as in faith like a mustardseed can move mountains and nothing will be impossible to you). additionally, there's nick bottom that wants to play all the parts -- just like the line that "satan" says, "Nothing exists but you" and "It is all a dream"... a play within a play.
