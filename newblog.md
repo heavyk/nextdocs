@@ -9744,6 +9744,127 @@ the other weird thing is during that impact, I kept kind of drifting in and out 
 
 super crazy experience.
 
+### 2022-02-26 06:57 - getting others to bail you out of problems you created
+
+yesterday, I wrote more in @[dtp/thoughts-2](mysterious-stranger), and in the section of the "final irony" I was explaining that a conceptual world is by its own nature a "christless" world. the crist is your own concept of a christ, and this christ is saving you from your own problems (that you created), too.
+
+that spawned some thought that I was going to write about yesterday, but I guess I didn't sleep all afternoon and was again tired.. so I'll write about it instead this morning. I thought of some more interesting aspects to it. it's funny how it relates to the mysterious stranger as well.
+
+#### the author's daughter
+
+yesterday, I was also trying to figure out who the author's daughter is. I looked all around for an author who lived in japan in the final part of his life and couldn't find any. seeing as I can't find a single thing on merton fowler either, I have to imagine that these timelines were sabotaged. I'm still pretty convinced that the author is, or reminds me very much of twain.
+
+twain is a funny last name because the author (of the book, phylos), not the author that shares a reality with the inventor with a daughter. the author later gets paired with "phyris", the daughter of mol lang (ernon), and it says:
+
+> Lastly, the ego coming from the Father hath no sex; it is not man, neither woman, but sexless. When it entereth upon life it becometh double, so that in the earth there is a man, and there is a woman, and though the bodies and the animal souls and the human souls be different in the *twain*, yet behold, their spirit is one and the same.
+
+so he's saying that the ego (I AM) coming from the father gets split into male and female physical bodies... it's like the mysterious stranger says, "nothing exists but you and you are a thought".
+
+if nothing exists but me, and the first separation which is perceivable is into male and female. mol lang explains this later:
+
+> For me there is no more birth, and no death of the body except through transition of the Logos. Here I passed the ordeal of the crisis and am become androgynous, for in me now are the feminine and the masculine; I am whole, not half, and I and my egoic mate are one individual We twain are one, and have come unto the Spirit in the sense uttered by the Savior when He said, 'Be ye therefore perfect, even as thy Father is perfect.'
+
+he now contains both male and female and he lives now forever in the conceptul realm, projecting his body down into the physical.
+
+#### everything experienced is a concept resonant with you
+
+so, wait a second... I thought that *jesus* was the only one that had attained equality with the "Father"?? now, mol lang has eqality with the father too? additionally, mol lang is the one that is showing the author of this book another author with a daughter and they later become "twain"...
+
+the resonances are strong. I'm starting to get the feeling that merton, this author, the other author, mol lang, the "christ", jehova, and perhaps even ernon are all concepts created by jesus. like the mysterious stranger, he's creating his own problems and solutions.
+
+#### you create the christ you need to bail you out
+
+let's go back to the part where I was talking about the subjective world and you creating your own concept of christ to bail you out of the problems and/or environment that you created.
+
+imagine for yourself people that fit the description of creating a bunch of problems for theirselves, and then expecting *you* to bail them out of them.
+
+now, imagine people that you know what *desire* to bail others out of their own problems.
+
+the most common example of this is (that I can think of) lovers, mates, parents with their offspring, and government institutions.
+
+it seems that some part of our culture is designed to try and create problematic situations so that someone can bail you out of them. that is literally how every superhero I've ever seen depicted in stories finds his lover. it's a super common trope:
+
+> I need you to bail me out of a problem situaton.
+
+we know from LOA that any situation you're in, is in fact one that you created/attracted, so it's always true to say, 
+
+> I need you to bail me out of a situaton I created.
+
+government institutions are most prolific with this style of bailout. it's even aptly named, "taxpayer bailout".
+
+lovers do it all of the time too, and kids are most notable for this as well, getting theirselves into a situation and then calling for mom to come and right the victimisation the other kid inflicted on her child.
+
+#### the roguebook and symbolic attraction
+
+the next bit that I want to talk about needs an introduction. you might say I'm the author in a roguebook. consider the idea that symbols can dramatically alter a timeline (an idea I presented yesterday), and that all of you are just concepts I created and/or ones that resonate with me.
+
+that means that the things I focus on, symbolically create my reality reflecting the meaning I've associated with it back to me in contrast to others' perception (meaning) of those same symbols.
+
+take for example the picture that I drew of the man on the left and the little girl on the right. I meant it to be the two hemispheres of my brain. one is my mundane (physical) reality me, while the other is this lofty idea (subjective) reality little girl that wants her dreams to become reality all of the time.
+
+when I drew it, I was unaware that so many other people would see it. well, consequently a whole lot of people interpretted that picture in a lot of different ways. it was either right around that time or soon after marcos brought me to the office and he had andrea with her. that set into motion the reality that I'm living now. symbols are very powerful and can dramatically affect the timeline.
+
+ironically, the picture I used as an example had exactly that contrast between the sujective reality girl and the objective physical reality boy. that picture is perfect because it's the exact contrast I want to illustrate.
+
+we're in a roguebook created by symbols I focus on and I am the author. you have been forewarned.
+
+#### this morning's dream
+
+the dream this morning was weird because I woke up trying to explain it back to someone in the dream. it was the diagram of a machine that caused problems. the way it worked is it transferred heat from the front into the back, thereby propelling the machine faster and faster.
+
+the higher the heat, the higher the vibration, and so as it went faster and faster, it created more and more heat or cold -- can't remember, in its wake. the effect of it was like the maxin stone or vis mortuus in that it basically deleted everything from this reality in its wake.
+
+I don't know if it's a real machine or a symbol of a principle, cause there was a peculiar aspect to it: because it ran on heat, it couldn't get to the high vibration that the maxin stone got.
+
+if you remember, the maxin stone was not hot and it was capable of disintegrating both the physical and the psychic bodies, allowing zailm to transition into devachan.
+
+this machine only deleted the physical body and detuned the psychic body so that it had a much harder time to return to devachan. it was essentially creating fallen-angels, psychic/astral bodies that cannot figure out how to return to the subjective realm, so they keep haunting and incarnating into weak humans easily inflenced by their psychic influence[^1]. unlike the maxin stone which returned removed both the psychic and physical perception, allowing return to the conceptual, this machine only removes physical perception.
+
+essentially, this machine is like a bad technical copy of the vis mortuus I described a few entries up.
+
+the purpose it serves, I believe is to begin splintering off various realities/mansions. we know that reality is a reflection of how you perceive it to be, and if you're feeling good, and if this machine deletes your physical perception, you will perceive the astral/imagined reality of your concepts (like devachan). if that imagined reality is not resonant with earth, it becomes its own mansion. if it's resonant with earth, it'll stay here for as long as it's resonant (eg. as a fallen-angel).
+
+#### world war three
+
+after explaining the operation of the device (which I saw tesla running the device), I was reminded of a conversation that I had with jaron about a facebook post that jaron showed of people worried about WW3. whether it's actually a subject people are actually talking about or not, I have no idea.
+
+assuming that no one is talking about it, this is a perfect example of how the news uses "rumours of wars" (or epidemics) to get wars (or epidemics) started. exactly no one could be concerned about this, but just saying that others are concerned about it, gives you reason to maybe be concerned about it, too.
+
+I explained to jaron that there are a few people who run the world, so a world war is no longer possible; they would be fighting theirselves. so, if there were a war, it'll be 80% hollywood and 20% drone strikes to inflict the destruction that the "bad guys" are doing. the war will have agreed upon targets to be destroyed. they'll be destroyed by this ficticious enemy and the news agencies will cash in on the terror. you can imagine that such a war would be designed to reduce the human population (probably to reduce heat).
+
+#### maybe the objective is to create more fallen-angels
+
+it occurred to me that, however they decide to build the reality of population reduction, perhaps instead of drone strikes, they'll use this device to, instead of blowing things up, just vapourise everything there, creating a bunch of fallen-angels.
+
+if the objective is to go galactic with this setup, I would imagine that you would want lots and lots of fallen-angels, and for them to have a constantly reducing set of conditions that they can fight over increasing competiton.
+
+it's also quite possible that the other goal is to create *female* fallen-angels, too. I think traditionally fallen-angels have been dudes, but they don't have to be. they just need to be someone that creates conditions (according to their vibration), and likely those conditions (cause they're fallen-angels), will be unwanted conditions, so then they need someone to come and bail them out of those awful conditions that they created. this is not gender specific.
+
+#### the iterative process
+
+I imagine that there will be a continually iterative process where more and more fallen-angels created, causing competition to produce the most fit (only the strongest survive) fallen-angels to compete with eachother over the dwindling conditions here on earth. they'll need better and better creators of wanted realities, that they can control.
+
+each iteration, conditions will deteriorate more and more rapidly, each time requiring anthor "christ" to show up. there will be a separation of the ones that create the mansion that they want to live in (perceived as a rapture?), while the rest will remain here as fallen-angels fighting over the conditions.
+
+I'm pretty sure that fallen-angels can easily make their transition back into devachan, as they release their resistant ideas, they will lose density and eventually make it back to devachan where they'll redesign their character to create what they want. after being born into physical again, they'll instantly be perceived as either weak enough to inhabit the body of, or one of the reality creators that can be exploited.
+
+you can imagine that this process will iterate a whole lot of times, each time creating better and better reality creators and better and better fallen-angels. the reality creators will all be in their own mansions, and the fallen-angels will likely be confined mostly here to earth.
+
+I don't know if it's the case or not, but I would guess that once the sun goes nova, and all of those mansions become real actual physical reality, that's when such a viscious multitude of fallen-angels will suddenly notice a whole lot of incredible new physical realities that they can exploit. that's how I would guess it to be.
+
+if I were creating one of these mansions, (which I certainly will be), the first thing I will do will be to design my own contrast. the fallen-angels will only be able to exploit the weak ones, and if we have our own difficulty, we'll be ahead of the game, rather than the easiest ones to exploit, having lived in such cushy circumstances.
+
+#### the coming christ
+
+each time the christ that shows up, he (or she) will improve the conditions considerably. the christ is not gender specific. I say this to plant a seed. remember the author's daughter?
+
+anyway... the christ will be a reflection (that is perfectly satisfy) all of the desired physical attributes needed (attracted) for their bailout.
+
+obviously though, if you're focused on things getting worse and awful things happening, then the 7th ray christ will probably *not* appear to satify probably any of those physical attributes. remember, wanted-and-unwanted-are-same? everything is neutral, and good and bad (polarities) are perceptual, right? so, the christ will perfectly satify everything; just not everyone will perceive it that way.
+
+[1]: as in, if they can create terror in a person (or a sympathetic vibration to the psychic body), and get that person to adjust their frequency (tune) to that of the psychic body, then the psychic body can "walk in" and inhabit the body it influenced.
+
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat

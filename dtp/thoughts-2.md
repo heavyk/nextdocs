@@ -286,3 +286,19 @@ restated, a christ can only exist in the physical/objective world, because in a 
 [1]: it seems *very* strange to me that there would be so few results. if I take virtually any first and last name and put them into a search engine at this point, I should expect to find *something*. there seem to be tens to hundreds of "merton fowler"s that have lived recently too, so it's just weird that there are so few search results. it feels pretty weird, almost as if something is out of place or being hidden. I remember when I used to be able to use google to find all sorts of interesting things on the internet -- even tons of strange geocities pages and everything. now, it feels like the internet has grown a LOT smaller. anyway, I digress..
 
 [2]: I'm sorta insinuating that a very similar thing probably happened with edward de vere as well, as I think he too self-sabotaged himself with his own symbols as well. I downloaded "a midsummer's night dream" and it looks very much to be that way. with the fairy characters, "cobweb", "moth" (reference to what destroys earthly treasures) and "mustardseed" (as in faith like a mustardseed can move mountains and nothing will be impossible to you). additionally, there's nick bottom that wants to play all the parts -- just like the line that "satan" says, "Nothing exists but you" and "It is all a dream"... a play within a play.
+
+### devachan-rebirth - the tuning of the soul
+
+> the life between the grave and the cradle, life in the world of effects, is a life of assimilation of results due to causes set in operation while on earth, the world of causality. It is the character-forming realm, where effects are so arranged as to present them as causes in the succeeding earth life; not in the shape of segregate influences, but as traits of character, giving rise to well-defined policies in life on the part of individuals. Like attracts like, and if parents have certain influences governing their lives at critical times, the soul in devachan, which is perforce seeking rebirth on earth, will seize the opportunity presented of finding its similars, similars at that time, though perhaps at that time only, like itself, but never so before, possibly never to be so again; suffice it if there be a concordant trinity at the time.
+
+this bit has an interesting part in it that says that the devachanee:
+
+> It is the character-forming realm, [...] as traits of character, giving rise to well-defined policies in life on the part of individuals. Like attracts like, [...]
+
+he's basically saying that in devachan you become a different character -- and then because "like attracts like" (aka LOA), you attract a different life for yourself based on the new character that you have become.
+
+in another part he says that this always builds on the previous versions of you... no regression.
+
+### authors-daughter - the author and his daughter
+
+
