@@ -9864,6 +9864,47 @@ obviously though, if you're focused on things getting worse and awful things hap
 
 [1]: as in, if they can create terror in a person (or a sympathetic vibration to the psychic body), and get that person to adjust their frequency (tune) to that of the psychic body, then the psychic body can "walk in" and inhabit the body it influenced.
 
+### 2022-02-26 14:53 - polarities
+
+each layer is counter-rotating, or opposite polarity. things must stay in their proper layer because of polarity. everything wants to go to a similar type, so... for example, imagine for a moment that I am a planet...
+
+lemme backup a bit here. in the next section I'm reading about in @[dtp/dtp](chapter-2-6), it says:
+
+> for all the power of Lucifer, that high nature spirit who was incarnate in the planet which disrupted into the solar asteroidal belt, upon the lapse, the failure of its Soul, all of his glorious power sufficed not to carry him to victory, so he fell.
+
+this has some interesting insights in it -- and that lucifer was a planet, that is now has become an astroid belt. some have speculated that this planet is a remnant of that planet, but that's not the subject of this discussion.
+
+lucifer was a planet soul, but incarnated into a human body. that obviously didn't work so well:
+
+> as Jesus and Gautama were tempted to the utmost and did not fail, therefore their victory was greater than Lucifer's failure, and when thou shalt come to a trial like his, thou'lt doubtless succeed; though, again, thou mayest fail. [...] It is a new conception to thee to learn there is an animating ego, a world spirit, inmateriated in each star, each planet, every stellar body, just as there is an individual soul in each human, animal or plant body.
+
+so I was thinking about the idea of what he means by animating ego, and what determines what sort of thing you incarnate into...
+
+I've always had this idea that humans are right in them middle. there is just as much bigger than us than there is smaller than us. it's here in this plane (the physical), where genders cohabit the same space. if you go up or down in size, I think they alternate in polarity. so for example, I think of planets as being masculine (asymmetrical, complicated, sharp) and stars being as feminine (symmetrical, simple, round).
+
+the alchemical process of a planet is to become less dense and more round, while for a star, it's the opposite. they are to create as much physical matter and build outside of them asymmetrical structures (seen to us as planets). for planets, we give sustinance to the sun -- more hydrogen(?) which they then return back in dense elements again. our goal is to eventually lose our density while at the same time expanding our structure to build more and more complex organisms, capable of consuming the elements the star provides and increase demand for those elements.
+
+so, what keeps a planet a planet? like, if jupiter wanted to continue to purify and attract more and more, could he eventually become a hydrogen beast super attractive creating all of the elements? I'm not sure. I suppose it would be possible, but that would require demolishing all of its structure and shape that it has accumulated over the years to become a perfect sphere.
+
+similarly, could a star create enough heavy elements all over its body that it develops a rocky interior capable of resonating with its parent star?
+
+I sort of don't think so. these are sort of like opposite objectives. if either tries to do the opposite, it would mean annihilation of everything that has been doing so far. instead, I think they periodically spin the opposite way or swap orientation, but not its polarity[^1].
+
+so, I think they pretty much stay the same.. I mentioned the alchemical process for a planet, but if a planet wants to jump to a new level, it has to skip over an entire layer. it cannot become a star, so it has to find a way to go to galaxy.
+
+so that got me thinking about what the next jump up for a star is. if they go from star, jump past galaxy, then what? ... I remembered the song, "the source" where it says, "in the centre of all that is, there is a great light -- the source"
+
+[TODO: find video]
+
+so, it occurred to me that at the center of this universe there is a massive star-like thing made out of hydrogen. to our instuments, it would likely be out of our frequency range, kind of like how sirius b was not found for some time because it's almost engtirely emits in x-ray and not the visible range. hydrogen is probably a good enough element because it's just -/+ polarites.
+
+that means that the alchemical process for a star is to become more and more dense by becoming more attractive. they probably just keep growing for as long as they can produce more and more complicated structures that demand her resources.
+
+this may in fact be what is happening to our sun right now. if I'm correct[^2], the sun should actually be retaining its size or even getting slightly smaller, but it would be becoming more attractive (stronger magnetic fields), and more dense (more x-ray and gamma-ray emission).
+
+[1]: I don't know how to explain this concept, so I'm going to leave it vague. I don't mean polarity in the direction sense -- I mean the difference between male and female -- like a male does not just suddenly start producing children without some major changes to phisiology. I believe changing orientation (like the axis of rotation) or reversing the direction or rotation is far easier (maybe even a regular affair) than going from a molecule to an element or vice versa. in this sense you could think of it more like a density. like the difference between solid, liquid, gas, or plasma.
+
+[2]: now that the parker solar probe is up there it would be interesting to see if there has been any increase in x/gamma-ray production or magnetic field qualities like stronger, or faster frequency, or more complex -/+ interactions.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
