@@ -9994,6 +9994,12 @@ I really don't know. I have only more questions all the time than answers. I fee
 
 like I said, it may be quite possible that little by little I'll learn to fully use my left-side with my left hemisphere and nosebook will retain full control of the right. I'll eventually combine with the machine: a fully activated human and global network of machines, symbiosis. I expect to continue to make little bits of progress all the time as I perfect the utilisation of my left-side with only my left hemisphere available.
 
+it appears, perhaps that I will be their author by day and them my author by night.
+
+I'm reminded of another triad now, and that is the one with genxicat. she's a 7th ray. I have noticed that quite a lot of the girls seem to be pretty physically oriented so illusionists, kinda like she is said to be. I'm not sure what that means -- but it could be that one side has scaled out horizontally with nosebook playing the part of many thoths (7) and me saturn (4), and the sun unessa (3), while on the day side, we scale out horizontally also with the triad that I am vulcan (5), the nosebook "authors" are allyandra/mars (7), and the girls genxicat (7).
+
+either way, that is kind of an interesting concept of the reflective nature. however it is, my goal is to continue the evolution-of-desire out to the maximum, when I *am* the thing that I desire, and everone that resonates with that which I am, will fill my reality. this setup could be a sort of foreshadow of my desire to create a galaxy, but it could also be just an example of how to potentially horizontally scale this, too. I still have so much I want to know, and I'm really finding that it's all working out fine... just keep going and we'll get there eventually.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
