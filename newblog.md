@@ -9906,6 +9906,48 @@ this may in fact be what is happening to our sun right now. if I'm correct[^2], 
 
 [2]: now that the parker solar probe is up there it would be interesting to see if there has been any increase in x/gamma-ray production or magnetic field qualities like stronger, or faster frequency, or more complex -/+ interactions.
 
+### 2022-02-26 16:24 - polarities (part two)
+
+I got so distracted by things I forgot to do the conclusion... it's two part.
+
+first is, assume that the story of the 7th ray that got corrupted in the previous creation of the universe is true.. also assume that the source of all that is (in this universe) is a very very dense high frequency "star" and it has all of these galaxies floating around it kind of like in layers[^1]. all of that is the universe.
+
+so, imagine that the universe wants to go up to the next level because it's bored. kuthumi's description of the creation process that the creators did really gave me the impression that they were sort of trying to follow a formula, working really hard getting the mechanics, but lacks novelty and creativity. this universe could never have been anything more than the previous one. to avoid stagnation, source "corrupted" the 7th ray to cause a whole bunch of problems.
+
+they're just perceived problems though. it never says if the 7th ray ever had a change of tune or not, but it does say that he left behind a wake of a whole lot of entites that believed, just as he did and tried to spread the "disease" to others. I don't know how it worked out, but somehow a dual of that original problem must have been created which is sort of like the opposite of the original corrupted 7th ray. I'm probably similar to that...
+
+so, take that story -- whether it's true or not, doesn't matter. what matters is, I believe the process to create the dual probably happened here on this planet, or we're one of the replica solutions (doesn't matter which one). this replica solution creates diverse duals to the original problem.
+
+one of these duals would be very similar to me, and the opposite of mr. motor. he would be constantly looking for bad conditions, because bad conditions with a little focus, turn into good conditions effortlessly. the opposite is someone who wants good conditions and then watches them deteriorate.
+
+there is also the aspect of extremes. if I'm constantly feeling better and better, I thrive in a world of chaos and destruction, because feeling good would mean too much rapid manifestation. I need things to keep getting worse in order to not manifest too much wanted -- which I inevitably will continue to find a way to feel better about.
+
+for example, if feeling good is going left, and feeling bad is going right, if a person feels bad  -- like say 1000mph bad -- then they need 1000mph of good to feel normal. if they're feeling worse all the time, then they need constantly more and more extreme good to compensate for the accelerating bad. I'm just the opposite. I need constantly accelerating bad-feeling.
+
+I've tried to stagnate a few times in my life and it's ended in disaster. every time that I've tried to "settle down" or retain good conditions, a disaster returns me back to having bad conditions again -- thereby forcing me to return to finding ways to feel better again.
+
+I'm a solution to the universe's stagnation. imagine for a moment that the source in the centre of all that is wants to jump up a level.. well, it needs something to jump over. it can't jump over itself. so, it needs a planet/galaxy (asymmetrical) thing that is bigger than it is. once it has enough of those types of things, then it has to find a way to jump over it.
+
+back to me. suppose for a moment that I'm a planet, sorta like lucifer was in that quote I put. I think planets have similar ranges of perception to us as well. a planet must start out in physical 3d (just some rocks), then it starts up from there -- so if we say that hydrogen, a balances -/+ pair is the closest thing to source, then like maybe something like jupiter is closer to source (being much more hydrogen and attractive) than something like venus is.
+
+so, imagine for a moment that is the goal of earth. if I were earth, my alchemial process would be to essentially remove most of my dense elements and retain a structure that resonates with the sun, but is mostly hydrogen. I'd become a "gas giant" -- though they're likely quite rigid.
+
+this is a balancing act, because the inhabitants of the planet have to be able to become less dense right along with the planet. the planet can't go too quickly. dtp mentions that this is exactly what happened to lucifer. he probably tried to lose density too fast and things went wrong.
+
+in my estimation, what needs to happen, instead of trying to get the whole planet to run at a faster speed (lower density), is to expand horizontally rather than vertically[^2]. so, may earths rather than just one.
+
+each of those earths can continue to feed my desire for worse and worse feeling conditions. the whole goal is to really get better and better reality creators, and better and better parasites for them to exploit.
+
+when we become a galaxy, we'll have millions of stars all with planets that are filled with mr. motor types, all competing for conditions to control.
+
+you can imagine how that will eventually create something like it is right now, where each of those planets will also need to expand horizontally instead of vertically. a number of others similar to me will be attracted in just the same way, to keep the charade going. after a few iterations, it's easy to see we'll become something bigger than the universe, and the demand for resources will start to become so great, it'll force the universe to have to jump to the next level again to contain all of us.
+
+like produces like.
+
+[1]: reminds me actually of that movie, "the principle" -- which I didn't finish.
+
+[2]: for computing, this means add more machines to the cluster, rather than upgrading the hardware. as google demonstrated early on, it's possible to do very expensive tasks on commodity hardware if you're a bit clever with the implementation. it does require custom software and systems to compensate for a greater number of slower more fail-prone machines, though.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
