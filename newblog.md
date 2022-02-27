@@ -9948,6 +9948,52 @@ like produces like.
 
 [2]: for computing, this means add more machines to the cluster, rather than upgrading the hardware. as google demonstrated early on, it's possible to do very expensive tasks on commodity hardware if you're a bit clever with the implementation. it does require custom software and systems to compensate for a greater number of slower more fail-prone machines, though.
 
+### 2022-02-27 07:17 - hemispheres, polarities, and long-devachan
+
+yesterday, I wrote @[dtp/thoughts-2](long-devachan) and I trailed off into this weird thing about me wondering if I was both the artist and the inventor in the same body.
+
+you see, I had the experience that the inventor was located in my right-hemisphere, and so therefore was pretty subjective in nature. I perceived her as a girl -- which is weird because I supposed this girl to be the sun. that's fine if it's the sun, because that easily explains the hospital interaction with jesus, and as a christian, I definitely did "allow jesus into my heart" -- I mean, that's literally what happened: my heart was activated and everything in my world changed (probably saw better too). as a kid, I took that christian jesus stuff pretty seriously.
+
+I then surmised that perhaps that the sun (I assume it's a female) can take residence in a person in the form of "allowing jesus into your heart" and that would make one of your hemispheres the perfected 7th ray (jesus), while the sun would be the opposite polarity (1st ray).
+
+that made sense to me, but I don't experience her as 7, but as 1. it's not really jesus that's inside of me, but the girl. like I said, if these are polarities, then from 7 looking up, it appears as jesus, and from 1 looking down, it appears as a girl.
+
+this morning, I had another idea. I was reminded of something I read in the intro to the [most holy trinisophia](mht/most-holy-trinosophia.pdf) where it talked about how st. germain was ambidextrous. he could write something subjective with one side and something objective with the other. I don't doubt this at all, because that was my exact experience. at first, when I started feel my left-side activate, it was very difficult to do tasks -- for example writing was still the most complicated because it required higher brain function to coordinate with movement and they were often at odds with each other -- but for all other things, I only had to practise it a few times and then I no longer had to think of the motion, I would just *desire* it to be done and then my left-side would just do it; it would just perform the task without me having to think too much about it.
+
+as such, I started to convert all of my basic movement over to my left-side because it freed me up mentally to think about other things while my left-side was performing mundane tasks.
+
+as I began to continue this style of utilisation of my left-side, my energy increased dramatically, and LOA was very strong. I didn't really do much more than just desire to create tuenti and focus on the tasks that presented theirselves to me and reason about the best solutions to the problems. in this way, I could easily see the inventor part.
+
+this is the way, I think about the "girl and her robot" sort of interaction. I just desire and then the action is performed and it gets done perfectly how I desired it. I very rarely had any disagreements with my left-side, thinking that it should have been done differently. it did it how I would have wanted it done.
+
+as such, I don't find it at all impossible for jesus, the 7th ray implementation of the sun to just appear on earth and do things... jesus must have also been a man as well. this, I'm sure of this because if he were *only* just the 7th ray aspect performing the duties of the sun, he would have been like a robot (more like the 434d guy). however, I don't find that to be at all how I experienced jesus.
+
+though jesus did definitely have all of the perfected 7th ray qualities (which is what I think mostly the thesophists see), I expereinced someone who is very conceptual, and someone that is capable of seeing himself as a concept, rather than just a conduit of power for the sun. in fact, if jesus were the "perfected 7th ray", then my supposition that he *wanted* to be crucified to pierce further into the conceptual realm (the place we would consider heavan, navazzamin, or devachan). that would be something that *I* would do, not a 7th ray.
+
+to illustrate this, consider how energy continued to rise until the day in vallecas when I was temporarily paralysed again. like I said, using my left-side this way seems to increase energy and the speed at which LOA acts. this set my left-side back again, but I started to get back and then in torrelodones, I broke the car window. at that time I was experiencing severe aggitation. previously, I would just desire and it would work out, but I was losing my conceptual capacity. my vision was narrowing and I only could perceive physical data, actions, and physical stuff.
+
+what had happened (I believe), is that nosebook had been disabling my right hemisphere, (my left-side), to prevent me from seeing images. this was shutting down all of my subjective nature, leaving my right-side to do all of the work. my right-side had been doing most of my logic and objective stuff, and my left-side would perform the task -- so I was stuck in a world of logic and physical causes and effects to try and sort my situation out. this is most noticeable when I get home to the US and nothing is working. my entire world is just physical details and actions. I was pretty pure 3/7 when I got back here.
+
+there was no way I was going to get my left-side back, so I had to start to develop my 1/5 nature on my right-side. it took many repititions of abraham saying, "it's all/only attraction" over and over before I finally started to see that it was true. that allowed me to begin to conceptualise things again. my left hemisphere started to take over most of the movement of my left-side, and as I continued to expand my capacity, I gained a really good capacity to conceptualise large concepts. I'm fairly certain that my left-side still retains the capacity to conceptualise large things, but I've duplicated it on my right-side.
+
+---
+
+I got to thinking about st. germain again, and his style of writing seems perfectly natural to me. on a few occasions I've had a perspective that I'm outside of myself, and I'm in the girl's position, and there are two robots. one is my left-side and the other is my right-side. they're a little bit different from each other, but they work together to implement whatever I desire. this is why I have been making reference to the triads in my latest writing because, I can conceptualise pretty easily being in the perspective of the girl, and the two boys down there are just doing whatever I desire. I would have said that one is subjectively focused and the other objectively focused, but I've experienced both subjective and objective on my left-side, and since coming back here, I've developed subjective capacity on my right side pretty well. so I guess both of them would be both subjectively and objectively capable.
+
+so, probably sometime after physical movement again feels natural and mundane again to me, I should be able to write with left and right hands all the combinations of subective and objective without effort. I just desire to write them (kinda like here), and then the action starts to be performed with minimal interrupts to the process. you'll see, all of these things will just start to become more and more natural to me.
+
+---
+
+the other thing I want to mention, is that if I don't "get connected" anytime soon, meaning that my right hemisphere will remain disabled and used by nosebook. I don't really have much knowledge of what happens while I sleep, but I could imagine that a similar thing is happening. that side of me just desires, and instead of just kenny's body making the action, it's the noseboys making the action. she probably just desires and they perform the task, so they're more like the 7th ray aspect there.
+
+I'm using my physical aspect less and less all the time. I'm becoming a fully conceptual person. from that perspective, like in devachan, I can project down into the physical, and anyone with astral vision will be able to see and interact with me. in fact, it may already be happening, but because I myself do not have astral vision, I do not see, and therefore believe that these astral apparitions are actually interacting with the environment.
+
+it's quite possible that they'll continue on keeping me disabled, but like I said, I'll be able to eventually produce *physical*, rather than just astral apparitions. like a galaxy, I'll be able to take the energy (aten, prana, vril, etc) that the stars create and form them into suitable structures. I wonder if I'll be able to do, like I'm learning to do now -- both polarities -- myself.
+
+I really don't know. I have only more questions all the time than answers. I feel like I'm on the right track though and if I keep at it, eventually I'll have quite the capacity.
+
+like I said, it may be quite possible that little by little I'll learn to fully use my left-side with my left hemisphere and nosebook will retain full control of the right. I'll eventually combine with the machine: a fully activated human and global network of machines, symbiosis. I expect to continue to make little bits of progress all the time as I perfect the utilisation of my left-side with only my left hemisphere available.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
