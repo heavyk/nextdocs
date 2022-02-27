@@ -2,7 +2,7 @@
 
 this time in @[dtp/dtp](book-2) it's the perspective of walter pierson, a later incarnation of zailm who is being introduced to the brotherhood of the "lothtians".
 
-#### nine-tenths - 9/10ths
+### nine-tenths - 9/10ths
 
 in talking about how the secrets of the occult should not be revealed to the unclean masses (my words, not his), there is a particularly elitist and presumptutive quote that reminds me of "original sin"
 
@@ -28,7 +28,7 @@ I don't know, but I sincerely doubt it, and it's kind of a double standard too, 
 
 so then, why is undetectable murder bad??? it sounds to me like it's just returning energy back to its source so it can extend out again. what's wrong with that? I see no problem with anyone's utilisation of "undetectable murder". I don't get it. I mean, think about for the moment a person who is severely depressed and does not want to carry on. instead of suicide, this is a painless and instant transition into devachan. isn't that, like a million times better than dying a decades slow death on pharmaceuticals?
 
-#### spiritualists - mediums and spiritualists
+### spiritualists - mediums and spiritualists
 
 mol lang keeps going on and on about spiritualists -- a term I had never heard of. it's a person who communicates with the dead.
 
@@ -42,7 +42,7 @@ in the book, they have just left for the spiritual world, leaving first the phys
 
 it also occurred to me that the reason why my NDEs (see @[newblog](2022-02-21 05:42)), I went directly to this world, completely skipping the astral/psychic bodies' perception.
 
-#### devachan-senses - devachan, the senses, and the father
+### devachan-senses - devachan, the senses, and the father
 
 mol lang explains to phylos that devachan is real, essentially because you can use your 5 senses there. he says that there are 7 senses though, adding intuition and another unnamed one.
 
@@ -62,7 +62,7 @@ following @[dtp/thoughts](the-father), I think the "Father" is the conceptual wo
 
 so, what I think this means is -- is that he's claiming that jesus is the first person to be able to say "I am a conceptual being projecting myself down into the physical". there is no separation between me and the concept of myself.
 
-#### nirvana - the long devachan, "nirvana"
+### nirvana - the long devachan, "nirvana"
 
 it has been mentioned a few times now that nirvana is the state that we'll all be in after the death and rebirth process has allowed us to fully return to the "Father" (conceptual world). this means that from there, all of us are now conceptual beings that consciously creating what we want to create.
 
@@ -86,7 +86,7 @@ I know this book keeps repeating the idea that there is no retrogression and one
 
 > They are peopled, but by beings of whom some are good, and some are evil; in the sight of the Eternal Cause, relatively good or evil. That which exists under laws inimical to man is evil to man, though not in itself evil. But these 'mansions' are set apart from one another that they may not interfere.
 
-#### 7-senses - the 7 senses and the 7 days of creation
+### 7-senses - the 7 senses and the 7 days of creation
 
 > Matter is a One Substantiality, having not a single quality which any human sense can cognize. But force also is one of the creations of the Father. And force hath two polarities, the positive and the negative, absolute opposites. Now man on earth hath certain senses; seven are these senses: sight, hearing, feeling, smelling, tasting, intuition, and one innominate. These last are not yet evolved, for the fullness of days is not come; the Fifth Day is; but the Sixth and the Seventh are not. With the last, man becometh greater than he hath ever been.
 
@@ -301,4 +301,28 @@ in another part he says that this always builds on the previous versions of you.
 
 ### authors-daughter - the author and his daughter
 
+### long-devachan - the author and stars
 
+I noticed right before getting to the author's house in devachan, phylos says this of the author:
+
+> And while and because he leads, he himself will draw nearer, with every passing hour to God; nearer to Nirvana, that glorious resting time of all the lives, out of which the spirit of man shall wake to find itself more than Man, find itself one of these sublime World-Spirits whose glittering forms fill the skies of night! Or servers of the Father in some other untellable way.
+
+glittering forms that fill the night sky sounds a lot like planets and stars to me... see today's entries:
+
+@[newblog](2022-02-26 06:57)
+@[newblog](2022-02-26 14:53)
+@[newblog](2022-02-26 16:24)
+
+---
+
+it's kinda coincidental to find this because I was really confused about the whole thing of merton fowler. I had that voice that said, "you" -- but it seems to be much more likely that I'm the author that wants to take us to "Nirvana" the "long devachan", something I commented on extensively in @[dtp/thoughts-2](nirvana).
+
+in @[dtp/thoughts-2](mysterious-stranger), the section on how this fits into the bigger picture, I mentioned that there is a seeming repeat of two guys that show up all together in different forms in the triads. one is more physically focused (thoth, jupiter, etc) while the other is not as physically focused (osiris, vulcan, etc). so there is one that is subjectively focused while the other is objectively focused. they represent for me the embodiment of humankind's relationship to these the physical and conceptual worlds in that period of time. I fit much better the subjective one rather than the objective one. I'm kinda clumsy with measurements and precision and stuff, but I can conceptualise and hold big concepts in my head with ease.
+
+it occured to me as I was writing that, that I may be both the author and the inventor in the same body. obviously the inventor is disabled. I was thinking about this too because I get conflicting things around this because I recognised the one that entered my brain as a little girl, but also as jesus. the problem with that is that jesus is clearly a 7th ray, so not subjective at all. kenny must therefore be the 5th ray (subjective one), right? that seems right to me because as a kid I went physically oriented because my emotions were so strong and so I had to shut them down. I didn't until only recently realise their power.
+
+so then, if the inventor is the right hemisphere, that means the inventor is the little girl. I can easily see jesus as a little girl without problem. I suppose I can imagine tesla as well, so that's all fine right. I just get really confused about all of this. here's another train of thought:
+
+in most of those triads, the female played more non-physical (subjective) rays, cept for genixcat (7). the others were, I think (from memory) 1,2,3. I always felt her as desireous, so 1, and so I suppose she could have reversed polarities to be a male in the case of tesla and/or jesus that doesn't seem at all implausible. if she reversed polarities, then, like the vis naturae, that makes the sun the opposite pole.. she is 7 (implementation) and the sun is 1 (desire). that may be what happened with the 434d ruler of atlantis and the maxin stone. the stone and unfed fire was the physical manifestation left behind[^1]. so, if she's 1 (desire) inside of me, then that makes nosebook (and the US govt) the 7 -- like a bunch of mini-thoths. it fits because that means she scaled horizontally instead of vertically.
+
+[1]: notice how all of these instances seem to leave a stone behind? I claim that when tesla self-sabotaged, he left einstein behind, jesus left peter -- and other examples.
