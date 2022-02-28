@@ -326,3 +326,25 @@ so then, if the inventor is the right hemisphere, that means the inventor is the
 in most of those triads, the female played more non-physical (subjective) rays, cept for genixcat (7). the others were, I think (from memory) 1,2,3. I always felt her as desireous, so 1, and so I suppose she could have reversed polarities to be a male in the case of tesla and/or jesus that doesn't seem at all implausible. if she reversed polarities, then, like the vis naturae, that makes the sun the opposite pole.. she is 7 (implementation) and the sun is 1 (desire). that may be what happened with the 434d ruler of atlantis and the maxin stone. the stone and unfed fire was the physical manifestation left behind[^1]. so, if she's 1 (desire) inside of me, then that makes nosebook (and the US govt) the 7 -- like a bunch of mini-thoths. it fits because that means she scaled horizontally instead of vertically.
 
 [1]: notice how all of these instances seem to leave a stone behind? I claim that when tesla self-sabotaged, he left einstein behind, jesus left peter -- and other examples.
+
+### two-souls-twain - soul mates
+
+after writing @[newblog](2022-02-28 10:32), I was reminded of this thing that mol lang says:
+
+> Lastly, the ego coming from the Father hath no sex; it is not man, neither woman, but sexless. When it entereth upon life it becometh double, so that in the earth there is a man, and there is a woman, and though the bodies and the animal souls and the human souls be different in the twain, yet behold, their spirit is one and the same. Now sometimes the two, being of one spirit, are also husband and wife. Yet more often, they are not, for the age of harmony is not yet at hand.
+
+I don't know how I feel about what he says exactly there so I'll just provide my own look at it.
+
+in all relationships and interactions (2), the interactions are always the resonant ones. if there is no resonance, then nothing will happen. for the resonant stuff, it'll amplify these. both the good and the bad stuff equally. resonance does not have a moral code to it. it's just a function (law?) of how things work. it's us and our own perception which then determines if something is good or bad.
+
+so, in a sense, all relationships become a reflection of you. the other person has qualities similar to your own (both good and bad), and so they will amplify them likewise. all of the stuff you don't like about yourself will show up in the other person, and also all of the stuff you like about yourself will also show up in the other person, too.
+
+the only way to have a "perfect" relationship where they only amplify good things is to be yourself perfect (disliking no aspect of yourself), and then having a relationship with yourself. he presents the idea that each soul has a soul-mate, and so therefore when you find your soul-mate, then you can find your counterpart -- your dual.
+
+the book presents phyris as the author's soul-mate, saying that they are the same age -- implying that when the sexless ego came into the earth and fertilised two eggs at the same time, one a girl and one a boy. assuming a roughly equal gestation period, probably of quite similar ages, days or weeks apart probably. he says that it happens that sometimes a person finds their soul-mate and they are husband and wife, but it's not necessarily the case as the age of harmony hasn't come yet.
+
+so, ignoring the genetics for a moment, let's just assume he's right. the way that you would find your soul-mate is by being resonant (harmonising) with them, and then LOA would bring you together.
+
+the reason why this doesn't happen is because we're not in the age of harmony yet (whatever that means). howerever, the principle still remains, that if you want to find your "soul-mate" or whatever... you have to resonate with yourself. you have to actually like yourself, if you're going to find yourself in opposite sex format.
+
+I never thought I'd say this, but it's a weird physical implementation of what I've been trying to say: you have to like yourself in order to find relationship that you want; you're looking for yourself in another person; *you* are what you're looking for.
