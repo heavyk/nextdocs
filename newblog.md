@@ -10036,6 +10036,30 @@ now, putting that idea into evolution-of-desire sense: I can need or want someth
 
 [2]: this is literally impossible. that would mean I'm getting into a relationship with myself. there is always *some* resistance, unless your relationship/resonance is with yourself (not physically -- I mean, who you *really* are).
 
+### 2022-02-28 13:45 - relationship solutions
+
+after writing the above entry, I wrote @[dtp/thoughts-2](two-souls-twain). I explained how the concept of soul-mates is a good one to demonstrate how we attract our relationships. I explained how all relationships will amplify the stuff that resonates, good or bad.
+
+the solution then, of course, is to find someone who only resonates with the parts of you that you like about yourself... that's usually what people do.
+
+it totally works, but the flaw is that it doesn't guarantee that the same is true for them. it's very likely that you'll amplify some aspect of them that they don't like about theirself. so, you really like your partner and they're amazing to you in your eyes, but for them, they just see aspects of theirself that they don't like, so they start to blame you for their problems -- because, of course, before you were there, none of their own difficulties with theirself were apparent.
+
+when they start blaming you for their problems, it's probably time to get a new one. there's no sense hanging around and trying to fix someone else's problems -- unless that's something you like doing.
+
+---
+
+there is a bigger topic here that is hard to approach -- and that is, if everyone is going to constantly be amplifying things that someone doesn't like about theirself, what's the point of relationships?
+
+well, wanted-and-unwanted-are-same, so really all of those unwanted attributes you notice in another are actually *wanted* attributes. you (or society, or one of your parents) has determined it to be bad. it's only a matter of perception. all non-neutral things can be preceived as either wanted or unwanted (it's relative to your position and orientation).
+
+so, I don't really know what the point of relationships are, other than they bring about new ideas, situations, etc. none of those new things would have otherwise have been "discovered" by you if it weren't for the diffrence/relationship between you and the other (environment, person, thing, etc).
+
+a person does not have to bring unwanted in the form of conflict or something that feels bad. if I feel fine with yourself, it doesn't matter how much the other person is blaming me for their own problems, cause if I'm not resonant to blaming my things on others, they'll have a really hard time making me feel bad for their problems. from their perspective, everything they try to show me the error of my ways will appear to backfire, and they'll get "mud on their face".
+
+you're untouchable if you're not resonant with it. if you're untouchable, then all of those "unwanted" appear no different than just "undesirable ingerdients" for the moment's creation -- they're still desirable, but in a time or circumstance, not the present one.
+
+unwanted is diversity of ingredients, rather than conflict.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
