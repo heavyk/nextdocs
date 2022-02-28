@@ -10000,6 +10000,42 @@ I'm reminded of another triad now, and that is the one with genxicat. she's a 7t
 
 either way, that is kind of an interesting concept of the reflective nature. however it is, my goal is to continue the evolution-of-desire out to the maximum, when I *am* the thing that I desire, and everone that resonates with that which I am, will fill my reality. this setup could be a sort of foreshadow of my desire to create a galaxy, but it could also be just an example of how to potentially horizontally scale this, too. I still have so much I want to know, and I'm really finding that it's all working out fine... just keep going and we'll get there eventually.
 
+### 2022-02-28 10:32 - dreams and stuff
+
+I had a few dreams this morning. the first I was in something like a family unit. there were other girls and also other boys. I seemed pretty disinterested in relations with others, especially the girls.
+
+in the dream, it felt like I was posed the question to see if I felt competition from the other boys. I didn't. I just didn't really want to do relationship stuff. like, the idea of depending on someone or trying to fill their expectations didn't at all interest me.
+
+after that dream, I was with amorina at her house. we were going to go to walk up to some big rock up on a hill or something. I forget all of the details, but it felt like there was effort to try and get us to have sex. I agreed that I would go up there with her and stuff, but I wasn't interested in having sex. I'm not really sure who exactly was trying to get us to have sex, but it felt like if somehow we were in too close of proximity, then somehow I would loose my mental strength and be influenced to do something. I really don't know.
+
+I'm not really worried about losing my mental strength, because dreams are where you have the lowest mental strength/resistance. everything feels normal even when it's stuff you wouldn't normally do -- like for example, day before yesterday in a dream all of a sudden jessica was left alone with me, and in the dream, that seemed like a perfect time to try stick my hand down her pants... obviously it was to force ejaculate me.
+
+my point is, if even in such a low resistance situation such as a dream, I'm resisting, they they would have to put me in a mental state even lower resistance than a dream state -- probably one where I could fly and stuff.
+
+what's happening is, they're having to try and lower my mental state of resistance lower and lower to be able to influence me to do what they want[^1] -- however, the lower the resistance they go the more risk they run of my resistance going *too low*.
+
+in fact, that may be exactly how the split happens. for them, they lower my resistance so low, they are seemingly able to influence me to do what they want (like I felt was going to happen on the rock with amorina), while in my perception, they lower my resistance low enough, that I get connected... I don't know.
+
+I've postulated that they're actually done trying to keep me away from getting connected and instead they want to lower the resistance in a situation where they know they can drown me with girls and relationship nonsense, so I'm not doing the stuff that they don't want like flying creating and inventing new conditions for people to get caught up with...
+
+it's precisely for this reason that I'm not that worried about getting connected. creating conditions for people is not high on my priority list. I mainly want create things for me. I honestly can't find a tremendous amount of benefit for me or for others if I get connected. remember, desire-resolves-to-emotion so if I can feel that way now then there's not a whole lot of point to the manifestation -- because *while it's still a feeling, it's without resistance and perfect; it's the manifestation that introduces resistance.*
+
+to illustrate, so many girls feel so great and all of that stuff, but you know that as soon as you get into the manifestation of that relationship, there is always some resistance introduced with the physical interaction that wasn't present in your original concept of them. if you take a break from them and stop reminding yourself of the physical conditions they present, with time, you will return back to the memory of that "perfect" ideal you had of them originally.
+
+the manifestation is the concept + my own resistance. if I want a resistance-free relationship, *I* am the one who has to be resistance-free[^2].
+
+I'm just not interested in the manifestation. I like the feeling of it, and that's it -- because the feeling is perfect and flawless.
+
+---
+
+so, you may have noticed that all the interactions that bother you and sour a relationship, are *all*, or nearly all reflections of something that you dislike about yourself. this is true because you never get bothered by the stuff that doesn't bother you. you can only be bothered by things that you yourself are resonant with. so... really, all of these relationships are just illustrating to you, your own shortcomings in the other person.
+
+now, putting that idea into evolution-of-desire sense: I can need or want something to compensate for something that makes me incomplete or imperfect -- but those needs or wants will bring along with them other people also on that same need/want frequency. they'll amplify your need/want more than actually satisfy it. you need/want those things so you can feel a certain way, so really only you can satisfy those needs/wants by finding a way to feel that way; no one else can do it for you. you *are* the thing you want.
+
+[1]: writing these may be a really good way for them to get intel on that, so they may even be encouraging me to write these too because they control who sees it.
+
+[2]: this is literally impossible. that would mean I'm getting into a relationship with myself. there is always *some* resistance, unless your relationship/resonance is with yourself (not physically -- I mean, who you *really* are).
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
