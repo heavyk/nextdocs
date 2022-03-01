@@ -348,3 +348,57 @@ so, ignoring the genetics for a moment, let's just assume he's right. the way th
 the reason why this doesn't happen is because we're not in the age of harmony yet (whatever that means). howerever, the principle still remains, that if you want to find your "soul-mate" or whatever... you have to resonate with yourself. you have to actually like yourself, if you're going to find yourself in opposite sex format.
 
 I never thought I'd say this, but it's a weird physical implementation of what I've been trying to say: you have to like yourself in order to find relationship that you want; you're looking for yourself in another person; *you* are what you're looking for.
+
+### second-coming - the second coming of christ
+
+I disagree with the author on a number of aspects, however, in this one section, I find astonishing resonance -- with the first part. he then contradicts himself at the end. let's break it down...
+
+> The second coming of Christ is upon the world, not only as *a time simultaneously arriving for all*, but also unto each human soul as it becomes ready to receive Him in *the heart*, and do His work. He is at hand now in the sense that if you will open your soul to receive His spirit, He is there to enter in.
+
+in this section he is saying that the second coming of christ will happen it will also happen inevitably to all. however, before that happens, its available to anyone desiring to receive him into the heart.. this is important, because he is saying that something will happen which everyone will recieve "christ" into "the heart". this sounds less to me like a religious thing and more to me like a solar thing. there is no other thing that I can think of which can be allowed/received by someone when they desire, or will also happen inevitably to *all* "upon this world" (presumably in this earth or solar system... maybe galaxy? I dunno) -- a something that considering that he is saying the hesperia (venus) already has this state, it's probably referring to earth.
+
+in the context of the previous chapter, it seems that this is going to be a change of state for the earth, where we'll transition into a state of living more similar to those on venus[^1], meaning we'll experience astral vision and other psychic phenomenon -- I presume, at least.
+
+however, consider also the previous revelations of mol lang of the inventor and author's desire to create a "christless" world instead -- so, one *without* this second coming of "christ" -- so, without astral vision or psychic phenomenon (like mind reading).
+
+> Truly, of the moment He comes to His own no man can tell the day or the hour; yet I say, *tarry not for Him as a man or an external spirit*, but as the Christ Spirit entering into your very being.
+
+he is making very clear that this second coming of christ is *not* a man. it's a spirit that enters into your very being. what kind of spirit is it?
+
+> And He *shall not wait to come as a man*, but come as the *Spirit of Divine Love*, just so soon as you are ready to make that your rule of life;
+
+it's the spirit of divine love[^2], but strangely, he says "as soon as you're ready to make that the rule of life" -- which makes it sound like a number of pressures will exert theirselves on the human, such as to force them to make divine love their "rule of life". this all sounds more like assertion than attraction. there has to be a simpler explanation.
+
+> and as the Christ and Father are One, so therefore shall you that hear and attend be glorified, and presently arise, depart from the world, and go unto the Life.
+
+the "Father" as I have mentioned is nothing more than the conceptual world, yet there are many mansions of the conceptual world, and the "Father" also seems to be where spirits reside and also gives sustinance to the physical body as well. I'll treat the "Father" to be something similar to source. after reading enough of this book now, it sounds to me like the "Father" is like the resistance-free form of our concept of creation. we return to that father-concept and all of our concepts extend out of it. we also extend out of it as well. it's like the morphic resonance of the physical realm...
+
+anyway, he says that "christ" and the father are one, so it the father is brahm, then the "christ" is vishnu the preserver. maybe the second coming of christ must have something to do with the heart and that vis naturae? something like it is a sword that separates the physical body from the soul and then is taken to live in life -- and those that have not made the spirit of divine love their rule for life will experince the transition. I dunno, however, he says that all that "hear and attend" (make divine love the rule of life) will "arise, depart from the world, and go unto the Life" -- sounds to me like a transition into the father, as the christ is just forcing a transition for those who keep the rules to go unto the father, as the christ and the father are one.
+
+anyway, he then follows that up by contradicting himself...
+
+> Who hath ears to hear, let him hear. Likewise He shall come as a person at the last.
+
+the possible explanation for this contradiction is that those who were able to make "divine love the rule of life" eg. able to receive christ into the heart, made the transition unto the father -- but for the ones that did not make their transition into the father (rapture?) will then see "christ" coming as a person.
+
+---
+
+I have a very similar view myself, but I need to explain myself. I believe that there will be a christ that comes and shows up as a person.
+
+let's assume that someone's level of awareness is modulated by the heart. I place vishnu the preserver as located inside of the pineal gland, and corresponds to the relational/reflective/resonant (2) layer of perception. this connects to the heart (4) which is in the centre, and to the imagination/astral (6) layer of pertception, located in the reproductive organs. therefore, what your perceptions (2) are -- meaning what you resonate with or reflect is one end of the spectrum, and your imagination (6) is the other end of the spectrum.
+
+the sun increases the strength of the relational (2) layer of perception as solar activity is increased. this is the prana, chi, or vril and it's responsible for amplifying all vibrations. this is amplification is what the "christ" is, for me -- it's literally a part of the brain that is activated by a form of energy that science does not recognise. I call it "protons" or "aten" and is the basic unit of consciousness that amplifies vibration. all subordinate things to that vibration will begin to become sympathetic to that vibration.
+
+so, yes, you can choose to align yourself to this form of perception with conditions or your own definition of "good and evil". you can get there before the sun begins to amplify this layer of perception or you can wait for the moment when the tipping point is reached and the sun pushes that amplification to the extreme.
+
+when that happens, it'll be like devachan on earth and all reality will be attracted and manifested very rapidly. you will interat with our own emotions personified as real manifestations (people, monsters, animals, etc) and, as such, for many a christ will appear as well -- as a person. he will be a reflection of their concept of him and what a christ means to them.
+
+---
+
+obviously, there are a lot of people who do not want their emotions realised as manifestations in 3d space which they created/attracted, so it's quite possible that a "christless" world is being created. as to what exactly this "christless" world is, I have postulated many things, but without a saviour, you have to figure who you are for yourself. you are your own christ and only you can "save" yourself. you are the christ you're looking for; everyone is.
+
+so, on one side, I call this the self-sabotage, but really it's not that bad at all. what I'm saying is that the author is kind of, in a round-about way, saying that the venusians and all the other occult adepts with astral vision are just experiencing their own concept of christ. they're obedient to the laws that they think they need to be obedient to, and so karmically, they're getting everything they expect to get from having lived according to the "law". everything they're experiencing on the astral plane is real and a "fact" -- but it's their own creation. they're living what they expect to live by following (or not) the "laws".
+
+[1]: mol lang said in the previous chapter, "When mankind shall come fully into its humanity, then Earth can no more be its planet; they must come here." -- which I'm not sure if "fully into its humanity" is the second coming of christ... this is the author's commentary, not mol lang, so it's possible for them to conflict.
+
+[2]: this further supports my supposition that he is saying that the second coming of christ is when one experiences life, like those on venus. he equates hesper/venus with divine love in a few places, most notably this awkward sentence in the following paragraph: "What I say concerns a larger measure of life, Hesper, the planet of Divine Love."

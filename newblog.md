@@ -9768,9 +9768,9 @@ he now contains both male and female and he lives now forever in the conceptul r
 
 #### everything experienced is a concept resonant with you
 
-so, wait a second... I thought that *jesus* was the only one that had attained equality with the "Father"?? now, mol lang has eqality with the father too? additionally, mol lang is the one that is showing the author of this book another author with a daughter and they later become "twain"...
+so, wait a second... I thought that *few*, specifically jesus and buddha were the only one that had attained equality with the "Father"?? now, mol lang has eqality with the father too? mol lang is also the one that just got done showing the author of this book another author with a daughter and they later become "twain"...
 
-the resonances are strong. I'm starting to get the feeling that merton, this author, the other author, mol lang, the "christ", jehova, and perhaps even ernon are all concepts created by jesus. like the mysterious stranger, he's creating his own problems and solutions.
+the resonances are strong. I'm starting to get the feeling that merton, this author, the other author, mol lang, the "christ", jehova, and perhaps even ernon are all concepts created by the experiencer of this reality. like the mysterious stranger, the creator of these concepts is creating his own problems and solutions.
 
 #### you create the christ you need to bail you out
 
@@ -9902,7 +9902,7 @@ that means that the alchemical process for a star is to become more and more den
 
 this may in fact be what is happening to our sun right now. if I'm correct[^2], the sun should actually be retaining its size or even getting slightly smaller, but it would be becoming more attractive (stronger magnetic fields), and more dense (more x-ray and gamma-ray emission).
 
-[1]: I don't know how to explain this concept, so I'm going to leave it vague. I don't mean polarity in the direction sense -- I mean the difference between male and female -- like a male does not just suddenly start producing children without some major changes to phisiology. I believe changing orientation (like the axis of rotation) or reversing the direction or rotation is far easier (maybe even a regular affair) than going from a molecule to an element or vice versa. in this sense you could think of it more like a density. like the difference between solid, liquid, gas, or plasma.
+[1]: I don't know how to explain this concept, so I'm going to leave it vague. I don't mea  n polarity in the direction sense -- I mean the difference between male and female -- like a male does not just suddenly start producing children without some major changes to phisiology. I believe changing orientation (like the axis of rotation) or reversing the direction or rotation is far easier (maybe even a regular affair) than going from a molecule to an element or vice versa. in this sense you could think of it more like a density. like the difference between solid, liquid, gas, or plasma.
 
 [2]: now that the parker solar probe is up there it would be interesting to see if there has been any increase in x/gamma-ray production or magnetic field qualities like stronger, or faster frequency, or more complex -/+ interactions.
 
