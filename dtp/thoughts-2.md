@@ -402,3 +402,59 @@ so, on one side, I call this the self-sabotage, but really it's not that bad at 
 [1]: mol lang said in the previous chapter, "When mankind shall come fully into its humanity, then Earth can no more be its planet; they must come here." -- which I'm not sure if "fully into its humanity" is the second coming of christ... this is the author's commentary, not mol lang, so it's possible for them to conflict.
 
 [2]: this further supports my supposition that he is saying that the second coming of christ is when one experiences life, like those on venus. he equates hesper/venus with divine love in a few places, most notably this awkward sentence in the following paragraph: "What I say concerns a larger measure of life, Hesper, the planet of Divine Love."
+
+### second-death - the lake of fire and the second death
+
+as usual, this book has apocalyptic tones, yet if one reads a little further past the apocalyptic tones, there is a different message. this is no different. here, we're looking at the second death.
+
+> True also it is that the spirits of men will progress; will face the supreme ordeal, and, if they pass victorious, will enter that long rest, heaven, devachan, call it as thou wilt, Nirvana. But that is not the end, for life had a beginning--it hath also an end. And the perfect human ego emerging eventually from Nirvana, that long devachan of all the incarnations, emerges not as Man; it does not live, but It Is, and Its post-viviant existence is a state of Being which no human mind could understand
+
+the supreme ordeal is probably the judgment day. if they pass the test, then they'll enter into the long devachan -- nirvana (see: @[dtp/thoughts-2](nirvana)), which is just the beginning of another life, no longer one as "Man" but as "It Is" (whatever that means) -- as a state of being which no human mind cannot understand. I postulate that this experience is as a star... as one of the "glittering forms that fill the night sky" (see @[dtp/thoughts-2](long-devachan))
+
+> a state of Being which no human mind could understand, except inferentially it do so through the knowledge that that state is to Life as the senior to the junior.
+
+he continues...
+
+> But until then is the trial of transfiguration; to it my father hath come, I have not. If we fail, then that is the second death, but meet it we must, humanity must. But it is long until then, for it cometh not until the essaying soul be perfect, and be ready to leave the pupaceous state of Human Life, to be judged according to (its) works for Him who made it.
+
+I have not read far enough yet to know what the trial of transfiguration is, though it seems that mol lang is up for it, having learned obedience to the laws enough to have conquered death...
+
+he says that if they fail the transfiguration, then that is the "second death". I looked up the reference and the second death is a thing that happens in rev 20 when satan (the great dragon of old) is released and allowed to deceive humankind again. by that definition, the dragon is the "anti-christ" or the enki type that has been trying to "deceive mankind".
+
+so, it's another split -- just like this one, hence the "dividing of the way". thankfully the sohma clears up what this second death is...
+
+> if thou thinkest the judgment day, [...] that day may be in remote aeons until it come, and therefore thou hast ample time to lag, to err, I counsel thee it is a fatal mistake.
+
+judgment day is soon. no time to waste. no time to lag.
+
+> [...] Then shall such suffer the second death, be cast into the 'lake of fire,' in other words, their Spirit will depart from the soul and go unto the Father, while the soul will be gathered into the sum of force, the 'Fire' element, that which is sum of all lesser force forms, out of which springeth life, heat and vibration.
+
+so, the lake of fire is the separation of the spirit and the soul. the spirit goes to the father, while the soul goes into the fire element.
+
+> But this will not be until the erring one hath passed from his soul into his spirit. So the 'second death' is not of the sinner; it is the cutting off of all his, or her, spoiled work, and a chance to begin again, to build better; our Father damneth not His child, but only the imperfect work, the sinning soul.
+
+wow, lots of terrible words...
+
+> In our library thou canst see a book brought here to Hesper from the Earth, a book which speaketh of the order of the Rosicrux, wherein this supreme Fire is written of.
+
+I didn't know the rosicross was a symbol of the supreme fire... it doesn't surprise me honestly. it seems they have been the main messengers of this ending of the (physical) world and coming final trial/judgement.
+
+> 'Tis also that Fire once called in the Earth the Maxin.
+
+OK, there we have it... after all of those terrible sounding words, it is just death -- the return of the psychic body back to its source. this is only scary if you're a fallen-angel. no one else would fear this "second death" unless you're scared of having to actually fully release resistance.
+
+what this is saying is that after 1000 years, the great dragon (enki/dwaul quinn/saturn/satan) is now going to cause these souls to be judged... when I say "cause" -- it makes it sound like his deception on earth will produce some event or conditions that will force all of these souls to pass through the judgment of the fire (perhaps this is the transfiguration).
+
+some will fail the judgement and some will not. those that fail the judgment will have their astral bodies thrown into the unfed fire of the maxin stone. like zailm, this will allow him to transition into devachan (heaven) and begin anew.
+
+---
+
+what it looks to me like, is that this "judgement day" applies to fallen-angels only. this judgment day can also happen sooner, and that is the transfiguration.
+
+most likely this final judgement is actually has a very simple explanation, and that is simply that after 1000y of no "second coming of christ" -- ie. tremendous solar conditions that gives everyone astral vision and psychic capability. instead during this 1000y reign of "christ" (the man who will rule with an iron rod) can no longer subdue human emotion (chi, prana, vril) and our creative capacity neutralised any longer and the sun's output will have grown so much that business-as-usual will no longer be possible. the fallen-angels around are fearing such a condition, because it means that all humans will be able to perceive the astral, meaning that their illusions and secrets will be plainly visible to all. when the great dragon returns to earth after 1000y, his deceptions will work in the minds of the people to destabilise the sun, creating quite a vigourous fire...
+
+the maxin stone is a focal point, and so therefore this "fire element" is concentrated there. the sun, when novaing, will have such a strong emission that everywhere will have the strength of the maxin stone. the fire will be inescapable.
+
+second death and great lake of fire = massive solar outburst that will convert many into "sublime World-Spirits whose glittering forms fill the skies of night!" the rest return to start anew.
+
+so, not a big deal -- unless you're a fallen-angel.
