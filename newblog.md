@@ -9662,7 +9662,7 @@ calm conditions can lower resistance, simply because there are less "triggers" t
 
 OK, what I'm trying to say with all of that is that this meditating thing reminds me of the magnetic therapy as a cure to mental illness in poseid culture.
 
-the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 434 (4+3+4) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwaulxn) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
+the story says that there was this jesus figure that shows up, makes an 11^2 quartz cube with vis mortuus powered probably by the sun's aura, and institutes a number of laws in the 434 (4+3+4) days that he was there. these laws were extremely socialistic in that the government owned everything and had all of the power to control the conditions of its citizens. this form of government is a con-artist paradise and very prone to corruption. it only works well if good people (like gwauxln) are in power. the minute a few schemesters replace the noble rulers, things fall apart (likely this is the conclusion of the book, as zailm kind of set someting into motion there).
 
 so, to combat this, they used "magnetic therapy" to dampen the grasp of greed and lust for power in the person's brain. although they called it a "cure", clearly the author states that it was only temporary. knowing that if you fight against something it'll only come back stronger. these con-artists just needed a few more generations before their brain (like my vision) would find a way around the magnetic dampening. the posedi were breeding con-artists.
 
@@ -10059,6 +10059,60 @@ a person does not have to bring unwanted in the form of conflict or something th
 you're untouchable if you're not resonant with it. if you're untouchable, then all of those "unwanted" appear no different than just "undesirable ingerdients" for the moment's creation -- they're still desirable, but in a time or circumstance, not the present one.
 
 unwanted is diversity of ingredients, rather than conflict.
+
+### 2022-03-03 09:44 - phase changes, death, and the astral
+
+I just finished the part in the book where walter pierson dies on the boat with elizabeth, the woman he married. first of all, this boat scene was painted by phyris (his soul-mate on venus) and showed to him by her brother, sohma, both children of mol lang.
+
+so the weird thing is, when he died, he immediately met mendocus and then went to venus; he didn't go to devachan.
+
+---
+
+anyway, when I was waking up this morning, I was wondering if maybe my experience is perhaps not normal. I don't have these astral experiences. I explaind my NDEs in another entry, and they're nothing like this at all.
+
+so, is walter a fallen-angel and he doesn't know it? if so, then that means there is a large network of fallen-angels that are going around prophesying to each other to get everyone else to "atone" for their karma. this network of fallen-angels makes sense, because imagine if someone does not know they're a fallen-angel. they live their life thinking that everything is as taught in school, but it's not that way at all. they go to these secret societies and find out there is more, so they get their concept of "more" from these secret societies. like, for example, if I found out I was a fallen-angel, I would want to go explore and figure out what is going on -- something more similar to zailm. it's likely they don't want fallen-angels exploring, so they shuttle them through a series of prophecies and experiences to ensure they don't get too exploratory.
+
+so, if they're competing for and running all of the major establishments of earth, then I find that pretty likely something like that is happening.
+
+---
+
+there may be a simpler explanation to this. the book talks about there being 3 distinct bodies when zailm died.
+
+zailm's perspective was from the spirit/concept body, but he also saw gwauxln interacting with his psychic/astral body which looked and behaved like he did, believing himself to be alive. gwauxln threw the astral zailm into the maxin though (the second death), so that spiritual/conceptual zailm could transition to devachan.
+
+I want to note three distinct bodies: the physical (dead), the psychic/astral (thought it was alive), and the conceptual one (which until the astral body went through the second death wouldn't allow zailm to fully transition).
+
+it appears that when the physical body dies, the three distinct bodies separate, and depending on how much "karma" is holding the body to earth, the consciousness assumes the perspective of its closest match -- the spiritual/conceptual, or the psychic/astral.
+
+---
+
+now, I'd like to remind the reader of terence's vision the split in earth's timeline. one version of earth went on to become great, while the other (the demiurge) careened off into chaos. what may have happened there to cause the split is an increase power levels on the planet, causing the "gross matter" to no longer be suitable for habitation...
+
+we have to think of this as being the opposite of the previous atlantis exprience. in the previous experience (~12kya), they were descending into gross matter, and so the spiritual/conceptal body did not have enough power to sustain its perspective, so conscoiusness was forced to assume the perspective of either the physical or the astral. most humans assumed the physical, and the probably the ones running the show assumed perspective of the astral.
+
+this time though, we are going up rather than down. that means that "gross matter" will start to fade away soon, and we'll assume the perspective of either the astral or the conceptual.
+
+so, what I think happened in terence's split can be explained simply as power levels increased on the planet to such a point that consciousness could no longer hold the perspective of the physical (gross matter) body. earth split into conceptual and astral counterparts (just like zailm) and the astral one was named the "demiurge".
+
+assuming that's true, then we're definitely on the conceptual one, so we must be on the astral counterpart. we would then see effort to try and keep planetary energies low[^1] and maintain most humans in the physical perspective. I think this is not only happening, but the major objective is to actually give them the tools to try and keep that up another 1000y until the real split happens.
+
+---
+
+I'm pretty satisfied with this theory because it gives consciousness a mechanism to split based on energy level, saying that "death" is just the releasing of resistance (the physical body), and so therefore you accomplish the perspective of a higher energy state. it also explains why my NDEs don't see astral -- cause my perspective assumes a different state than the astral[^2].
+
+---
+
+another interesting thing is that in zailm's story, his psychic body goes through the "second death" when gwauxln throws him into the maxin -- however for walter, the opposite happens. before his death he has these weird astral experiences that prophesy his coming misfortune and people ready to greet him on the astral. to me, it seems like these experiences tune his consciousness to the astral plane and so they are sort of like ensuring that he'll assume the perspective of the astral body after his death, rather than the conceptual one.
+
+that really makes me wonder if the whole venus thing is just the location of the astral headquarters. it sounds very much like the present situation here on earth. they have higher knowledge of science, but it's all run on this judgmental and petty "God".
+
+honestly, it feels to me like -- well, assume for a moment that I wanted try and enforce another 1000y of physical experience -- I would need to put a system in place to try where they had the technology to hold people in the physical plane. I would -- repeat the process I outlined in "fallen-angels" -- crating a bunch of astral entities that are designed to control physical conditions on earth (custodians) captialising on the power hungry ones, giving them physical conditions and lead them through all of these weird experiences to get them to believe (cause everything you "see" with your eyes is real -- right?) they have to repay every jot and tittle of karma (which is a complete impossibility). they'll work really hard and try to ensure that no one is going to devachan and releasing resistance. the astral plane will get more and more filled -- to the point where it's overflowing. after 1000y the sun explodes on schedule, and all the custodians get thrown into the maxin stone for recycling.
+
+the venus setup here seems like the latest installment of the 434d ruler: "I am from Incal. Lo, I am a child of the Sun and am come to reform the religion and life of this people. Behold Incal is the Father and I am the Son, and *He is in Me and I am in Him.*" the same dude keeps appearing to install these weird subordinates that are scared of being thrown into the stone he created. these astral entites *must* be either his creations and/or the ones that have drank the kool-aid.
+
+[1]: I actually think that the renaissance times had much higher energy levels, and if continued further, it would have created another split. in fact, it's quite possible that a split *did* occur but its result was undesirable, so a number of the ones running the show at that time self-sabotaged ("to be or not to be") in the form of the rosicrucian order and things like that.
+
+[2]: it appears, if I had to guess, because it isn't very physical, that I'm perceiving probably a bit higher up (3) which is the non-physical counterpart to the conceptual (5). or, it's possible that I'm already using the new temporal layer. I don't know.. I just know it's definitely not the astral.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting

@@ -409,7 +409,7 @@ as usual, this book has apocalyptic tones, yet if one reads a little further pas
 
 > True also it is that the spirits of men will progress; will face the supreme ordeal, and, if they pass victorious, will enter that long rest, heaven, devachan, call it as thou wilt, Nirvana. But that is not the end, for life had a beginning--it hath also an end. And the perfect human ego emerging eventually from Nirvana, that long devachan of all the incarnations, emerges not as Man; it does not live, but It Is, and Its post-viviant existence is a state of Being which no human mind could understand
 
-the supreme ordeal is probably the judgment day. if they pass the test, then they'll enter into the long devachan -- nirvana (see: @[dtp/thoughts-2](nirvana)), which is just the beginning of another life, no longer one as "Man" but as "It Is" (whatever that means) -- as a state of being which no human mind cannot understand. I postulate that this experience is as a star... as one of the "glittering forms that fill the night sky" (see @[dtp/thoughts-2](long-devachan))
+the supreme ordeal is probably the judgment day. if they pass the test, then they'll enter into the long devachan -- nirvana (see: @[dtp/thoughts-2](nirvana)), which is just the beginning of another life, no longer one as "Man" but as "It Is" (whatever that means) -- as a state of being which no human mind cannot understand. I postulate that this experience is as a celestial body -- a star, planet, etc... as "one of the glittering forms that fill the night sky" (see @[dtp/thoughts-2](long-devachan))
 
 > a state of Being which no human mind could understand, except inferentially it do so through the knowledge that that state is to Life as the senior to the junior.
 
