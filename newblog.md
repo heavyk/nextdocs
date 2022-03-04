@@ -84,7 +84,9 @@ in the sense that the stoplight is no longer perceived anymore, it no longer tak
 
 I'm going to have to try and think of more ways to express this concept -- but it feels efforless. there's nothing to avoid. it's like being on a train. get up and walk around the cabin, drink some gts and have fun and arrive to the location without any effort.
 
-it's a state of mind that we lose when we begin to give so many things outside of ourselves importance. going back to ep 11, this is what they were talking about when decending from this spiritual (I call it conceptual) perception, and into the nitty gritty physical and all of its implications.
+it's a state of mind that we lose when we begin to give so many things outside of ourselves importance. going back to ep 11, this is what they were talking about when decending from this ### 2022-03-04 11:12 - spiritual (I call it conceptual) percept
+
+one of the reactions that I ion, and into the nitty gritty physical and all of its implications.
 
 it's all about emotional control. negative emotion pulls you right back into the physical world, so to remain relaxed and conscious of your conceptual perception of yourself, all the negative emotion producing stuff (even things like death and tragedy) should no longer have a meaning which gives them more importance than your conceptal version of yourself -- who you *really* are -- who you know yourself to be (in any circumstances).
 
@@ -10226,7 +10228,7 @@ so, to explain that sequence, now let's look at it from one of the girls' perspe
 there are two major phases to this process:
 
 1. is getting people to the attractor.
-  - I'm not the only one that's capable of doing it -- in fact, there are likely all kinds of different conditions and circumstances capable of preparing a person to arrive there.
+  - I'm not the only one that's capable of doing it -- in fact, there are likely all kinds of different conditions and circumstances capable of preparing a person to arrive there[^1].
   - every iteration there are new arrivals.
 2. self-sabotaging your own path
   - each time we arrive to the moment in time where the conditions are met to allow for manipulation of one's timeline, I assume that most will want to have the experience of getting there without the aid of others or conditions.
@@ -10234,6 +10236,48 @@ there are two major phases to this process:
   - we'll also have to find better ways to get us to not need the manifestation in order to feel good along the way.
 
 obviously, some people need manifestations way too much to be able to self-sabotage like that. what I believe is the major dividing line between the physical and conceptual split is the needing of the manifestation. when physical (gross matter) becomes difficult to inhabit, every body will "die", being separated into it's spiritual (conceptual) and astral parts. the ones who need the manifestation are astral, and the ones that don't need the manifestation are conceptual, meaning they can then project theirselves down into the next (12k) timeline whereever they feel so aparent.
+
+[1]: see @[newblog](2022-03-04 11:12)
+
+### 2022-03-04 11:12 - conceptual / astral -- who are the authors?
+
+one of the reactions that I had was to the part where I said that there are many conditions and circumstances that can get a person to arrive to the attractor. this reminded me of a thing that tesla said: "there are two paths: lots of affection or none at all; I took the latter."
+
+it's quite possible to take the "tantric" route to get there. I've felt some negative reactions to my mention of it, because I think there is quite a stigma about it somewhere. as tesla says, that's one of the paths. the other path is the "sons of the solitude" path -- or probably the buddhists and their meditation. I too am pretty convinced that I'll get there without anyone's help -- so, I too am on the buddhist path in that respect.
+
+but, that's the whole point of the self-sabotage. once you get there, then you can just sabotage yourself and the traverse the same timeline but getting there a different way.
+
+so let's just say "hypothetically speaking", that various sabotages of mine were actually mini-splits. one part of me -- let's say the astral part which needed the manifestation went on with the girls and they found their way to the great attractor the tantric way, while the conceptual side of me continued on the path that I'm on now. it's just a mini-split. I even suppose that, being an astral entity, a lot more freedom is afforded to whomever inhabits the body. like the psychic/astral version of zailm interacting with gwauxln, it's a mental copy of me and it thinks its alive.
+
+it's not at all impossible for me to think that as what is happening. all of these off-shoots will arrive to the attractor the tantric way, and that's all perfectly fine. once there, they can then go back and sabotage their own timeline and get their another way.
+
+like I was saying though, that sounds a lot easier said than done. looking at your timeline bringing you to this moment, you have to find a way to both prevent yourself from getting your manifestations (even though you're attracting them stronger each time), *and* also convince yourself that you can get to the end without needing the manifestatioan (even when others all around are having them). in a lot of ways, I think that's actually quite a difficult thing to do if you're visual. the visual aspect seems to have a strong effect. most people, if they can see it, they believe it -- and so, as a result, the capacity to create visual (astral) illusions is the most coveted capacity because they're the most convincing.
+
+in this way, I think I actually have it the easiest not being visual to successfully make it through without the manifestation. reading this book, I'm really beginning to notice how difficult it is for visual people to become conceptual. the visual capacity is so powerful at making something believable, a simple power-display can convince a visual person very easily. they need that visual response in order to believe. for a visual person, I find it very difficult to believe that they would ever be able to "not need the manifestation" -- when they're looking at it all the time in their mind's eye. the attraction power of the image would be too much to overcome, I believe.
+
+---
+
+so, let's say there are multiple splinters off of this timeline that are also heading toward the attractor that are going the tantric way.
+
+like I said, the separation is between those needing the manifestation (visual/astral) and the ones not needing the manifestation (conceptual/spiritual).
+
+though there are many small separations that have and are happening, there will likely be a time when there is a big separation. this is referred to in the book as the "second-coming of christ", and is literally when energy levels are now so high on the planet, that each person is manifesting their own concepts into reality without effort.
+
+the book also talks about how the inventor (merton fowler) and the author are working on a "christless" world. this, means that the great separation is being delayed for some long period of time (supposedly 1000y). the christless world has no "second-coming" in that respect.
+
+that sounds to me like a pretty epic self-sabotage. what I mean is -- imagine that somehow some critical mass of people (all?) arrived to the attractor and are now sabotaging their own timelines both getting up to the attractor, and then from then on out.
+
+like I said, it's likely very difficult to convince someone (even yourself) that you don't need the conditions, circumstances or power-dislays to get to the conceptual plane, so that's why I think probably during the next era (1000y?) we'll be jumping into timelines that have an infrastructure setup (like a network?) which can prevent us from getting certain manifestations, forcing us to go the non-tantric path, if that's what we choose.
+
+we'll create astral bad-guys to encounter us on these timelines (as if we're writing our own stories) and then jump into the sabotaged timeline finding our way to the next attractor (1000y from now?).
+
+from that perspective, we're spiritual beings jumping into astral bodies to have an experience. we know we're going to get to the end and realise we're spiritual beings, so why not accumulate as much experience along the way as possible.
+
+---
+
+at this point, I sorta believe that most of the people at nosebook are my own astral creations and/or the astral parts of myself that got left behind in various splits along the way.
+
+I'm literally only fighting myself.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
