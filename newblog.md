@@ -10325,6 +10325,22 @@ just like a lightning discharge.
 
 [4]: I remember a long time ago a bardcode episode that some indian mystic said that it was roughly 12ky, but not quite... 1024 * 12 = 12888. I don't remember the figure exactly because he said it was the mix of a slow speed and a fast speed, having to do with the balance of 5 and 6
 
+### 2022-03-04 14:10 - what if someone kills me?
+
+so, imagine that the difficulty is so high that someone kills me or I die.. well, then the timeline isn't successful. this is undesirable because you just return back to where you are "now".
+
+if technology is being used to modify these timelines, I'm sure that when "you" in the timeline dies, then you just return back to the bed or wherever it is that you're laying when you transferred your consciousness into the timeline. probably then, you just make adjustments and try again.
+
+however, if you're already self-realised as a concept of yourself, then you just make changes and re-insert yourself into the timeline. you could be an astral being, but what fun would that be if only the astral types can see you? that's for the ones that want to experience the conditions of their desire (like on venus).
+
+I don't know about other people, but I would imagine self-discovery to be the most invigourating thing ever. like -- imagine that I could just have someone come and tell me all the answers -- or, I could find my own way to the answers that I seek. in that sense, I'd prefer to enter into the world with a fresh astral body, without memory of previous things. each lifetime, I'll have failures and successes, but if successes are conditions, then I won't have many. I'm not looking for good conditions, but to gain more experience on my return back to who I really am.
+
+in fact, you could look at these two types of needing the manifestation as extending out from the source, and the not needing the manifestation as returning back to the source. both happen, and it looks to me like material experience is gained on the way out (with the manifestations), and conceptual expedience is gained on the way back (as manifestations no longer are necessary to continue moving).
+
+you'll also that returing back from source is attraction (more like shiva), while repulsion (going away from its source), is more the creative force (brahm).
+
+after writing these I have a pretty clear mental image that these are just different octaves of the same wave. almost assuredly, this is why there are so many seeingingly apparent polarity inversions, too.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
