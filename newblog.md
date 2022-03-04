@@ -10277,6 +10277,8 @@ from that perspective, we're spiritual beings jumping into astral bodies to have
 
 at this point, I sorta believe that most of the people at nosebook are my own astral creations and/or the astral parts of myself that got left behind in various splits along the way.
 
+from their perspective, they are my authors. they are astral beings writing the story that I experience in physical. they think they're manipulating me. from my perspective, I put them there to ensure I'm not relying on conditions and manifestations to feel good. they are the authors of my story, but also unwanted aspects of me incarnate.
+
 I'm literally only fighting myself.
 
 ### mechanicals: play within a play
