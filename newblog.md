@@ -10281,6 +10281,50 @@ from their perspective, they are my authors. they are astral beings writing the 
 
 I'm literally only fighting myself.
 
+### 2022-03-04 12:53 - one more aspect of it
+
+I didn't really know how to approach this idea, but let's just assume that it is a 12ky timeline and we're around the 1000y mark[^1].
+
+I'll add in the leapfrogging time pickles concept in here too that there must be sub timelines, or as is referred to as "hours". it's very difficult to sustain consant upward motion, as that's more similar to DC electricity, so it accumulates resistance quickly (this is what is happening to the fallen-angels).
+
+instead, it has to go more like gas prices -- some down and up, but more up than down. a vibbration has a periodicity to it and so therefore can be divided into octaves (halves and doubles) and other resonant harmonics. I postulate that the 1000y period is actually 1024y, which is 2^10, which is a perfect octave of the unit 1. one divides itself, then then those divide another ten times to get 1024[^2].
+
+I postulate that each of these "octaves" are kind of like a checkpoint in the timescale -- which interestingly is calculated by the number of revolutions we make around the sun[^3]. an octave is just when the beginning of the wave is both traveling in the same direction and one period divides the other without remainder. there are other times that the wave is traeling the same direction, and those are harmonics -- so it must have something to do with things going the same direction (3 * 4 = 12 and 3 * 4 * 5 = 60)... anyway... I digress
+
+for this, I assume that the timeline is 12ky -- though it may be a little longer[^4] and I also will assume that the we're going to be stepping things on the period of an octave, which I'll call an era, and for round numbers I'll say is 1000y. that means that each era there is an attractor that will cause a split. some will go the same direction (odd octave), and some will go the opposite direction (even octave). probably harmonics play here as well, but I want to simplify this concept.
+
+---
+
+OK, so again from first person.. imagine that I'm the attractor for this era, and I know that I'll make it over the course of many lifetimes to the attractor. wait, better yet, assume that I'm the creator of the human race and I'm the attractor for the full 12ky timeline. somehow -- and I don't really know how, but let's just assume that somehow I was able to find various ways to get "all" human souls to the attractor, someway or anther. that's phase one.
+
+for phase two, a full sabotage takes place and a lot of difficulties are introduced over the course of the next 11 eras. everyone is going to arrive though, as it's certain, so tremendous changes need to take place over the final era to get everyone there.
+
+for after a number of self-sabotages to myself, the byproduct is a world that in which no one believes they are spiritual/conceptual beings having a physical experience, because in believing so, that's the sabotage to keep me from making this realisation either. so then, somehow in the final era, such a massive change needs to take place where over 1ky everyone who made it to the attractor has to go from thinking all is material to believing that there is more.
+
+---
+
+I don't really know how much control we have over this, and I don't really know what all of it means, but from my perspective, I'm just a guy that can fit things together easily. I just follow my instinct. in a lot of ways, I'm kind of along for the ride. I have the illusion of choice, but in reality, nosebook controls nearly everything at this point. the only choice I get is how to perceive my environment -- and how to feel about it; that's it.
+
+zooming out to a bigger perspective, let's just say it's the sun (or "God" or whatever) has to find a way to get lots and lots of humans from where we are now to becoming fully realised conceptual beings in a short 1000y. furthermore, we're the ones "throwing resistance on to our trail" by creating our own bad-guys and ensuring that they have the technology to prevent us from getting the manifestation.
+
+if I were in the future, I would find it very unlikely that a person will say, "yeah I want to jump back into my experience and just sit around and waiting for the sun". as conceptual beings, material things can be created at will, so manifestations will no longer matter. so then, I imagine the most common two paths will be one of lots of affection, and the other of none (I'll figure it out for myself).
+
+everyone can have any material posessions they want, and I know I'm going to get there, so do I want to have a lot of pleasure with others along the way, or do I want to figure out how to do it for myself.
+
+so, from that perspective there will be those that sabotage their timeline to get more affection, or to ensure they get none. we even built a whole network full of heierarchy of "haves and have-nots" to ensure those that want the manifestation can get more of it and those that do not, will not get any. from the sun's (or source, God, LOA, etc) perspective, that's the situation, so a path needs to be found through all of the resistance that we introduced into our own timelines to get everyone from now til 1000y from now.
+
+for source (God, whatever), this is not a difficult task apparently. everything resonates with the concept that is attracting it, so things just naturally find their way toward the attractor.
+
+just like a lightning discharge.
+
+[1]: when I say year, I mean revolutions around the sun, not a quantity of days (rotations of the earth).
+
+[2]: I often times mess this up. though it's 2^10, it's also  one divided in half 11 times, or 11 octaves higher.
+
+[3]: or the sun makes around us, depending if you buy into the tychos model (@[newblog](2021-09-24 13:27))
+
+[4]: I remember a long time ago a bardcode episode that some indian mystic said that it was roughly 12ky, but not quite... 1024 * 12 = 12888. I don't remember the figure exactly because he said it was the mix of a slow speed and a fast speed, having to do with the balance of 5 and 6
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
