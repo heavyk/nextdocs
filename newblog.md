@@ -10114,6 +10114,64 @@ the venus setup here seems like the latest installment of the 434d ruler: "I am 
 
 [2]: it appears, if I had to guess, because it isn't very physical, that I'm perceiving probably a bit higher up (3) which is the non-physical counterpart to the conceptual (5). or, it's possible that I'm already using the new temporal layer. I don't know.. I just know it's definitely not the astral.
 
+### 2022-03-03 23:48 - try to write it again
+
+one of the most common reactions I get is noticing how when I repeat information that I heard on the internet or something, I seem to hear things that others didn't -- or I have a different perspective than usual -- something like that.
+
+the reason why that happens is because when I hear the information, I just consume it and don't try to come to too many conclusions about it in the moment. it exists out in space as a concept, and like every concept, it starts to gather similar things to it-- so when I tune back into it, there are more resonant (nearby) concepts to it, and I can then translate those into words. it's really important to give a concept a little bit of time to begin attracting similar/relevant[^1] things to it[^2].
+
+I enjoy that new perspective just as much as others do. that's why I write so much -- because, until I translate it into words, it's just a vague feeling. I usually know what I'm going to talk about and have a good idea of the list of topics that I will cover -- like I feel what I'm going to say, but I don't yet know what exactly I will say.
+
+for example, this time, the idea that came into my head started out this morning (or maybe yesterday) when I wanted to consolidate all of this information into something like a book. a lot of these ideas are spread out over a number of different locations, so I wondered what it would be like try and consolidate those ideas, and the idea is to simply do what I do to information I hear, but also to my own information -- iterate on the concepts that I've put out the last few weeks.
+
+---
+
+I kinda shot myself in the foot a bit with this morning's entry because I opened a new concept that I hadn't really thought about too much, and it kinda changes a lot.
+
+I want to try revisiting the fallen-angels concept. I originally postulated that the human race was intended to be a reflection of its creator, the idea being that the creator of the human race would eventually want to inhabit the bodies. it does not matter to me if the creator is a single person (most likely not) or if it's a group of people (seems more plausible). I'll use the singular noun of "creator" so that it more closely aligns with the word "God" because I think that a lot of the strangeness can be accounted for if one realises that creation is being done backwards. in fact, to simplify this process, I will just assume that I am the sole creator cause it's easier to conceptualise that way. just to be clear, I'm 99.9999% sure it's a team of people -- and even more likely it's quite a large collaboration and/or a (entertainment?) production of some sort. imagine what TV would be like for a species capable of genetic engieering and stuff... but I digress...
+
+---
+
+if I were creating a race of humans, I would want to create something that I would want to inhabit myself. so, from my perspective, there are things that I definitely don't want for myself. like, for example let's say that I don't really like the idea of valuing a person with some sort of token or currency, right? I want to see them for who they are, rather than for their perceived value. so, what I do is I create an environment and set of social conditions that necessitate separation between people, reqirining exchange of goods and services. some will inevitably pick to do a communal sort of thing, and that's fine, but I also don't like to depend on other people either. the perfect realisation of this is slavery. people are valued for a certain amount, then bought and sold. the opposition to this, is a communal way of living where everyone needs and depends on everyone else. neither of which are circumstances I would want to live in.
+
+the first thing to do is to setup a basic timeline where the minimal amount of difficulty is realised. I would set it up so that I know that at some point the evolution of the race is going to be sufficient enough that they can take one of two paths: connection with self or connection to technology for the capacity to modify timelines. I probably want to find a way to reach that *without* technology though -- so once I reach the "end game" and am able to manipulate the timeline, I would see things from my bigger perspective, meaning that I would desire to go back and figure out how difficult I could make the timeline. I know I'm going to make it, so now my goal is to invent new and more difficult bad-guys -- designed to keep me away from reaching the capacity to manipulate the timeline.
+
+each time I beat the game, I invent harder bad-guys with better technology designed to keep me away from beating the game. then, I jump back in and try to figure it out. it probably takes me few incarnations to figure it out I'm sure, but the goal is to figure out how to get return back to the capacity to modify the timeline.
+
+it's a weird game, because I'm guaranteed to arrive to the destination -- because I'm already there. only I can mess up my "now", so if I self-sabotage my own steps to get there, it's only apparant failure; it's actually completely impossible to fail. likely the edits that are done are to make it more difficult -- never to fix mistakes.
+
+the reason why the game is fun, is not because every time you're guaranteed to win the game, but because every time you're guaranteed to take a different path toward winning the game.
+
+to me, this idea is kind of invigourating to me because it's kind of like a evolution version of what I do with concepts. I start in a place and then I just start following ideas until I get there. there are infinite paths to get to the concept. it feels like the evolution of a concept (or desire) is very similar.
+
+I often thought, "I thought this is what I wanted" -- right, only to find out that, for whatever reason, it didn't work out. because it's only attraction, I like to think of this as deliberate self-sabotage on my part. as if, from some future perspective, I'm thinking to myself, "OK, I know that way works, so what if I could find a way to sabotage it. for see what happens, right?"
+
+---
+
+what I imagine is likely the case is that there is not a single creator, rather there are many many creators (millions? billions?), and they are all guaranteed to arrive to some point in the future, so what they're doing is attempting to create more and more difficult circumstances to test your own limits. each of these creators have made it through, and have figured out how to manipulate their own timeline. they're at a point in the future where they did make it, and so knowing that they'll arrive back to that moment, why not try out a different route? what happens if nothing works out? what happens if everything goes wrong? etc. you're still going to be successful right, so why not try out failing the whole way?
+
+when I say timeline, I'm meaning probably 12-24ky (or perhaps more) -- with the idea that the normal `physical<->conceptual` rebirth cycle makes it the job of LOA to find a way through many incarnations to that point in the future. it's likely possible to have certain forces directly target you to personally make things more difficult for yourself. I don't know the limits on that, but I would guess that those sorts of things are done iteratively. so, like if I sabotaged my position as a king, I would build bad-guys that would either take over the thone or prevent me from getting there. so say instead I became clergyman -- same thing, second iteration, I need to find a way to prevent myself from getting involved with the church -- and so on...
+
+so then, in the bigger picture, there needs to be bad-guys that are convinced that they cannot allow people to gain the ability to modify their own timeline. I need some way to create these bad-guys. in a lower energy situation, I would need to create actual physical organisms that are capable of doing this, but they have to come from somewhere and know how to behave properly.
+
+the easiest way to do this is to create concepts that embody these bad-guys. they will have all of those qualities, like only valuaing a person for this perceived value, work entirely in the exchange of material goods, and depend on others to do things for them (preferrably with an exchange of value). then, have these concepts inhabit astral bodies so that they can interact with physical bodies when energies are high enough. when energy is no longer high enough to support them, they're forced to take residence in physical bodies -- ie. fallen-angels.
+
+that means that for only a certain part of the time of the 12ky timeline I can actually use astral entities to be my bad-guys. when we're far enough away from sirius, then all of these astral entites (old humans, and our own bad-guy creations) have to take on physical bodies if they want to interact with the physical, and find a way to retain connection to the astral. during the kali yuga, I imagine how important it is to keep all of that a secret.
+
+so let's say we're in the middle of the kali yuga and I somehow figure out how to gain the ability to manipulate my own timeline -- well, then I just beat the game. I got there too early, so I can go back to self-sabotage it. I don't konw if this is done automatically by LOA or what, but I'm sure that if my intention is to sabotage myself, I can keep iterating on it, setting up longer and longer intallments of bad-guys (custodians) that will control technology capable of preventing me from getting access to my own timeline.
+
+---
+
+I guess what I'm trying to say is that it's all good. no matter how many difficulties arise, I know I'm pretty sure that I'm guaranteed to make it at this point.
+
+like I said, these things are probably entertainment for them. every movie script has a conflict that needs resolution. imagine what "reality TV" would be for the sun, galaxy, or planet: from their perspective, they're just writing more interesting bad-guys into the script, and then seeing how it turns out. from our perspective, we're just colloaborating with other actors/characters/personalities we want, to make the story more exciting -- and, from this perspective all of it appears as reality.
+
+I aught to do this more often; delete and rewrite concepts from time to time. I like the remix.
+
+[1]: similar isn't the right word. I don't know the best word for it. it feels nearby or relevant to. relevant is a good word.
+
+[2]: for example: if I have a question, the answer is resonant with the question, but not relevant. usually the answer is hidden behind and waiting to be discovered behind relevant/relating ideas. it's like a path -- one idea leads to another until I figure it out.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
