@@ -10172,6 +10172,69 @@ I aught to do this more often; delete and rewrite concepts from time to time. I 
 
 [2]: for example: if I have a question, the answer is resonant with the question, but not relevant. usually the answer is hidden behind and waiting to be discovered behind relevant/relating ideas. it's like a path -- one idea leads to another until I figure it out.
 
+### 2022-03-04 09:49 - take it to the limit
+
+again, I'm going to write in first-person, though there are likely many more.
+
+if I look at my life, it appears to me like I have had many opportunities to find my way to that temporal capacity.
+
+I can easily see how it could have worked out with raquel, for example. so then, both of us arrive to the point, and we think, "OK, but what if I didn't need you to get there?" so we go back and self-sabotage so that it doesn't work out. or, at least I do, anyway. I would guess that she too, having arrived there, knows that she too will arrive, so why not take a more difficult path, right?
+
+from my perspective, since the raquel thing doesn't work out, I take a different route. now, let's say there is another girl (doesn't matter which one), and again we arrive and go back to self-sabotage. at that time, there are now three of us that are guaranteed to arrive...
+
+so, what if that were iterated on, to where all possible girl combinations were sabotaged? sure I'm attractive, but I want to see what it's like if I get there by myself. maybe they do too.
+
+---
+
+when extending the example out that far, I begin to notice some things. normally, a person incrementally builds on their manifestation potential until they're living the life that they want. I look at futbol players, atheletes, or businesspeople and I see that they're usually pretty good at incrementally getting more and more of the manifestations that they want...
+
+this process does the exact opposite. those examples incrementally get the manifestation that they're looking for. in the case of self-sabotage, it appears that every manifestation that is about to happen seems to fall-through in some way -- so, if I need the manifestation to feel good, I would have a pretty difficult time in a self-sabotage setup.
+
+I would need to find to find various ways to get the message to me, *not* to need the manifestation to feel good. there are a few major influences in my life, and one of them is abraham. while they were quite influential to other people as well, to me they appear nearly as invaluable to getting the message to me that I don't *need* the manifestation in order to feel good.
+
+so, if looking from the attractor down, and all I'm doing is sabotaging various aspects of my life, I need some influence that can help me to arrive to arrive to another point in time along the path... like, let's say that again from the point of the attractor, we sabotage the abraham thing -- well, then another such influence would show up... however, I don't believe I'm the only one self-sabotaging -- so there would need to be various influences (I may be one of them) that can get the message to people that have sabotaged many of their manifestations, to not need the manifestation.
+
+---
+
+I want to try going over that one part again because I don't feel like I got it well enough. I'm going to try structured format this time:
+
+- the goal is to arrive to a mental or technical capacity to manipulate my own timeline in the body of the new species
+  - a timeline is a lengthy period of time -- considering the creators of the human race deal with larger periods of time, I estimate a timeline of a creator to be anything from 1-24ky (maybe more).
+  - a rudimentary timeline is established where the arrival to the goal is assured (some event or planetary alignment or something) making this state of mind possible. I'll call this "end game" moment the attractor.
+- once I make it to the attractor, then I'm guaranteed to get there.
+  - that means, I can go back and sabotage my path to get there as much as I want, and I'm still getting there.
+  - inevitably, I will inspire others to also arrive to their own capacity to manipulate their own timelines (mentally or technically).
+    - the most likely to make it with me would be friends and girlfriends
+- there are a number of conditions that allow this capacity.
+  - if the capacity is built into the genetics of the species, then it's simply a matter of figuring out how to use it.. it would be no different than a child learning to walk.
+  - from what I can tell, there is some basic unit of consciousness that allows one to see beyond the mundane and grasp a trajectory through time (concepts/feelings)
+    - this unit of consciousness seems to always be there -- like it's in the atmosphere and we're only able to tap into it when we're not so focused on physical pain and negative emotion stuff.
+      - I postulate that this is a connection that we have in the mitochondrial DNA and the sun.
+      - we all have it, so it can be accessed by lowering emotion (meditating) or by feeling really good (euphoric and tantric)
+- so, because I'm guaranteed to arrive to the attractor, then what if I were to systematically sabotage my attainment of those conditions.
+  - put myself in situations, whereby meditation is difficult because no matter where I go, there is always a million things going on in my head
+  - make sure I don't have access to drugs which can offer euphoric states
+  - make sure I don't have sex or try and get there that way
+- eventually, one can see that it starts becoming impossible to create enough conditions that can keep me away from the manifestation
+  - I need to come to the realisation that I don't need the manifestation to feel good
+  - once I realise I don't need the manifestation, I can continue on stedily toward the great attractor without any manifestation
+
+---
+
+so, to explain that sequence, now let's look at it from one of the girls' perspective -- she knows she can get there, but she is depending on a set of manifestations that she thinks she needs to get there. she can get there without the manifestaiton. so can others.
+
+there are two major phases to this process:
+
+1. is getting people to the attractor.
+  - I'm not the only one that's capable of doing it -- in fact, there are likely all kinds of different conditions and circumstances capable of preparing a person to arrive there.
+  - every iteration there are new arrivals.
+2. self-sabotaging your own path
+  - each time we arrive to the moment in time where the conditions are met to allow for manipulation of one's timeline, I assume that most will want to have the experience of getting there without the aid of others or conditions.
+  - we'll have to find better and better bad-guys and systems capable of preventing a manifestion before arrival to the attractor
+  - we'll also have to find better ways to get us to not need the manifestation in order to feel good along the way.
+
+obviously, some people need manifestations way too much to be able to self-sabotage like that. what I believe is the major dividing line between the physical and conceptual split is the needing of the manifestation. when physical (gross matter) becomes difficult to inhabit, every body will "die", being separated into it's spiritual (conceptual) and astral parts. the ones who need the manifestation are astral, and the ones that don't need the manifestation are conceptual, meaning they can then project theirselves down into the next (12k) timeline whereever they feel so aparent.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
