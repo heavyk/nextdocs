@@ -10335,11 +10335,53 @@ however, if you're already self-realised as a concept of yourself, then you just
 
 I don't know about other people, but I would imagine self-discovery to be the most invigourating thing ever. like -- imagine that I could just have someone come and tell me all the answers -- or, I could find my own way to the answers that I seek. in that sense, I'd prefer to enter into the world with a fresh astral body, without memory of previous things. each lifetime, I'll have failures and successes, but if successes are conditions, then I won't have many. I'm not looking for good conditions, but to gain more experience on my return back to who I really am.
 
+---
+
 in fact, you could look at these two types of needing the manifestation as extending out from the source, and the not needing the manifestation as returning back to the source. both happen, and it looks to me like material experience is gained on the way out (with the manifestations), and conceptual expedience is gained on the way back (as manifestations no longer are necessary to continue moving).
 
 you'll also that returing back from source is attraction (more like shiva), while repulsion (going away from its source), is more the creative force (brahm).
 
 after writing these I have a pretty clear mental image that these are just different octaves of the same wave. almost assuredly, this is why there are so many seeingingly apparent polarity inversions, too.
+
+### 2022-03-05 15:03 - reactions and stuff
+
+as I woke up this morning, the reaction that I noticed the most was the one to my conclusion in the precious entry. in that entry, I was making the association between octaves and the split. the beginning part of the two octaves they will be traveling at different speeds in the same direction, but then other times when the waves intersect at the zero-point, they are going opposite directions[^1].
+
+[pause. feet cold and lost my train of thought from reactions.]
+
+---
+
+OK, I think I have most of the concepts back and I wrote them down, but I feel like I'm missing one still. anyway...
+
+the reaction was to me thinking that I either created the "bad-guys" or they're just aspects of me. the implication being that people like chris may even be that. my brain haemorrhage basically marked the end of my friendship with tim. after I got out, I hung out with chris and casey/KC (his name is "kenneth christopher") almost exclusively.
+
+I don't really have a problem with that, if that is the case. the reason why I say that is because none of these "bad-guys" are actually doing anything that isn't *attracted*. it's only attraction, so that means in some way I must be attracting their influence on my life. from my perspective, that would be the plan.
+
+many people at nosebook are dedicated to ensuring that I go the "no affection" path. they're not doing something unwanted to me -- and neither are the people who "stole" money from me either. I know now, looking back, that I didn't really want it anyway; same with my brain haemorrhage and paralysis. I much prefer how I am now than to have had more optimal physical conditons.
+
+sure, from a physical standpoint, it appears like they're preventing me from having some desirable physical conditions to be the reason why I feel good -- but that's not what I *really* want, I assure you.
+
+it took a lot of realisations and a long time to come to the evolution-of-desire concept, but I am certain that I want to *be* the thing I desire, rather than to need, want, or have it. nothing was lost to all of the "bad-guys" that helped me to spend my money or to the nosebook guys that want to ensure I go the "no affection" path.
+
+it's all attraction, so I either created them in the LOA sense, where I attracted them from my broader perspective, or I created them in the sense that they are literally astral extensions of a concept I created. they could even be physical extensions of a concept as well. that's why it's called "conception" (lol) -- and, we know that concepts inhabit bodies (that's what all of us are)... so, there's no difficulty for me in thinking that way. the implementation details don't matter to me. the point is, it worked, and I'm getting to where I want to go.
+
+they're essentially the "authors" of the details of the story however, take a look at the thing from a bigger perspective -- the one of the great attractor and notice that LOA is doing all of the figuring out of which is the next body to incarnate into and things like that. from the perspective of the great attractor, I am inserting "concepts" into the timeline. they're just story elements. I don't care about their details, and so just the same I would have no preference for chris  or zaryn, dani or daniel, raquel, or anyone else's physical appearance may be. they are conceptual influences that I attract into my timeline to ensure I don't get certain manifestations.
+
+from now on, that layer of perception I've been calling temporal/thrust, I'm just going to label it (5.1) -- but that's all it is. it's just looking at things from a broader perspective seeing trajectories through time and attracting the ones that can accomplish certain objectives. they're objectives align with my own, I assure you. it *must* be that way.
+
+---
+
+the final reaction was to me talking about the tantric path and stuff. I will arrive at some point to that connection. you see, from my perspective, I've already completed the "no affection" path. I got there just fine with star-watching and releasing resistance. star-watching is a bit conditional though, so now I'm doing the extra-credit exercises and showing that conditions don't matter. I can not meditate, no star-watching, drugs, or anything and I'm still making progress rather rapidly. progress is made mentally by releasing resistance (allowing); it isn't a measurement of physical progress. the conditions don't matter.
+
+I made a silly comment in the last entry saying that I figured that the two extremes that people would optimise for is for lots of affection or none at all, because I found it very unlikely that people would waste 1000y of opportunity to just sit around in the mundane and wait for solar conditions to arrive to do the work for them... it was an ironic comment, because, to some extent, that is what I'm doing now... kinda... not really though.
+
+I'm definitely not doing "nothing", occupying myself with the mundane physical experience. I'm growing quite a lot.. to quote dtp:
+
+> Let no poor, disappointed soul on earth mourn because of life's unsatisfied longings, for we do not know to-day whether we are busy or idle. In times when we have thought ourselves indolent, we have afterward discovered that much was accomplished and much was begun in us. These beginnings are fruitful, indeed, for they bestow upon us our longed-for aspirations, 'over there' if we will, in His way."
+
+it's all attraction. every single way is the right way. you can't mess it up. no matter how hard you try, you wiill arrive. so, just try to have as much fun and interesting moments along the way as you can :)
+
+[1]: this makes me wonder, for the ocatave at double the frequency, what is the best order of magnitude difference for the two waves to be traveling nearest together for the longest time. after writing that I had this picture in my mind that looks kind of like chicken wire. one wire comes down and the other comes up -- they twirl around a few revolutions and then go opposite directions. it reminds me of a picture I saw from a feynman lecture I saw a long time ago; something about emitting a photon. so like, it could be seen as horizontal spinning intraction like chicken wire, but also -- if there were a difference in magnitude such that both waves are going the same direction and close together, they might spin together too.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting

@@ -14,6 +14,15 @@ figure out how to trim trailing whitespace on save
 
 old repo (for reference)
 
+shakespere:
+- AS YOU LIKE IT (rosalind sees to know a lot about Time)
+- THE TWO NOBLE KINSMEN
+- THE WINTER’S TALE
+  - shepherd and his son the clown
+  - lion and his son the mammal
+  - mariners
+  - time, as chorus
+
 pi 1998
 we can be heros
 

@@ -51,3 +51,7 @@ finally, the subject of "evolution" of desire is commonly associated with a cert
 most people want the conditions or circumstances so they can show it off to their friends. if you want to feel like your friends admire your conditions or circumstances, find a way to feel how it feels for your friends to admire your conditions/circumstances.
 
 it really is that easy.
+
+---
+
+need, want or have it. I am it. I embody it. I am the feeling that desire gives me incarnate
