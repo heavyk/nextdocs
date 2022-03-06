@@ -24,3 +24,9 @@ another example of this could be the moon and its brightness we'll consider to b
 ### a walk to the beach
 
 consider another example where you decide to walk to the beach (or any other place desirable). the walk to the beach naturally feels more wanted than the return. however, it doesn't have to be. there is no reason that returning from the beach should be any less enjoyable than the walk toward it.
+
+### 2022-03-05 21:39 - looking back
+
+imagine that you are riding on a pendulum. and let's say that the centre is your source (the resting place of minimal vibration). this motion can be visualised like a sine wave, so let the centre be zero and the extremees be +1 and -1. let's say you extend out in the positive direction (0 -> +1), and that manifests itsef as creating something new or building something. when returning back to the centre (+1 -> 0), if you're still looking at the positive side, when the pendulum starts to go back to the centre, then it appears as if everything is beginning to fall apart, thing starting to collapse, worry, deterioration, losing users, etc.
+
+however, now for the same return (+1 -> 0), consider looking the opposite direction. now, instead of looking positively, you're looking toward the negative -- so, in your perspective, you're going forwards again so it feels good. this manifests itself as something like cleaning, optimisation, or clutter removal. it's the same thing but the forwards direction is opposite polarity.

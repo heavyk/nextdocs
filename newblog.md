@@ -10383,6 +10383,99 @@ it's all attraction. every single way is the right way. you can't mess it up. no
 
 [1]: this makes me wonder, for the ocatave at double the frequency, what is the best order of magnitude difference for the two waves to be traveling nearest together for the longest time. after writing that I had this picture in my mind that looks kind of like chicken wire. one wire comes down and the other comes up -- they twirl around a few revolutions and then go opposite directions. it reminds me of a picture I saw from a feynman lecture I saw a long time ago; something about emitting a photon. so like, it could be seen as horizontal spinning intraction like chicken wire, but also -- if there were a difference in magnitude such that both waves are going the same direction and close together, they might spin together too.
 
+### 2022-03-05 21:32 - conception, alphabets, and chicken wire
+
+I'm going to limit my recognition that I'm responding to reactions. by now it should be relatively apparent that it's starting to become a conversation.
+
+I also have a new idea that I want to start datestamping thoughts on concepts as well, as I have new ideas. still thinking about it, but it may be ordered oldest last, rather than like this one, newest first. I have some good ideas, and I think I'm going to turn it into a real thing. conceptblog.
+
+#### chicken wire split mechanics
+
+I spoke of chicken wire and how if two octaves had different magnitudes, then for the time that they're crossing the zero-point, it would appear that they're sharing the same space. I said that was opposite of a split, but then later it occurred to me, since wanted-and-unwanted-are-same, that may be, in fact, exactly what is happening.
+
+from me, I'm returning back to my source (my conceptual perspective). so, to not worry about conditions is moving in the right direction (forwards). for those that are on a different octave than me, we could be very close together because their perspective is exactly the opposite as mine. they're looking in the positive (brahm) direction, while I'm looking in the negative (shiva) perspective. they are just opposite polarities. we're two very different waves going at very different speeds[^1], but because of our opposite perspectives, we're occupying the same space.
+
+#### conception
+
+the other thing I noticed is that I mentioned that concepts can become an interactive image where they embody/manifest the concept perfectly (or hyperbolically) to the perceiver. however, I also said that a concept can be born into a body just as easily -- which is why it's called "conception".
+
+I believe that the "immaculate conception" or artificial insemination is to meditation as normal conception is to a reaction. in meditation, you try to achieve a state of no thought, and in the state of no thought, you own concepts don't get in the way of the amazing bliss that is normal. this must be the same for immaculate conception as well. the egg is not fertilised with the concepts that are happening in the moment of passion, but instead it starts from that baseline bliss state.
+
+however, I want to remind of something that abraham would say, which is, "we would rather you in a state of appreciation than in a state of meditation". or another variation they said was, "it's better to think thoughts of appreciation, than to not think thoughts at all -- but it's really hard to teach you to have high-flying thoughts, so we teach meditation".
+
+I think conception (of children) is very much the same way. I don't want to say that all sex is sin and lust and awful stuff -- cause it's not. it's just the tuning mechanism for you and any potential thing that's created.
+
+likewise, I imagine it's pretty difficult to reach a state of meditation dering sex, so having an "immaculate conception" in the meditative sense, is pretty unlikely. though, I do think it's possible to have thoughts of appreciation, and to directly conceptualise the creation.
+
+in fact, I think that's quite an easy thing to do, actually. I've noticed that a lot of fights happen after sex, and I think it's because the resonant concepts between the partners were amplified. those same resonant concepts that can produce a fight later, are the same concepts that are present in the moment of conception.
+
+that means that the resonant concepts have mostly to do with both of the two people's perception. they may be going opposite ways looking opposite dierctions or both going the same way to amplify that concept. so it depends a lot of perception (see wanted-and-unwanted-are-same)
+
+what I don't know, is which concept gets selected in the conception process. like, for example if one person has a whole lot of worry going on, and so does the other, those are the same speed, so worry will be present for sure. however, if one has worry going on, while the other sees it rather as cleaning or optimisation, then which concept gets selected? I would guess the faster one. I'm not sure though.
+
+---
+
+anyway, I think that in the moment of conception, the child can be tuned to the concept that they're imprinted with, and this will be their life trajectory. my dad knew from the beginning my concept, "battle to be fair in the sight of God vs be fair in the sight of man (people)".
+
+for example, when I'm playing roguebook, sometimes the treasure or the narrative that will be "randomly" selected will appear to me in my mind before I even click on it. I don't really know, but I would guess imagine something like that happens in the moment of conception. for the authors out there, that's probably influenceable and a resonant concept with the partners will kind of imprint the child a conceptual influence on the timeline.
+
+#### future conceptions
+
+so, all of that conception stuff got me thinking about the girls. I said that in my perspective, I've basically beat the "no affection" path/game, and now I'm just showing off a bit to demonstrate that really no effort or conditions are actually necessary. *everything* can be accomplished with perception and then attracting the desired concept for me to embody (see evolution-of-desire).
+
+there is some advantage to interacting with other concepts, because for example, when I go to friendly harbor, then I notice that I'm a bit different afterward. not in a bad way though. what it is, is I have extra exposure to coecepts other than the ones relevant to me, and I have to choose to see how I want to perceive them. it's actually quite good actually.
+
+so, imagine that I'm interacting with a bunch of different girls that have a lot of different concepts going on. the stuff that we resonate with will get amplified and along that way I'll get better and better at perceiving it the way that I want to. this is good, so essentially, any conceptions that take place will be infused likely more with my version (speed and direction) of the concepts, but they'll be born out of her and grow up in her environment. it's kind of like giving birth to the upgrade and then learning from the child to perceive the same concept differently. it's essentially extending the same thing I'm doing now and in the future with the girls, but extending that transformation of perception over a much longer period of time.
+
+#### alphabets
+
+I had an idea today on how to create a simplified alphabet that's capable of composing concepts with "letters".
+
+I noticed that the "f" looks a lot like (-0.5 -> 1), the "j" is kinda like (-1 -> .5). the "s" looks like (-0 -> +0) turned on its side. this looks to me like a corkscrew, where you get back to a similar place to where you started, but it's different. it also symbolises to me the difference between two extremes like ultra-greed and ultra-miser or pleasure and pain. opposite to that, the "o" looks like it gets back to where it started, so instead of looking at the corkscrew sideways, you're looking at it head-on.
+
+the next thing that I noticed is that except for the "o" and "u", the vowels don't show directionl shapes to me. however, I notice now that the "a" is an upside down "e" which is just an "o" with a curve coming up to it. this is coming into the circle from either the top or the bottom. an "m" with the first "n" closed or a "w" with the second "v" closed would be entering from the right or left. the mirrors make 4 other shapes.
+
+anyway, the vowels felt to me like this at first.
+
+a is a thing outside of "me"
+e is a withdrawing/repulsing reaction
+i is me
+o is a involving/attracting reaction
+u is the opposite of me
+
+---
+
+so, my idea for a conceptual alphabet is to use variations of the sine wave as the consonants, and then those vowels. as an example, I'll compose a word now...
+
+I want to show that something outside of me is beginning to decline. so I use the consonant of (l -> -0.5) which looks like a mirrored "f", then "a" my reaction, "o" or "e".
+
+⎫ae is something outside of me that is beginning its decline and that attracts me
+⎫ao is something outside of me that is beginning its decline and that repulses me
+
+very simple concepts can be composed in this manner. more advanced ones are probably pretty easy, but I haven't figured it out yet.
+
+like, I want to be able to say, something went out, had a few ups and downs but was successful...
+
+anyway, I'll keep thinking on it more. those basic vowels and shapes can describe a lot of things. if we consolidate a lot of details that a person gives in a story, they can be simplifed to very simple expressions such as these. it is quite a surprise to me how lengthy something something needs to be to describe such a simple concept.
+
+we see this all the time for psychologists... they listen to a long story and they might think (but probably not say out loud), "so you're scared of being let down"... that's another concept I'd like to be able to represent. so something like:
+
+a (they)
+f (built up)
+(logic symbol missing)
+i (me)
+(symbol for acceleration missing)
+o (attracting reaction)
+⎫ (mirrored "f", decline, deteriorate)
+(logic symbol missing)
+e (repulsive reaction)
+
+one can already see word terminations beginning to appear. the ending "(logic symbol missing) + o" will be a common termination to say that the thing scares or is heading in the wrong direction.
+
+I also want to give values to the consoants too, because a ⎫ that is gradual is like scared or worry, but a steeper ⎫ would mean depression, fear, anger, etc.
+
+[1]: it doesn't have to be an octave. it could also be a harmonic, though an octave is easier to visualise.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat

@@ -22,6 +22,7 @@ shakespere:
   - lion and his son the mammal
   - mariners
   - time, as chorus
+  - time, lion, and phoenix appear also in sonnet 19. maybe related.
 
 pi 1998
 we can be heros
