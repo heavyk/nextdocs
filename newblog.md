@@ -10524,6 +10524,36 @@ no time that's enjoyed is time wasted; so, I'm not making a commentary on time w
 
 [2]: higher octave or harmonic where the waves are *(percepually and physically)* going the same direction more than 50% of the time.
 
+### 2022-03-07 11:01 - reward for affirming self-disempowering ideas
+
+as I was laying in bed after waking up, I could hear jaron and jerrica talking upstairs. one rhythm of voice interaction (couldn't really hear the words), had the feeling to it of jerrica rewarding jaron for affirming a self-disempowering idea.
+
+this is something that both of my sisters are particularly notorious for, but it's probably my main contention with how she interacts with amorina. almost all of the interactions seem to kind of train amorina to believe disehpowering ideas about herself. it's no wonder that she's so much more withdrawn now than when I saw her for the first time(?) in utah (I think she was 11 about to turn 12).
+
+---
+
+in general, I notice this behaviour among females all the time. I also notice it between partners. the most notable example I can give was between luke and maria. she was constantly urging him to take a more passive role with little hints like, "luke is just ..." or telling stories about how luke liked to come home and tell her nice things while he was drunk (as if it was somehow different to how he was sober). it's hard for me to relate these two feelings in text, so instead now I'll just talk about myself...
+
+I don't really saw much about these sorts of interactions because I still kind of do them outwardly. what I mean is, I think I've figured out melissa's secret -- of how she can outwardly have a negative opinion about herself and her body, yet at the same time still be getting prettier. I replicate the same thing with comments about my eyesight.
+
+you'll notice that I often note how difficult of a time I have seeing things, yet I have also noticed a lot of improvement in my eyes too. for example I haven't been able to use a font this small for a while and still see what I'm writing. I just don't really mention the improvements that often, but I do notice them. well, kinda -- you'll notice I go outside all the time and notice when I "see more" and that's all good, yet I still outwardly complain about my eyesight. I know, I'm a bit of a hypocrite, and that's why I haven't really said anything about it, until this morning when the thought slipped out and I started to get reactions to it.
+
+---
+
+so, I'd like to reveal the "secret" (it's not really a secret) to being able to outwardly note my less than where I want to be, state while at the same time improving. I personally don't try and teach others or reward others for disempowering statements (nor try and get them to change it either). like for example, jaron says A LOT of comments about how bad his memory is. this seems to be because his memory condition seems to get jokes, laughter, and attention from mom -- and now it appears jerrica as well. that's all good for me. he'll figure out his own way when he starts to notice improvements.
+
+so like using jaron as an example, he doesn't need to get mom or jerrica to change about making fun of his memory capacity. if he's noticing the improvements, their comments will only fuel his improvements. in fact, I noticed this with my eyesight even. I could use other people's negative emotion or perspective on my eyesight and convert that into improvements. actually, to prove myself, you may have even noticed that a large number of my larger vision upgrades came at a time when there was a lot of negative emotion directed toward me; I can convert it into wanted.
+
+I used to do this as a child too. I found that the harder I pushed dad's buttons and the more angry he got, the better I would feel. converting negative emotion into positive emotion really isn't hard. it just requires some mental flexibility to do it. this concept is related to the one of conception I said yesterday because mental flexibility just means finding a faster version of the same feeling/vibration that someone is putting your direction.
+
+so, my advice for amorina, jaron, and luke (I know he knows what I mean) is to encourage them to continue to try and reward you for disempowering, all the while noticing the improvements. their efforts to try and get one to affirm disempowering ideas can actually be used as fuel.
+
+---
+
+call me a bit of a masochist, but I want to breed and cultivate more of these types of disempowering people; this whole concept is the foundation of the whole "asymmetrical galaxy" idea. converting negative emotion into positive is so easy because wanted-and-unwanted-are-same.
+
+cheers
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
