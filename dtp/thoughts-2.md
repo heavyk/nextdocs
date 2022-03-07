@@ -458,3 +458,99 @@ the maxin stone is a focal point, and so therefore this "fire element" is concen
 second death and great lake of fire = massive solar outburst that will convert many into "sublime World-Spirits whose glittering forms fill the skies of night!" the rest return to start anew.
 
 so, not a big deal -- unless you're a fallen-angel.
+
+### past-life-experiences - who's past-life experiences are you getting?
+
+in a few responses to questions about past-life experiences, abraham often said, "who's past-life experiences are you getting?" this always stuck to me because I thought it was weird that you could be implanted with memories that are either not your own or are fabricated.
+
+he is visited by a ghost that looks like him... the idea here is that this is a psychic body like the one that zailm watched from his spiritual perspective get thrown into the maxin flame before it could take over antoher body...
+
+> there should I have seen the Rai cause it to pass into the Unfed Light. But of all men on earth only the trained eyes of a Son could have seen what then happened. The "shell" would not have emerged from the Maxin nevermore. What was this? Why destroy it? So that it might not go forth in the earth and impress sensitives such as the vailx-man whom I had impressed in Umaur, and whom my "shell" might otherwise continue to impress. Thus might have resulted much trouble, for this astral of mine was but faithfully repeating my final words until I parted company with it, when it said to Gwauxln, there in Agacoe, "I am not dead." It was even then like all other shells, its double composite nature only holding together during the limited period it could draw sustaining magnetism from my recently closed earthly correspondence.
+
+so here's walter being impressed upon by a "ghost" just as zailm's "shell" would "impress sensitives such as the vailx-man whom I had impressed in Umaur". gwaulxln threw it into the maxin precisely so it *wouldn't* do what is happening to walter...
+
+> For a time my "ghost" was amenable to my will as regarded its comings and goings; but it now seemed to have entered in and coalesced with me. I no longer heard or saw it, but instead was often one with it, and saw and heard its visions and perceptions as if they were my own; and indeed, as you know, this was a fact. It was in verity the record of my visit to Pertoz, and was a true cast in all ways of my life there.
+
+so, this is kinda a textbook definitiion of a fallen-angel. those who have the proper eyes and ears will recognise this. for most people however, they'll completely miss the implication here. so then once we're seeing this is a takeover of a body by a "ghost" or "shell" that looks like walter with past life memories, let's example a weird narrative in the book where walter has to endure some sufferings to atone for his karma (of the ghost that entered his body?).
+
+the idea is that these sufferings will wipe out the lower/animal nature from his soul... this concept is presented to walter by a man who prophesies his future suffering on earth. he says...
+
+> But if once all its power be wiped out; if once thou doest the will of the Father earnestly, is His *obedient* child, that is the atonement, for it shall give strength to do every work of the Creator of Being.
+
+atonement is obedience to the will of the "Father". the implication here is that walter is a conceptual creation of the original sin of adam -- and that pre-programmed sinful nature to disobey the will of the father is his "animal nature".
+
+when I was reading this, it struck me with the idea maybe walter is a conceptual creation of something and so that's why he has to do the will of the "Father". remember walter and this "ghost" are now one... the ghost is a remnant (shell) of a former conceptual creation. let me explain... 
+
+in devachan, there isn't much resistant conditions, so it's very easy for these conceptual creations to do the will of the "Father" and behave in accordance with their concept, but just like a human on earth desiring to realise the conceptual path through the physical he made for himself from devachan/temporal (5.1) perception, upon arriving to earth where the conditions are not so great, the ideal implementation of the concept is not performed.
+
+what I mean is that if I have a concept of a temporal trajectory, and everything goes as planned in a non-resistant state, later on earth, those concepts may not behave as planned or be "obedient to the will of the Father". that is literally the definition of a fallen-angel. in good conditions, they do the will of the Father, but under more resistant conditions, seldom occurs they decide to misbehave.
+
+the thing is this "ghost" looked like walter does, so there fore it must be walter's ghost that contain these past life memories of being on venus... so are they really his past life memories, or did he tune into someone elses?
+
+### at-onement - at-onement to the "Father"
+
+in the previous section, I established that walter is telling us of his past-life experiences, but by his own admission, he didn't get those memories all at once. they came after bocoming one with a ghost that looked like he does. this is after some rituals and power-displays, he is wanting to have these capacities. a man shows up and tells him mendocus sent him to tell him the steps to get what he wants (essentiall the occult powers he witnessed and desired)...
+
+> Before your eyes can see God they must be incapable of shedding tears for any suffering of your own. Before your ears can hear, they must have lost sensitiveness. Your voice may not speak eternal wisdom until it has no power to wound. Before your self can stand in the presence of the Eternal, its feet must have been bathed in the blood of suffering, penance, restitution.
+
+so, if he wants to:
+- see God
+- hear [God]
+- speak eternal wisdom
+- stand in the presence of the Eternal
+
+... then, he must:
+- be incapable of shedding tears for any suffering of his own
+- [his ears] must have lost sensitiveness
+- [his voice] has no power to wound
+- [his feet] must have been bathed in the blood of suffering, penance, restitution.
+
+... after that:
+- kill the ambition to excel in the poor paths of Fame.
+- cease to regard this life as your best possession. 
+- work for God as earnestly as others work for Mammon (money)
+- respect thy life as those respect life who treasure it most
+- be happy as those who live for happiness
+
+> In the hearts of all is the source of all error, in disciple as well as in the man of desire.
+
+what? probably something to do with original sin... anyway, after that he then says a weird thing about a mustard tree:
+
+> Study a plant of mustard, witness it grow and bud. But if thou shalt hew it down so that it never beareth seed, behold a strange thing, it will sprout again and grow through the years, if it never beareth.
+
+best I can gather, if you cut it down so it doesn't bear fruit, it'll grow back and and continue to not bear fruit... (fruit is sin?) I don't understand that part, but he concludes with this very weird thing:
+
+> [...] this [...] is only a material form. [...] therefore, if a human soul [is to] be cut down, [and] enter into life as a creator by reason that it wills not, then the Spirit of life everlasting shall go into it, and it shall contain itself, and therefore live forever.
+
+I'm having a lot of difficulty understanding the archaic english here (I edited it). however, it sounds to me like he's saying that there is a difference between the animal soul and the human soul; the human soul is trying to grow and trying to bear fruit (of sin?), but it gets cut down and so therefore will grow again but without fruit (sin?). when that happens, the spirit of life will enter the human soul, even if it doesn't want it to, and cause it to live forever. in so many words, it sounds like it's saying, "no matter how hard you try to be anything different, you're an eternal being".
+
+it's a very weird way of saying it though -- so, I have to wonder if this book was written to fallen-angels as an encoded message. one thing that supports this, may be the next thing he says:
+
+> Study the truth of mustard life. Only the strong in God can act upon this teaching and hold the lower nature. The weak must wait its maturity and then will come their struggle. It will strive to keep the feet from the Path; and may succeed. But if once all its power be wiped out [...]
+
+huh? only the "strong in God" can do apply this teaching in a way to hold the lower nature? what?! I thought the lower nature was bad? why does being "strong in God", allow one to keep their lower nature? I don't understand this at all. the implication here is that walter is weak, so he had his mustard tree cut will now be presented with a struggle that,
+
+> [...] will seem to take the very life. That is because it takes the animal soul and throttles it. But the human soul will recover, and the Spirit come into it. This is the time of the Silence of the Soul. Then it shall be clear to you how dark are the lives of those who are around you and have no goal of union with the Spirit towards which to race. And you will see and know karma. Also you will see that because of your past incarnations your karma is inextricably interwoven with the karma of the world.
+
+his struggle is his "two lovely little daughters, the greatest treasures of our lives, and oh, so carefully taught regarding life and shielded from its dangers" would soon die. I don't understand why he shielded them from life's dangers though...
+
+anyway, soon after their death, he would find himself reinacting the scene he saw in the picture that phyris painted of him drowning in the ocean with his wife.
+
+like I said, that part was suspicious to me because normally he would go to devachan, however, it seems that these encounters have tuned his perception to the astral, so upon his death he did not see from his spiritual body, but instead sees from his astral/psychic body.
+
+I haven't fully figured it all out yet, but it seems like this "at-onement" with the "Father" stuff is an elaborate set of power-displays to get humans who are interested in having power to join the custodial brotherhood network and become obedient to "God" and do the will of the "Father" (the conceptual program which is inhabiting/controlling them).
+
+like it says about the cutting human soul like the mustard plant (not seed), whether you like it or not, you're an eternal being. everyone gets there whichever path they choose. concepts (temporal trajectories, or entire species) do not behave 100% as expected in the presence of resistance. that's just how it works.
+
+### septinary-body - mol lang's septinary body
+
+I'll write this later, but it occurred to me just now that mol lang's septinary body can be explained a lot easier if he's describing the body of a conceptual being rather than a "creator" (human). I commented about this in @[dtp/notes], but I think I know the answer now after writing the last two sections. actually, I think I understand this whole book a lot better now.
+
+- the I AM, or ego
+- the body of the spirit, or spirit-body
+- the human soul
+- the animal soul
+- the astral reflection of the two lowest principles:
+- vital force
+- earthly body thereby animated.
+
