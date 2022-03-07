@@ -10476,6 +10476,54 @@ I also want to give values to the consoants too, because a ⎫ that is gradual i
 
 [1]: it doesn't have to be an octave. it could also be a harmonic, though an octave is easier to visualise.
 
+### 2022-03-06 21:11 - conception of california
+
+I want to talk about conception, but I think I'll demonstrate by first talking about california.
+
+---
+
+I just got off the phone with dad and he asked me if I wanted to come back with him from amorina's house to california. earlier this week when I talked to him, he asked me if I was going to amorina's house. he said mom was driving out there and I told him that at the moment I didn't feel anything telling me I didn't want to go, so I guess I'll be there...
+
+anyway, this time when he asked if I wanted to come back with him to california, I felt pretty strongly that I *didn't* want to go to amorina's. I don't really know what changed since the last time we talked, but now the idea feels terrible to me. california doesn't feel too good either.
+
+he mentioned that we could play this game that I played on jaron's computer a few times, "XCOM2" and he had the expansion pack that has a number of great improvements to the game too. I explained that since the beginning of this year, so a few months now, I haven't had internet -- and to be honest, I don't miss it. even if I had that game, I might play it a few times and then desire to get back to reading and writing here.
+
+you see, today jaron opened up youtube and, while the youtube home page usually feels pretty bad to me, I noticed how sensitive I've become. the first video I noticed was a video of mr. beast, eating the largest slice of pizza ever. the thumbnail showed him holding a slice of pizza about the size of a bedspread to his mouth. the feeling the video had was something like, "wow this is interesting" and "I wonder what that's all about" -- which felt pretty awful to me. the downer I experienced was about as significant as someone bringing up an uncomfortable experience on a drug trip. it felt like my IQ dropped at least 10% or so.
+
+that experience is the best way that I can describe the california experience for me. it's a bunch of people using attention-grabbing out of the ordinary details to garner attention. I simply don't care so much for that stuff. it's not that I don't mind that other people watch those videos .. in fact me talking about it here may even perhaps boost the views -- who knows, but none of that means anything to me. I'm not saying that his style of attention-grabbing is above my capacities, but rather that even if I was gifted with the ability to get millions of views on the first day, I simply wouldn't want it. I'm not very interested in people's attention at this point.
+
+matthew called me to tell me he wouldn't be making it down to the friendly harbor yesterday, as if I really was disappointed by that -- or something -- I didn't really understand the call, but it sounded like he was telling me in a round-about way not to show up, and honestly I wasn't entirely sure I was going to anyway even if he hadn't of called.
+
+so now we get to the subject of going to california. going to amorina's feels pretty bad now -- like something I don't want to do, and going to california feels to me like being in the presence of people who like watching mr. beast-like content. the alternative to that is staying home.
+
+I say awesome! the last time that jaron and mom weren't here, I had quite an impressive mental clarity that I had not ever experienced. I went out and sat in the sun. I think I wrote some crazy ideas down about harry potter and alchemy from a video I watched on the subject. the crazy thing was, I only made it halfway through the video and just being put into that environment, I had this not normal understanding of alchemy. it was as if I knew it but didn't have to have studied it; it was just there.
+
+the lack of environmental activity allowed for much more rapid tuning and easier reception of concepts. california is the opposite of that. I honestly can't wait to get that kind of mental clarity again. sitting here and writing is going to be amazing.
+
+the only thing that dad or anyone else can offer me is conditions. he can't really offer me mental clarity. the only way I can get that is by reduction of resonance to those concepts and/or conditions with less activity.
+
+what I'm saying is, I could go to california and start practising to perceive mr. beast consciousness the way I want to perceive it, *or* I could just stay here and enjoy nice conditions. no need to worry about the stress on the road of trying to figure out how to pee or any the other uncomfortable conditions. here is obviously, without a doubt far optimal conditions than anything anyone else can offer.
+
+furthermore, I really like not having internet, and I don't even really want to play games either. I'll prove it. I'll even stop playing games now for say... I dunno let's consider this lent and I'm waiting to till pentecost or something[^1].
+
+what I'm saying is, it makes no sense to me to desire to go to undesirable conditions.
+
+---
+
+this concept is related though. I mentioned how I didn't want to go to california and practise to perceive mr. beast consciousness the way I want to perceive it, but that is essentially what I was talking about in the last entry when I was talking about the conception of children and practise with females. we would resonate on similarly tuned concepts, activating in each other those concepts. I felt fairly certain that if I had a higher speed[^2] version of the same resonant idea, then my version would win out and the kid would be kind of like imprinted with the higher speed version of that concept.
+
+you see, the implication to that is that the mother will, almost undoubtedly be a part of the child's like (or he'll attract others that resonate), and so she'll undoubtedly resonate with the kid on that concept. they say that kids push their parent's buttons, and no doubt jessica is starting to experience this effect. jessica or (forgot his name) will try to educate the kid in the way that they know (the way they feel), but the kid ia at a different frequency -- you may say he's "marching to the beat of his own drum", and he'll have nothing of that other way of feeling about it. his way feels better, so like me and the subject of california, these efforts just feel like bad ideas to him. it'll take some conflict, discussions and many ordeals until she eventually comes around to the higher speed version of the same concept.
+
+this effect will be the same in california. I'll undobtedly get there and figure out how to perceive things the way I want to perceive them (new-beast-consciousness), but then my new concept will still resonate with those around me that still have beast-consciousness, meaning that I'll exacerbate that feeling tremendously in other people, all the while, in your guys' perspective, my aloofness will probably look like I'm running around laughing and making fun of these poor people that still believe that paying attention to a bedsheet-sized pizza is what they really want to be doing with their time.
+
+no time that's enjoyed is time wasted; so, I'm not making a commentary on time wasting. instead, I'm noting that at this point in my life, those sorts of things feel so undesirable and gross to me, that I just don't have any use for it. I don't need mr. beast's videos (or internet, or games, or ...) to feel good. I AM THAT, usually.
+
+(just a little more practise and I'm there..)
+
+[1]: give or take a few days/weeks. I can't remember the days or care to look them up again, but I think pentecost was in middle june. I'll just go lent until then... extended lent. think of it like a dryer on extra high heat, lent.
+
+[2]: higher octave or harmonic where the waves are *(percepually and physically)* going the same direction more than 50% of the time.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
