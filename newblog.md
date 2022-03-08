@@ -10554,6 +10554,63 @@ call me a bit of a masochist, but I want to breed and cultivate more of these ty
 
 cheers
 
+### 2022-03-07 18:41 - thoughts on amorina's house
+
+so I keep getting some reactions to the idea that mom presented me today about going to utah and just hanging out at melissa's house. she said that amorina would be at school and melissa and patrick would be at work so I would still have a lot of alone time..
+
+again I don't really have so much of a strong feel or opinion on that, really. instead, I just figured I would talk about subjects relating to that.
+
+first, it feels to me that nosebook is trying to get me setup in another situation where I'm constantly innundated with social contact. it feels like they really don't want me to be alone -- even though that is sorta the thing that I've been trying to do for a good portion of my life.
+
+the only time I've been alone was after raquel left, and I wasn't really all that alone cause I spent most of the time out in bars drinking. the other time was when I was in valverde, and again I wasted the opportunity drinking. the stars and night sky is so nice there and I wasted it. I only watched stars a few times, and those few times that I did, I really had some pretty far-out experiences. up until now, I've pretty much wasted all of my opportunities to be alone. I know that if I were to actually get a chance to be alone, it would be one of the greatest moments of expansion that I've ever had.
+
+there's a reason why the buddhist monks go to remote and secluded places to find their inner core. I understand this concept of removing external distractions and influences so that you can tune to yourself, very clearly now.
+
+up until now, I've been always had an addiction (like coffee[^1], smoking, weed, drinking, etc.) and those, just like social contact are pretty big distractions. they impede clear thinking just like other people do. I've never been more prepared mentally to be alone than I am now. I'll actually take advantage of the time and use it properly, rather than spending it in a bar. it appears as if my life has been pointing to this moment when I begin a transformation into something new.
+
+the irony of this is that even though my life looks to be pointed in this direction, it seems that the closer I get to actually accomplishing self-realisation (the goal of every buddhist monk), the more other people want to be around me.
+
+irony aside, I'm still dedicated to getting there on the non-affection path. even if I'm at amorina's house, then I'll still going to go the full non-tantric path.
+
+like I said, I already beat the non-tantric path game. now, for me, this is just optimisation. I'm willing to go for as long as I possibly can. I see no need to rush it. I'm *purposefully* doing my own limiting to try and get as much out of it. I could have gone up months ago now, but knowing that I could do it at any time that I want to (just 20-40m of star-watching and I'm there), I decided to experiment instead and see if I can put on the brakes and still continue the vision upgrades. turns out I can, and -- not just like a few vision upgrades -- it actually feels like I'm getting more than I was when I was putting effort into it (effortless-power). ever since I wrote @[newblog](2021-09-08 11:05), I've been infatuated with the idea that it's *all mentality*. I forgot what tyson said, but that... it's attitude that counts more than anything else.
+
+for me, this is when I get to continue to experiement and keep expanding my knowledge of this effortless-power concept. maybe I'll remix it with my new understanding now, but where I'm at now, I just don't see how going to amorina's house is going to expand my understanding of effortless-power.
+
+also, the new concept I encountered last night, beast-consciousness has had me pretty occupied as well. I've been getting into mr. beast's head and improving some ideas. I wrote the first draft of my improvement of the concept (indirectly) in @[newblog](2022-03-07 11:01). see if you can spot it :)
+
+---
+
+OK, now that that's out of the way, let's get more detail oriented... when I was talking to mom about amorina's house, one of the concepts we trailed off to was me talking about how I trust my emotions now -- and, even if someone were to be controlling how I feel, it still feels like something I want to do, and so my job is one of perception rather than of decision. any minor adjustments of feeling mean minor adjustments of perception, and that's what creates reality, not the action. so, really at this point, I just follow my emotion, no matter what.
+
+the underlying subject to that conversation was the subject of someone who is good for their word or not. I'm usually pretty good, but I'm not super duper good. like, if something feels bad, I'll skip it even if I said I would.
+
+I feel a bit of a douchebag if I just go to amorina's house and stay there and stuff, all the while I'm going to continue on the non-tantric path. I'll get there eventually, and I want to experiment as much as I can with the effortless-power concept. also, with my latest improvements to the beast-consciousness concept, I'm not even all that concerned about going to california now as much as I was last night. I'm pretty dedicated to trying to get there the non-tantric way. I don't really know why, but for me lately I've had more desire to "prove myself" and prove my "theories" a bit better. I know what I'm talking about... just watch and you'll see. so, the effortless-power and the the non-tantric path is kinda important to me because it "proves" that I'm one of the enlightened "adepts" -- *and* I did it *without any guidance*. I figured it out without anyone's help and all I needed was to apply a little bit of the law of attraction and just a little bit of focus. I don't know why, but I sorta like the idea of "proving myself". maybe it's my inner elijah or something -- not sure; get out as much water as you can find and try to ensure my alter is unlightable; let's go :)
+
+that's keeping the word of my outrageous claims. the next thing that makes me feel a little bit douchebag about keeping my word is that I *did* say a long time ago after watching veritassium's video on the "success paradox" (I believe it was called), that the circumstances were extra-ordinary enough that if I it still felt good to me in the future, then I would just go with that. anyway, as it stands now, there are a lot of mixed feelings. I believe most of the bad feelings are originating from nosebook because they don't like the idea of me being involved with that stuff. no matter the case, if it's weird, we'll just skip it. it's not a problem. still, the problem still remains of if I were to go to amorina's and then be like ... oh, yeah I have something else, sorry. I dunno.
+
+right now, the veritassium idea feels good to me. I don't have any personal preference. the obvious path for me is just to continue on doing my experiments with effortless-power and then once I'm connected, if it feels good, then good. if not, then no problems. there's nothing to worry about at all.
+
+---
+
+the final section here (hopfully) is that I'm reminded of a thing I wrote a while back about a dream I had with jessica (@[newblog](2022-02-28 10:32)).
+
+```
+what's happening is, they're having to try and lower my mental state of resistance lower and lower to be able to influence me to do what they want -- however, the lower the resistance they go the more risk they run of my resistance going *too low*.
+
+in fact, that may be exactly how the split happens. for them, they lower my resistance so low, they are seemingly able to influence me to do what they want (like I felt was going to happen on the rock with amorina), while in my perception, they lower my resistance low enough, that I get connected... I don't know.
+```
+
+this idea has stuck with me as the most likely split that'll happen. I notice that they are constantly trying to steer me with various different techniques. I used to resist them, thinking that I should try and go my own way, but I've been realising more and more that I don't need to resist them at all. resisting them is bad. if I just follow my emotions, then everything works out.
+
+like, let's say that they cause me to physically feel good about something, yet below that there is an emotion of uneasiness. well, I simply wait, even if it (physically) feels good. there's no problem. my goal is to continue to lower resistance. the lower my resistance, the more effortless everything is.
+
+as my resistance lowers, the less resistance I have to doing what they're steering me to do, and so now it simply becomes a matter of perception. let's say that somehow they begin the avalanche and we're past the point of no return, meaning there's no way to back out of the action. at that point, my job is not to try and resist the action, but to feel good about whatever it is. my reality will become a good-feeling reality, reflective of my perception -- no matter what. it's attraction, so all paths lead to the same destination; some being longer or shorter, or perhaps with different qualities. there is no wrong way.
+
+to paraphrase andy pero, once you're out of the airplane without a parachute, you want to be visualising the "happy place", rather than the rapidly approaching ground.
+
+
+[1]: I explained to jaron that I don't really benefit much from coffee now. in fact I feel usually worse. instead, now I use it to keep my good-feeling reserve on empty so if a solar storm or some other influence out of my control activates the good-feeling senors, I don't go out of control. I'm trying to keep this going for as long as I can to try and power up as much as possible. I'm fairly certain that if I were to quit coffee, it would be too difficult to sustain a solar storm. last night for example, I was very close to going up with only a few c-flares. if I wasn't drinking coffee, that would have made me feel too good, and I wouldn't be able to stop it.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
