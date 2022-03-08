@@ -487,7 +487,7 @@ what I mean is that if I have a concept of a temporal trajectory, and everything
 
 the thing is this "ghost" looked like walter does, so there fore it must be walter's ghost that contain these past life memories of being on venus... so are they really his past life memories, or did he tune into someone elses?
 
-### at-onement - at-onement to the "Father"
+### at-one-ment - at-one-ment (becoming one mind) to the "Father"
 
 in the previous section, I established that walter is telling us of his past-life experiences, but by his own admission, he didn't get those memories all at once. they came after bocoming one with a ghost that looked like he does. this is after some rituals and power-displays, he is wanting to have these capacities. a man shows up and tells him mendocus sent him to tell him the steps to get what he wants (essentiall the occult powers he witnessed and desired)...
 
@@ -546,6 +546,7 @@ like it says about the cutting human soul like the mustard plant (not seed), whe
 
 I'll write this later, but it occurred to me just now that mol lang's septinary body can be explained a lot easier if he's describing the body of a conceptual being rather than a "creator" (human). I commented about this in @[dtp/notes], but I think I know the answer now after writing the last two sections. actually, I think I understand this whole book a lot better now.
 
+he breaks down the parts as follows:
 - the I AM, or ego
 - the body of the spirit, or spirit-body
 - the human soul
@@ -554,3 +555,30 @@ I'll write this later, but it occurred to me just now that mol lang's septinary 
 - vital force
 - earthly body thereby animated.
 
+everything from source (4) up to desire (1) is missing. these are essentially all the non-physical counterparts to the physical ones (5-7). it appears that he has instead taken the (5-7) layers of perception and given them "bodies" and "souls". to me, and also when looking at how mol lang uses the word "soul" in the book is a non-physical implementation. to a person on devachan, it's impossible to know if they are interating with their own concept of something or a "soul". this means that the soul is a concept of someone that continues between incarnations.
+
+in my 7 layers of perception, I have made 2 layers not-physical (1,3), 2 layers being a transition zone between their upper and lower layers (also a mix of physical and non-physical) (2,6), and finally 2 physical layers (5,7). the last one is the origin, centre, or midpoint where things begin to take on physical form, source (4).
+
+the way that I have figured it out to be is that interactions of lower frequencies create higher frequency harmonics. that's all the non-physical stuff. or, in the physical plane, you can see how the interaction of physical objects produce an abstract vibration -- a feeling or a concept. when concepts interact, they produce logic and structure (3) and the highest frequency of all, desire (1). the best I can figure out, are so high frequency already, that if you create a higher frequency one, it just like has more (duration? longevity? dunno the word... sustain?) influence on more things, cause it resonates with more things. so for example a desire of a galaxy resonates with everything in it, just like a human desire resonates with everything in you (this is probably what causes spontaneous DNA mutations)
+
+so, what it looks to me like he's done here is he's capped off the 1-4 layers, making the conceptual (Father) be the highest plane that these bodies can access. you'll notice that logic and structure (3) is missing. that means that the "Father" determines the logic, and so therefore requires obedience to the logic. you'll also notice that desire (1) is missing as well, which is likely why he recommends that one must follow the "will" (desire) of the "Father".
+
+he also says that it isn't until one becomes a "creator" that the "Spirit of Life" enters him:
+
+> Now, therefore, if a human soul shall not be cut down, yet shall not enter into life as a creator by reason that it wills not, then the Spirit of life everlasting shall go into it, and it shall contain itself, and therefore live forever.
+
+the way it feels to me what he's saying is that at some point (hard to say with such convoluted wording with the mustard plant), it seems the Father will no longer cap off the upper layers and allow direct access to the non-physical, like a "creator" does.
+
+this idea makes sense to me, because if I consider the fallen-angels concept as I originally came to it, then the fallen-angels were intentionally created to be the implementation of negative desire for the species -- the unwanted aspect. that conceptual programming is probably the "animal soul" here, and it would be located in the Father, making the Father the replacement for these guy's source.
+
+it's kind of a funny concept, because if that's the case (and I kinda think it is), it's a perfect reflection of them because the most common behavioural attribute that I've noticed for the custodial brotherhood network is to convince the humans that they need to be the intermediaries between the people and "God" -- just like the "Father" is an intermediary between them and source and their own desires.
+
+it would also has another poetic irony to it in that the custodial network likes to micromanage the procedure and logic of the way things are done; they have to be done the "right way" -- and manipulate ideology and punish people for not doing things the "right way" -- just like the "Father" is blocking access to their own desires, the "Father" is also interjecting logic and the process to get there -- and since it seems to move around a bit, no one can figure out the exact "right way" to do things, creating endless conflict and "my Father can beat your Father up" school-playground interactions between factions.
+
+---
+
+so what it looks like is that the "Father" has given an out for the fallen-angels. they *are* creators and eternal beings, just like everyone else is, and -- nothing is stopping them from being a creator.
+
+I believe the reason why there is so much difficulty for them to come to this realisation, is that they believe so much in punishment and secrets, it's inconcievable to them that there is an open world outside of their prison world of punishment. this is why there's so much emphasis on "karma" and "atonement".
+
+at-one-ment just means becoming one mind with the Father and doing his will with unwavering obedience -- a literally impossible task, just as "one jot or one tittle shall in no wise pass from the law till all be fulfilled" -- for, if that were possible, then you would cause every atom and the entire universe itself to make it's transition because you are related (relative, resonant) to something that is bigger than yourself. there is no way that you could ever find perfect harhony with all that. it's impossible to ever achieve that kind of perfection.
