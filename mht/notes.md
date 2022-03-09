@@ -126,7 +126,7 @@ I know in my own experience, this is definitely the case. I used to have quite a
 
 [TODO: finish up here]
 
-### being born-again
+### born-again - being born again
 
 both the surrounding water and having to push through (the chrysanthemum) to the other side are strongly reminescent of water baptism, or being "born again".
 
