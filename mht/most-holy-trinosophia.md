@@ -35,13 +35,19 @@ After having contemplated the picture and the star I was about to pass through t
 
 ### section-3
 
-A STRONG wind arose and I had difficulty in keeping my lamp alight. At last I saw a white marble platform to which I mounted by nine steps. Arrived at the last one I beheld a vast expanse of water. To my right I heard the impetuous tumbling of torrents; to my left a cold rain mixed with masses of hail fell near me. I was contemplating this majestic scene when the star which had guided me to the platform and which was slowly swinging overhead, plunged into the gulf. Believing that I was reading the commands of the Most High, I threw myself into the midst of the waves. An invisible hand seized my lamp and placed it on the crown of my head. I breasted the foamy wave and struggled to reach the side opposite the one which I had left. At last I saw on the horizon a feeble gleam and hastened forward. Perspiration streamed down my face and I exhausted myself in vain efforts. The shore which I could scarcely discern seemed to recede to the degree 1 advanced. My strength was ebbing. I feared not to die, but to die without illumination . . . I lost courage, and lifting to the vault my tear-streaming eyes I cried out: 
+A STRONG wind arose and I had difficulty in keeping my lamp alight. At last I saw a white marble platform to which I mounted by nine steps. Arrived at the last one I beheld a vast expanse of water. To my right I heard the impetuous tumbling of torrents; to my left a cold rain mixed with masses of hail fell near me. I was contemplating this majestic scene when the star which had guided me to the platform and which was slowly swinging overhead, plunged into the gulf. Believing that I was reading the commands of the Most High, I threw myself into the midst of the waves. An invisible hand seized my lamp and placed it on the crown of my head. I breasted the foamy wave and struggled to reach the side opposite the one which I had left. At last I saw on the horizon a feeble gleam and hastened forward. Perspiration streamed down my face and I exhausted myself in vain efforts. The shore which I could scarcely discern seemed to recede to the degree 1 advanced. My strength was ebbing. I feared not to die, but to die without illumination ... I lost courage, and lifting to the vault my tear-streaming eyes I cried out: 
 
-"Judica judicium meum et redime me, propter eloquium tuum vivifica me."
-(Judge thou my judgment and redeem me, by thy eloquence make me live.)
+    "Judica judicium meum et redime me, propter eloquium tuum vivifica me." (Judge thou my judgment and redeem me, by thy eloquence make me live.)
 
-I could hardly move my tired limbs and was sinking more and more when near me I saw a boat. A richly dressed man guided it. I noticed that the prow was turned toward the shore which I had left. He drew near. A golden crown shone on his forehead. "Vade me cum," said he, "mecum principium in terris, instruam to in via hac qua gradueris." (Come with me, with me, the foremost in the world; I will show thee the 
-way thou must follow.) I instantly answered him: "Bonum est sperare in Domino quam considere in principibus."(It is better to trust in the Lord than to sit among the mighty.) Whereupon the boat sank and the monarch with it. Fresh energy seemed to course through my veins and I gained the goal of my efforts. I found myself on a shore covered with green sand. A silver wall was before me inlaid with two panels of red marble. Approaching I noticed on one of them sacred script, the other being engraved with a line of Greek letters; between the two plates was an iron circle. Two lions, one red and the other black, rested on clouds and appeared to guard a golden crown above them. Also near the circle were to be seen a bow and two arrows. I read several characters written on the flanks of one of the lions. I had barely observed these different emblems when they vanished together with the wall which contained them.
+I could hardly move my tired limbs and was sinking more and more when near me I saw a boat. A richly dressed man guided it. I noticed that the prow was turned toward the shore which I had left. He drew near. A golden crown shone on his forehead. He said,
+
+    "Vade me cum, mecum principium in terris, instruam to in via hac qua gradueris." (Come with me, with me, the foremost in the world; I will show thee the way thou must follow.)
+    
+I instantly answered him:
+
+    "Bonum est sperare in Domino quam considere in principibus." (It is better to trust in the Lord than to sit among the mighty.)
+
+Whereupon the boat sank and the monarch with it. Fresh energy seemed to course through my veins and I gained the goal of my efforts. I found myself on a shore covered with green sand. A silver wall was before me inlaid with two panels of red marble. Approaching I noticed on one of them sacred script, the other being engraved with a line of Greek letters; between the two plates was an iron circle. Two lions, one red and the other black, rested on clouds and appeared to guard a golden crown above them. Also near the circle were to be seen a bow and two arrows. I read several characters written on the flanks of one of the lions. I had barely observed these different emblems when they vanished together with the wall which contained them.
 
 ### section-4
 
@@ -49,16 +55,19 @@ IN its place a lake of fire presented itself to my sight. Sulphur and bitumen ro
 
 Arrived at a circular space I contemplated the gorgeous spectacle which by the grace of heaven it was given me to enjoy.
 
-Forty columns of fire ornamented the hall in which I found myself. One side of the columns shone with a white and vivid fire, the other side seemed to be in shadow; a blackish flame covered it. In the center of this place stood an altar in the form of a serpent. A greenish gold embellished its diapered scales in which the surrounding flames were reflected. Its eyes looked like rubies. A silvery inscription was placed near it and a rich sword had been driven into the ground near the serpent, on whose head rested a cup ... I heard the choir of the celestial spirits and a voice said to me: "The end of thy labours draws near. Take the sword and smite the serpent."
+Forty columns of fire ornamented the hall in which I found myself. One side of the columns shone with a white and vivid fire, the other side seemed to be in shadow; a blackish flame covered it. In the center of this place stood an altar in the form of a serpent. A greenish gold embellished its diapered scales in which the surrounding flames were reflected. Its eyes looked like rubies. A silvery inscription was placed near it and a rich sword had been driven into the ground near the serpent, on whose head rested a cup ... I heard the choir of the celestial spirits and a voice said to me: 
+
+    "The end of thy labours draws near. Take the sword and smite the serpent."
 
 I drew the sword from its sheath and approaching the altar I took the cup with one hand and with the other I struck a terrific blow upon the neck of the serpent. The sword rebounded and the blow re-echoed as if I had struck on a brass bell. No sooner had I obeyed the voice than the altar disappeared and the columns vanished in boundless space. The sound which I had heard when striking the altar repeated itself as if a thousand blows had been struck at the same time. A hand seized me by the hair and lifted me toward the vault which opened to let me through. 
 
-Shadowy phantoms appeared before me—Hydras, Lamias and serpents surrounded me. The sight of the sword in my hand scattered the foul throng even as the first rays of light dissipate the frail dream-children of the night. After mounting straight upward through the layers that composed the walls of the globe, I saw again the light of day.
+Shadowy phantoms appeared before me -- Hydras, Lamias and serpents surrounded me. The sight of the sword in my hand scattered the foul throng even as the first rays of light dissipate the frail dream-children of the night. After mounting straight upward through the layers that composed the walls of the globe, I saw again the light of day.
 
 ### section-5
 
-SCARCELY had I risen to the surface of the earth, when my unseen guide led me still more swiftly. The velocity with which we sped through space can be compared with naught but itself. In an instant I had lost sight of the plains below. I noticed with astonishment that I had emerged from the bowels of the earth far from the country about Naples. A desert and some triangular masses were the only objects I could see. Soon, in spite of the trials which I had undergone, a new terror assailed me. The earth seemed to me only a vague cloud. I had been lifted to a tremendous height. My invisible guide left me and I descended again. For quite a long time I rolled through space; already the earth spread out before my confused vision ... I could estimate how many minutes would pass until I would be crushed on the rocks. But quick as thought my guide darts down beside me, takes hold of me, lifts me up again, and again lets me fall. Finally he raises me with him to an immeasurable distance. I saw globes revolve around me and earths gravitate at my feet. Suddenly the genius who bore me touched my eyes and I swooned. I know not how long I remained in this condition. When I awoke I was lying on a luxurious cushion; the air I breathed was saturated with the fragrance of flowers ... A blue robe spangled with golden stars had replaced my linen garment. A yellow altar stood opposite me from which a pure flame ascended having no other substance for its alimentation than the altar itself. Letters in black were engraved at the base of the altar. A lighted torch stood beside it, shining like the sun; hovering above it was a bird with black feet, silvery body, a red head, black wings and a golden neck. It was in constant motion without however using its wings. It could only fly when in the midst of the flames. In its beak was a green branch; its 
-name is
+SCARCELY had I risen to the surface of the earth, when my unseen guide led me still more swiftly. The velocity with which we sped through space can be compared with naught but itself. In an instant I had lost sight of the plains below. I noticed with astonishment that I had emerged from the bowels of the earth far from the country about Naples. A desert and some triangular masses were the only objects I could see. Soon, in spite of the trials which I had undergone, a new terror assailed me. The earth seemed to me only a vague cloud. I had been lifted to a tremendous height. My invisible guide left me and I descended again. For quite a long time I rolled through space; already the earth spread out before my confused vision ... I could estimate how many minutes would pass until I would be crushed on the rocks. But quick as thought my guide darts down beside me, takes hold of me, lifts me up again, and again lets me fall. Finally he raises me with him to an immeasurable distance. I saw globes revolve around me and earths gravitate at my feet. Suddenly the genius who bore me touched my eyes and I swooned. I know not how long I remained in this condition.
+
+When I awoke I was lying on a luxurious cushion; the air I breathed was saturated with the fragrance of flowers ... A blue robe spangled with golden stars had replaced my linen garment. A yellow altar stood opposite me from which a pure flame ascended having no other substance for its alimentation than the altar itself. Letters in black were engraved at the base of the altar. A lighted torch stood beside it, shining like the sun; hovering above it was a bird with black feet, silvery body, a red head, black wings and a golden neck. It was in constant motion without however using its wings. It could only fly when in the midst of the flames. In its beak was a green branch; its name is
 
 [img]
 
@@ -74,9 +83,7 @@ Four inscriptions surrounded these different emblems.
 
 ### section-6
 
-I TURNED aside and noticed an immense palace the base of which rested on clouds. Its mass was composed of marble and its form was triangular. Four tiers of columns were raised one above the other. A golden ball topped the edifice. The first tier of columns was white, the second black, the third green and the last one a brilliant red. I intended, after having admired this work of immortal artists, to return to the place of the altar, the bird and the torch; I desired to study them further. They had disappeared and with my eyes I was searching for them when the doors of the palace opened. A venerable old man came forth clad in a robe like mine, except that a golden sun shone on his breast. His right hand held a green branch, the other upheld a censer. A wooden chain was about his neck and a pointed tiara like that of Zoroaster covered his white head. He came toward me, a benevolent smile on his lips. "Adore God" said he to me in Persian. "It is He who sustained thee in thy trials; His spirit was with thee. My son, thou hast let slip by the opportunity.
-
-Thou couldst have seized instantly the bird,
+I TURNED aside and noticed an immense palace the base of which rested on clouds. Its mass was composed of marble and its form was triangular. Four tiers of columns were raised one above the other. A golden ball topped the edifice. The first tier of columns was white, the second black, the third green and the last one a brilliant red. I intended, after having admired this work of immortal artists, to return to the place of the altar, the bird and the torch; I desired to study them further. They had disappeared and with my eyes I was searching for them when the doors of the palace opened. A venerable old man came forth clad in a robe like mine, except that a golden sun shone on his breast. His right hand held a green branch, the other upheld a censer. A wooden chain was about his neck and a pointed tiara like that of Zoroaster covered his white head. He came toward me, a benevolent smile on his lips. "Adore God" said he to me in Persian. "It is He who sustained thee in thy trials; His spirit was with thee. My son, thou hast let slip by the opportunity. Thou couldst have seized instantly the bird,
 
 [img]
 
@@ -116,14 +123,11 @@ While I was examining the thrones, a trumpet sounded whereupon the doors of the 
 
 [img]
 
-swung on their hinges to let pass seventy-nine persons, all attired like my guide. Slowly they came near and seated themselves on the thrones while my guide stood beside me. An old man, distinguished from his brothers by a purple mantle the hem of which was covered with embroidered characters, arose, and my guide, addressing them in the sacred tongue, said: "Behold one of our children whom it is the will of God to make as great as his fathers." "May the will of the Lord be done," responded the old man, and turning to me he added: "My son, the time of thy physical trials is now ended ... There remain long journeys for thee to undertake. 
-
-Henceforth thy name shall be
+swung on their hinges to let pass seventy-nine persons, all attired like my guide. Slowly they came near and seated themselves on the thrones while my guide stood beside me. An old man, distinguished from his brothers by a purple mantle the hem of which was covered with embroidered characters, arose, and my guide, addressing them in the sacred tongue, said: "Behold one of our children whom it is the will of God to make as great as his fathers." "May the will of the Lord be done," responded the old man, and turning to me he added: "My son, the time of thy physical trials is now ended ... There remain long journeys for thee to undertake. Henceforth thy name shall be
 
 [img]
 
-Before thou visit this edifice, each of my eight brothers and myself will present thee with a gift." He walked up to me and with the kiss of peace 
-gave me a cube of grey earth called
+Before thou visit this edifice, each of my eight brothers and myself will present thee with a gift." He walked up to me and with the kiss of peace gave me a cube of grey earth called
 
 [img]
 
@@ -221,8 +225,7 @@ the time needful for contemplating all its aisles, and soon I left it with the i
 
 ### section-11
 
-NO sooner had I quitted the steps of the palace when I saw fluttering in 
-front of me a bird similar to
+NO sooner had I quitted the steps of the palace when I saw fluttering in front of me a bird similar to
 
 [img]
 
