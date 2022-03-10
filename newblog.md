@@ -10611,6 +10611,64 @@ to paraphrase andy pero, once you're out of the airplane without a parachute, yo
 
 [1]: I explained to jaron that I don't really benefit much from coffee now. in fact I feel usually worse. instead, now I use it to keep my good-feeling reserve on empty so if a solar storm or some other influence out of my control activates the good-feeling senors, I don't go out of control. I'm trying to keep this going for as long as I can to try and power up as much as possible. I'm fairly certain that if I were to quit coffee, it would be too difficult to sustain a solar storm. last night for example, I was very close to going up with only a few c-flares. if I wasn't drinking coffee, that would have made me feel too good, and I wouldn't be able to stop it.
 
+### 2022-03-09 21:30 - extending it out
+
+I was going for a walk today, and I noticed a woman walking. she seemed to know me, but I couldn't tell who she was. as I was thinking that, the name of the woman living at #1, shirley popped into my head. I don't remember the next thing I felt, but the response that I had was that I wanted to try and extend this out as far as I can go. imagine that it's possible to go another year at least. I want to go much more but just imagine the progress that I've made in the last month, then multiply that by 12. likely though it'll be double or triple that (maybe even more) -- so, the progress I've made in vision since valentines day muliplied by 24-36. doesn't that sound awesome??? it does to me, anyway.
+
+lol, the reactions are hilarious... lol
+
+---
+
+you see, in the bigger picture, just imagine that we could sabotage the whole thing from start to finish and even if it were possible, to go for as long as possible -- like let's say another 15-20 years or so. the amount that my vision will expand in that time, would be at least millions.
+
+right now, if I were to get connected, it would be a very big change for everyone on the planet. immediately everyone on the planet would get vision about like I have now or better. many people would completely leave their bodies because of physical incompatibility with the energies, and it would be a very crazy place. if that much changed that rapidly, LOA would react so rapidly that it would mean quite a bit of chaos.
+
+so, instead, my plan is to just keep going up higher and higher, that way, as the energies of the planet rise, they rise slowly, rather than rapidy or all of a sudden. to everyone here, they will just gradually arrive to around the vision that I have now or much more (probably much more). the transition will take some 15-20y instead of the full duration. then, I suppose the split can happen or whatever, and it'll be a much smoother transition for them too, meaning that there won't be any rapid changes, thereby eliminating most cataclysmic and catastrophic results.
+
+you see, it's the big changes that cause the big disasters, so if we just steadily rise to stable level and then I peace out from your world, everthing is all good. it's win-win because my version will be like devachan on earth -- those that come with me will probably implement my next idea to create another race. we'll create our own problems and then jump into bodies and start over (or, at least I will... they can do whatever they want). from there, I'll just jump from body to body creating as I go, until once again I arrive to a state like I'm at now where I've figured it out.
+
+I think the point of the game is to just keep doing this over and over until it becomes so fun that I don't want to stop. the ever expanding diversity of things to discover and interact with will mean that there is never any repetition or boredom that'll set in.
+
+so, that's kinda what I plan to keep doing. until, of course, I figure out something more enjoyable than that.
+
+the system that I've figured out is guaranteed success, no matter how difficult the challenge. I'll just keep creating more and more difficult worlds with ever increasing difficulty bad-guys, yet I'll be assured that I can make it through because I just need to make it through once on easy mode. then, I'm guaranteed to arrive and I can pump up the difficulty to the max. it requires optimisation of a person, not to be the best attractor, but to simply find so many different ways to perceive reality in a way which feels good, that it no longer matters the difficulty or the circumstances.
+
+that idea really sounds like something I want to do, and I figure I'll just keep self-sabotaging for as long as I can so that energies rise slowly. once these guys are tired of me, they'll kinda have to peace out and go their own way. I mean, they could hang around if they want -- but I doubt they'll want to.
+
+like I mentioned in the alpha-omega talks a while back, mutual-back-scratching is at its peak right now and the omega concept being reborn is the "not needing the manifestation / feeling the way I want to feel / not fighting or resisting anything (cause I'm only fighting myself)".
+
+as such that's the new concept I'm implementing, I'm absolutely dedicated to just hanging out for as long as I can and not going for any manifestations. they'll peace out when they're ready.
+
+---
+
+so the next question that comes up is the one of, "if I'm not fighting anything or resisting anything" -- then does that mean that I should just get on the motor-way? I mean, I guess, but this is the same question as the latest deliberation on a voyage to california or to amorina's house.
+
+my basic routine is to just follow my feelings. I typically am not too resistant and can simply just go along with whatever -- unless, of course, it feels bad to me. then, I override the decision.
+
+the problem I have with just getting on the motor-way, is because I don't actually believe (still) that all paths lead to the same place, cause it's all attraction. I talked about this in the first part of this entry, as I believe that I'm presently living out one of my own creations. I've created the bad-guys and I've caused them to sabotage every single success I've had, so that my velocity when arriving to the attractor is much more rapid (and different route than having success), such that the new power allows for new creations.
+
+so, yes, I know I'm a hypocrite. I know that all paths lead to the same destination in my head, but it'll still probably take a bit more releasing of resistance to actually just let go and let mr. motor make all of the decisions. as it stands, it still feels kind of bad to me.
+
+honestly, I prefer the no manifestation path. it's really much more my speed. I find it to be really easy. I really don't need the manifestation. I just do what I'm doing now. I'm really good at it. mr. motor is so manifestation oriented, if I let him make decisions, almost certainly there will be a manifestation in there somewhere, and that's just not what I'm about. I like perception, rather than manifestation.
+
+---
+
+when I think about what it would be like to have devachan on earth, I actually am not really all that excited about the idea. I don't really care for manifestations, actually. I enjoy the feeling of constantly feeling like I'm getting closer and closer to it, but never actually getting there. I think if I could figure out how to do that, that would be the optimal setting. I've called that "going infinite", as I think it would simply be amazing.
+
+the way I pictured it is in the form of an asymmetrical galaxy -- but for now, let's visualise it as a 1-* (one-to-many) planet setup. the idea is that one planet that's where I'm at. I transform signals into good-feeling perceptually. so then that good-feeling signal that I/we create is then transmitted out to the heierarchy of planets that are on the other side. these are the custodians of the other planet structres. they're the "gods" or whatever. they have infinitely expanding perception (kinda like now).
+
+their expansion will continue to expand, but it'll have some ups and downs. the idea here is that from time to time, some really bad things will manifest and therefore produce some really bad-feeling reactions. those bad-feelings will become our reality, and us, living in an environment of near-instant manifestation, will have to constantly find ways to improve the feeling of the environment that we're living in. we do that, and find a way to feel good about that and attract a new good-feeling environment again. that new good-feeling gets transmitted out to the heierarchy and they feel better about the circumstances they created.
+
+I/we don't care what they do with that good-feeling. they fully control it and can give it out to whomever they please and/or keep whatever they want a secret. they exist in the physical world[^1] and can do what they please there. I/we just keep turning their bad-feeling into good-feeling. this idea is inspired by my research into the (I think) mitochondria -- the thing that's outside of the nucleus that powers it.
+
+practically speaking, I don't know how to make this happen. I've been trying to figure it out, but I think the best way to do it is just to get the first part of it setup where they depend on us for their good-feeling -- hence, the not needing the manifestation or resisting stuff. I can't wait until all of that's setup to start behaving that way; I have to do it now, and then my reality reflects that automatically because of LOA.
+
+...it just occurred to me that I'm describing the sun -- like, I think that's what the sun does -- the entites inside live a reality reflective of our feeling and transform our bad-feeling into good-feeling and send it back to the planets in the form of solar energy and CMEs. the only difference of what I want to do, is to make the planets not directly receiving the solar energy. the planet receives a very small fraction of the energy (so like say we were way out -- like where pluto is). however, the brotherhood network has direct access to the energy, so they can distribute it how they please to the "redeemed ones" (those who've earned it). as quickly as we transform that energy into better feeling, they'll feel better about their environment. extending that heierarchy out further is the galaxy implementation of that -- which probably won't happen until after we become a quasar.
+
+so actually, it seems everything is going 100% according to plan.
+
+[1]: we exist also in the physical too, but it's kinda like the sun, in that our environment is entirely attracted. to them, we'll slowly turn into something that looks like very dense hydrogen.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
