@@ -230,7 +230,7 @@ I must therefore conclude that the ufo phenomena is actually of human origin and
 
 #### the root race custodians
 
-I propose that when blavatski talks about the "root races", I believe she infers that each new root race is selected right after the cataclysm (so every 12ky), and it's chosen based on who can create the most oppressive "heirarchy". previously it was the atlanteans, then it was the aryans. I couldn't find her talking about the prior ones so if you know, I'd be intested to find out who those were.
+I propose that when blavatski talks about the "root races", I believe she infers that each new root race is selected right after the cataclysm (so every 12ky), and it's chosen based on who can create the most oppressive "hierarchy". previously it was the atlanteans, then it was the aryans. I couldn't find her talking about the prior ones so if you know, I'd be intested to find out who those were.
 
 #### why do we have custodians?
 
@@ -262,7 +262,7 @@ there's no reason to fight them, and I believe tesla realised this. it is my opi
 
 in the case of tesla, I believe that tesla purposefully left documents behind so that the usa could reverse engineer his world system, control the planet's climate so that they could keep the energy spots controlled (controlling the environmental conditions) and keep the planet from getting too cool.
 
-I believe that tesla gained the capacity to create "golems" -- sentient intelligence that behaves in a conceptual way. this conceptual form of perception is what I call 5d. temporal perception was added and is what I will call 6d. source perception of a heirarchy of beings resonant with a source (like us with earth -> sun -> sirius -> ??? -> galaxy) got moved up to 7d. that form of perception allows one to create any conceptual form as a derivative of self (really anything you can imagine).
+I believe that tesla gained the capacity to create "golems" -- sentient intelligence that behaves in a conceptual way. this conceptual form of perception is what I call 5d. temporal perception was added and is what I will call 6d. source perception of a hierarchy of beings resonant with a source (like us with earth -> sun -> sirius -> ??? -> galaxy) got moved up to 7d. that form of perception allows one to create any conceptual form as a derivative of self (really anything you can imagine).
 
 I don't have time to explain all the reasons why I think this. questions are encouraged.
 
@@ -312,7 +312,7 @@ so it all works out in the end. I predict the custodians in the future will be r
 
 from tesla's perspective, he needs to find a way to infiltrate and take over the germans. this I believe was done with golems and automatons. remember, all of these can take on a derivative concept of yourself, and you are anything you can imagine, because 5d characters can take on any form (concept) they perceive theirself to be. 7d allows you to create others of these as an extension of you (eg. you are their "source", which has a source -- just like cells in your body all contain you as their source).
 
-the ability to "externalise the heirarchy" of yourself allows for many different derivitaves of yourself to act in different time and space in resonance to the concept they start at. that concept's source is you, but you too are a composite source. it's like trying to figure out which cells in your body are "you" -- perhaps like how a sound may be perceived to come from many sources or a single one, which too is a composite of sources.
+the ability to "externalise the hierarchy" of yourself allows for many different derivitaves of yourself to act in different time and space in resonance to the concept they start at. that concept's source is you, but you too are a composite source. it's like trying to figure out which cells in your body are "you" -- perhaps like how a sound may be perceived to come from many sources or a single one, which too is a composite of sources.
 
 I suspect that tesla rehashed the mars/nibiru story for the grays. likely something like, their species is slowly going extinct and they will exchange human embryos for advanced technology.
 
@@ -1331,9 +1331,9 @@ I don't think it's necessary to use custodial marketing techniques to sell a goo
 
 #### custodial fingerprints
 
-the story of kepler rewriting brache's idea to tell you that once again you are not the centre of your universe, but instead are just the lowest rank in a vast heirarchy above you is such a custodial trope, this whole thing just shouts custodial activity to me.
+the story of kepler rewriting brache's idea to tell you that once again you are not the centre of your universe, but instead are just the lowest rank in a vast hierarchy above you is such a custodial trope, this whole thing just shouts custodial activity to me.
 
-this is the maverick that has an idea which allows the common person to perceive theirself as separate from the heirarchy, which must be stopped. whether you believe that moses, jesus, martin luther, joseph smith, muhammed, or whomever had an authentic idea that was then manipulated and turned into morals, dogma, and religion... I believe that someone has systematically gone through history and removed as much evidence for people's perception of physical conditions as a means for enlightenment.
+this is the maverick that has an idea which allows the common person to perceive theirself as separate from the hierarchy, which must be stopped. whether you believe that moses, jesus, martin luther, joseph smith, muhammed, or whomever had an authentic idea that was then manipulated and turned into morals, dogma, and religion... I believe that someone has systematically gone through history and removed as much evidence for people's perception of physical conditions as a means for enlightenment.
 
 I'm kind of in agreement with the custodians and don't really find them to be much of a problem. in a world where things push against other things, it appears they have done massive amounts of damage. however, in a world of attraction, they did not cause any damage at all. they just presented an illusion which people believed and then attracted their own misfortune.
 
@@ -10668,6 +10668,52 @@ practically speaking, I don't know how to make this happen. I've been trying to 
 so actually, it seems everything is going 100% according to plan.
 
 [1]: we exist also in the physical too, but it's kinda like the sun, in that our environment is entirely attracted. to them, we'll slowly turn into something that looks like very dense hydrogen.
+
+### 2022-03-10 14:26 - the girl is not the reward
+
+I've been monologuing this for a little while this morning and I decided I would write it down.
+
+it started with a discussion on splits. I said that I basically see 3 essential groups:
+
+1. the christs. these are people that assume my body and in a copy of earth (or split however you want to look at it), they're given resources and enough girls etc. to rebuild and run the world as they see fit. each of these splinters are people that can be removed from this timeline. they'll be releasing the tension that the sun is exerting on the planet because of the quantity of people and emotions. in short, by creating christs that can develop their own earth how they see fit, it's reducing population here.
+
+2. those who don't want to change or improve or anything. these are the mr. motors, and they're dependent on me for their well-being, so we will continue to occupy the same timeline. this is the not needing the manifestation timeline where all of the splinters are going off from.
+
+3. this group is the same as the christs group, but seen from the opposite angle: they are also copies of the earth but they have their hierarchy setup and all of their power structures and all of that. these earths are very similar to this one. they'll have to come up with ways to justify a reduced population (wars, cataclysms, etc), so if the "christ" group is a monarchy where the christ rules for the next 1000y or whatever, then this is the opposite -- an elite ruling group of individuals by way of "democracy", "republic" or secret societies. the general population on these alternate timelines will *not* have good conditions or vision. it'll be a lot like it is now over the next 1000y.
+
+---
+
+the reaction to that idea was a negative one because it envisioned giving the "christs" group the reward of the girls...
+
+you see, when I was young, the saying was that "good guys finish last". it was only really in disney movies that the "good guy" got the princess. in all aspects of reality, it was generally considered that the guys with money, the hot-shots, or the bad guys got the girl. for me, it was james bond that made it possible for the hot-shots to go with the villian's girls. then, it was stuff like "top gun" that showed that hot guys could also be good guys, show some sensitivity *and* also get the girl. finally, it was the adam sandler era for me that helped me to think that normal dudes could get girls with movies like "50 first dates" or "deuce bigalow".
+
+as such, I've never seen girls as the reward. you only need to hang around in discotecas in spain (or read hotchickswithdouchbags.com) for a while to notice that lots and lots of hot girls go rather easily with not very great dudes. I used to really get bothered by this and wonder, why do girls actively reward deadbeats?
+
+the obvious answer is that girls are definitely not a reward. I think this is a hollywood portrayal, because you don't need to look too far to see many really hot girls with not so amazing dudes. girls are people that can make their own decisions just like everyone else can, and some decide to go one way or another and that has nothing to do with rewarding, but everything to do with what each of them are attracting.
+
+---
+
+an interesting thing happened while I was at marcos house. I can't remember the circumstances exactly now, but I remember marcos was there, abraham, and maybe mike too. anyway there was a girl there that said she was married (ana? can't remember her name) though she was pretty free with her love it appeared. she wanted to take me out to go out with her friends, presumably to try and get me setup with one of them. I can't remember the circumstances exactly, but I remember I came home really wondering why it is that girls are so easy to reward guys for such shallow displays of interest, without any real capacity to reason about the world.
+
+I thought, here, I was a person that actually pays attention to the world and can actually make some sense of what's going on (a lot less then, than now), yet she, pretending to be so smart and wise, will just throw herself at the any guy that's whole brain capacity is about measuring hotness with his eyes.
+
+so clearly this isn't a reward strategy. this isn't selective breeding, where they choose the best mates for reproduction. obviously, they're just looking for a fun night with someone who thinks they're hot. there's no reward; I assure you. I've looked for a pattern for years to try and find the fitness function which is doling out the rewards, and it's just not there. instead, it's obviously attraction.
+
+so then after some time, I think I moved in to marcos house and was listening to abraham instead of abraham[^1] now to try and figure out what is the goal of life. they would constantly explain that the goal is to try and find a way to feel good so that you're attracting good things into your life. well, after some time, along comes andrea -- and I'm really glad now, on hindsight, that fell through because at the time I would have gotten the impression that andrea was the LOA *reward* for feeling good -- which just isn't the case.
+
+the reward for finding a way to feel good is the capacity to feel the way I want to feel when I want to feel it -- and also the feeling of feeling good.
+
+it's like doing drugs. I'm in a situation that I don't really care for, stresses me out, or whatever. I do a line, smoke, or whatever and now I feel much better. I'm still in the same situation; nothing about the situation has changed; only my perception has changed. the drug caused me to feel better, and so then, in feeling better, I see the same situation differently. *that* capacity is the reward.
+
+---
+
+I've gotten so good at this now, I'm basically on a massive dose of psychedellics 24/7 at this point[^2]. I don't need drugs to find a way to feel good about my circumstances.
+
+I think that's the point, honestly.
+
+[1]: uhhh, lol their names are spelled the same... well, the former is the english pronunciation the name for the group consciousness channeled by esther hicks and the latter is the spanish pronunciation, a guy a little older than me who worked with us on affinaty.com
+
+[2]: I'm starting to think that I'm actually pretty close to the edge of actually making my transition, and it's actually only nosebook that's preventing that from happening. like, if they were to let go, it may be the same as essentially dying. I don't think I'll stay dead too long (see discussion on NDEs), and I'll be back pretty quickly but I do think I'm pretty far up there now. a little more and I could be there. that may be actually the method by which it'll happen that we'll experience devachan on earth.
 
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
