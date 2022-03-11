@@ -10715,6 +10715,86 @@ I think that's the point, honestly.
 
 [2]: I'm starting to think that I'm actually pretty close to the edge of actually making my transition, and it's actually only nosebook that's preventing that from happening. like, if they were to let go, it may be the same as essentially dying. I don't think I'll stay dead too long (see discussion on NDEs), and I'll be back pretty quickly but I do think I'm pretty far up there now. a little more and I could be there. that may be actually the method by which it'll happen that we'll experience devachan on earth.
 
+### 2022-03-10 22:16 - a small crisis of minor consequence
+
+for whatever reason I decided to re-read the sirian guide to spiritual development again. I wanted to refresh my memory on the four major triads. I noticed a lot of things I had missed before. that's often the case for "inspired" documents that I read -- which is why I've been so interested in reading [dividing the way](dtp/dtp) recently.
+
+#### differences I have with the sirian guide
+
+as I'm reading, I noticed just how much I dislike their descriptions of the rays. their guide also takes a much more scientific approach to it as well.
+
+I do no such thing. I call my version the 7 layers of *perception* because they are just that. they correspond to dimensions that can be perceived with the eyes and corresponding non-physical layers.
+
+the sirians also give a lot more information about body parts (like locations in the brain and such), and I greatly simplify it. in fact, they have the pineal as the 1st (crown) chakra, but for me, the sky/air (environment, atmosphere) is the crown, and the pineal (2) is related to the great amplifier of experience, interpolating information from the horizontal lobes together to form perception. I consider this feedback loop of perception and then analysis, definition, correction, and transformation to all be happening in the transition layer between desire and structure. it's the place where reality is almplified because of pertception and turned into logic structures and down into concepts. it also is what turns things perceived into high frequency signals of desire. it's the functional equivalent of the guy who was named "jesus" -- but inside of the body. through this feedback we *create* our reality.
+
+we also differ in that I also do not consider the root (1) chakra like them. they believe it's the base of the spine, serving as the tesla coil. for me the tesla coils (there are two easy to identify ones -- but probably the whole thing is a fractal tesla coil). one is obviously the penis/clitoris, and the second one goes the length of the spine making the aerial the pineal, the secondary the lower ("reptilian") part of the brain (pre-motor cortex? see @[newblog](2022-01-24 02:44)), but realise now I hadn't really thought about or I can't remember now where I put the primary. I must have always assumed it was the base of the spine's connection to the earth.
+
+that's one flaw in my system. the other one that I basically shorten down the system of 7 chakras down to only 5 necessary ones -- the ones resident inside of the body. for me all, the other stuff is outside of my control, and that may be because nosebook has become a buffer for my physical (7) and desires (1), intending that I only experience only the things they authorise me. therefore then, it is perhaps that I've adapted to my circumstances -- however, in my opinion my system works better than theirs does.
+
+their system is so difficult for me to follow. it's just so complicated and has a lot of unnecessary stuff, that IMO, greatly inhibits the person from *attracting* what they want -- rather than getting so fixated on all of the physical organs and other complicated stuff. my version is tremendously more simpler.
+
+#### initiations to become a creator
+
+the other thing that I really dislike about their system is they have everything setup with service and initiations. I think that stuff is a bunch of nonsense. you can't be of service if you don't have anything to give, so service to self is most important for me. initiations is also a bunch of nonsense. if I'm a creator, why do I have to wait to be authorised and confirmed by some initiating authority before I can begin to attract and create my own reality? that doesn't make sense. for me initiations sounds like sales and marketing tiers. like, once I've swept up around the ashram for some amount of time, *then* I can get initiated and start to attract my own reality??? balderdash! I really strongly believe that one should be able to shoot oneself in the foot if so inclined.
+
+I'm not usually inclined to defend myself to the authorities, but I'm fairly certain that I know what I'm talking about. as a result, I'll start to write out my system which is based on *perception*. I don't have access to the scientific data and stuff to either validate or refute my claims, but I do know that as a system of *perception*, it totally works -- and, best of all, you can actually see them with your eyes (cept the non-physical ones). going forward through the system, the person will pass "self-initiations" -- if you want to label them that -- where each initiation, the person will visibly see an extra dimension and each time make sense of abstract reality with greater and greater ease.
+
+#### lucifer and the "Father"
+
+this got me thinking about "lucifer" and "satan". in [dtp](dtp/dtp), there is mention of this guy named lucifer who tried to bite off more than he could chew and faild miserably at it.
+
+in the sirian triads, "lucifer" is represented by the "grounds", sanatau (3), saturn (4), vulcan (5), and osiris (6). in the primary triad, jeortau (2) is clearly the traditional symbol of christ, paired with sanatau (3).
+
+each of the other triads[^1], the ground is usually the more subjective ray (4, 5, 6), being both receptive and emissive. the other male, the emissive one is usually the more objective ray (7, 3, 7).
+
+the interesting thing is that in the primary triad, the ground and the emissive swap places. in the primary triad sanatau (3) is an objective ray, while jeortau (2) is a subjective ray. in christian terms, the "Father" would be sanatau (3), the "Son" would be jeortau (2), and the "Holy Spirit" would be anatau (1).
+
+I've been making a lot of wild speculation on who the "Father" is in various sections, but if it were sanatau, that would make perfect sense, as that would be the logic and structure of the creation, but as I supposed in "fallen-angels" that the structure for this creation was done in negative desire. that may be why the subjective ray (jeortau) is not the ground in the primary triad, as it's supposed to be backwards.
+
+the other thing I noticed is that the second triad isis (2) has taken the place of jeortu (2). she is the opposite polarity of jeortau. the objective one, ra (3) has moved in now to replace sanatau (3). I'll consider this the "fall" -- when polarities got swapped. osiris (6) the ground is now in a half-way visual/physical position. in all other triads, the ground has the least visual/physical position. if the non-ground is the "son", then now he (ra) is going to set the non-physical structure out of which the physical layers (5, 7) will derive theirselves, and osiris is the physical counterpart to (2) which has been replaced by isis (2)...
+
+in short, what I'm essentially saying is that there is evidence here in the sirian guide that the "Father" is also "Lucifer" and his "fall" was intentional. this forced the objective/physical jeortau (2) to also swap polarities and take on the physical roles of mars (7), ra (3), and thoth (7). so, it's no wonder that the "christ" is the perfected 7th ray. the christ position (2) was swapped polarity in the fall and forced to take on physical.
+
+#### lucifer and the "right way"
+
+so this got me thinking further, because it says in quite a few places that lucifer has quite the ego, thinking himself to have the "right way". I'm kinda no different. I also talked about this in @[newblog](2022-01-11 18:43), as enki seems to also fit into this category. this means that this whole thing is an ideological battle more than anything. both males in the triad think they have the "right way". lucifer setup his minions and designed them to obey their "animal nature". this is the "Father" and all of these "fallen-angels" were designed by him to be subserviant to the "Father" out of which they eminate as physical beings.
+
+in the symbolic scheme of things, I'm pretty much lucifer or satan. I do not believe that one needs to be initiated to be able to use their creative potential. it's like telling someone they need to be initiated in order to "use" gravity.
+
+knowing me, it wouldn't surprise me that I designed and created the fallen-angels as a sort of negative desire out of which the humans would come to attract/create the versions of theirselves that don't fit those.
+
+if we're creating with negative desire, it makes sense to put the "corrupted 7th ray" in the physical position of the "christ". this would be done when lucifer/satan started out objective, then took the hit to reverse the polarities. he then setup all of his negative desire "fallen-angels" designed to try and create a reality based on greed, objectivity, etc. (all the unwanted attributes).
+
+#### example of negative desire - the new wave of custodians
+
+in the previous entry @[newblog](2022-03-10 14:26), I gave some ideas out for some splits, and then reacted to the reaction that it was considered unfair that a bunch of undeserving people (they didn't earn it) would be allowed to experience a reality where they were going to be viewed as the "christ" and be able to setup and run the world the way they desire to do so *and* get the girls they didn't earn either.
+
+to cut a list of a lot of reactions short, it seemed pretty obvious to me that somehow I would be successful in my attempts here, and I would get connected. from there, reality would become easy again -- too easy, so this would be the next "step" or era in the "leapfrogging-time-pickles" setup -- meaning, that from that vantage point, we would create a minimal set of difficulties and technology necessary to make it through the next 1000y without the sun exploding, and then design a whole bunch of new "custodians" and sabotage ourselves and the timeline to try and make it as difficult as possible. we know we made it, so why not bump up the difficulty and then jump back into the bodies and experience it?
+
+well, clearly the next set of custodians are going to take materialism to the absolute maximum. they're going to find every way that they can to get people to jump as quick as they can to the easiest and "cheap thrill" manifestations. anyone who is "not needing the manifestation" will be coerced into taking a manifestation, for fear that by not needing the manifestation, it'll grow too big. that's the general idea. then, we'll optimise the timeline ensuring that specifically we are targetted and monitored to ensure we always "blow our (manifestation) load too early".
+
+the other negative desire will be to create a lot of people that are constantly fighting against the oppressors and the system. it'll be normal to constantly have resistance and to fight their efforts -- sorta like mr. motor is in a lot of ways obviously fighting against me. this prompts me to fight back. it's resisting him that's the problem and keeps me away from feeling the way I want to.
+
+a lot of other optimisations should be done as well. you'll see. I trust that humans are capable of creating a way around this. I'm also certain that it'll happen. so, just sit back and enjoy the ride. it seems I've been optimising myself for a while now. I'm the perfected 5th ray, I guess... though, I believe that I'm quite capable on all 7 planes of *perception* at this point.
+
+#### back to the crisis
+
+so, the thing is, whether or not I actually *am* lucifer or even if there really is a corrupted 7th ray or not doesn't matter to me. the very fact that I want to replicate this means that if it is a real thing, then it's going to become a story for the replias[^2], or if it is already a story, then I'm just one of the replicas of this creative process; it's a galaxy that replicates galaxies through negative desire.
+
+there are other significant differences between the sirian guide and my own system, however in usual form, I find my system to be superior, as I don't have the capacity to try figure out their system with physical data (7th ray). so, without physical data, I'm forced to take a perceptual (2, 5) path -- which, for me is the "right way". I also find that my system improves on their system considerably, as well.
+
+I want to keep focusing on improvements, so I want to design more things that try to prevent me from improving further. obviously, I'm only fighting myself, so it's really no problem. I always figure it out in the end.
+
+so, what I'm planning on doing is getting all of this stuff pretty wrong for a while. I'm going to totally double down on it, and then after I've figured out a way that works (the "right way"), I'll build even more creations to ensure I never get access to the "right way" again. I'm going to doom myself to endlessly have to have fun doing things all the "wrong way".
+
+sounds like doing things the "right way" is really sirius stuff...
+
+btw, how much you want to bet when this universe transitions, it'll have a "corrupted 5th ray" in the next one .. :)
+
+[1]: saturn (4) is paired with thoth (7), osiris (6) with ra (3) and vulcan (5) with mars (7). 
+
+[2]: so, let's say that the other "christs" in their splits do their thing and build their own reality how they want -- well, soon, they'll get invaded by incarnating custodians that think they own the place and are the dual of the "christ". they'll cause a meltdown of sorts. this story will be channeled to "those with ears to hear" making their recovery sound epic, and these 7th ray christs will go all the way to "not needing the manifestation" just like me ensuring their empowering star (1st ray like ours) can also become a quasar. just take this setup and replicate it. it's not going to be that difficult. just a lot of programming... lol
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
