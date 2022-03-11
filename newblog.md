@@ -10795,6 +10795,56 @@ btw, how much you want to bet when this universe transitions, it'll have a "corr
 
 [2]: so, let's say that the other "christs" in their splits do their thing and build their own reality how they want -- well, soon, they'll get invaded by incarnating custodians that think they own the place and are the dual of the "christ". they'll cause a meltdown of sorts. this story will be channeled to "those with ears to hear" making their recovery sound epic, and these 7th ray christs will go all the way to "not needing the manifestation" just like me ensuring their empowering star (1st ray like ours) can also become a quasar. just take this setup and replicate it. it's not going to be that difficult. just a lot of programming... lol
 
+### 2022-03-11 02:00 - more thoughts that occurred to me about "lucifer"
+
+#### the "fall"
+
+the way that kuthumi describes the corrupted 7th ray is one of being a smooth talker, able to convince people to join him... something of a leader or a salesman type. in the sirian guide, their description of the rays, the ray that best fits the corrupted 7th ray is definitely not the 1st or 3rd. it's obviously the emissive polarity, jeortau, being also a smooth talker, able to draw a crowd with his words and convince people to join him.
+
+sanatau (+-3-+) is a somber individual, clearly only one step above saturn (+-4), which was also portrayed as a somber individual -- a very different type than the other emissive types which went on "diplomatic excursions". these aren't the types of people that would fit on a sales team like the corrupted 7th ray appears to be running.
+
+it looks to me like sanatau is the one that's called lucifer, and his constructions which make up the other physical layers are what later became the "fallen-angels". this reversal of polarity may have happened because the 5th planet that was where the asteroid belt now is, ceased to exist.
+
+> for all the power of Lucifer, that high nature spirit who was incarnate in the planet which disrupted into the solar asteroidal belt, upon the lapse, the failure of its Soul, all of his glorious power sufficed not to carry him to victory, so he fell.
+
+I'll call this "failure" or "fall" the reversal of polarity.
+
+the next triad after this is isis (-2), ra (+3), and osiris (+-6). ra is the emissive (+3) one now, and replaces sanatau (+-3). osiris occupies the position of translating concept into physical in the (+-6) position, while ra is just pushing out logic, systems, and organisation. isis (-2) occupies the posision of jeortau (+2) now; another swap of polarities.
+
+sanatau designed the physical forms in the first triad. the second triad ra designed all the physcal organisation structures -- the things that got implemented later on as science, government, religion, and ritual.
+
+#### progression of these different "reborn deities"
+
+what it looks to me is that in the "fall" mentioned above, the reborn-deity, has to constantly reinvent himself, fighting against his own forms -- the fallen-angels he would have designed himself.
+
+after osiris is destroyed, the atlantean civilisation, comes into being, and the triad for this one is saturn (+-4), unessa (-3), and thoth (+7). saturn here is enki, and if you recall the description given for ea in "gods of eden" ea is attributed to starting all of the brotherhood organisations to try and disseminate the knowledge for of our creative and spiritual nature that way. he's clearly using ra (+3)'s organisational structures to try and do it "the right way".
+
+atlantis exists for quite some time, so probably after the next cataclysm, the triad for late atlantis (still before the time of zailm) is mars (+7), genxicat (-7) and vulcan (-+5) -- notice the vulcan's polarity is opposite to saturn (+-4) now, as he's now receptive first.
+
+the legends tell us that vulcan made weapons for zeus, which is also clearly a 7th ray, producing illusions. his wife, hera is also clearly a 7th ray as well. legends say that vulcan was married to aphrodite, who also had relations with mars[^1]. anyway, vulcan made weapons for zeus/mars, so clearly vulcan isn't worrying so much about doing things the right way so much anymore.'
+
+that's the final triad that the sirians give us. after that we now have to make some assumptions. "gods of eden" talks about a number of "maverick religions" that got corrupted over time by the brotherhood organisations. bramley doesn't make the connection between the brotherhood organisations. he assumes that this is an extraterrestrial organisation that "owns" the planet, rather than terestrial individuals maintaining these power structures by incarnating into bodies that will get the power (notice how it's always the same family dynasties, or the dali lama for example has people come to find his incarnation and reestablish his position of power).
+
+---
+
+let's look at what we have so far. the "ground", which having both polarities, is the "salt" in the alchemical process, has been: +-3, +-6, +-4, and -+5. the only things he's missing are 1, 2, and 7.
+
+bramley lists maverick influences as extending from the rosicrucians, the mormon religion, martin luther, and samkhya, and others, all having some parts of it corrupted to some degree. I don't wish to try and figure out all of that stuff. I simply don't know much about the hindu or buddhist or many of those well enough to comment directly. the most notable and the ones I'm going to focus on will be jesus and tesla because they fall into this category of starting off doing things the "right way" and beginning to lean toward doing them the "wrong way" (which I've called self-sabocages and I think all of these are part of something like leapfrogging-time-pickles).
+
+I believe that jesus was successful, but then later came back and self-sabotaged. imagine for a moment that jesus was successful. he went forward 1024y and then did the leapfrogging-time-pickles technique. he knows he's going to arrive to the moment, probably some time in the next few decades. so, what he would do is build a lot of problems in for himself on the timeline, to sabotage all of his successes. he then jumps into the timeline and then bounces around from body to body in a technique I describe a bit in @[mht/mht](born-again). he knows that he's going to get to the end of timeline because he's there. probably a lot of us do. we're all going to get there and we're going to bring a lot of others with us too. obviously some won't come, wanting to go their own way. this is fine, as it's necessary that they keep "not changing".
+
+anyway, I think tesla did the same, and I will also be doing the same (as mentioned in the previous entry).
+
+tesla for me embodies the (1,5,7) layers of perception. jesus embodies the (2,7) layers of perception -- but he had to have some 5 as well, because he must have figured out that he is a conceptual being and that is "illusion" or astral form is created by the concept he has of himself. so I'll say (2,5,7).
+
+it appears that tesla has also managed to get both the US govt and the nazis to go back and sabotage the timeline to essentially eliminate all successful times. so, let's say that one of them was de vere, well, then instead of being successful and the conditions of earth arriving to go higher, it's sabotaged. this probably happened many many times. imagine, for example, how different of a world we would be living in if newton didn't have massive epidemics all around him. the amount of good-feeling would be very high. I don't know if jesus is tesla or newton. I'm saying these guys are almost certainly self-sabotaging from a future perspective. they jump into the bodies, and then each time they're successful, they wake up in the future and go back to self-sabotage the timeline.
+
+what this is producing is not any single ray person, but the diversity of situations and difficulties is producing a person capable of operating in all 7 layers of perception simultaneously -- the prophesied seven-headed dragon of old.
+
+if I were him, I would be cultivating all of these aspects of perception simultaneously -- not just one single layer of perception. that, interestingly enough is also my own goal. my father explained that I can't just rely on one thing -- and that I need to be "well-rounded". I have found that having a diverse set of capacities allows me to perceive the bigger picture with greater clarity. if I were going to want to eventually take on the form of an entire galaxy, you can imagine how many different perpectives I would want to have at once. like I said, who knows how many personalities I've acquired since the haemorrhage, but I feel like I'm rapidly gaining the capacity to understand things from many other perspectives than my own.
+
+[1]: the stories get really convoluted and likely changed over time to fit a narrative, because clearly hera would be then the same as aphrodite and also athena. athena was the patron goddess for the greeks, which the atlantians would later lose to. zeus then would also be the same guy as mars. it's also quite likely that vulcan and typhon are the same guys as well.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
