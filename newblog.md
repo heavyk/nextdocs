@@ -10845,6 +10845,42 @@ if I were him, I would be cultivating all of these aspects of perception simulta
 
 [1]: the stories get really convoluted and likely changed over time to fit a narrative, because clearly hera would be then the same as aphrodite and also athena. athena was the patron goddess for the greeks, which the atlantians would later lose to. zeus then would also be the same guy as mars. it's also quite likely that vulcan and typhon are the same guys as well.
 
+### 2022-03-12 12:51 - big and meaningful vs. smoothe and natural
+
+there are too many events relevant to this topic that have happened in the last 24h to list them all, so I won't but.. the thing that spawned this was a dream that I had. in it there were a few boys and girls. one (or maybe two) of the boys were looking at me wondering what in the world I was doing -- like kinda with a negative gaze because I was looking all around for something that I could feel very strongly. I finally locked eyes with a girl and I felt her very strongly. something weird happened I then saw anyother one and her eyes too caused me to feel very strongly. I looked around for them but there were just boys with condescending glares. I remember a third girl even that turned to look at me and when she did it seemed like she turned into a boy. I was very confused by that.
+
+anyway, so after that jerrica came and asked me if I wanted to go to the park with her and jaron. I did not. later, an idea popped into my head that perhaps those girls I saw in the dream are at the park. that launched me off into a whole discussion on big and meaningful vs. smoothe and natural.
+
+you see, those girls are really great and stuff, but I'm not really looking for that kind of feeling outside of myself. I'm looking to embody that feeling myself, and then those girls will then be attracted to me.
+
+parallel to this topic is the idea that I've noticed that most people want the "big and meaningful" manifestations. I've noticed that big and meaningful usually means crash and burn. why? because I need the other person, the party or the situation in order to maintain the feeling.
+
+that feeling of big and meaningful is the main feeling that sales people do to sell a product. it's also the main feeling at discotecas and festivals as well. the bigger the party, the more meaningful it feels -- or, for sales, the more meaningful it feels, the bigger it appears. this feeling is not sustainable, so that's why you have "buyer's remorse", "why did I bring this guy home", or "this product isn't as good as it felt".
+
+my goal therefore, is to keep-it-in-the-centre. the reason for this is, if the manifestation feels normal, then it'll stay with me. the more extraordinary it feels, the more likely to experience a crash and burn later. if it's normal, it'll stay until you're done with it, just like all normal things. if it's extraordinary, it'll stay for as long as you feel extraordinary.
+
+---
+
+the other discussion here is relevant because those girls feel to me more like the 1st ray female types. they send out powerful bursts of energy and they strongly affect people that are sensitive to it. though I have almost all of the qualities developed and am able to use them pretty well on both polarities, I often times find myself in the first ray role myself. as a result, I got along with many 7th ray types. you'll notice that many of the girls are 7th ray types.
+
+they're just always there. I apparently must have a lot of desire and/or send out feeling quite strongly because they just seem to show up as a reflection of that reality. you often see these sorts of opposite polarities interact well[^1]. it's all fine when I'm the position of the 1st ray because I can just keep everything feeling normal and not too big. however, if I interact with another 1st ray (or a 7th ray looking at things from the desire rather than manifestation side), then I often feel things very strongly. it's usually at that point where I take my leave and/or do something to distract away from the feeling so I can lower it down.
+
+my goal is never to have anything too big and extraordinary happening. big and extraordinary means big changes in the environment, so nosebook freaks out.
+
+come to think of it, this actually may be a trigger for cataclysmic events. there are two ways to look at it. first, notice one of these sales types that needs bigger and bigger parties to move their product or whatever. the feeling is, they constantly need to outdo the last one, so they have to keep finding new, bigger and more meaningful manifestations to sustain growth. I don't have data, but I imagine these would produce bigger and bigger solar outbursts[^2]
+
+now, I'm reminded now of gwauxln. he was more like me, trying to constantly not make a big deal out of things. if you have someone like that in power, they'll keep minimising the effects of these big and meaningful manifestations (big and meaningful induce large quantites of energy from emotions), and then when he goes away, everything goes to hell pretty quickly thereafter because there's nothing to reduce the feelings to normal anymore, and so now the addict mindset kicks in, needing bigger and bigger doses to feel good again. I think this is a runaway feedback lopp that happens globally because others feel it everywhere -- the more connected everyone is, the more interactions, the faster that feeling spreads.
+
+---
+
+the final subject here is what I've learned about sending out those bursts of energy. I can and have done it quite a bit. those bursts can be destructive. I first learned of this by reciprocating with andrea. I'm afraid to report that for example with remi, I noticed a similar thing too. that feeling is something that I can produce, but if she cannot produce it, then when that feeling goes away, the compensation produces that "crash and burn". I realise now that I should feel that energy going into my heart and then radiating out of my being, instead of into my heart and directed toward her.
+
+the reason for this is evolution-of-desire. I want to *become* that feeling -- even if it's a feeling I'm transforming from someone else. I don't want to send that feeling out or try and search for that feeling outside of myself, because that feeling is just not sustainable if it's directed anywhere other than outside of myself. I don't need or want it, I AM it.
+
+[1]: I'll give some examples: with chris, he plays 7th ray and me a 1st. I desire and he turns that into reality. with dani, I play 5th or 3rd (we swap back and fourth), and he does the opposite of me. if we're both too conceptual (5) or both too logical (3) about it ("my way is right"), nothing gets done. you can also see some of the older interactions with zaryn too, where he would either play 1st and I would play 7th. or, when brainstorming, he would play 2nd (the congenial let's get everything to relate and feeling good) while I play 6th (the translation of concepts into visible form).
+
+[2]: I'm kinda convinced that the entites inside of the sun live a reality that is reflective of their own concept, mixed with the vibrations/concepts of the planets and bodies near enough to influence the solar atmosphere. on earth, we create vibrations with our emotions (bigger the better), and those vibrations then create reality for those inside of the sun. they then find a way to feel good about that reality, and that produces an opposite force, which we see as a solar flare or CME. it doesn't happen all at once; our conflicting vibrations will build up until there it's incompatible enough to destabilise it.
+
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
