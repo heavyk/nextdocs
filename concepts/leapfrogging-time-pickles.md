@@ -1,6 +1,4 @@
 
-the idea here is to operate on increments of a year -- probably so that the earth is in roughly the same position relative to the sun -- but I'm not sure of the implementation details.
-
 the idea is that I tune into a moment in my past and I put ideas into people's heads and my own so that I end up sabotaging some success that I have.
 
 somehow the timeline has to advance to see the next set of events. again, I don't know the implementation details, but I imagine that I would set a trigger in the future to track my progress and if certain things are met, I abort the timeline and I wake back up in the future, make adjustments and then try again.

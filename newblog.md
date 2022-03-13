@@ -10917,6 +10917,39 @@ this is probably repeatable, because at the end of the timeline, we'll arrive to
 
 [3]: the sun makes me feel like it's going to manifest, so desire for it to manifest means increased solar activity so I feel like it's going to manifest. as long as there isn't a manifestation, solar activity will continue to rise until it finally does manifest. this is probably undesirable for everyone involved.
 
+### 2022-03-13 07:42 - the three-coil setup
+
+the reactions I had to the previous entry were humorous. it really felt like "there is no way we're going to take orders from someone" / "we don't negotiate with terrorists" / "don't tell me/us what to do"
+
+so, it sounds like we're back on-track for the "you have to fight it until the very end" path... this is optimal for me in my efforts to try and extend it out as far as possible...
+
+---
+
+there were other reactions too. one was regarding the balancing of my life with others so as to not create too much solar disruption. they'll probably need to sabotage many things, and so does that mean those sabotages will need positive events that don't go too far to balance them out? I didn't really understand the reaction, but yeah it's quite possible that'll be necessary. you may also want to split my personality amongst various bodies to increase precision of the balancing act.
+
+the other notable reaction was regarding jaron. so does that mean that he'll go to charon? immediately following that reaction, I was reminded about what I said about jumping back into bodies and allowing the authors to write our stories over the next many lifetimes (jaxson? that'd be weird.. lol hey jessica).
+
+then, later tonight I decided to read tesla's autobiography for some reason. I read the whole thing and found it to be very different from how I remember it to be. however, later, I was reminded of the "three coil setup" where a third coil is used to dynamically keep the other two coils resonating, by making the small adjustments as environmental conditions change. this reminded me of the "ground" and the female in the triads. one coil is the emitter, while the other two are there to keep it in balance switching off roles as emitter and receiver.
+
+that reminded me of what would be the relationship between pluto, charon, and earth. we'll switch off similar to the triad relationship.
+
+the way I think it's going right now is I play the part of the female and jaron the ground. so in atlantian terms, I'm unessa, jaron is saturn, and the cool kids are thoth. I (-3) get the new perception and then jaron (+-4) is tuned to that perception. I also power the thoths (+7). the thoths, being directly connected to me, tune me, I upgrade it, and then send it over to saturn.
+
+if I had to guess, I would say that the thoths are the elite cool kids of the earth, and they're tuned to me. they get the super vision. the pricing tier below my own is probably jaron's perception. the rest of the people probably get flatscreens.
+
+so, what that means is we're already doing that setup now. the only thing will be now to get me off of the planet...
+
+it sounds like it's going to work out fine, because they absolutely *must* fight against this -- at all costs, meaning I'm assured I'll get there. once I'm connected, I'm basically 100% certain that developing techniques for space flight won't be terribly difficult.
+
+I'm actually not even sure metal spaceships are even necessary. logically speaking, if I can use my capacity to levitate, I don't know what the limits are, but I doubt there are any because levitation is just repulsion -- the opposite of attraction -- the opposite pole of the same rotating magnetic field -- and so it's possible to attract to or repel from any charged body. then, if I'm creating and manipulating energy, I don't actually know why I couldn't create "bubbles" and explore the depths of the ocean or the reaches of outer space just as the UFO craft do. there has got to be a way to produce "pressure" energetically.
+
+it may take a few iterations, but I'm pretty confident that metal spaceships may not even be necessary to move from planet to planet. if this is the case, then anyone that develops the capacity to produce this kind of energy can join us (assuming that jaron actually wants to do it).
+
+---
+
+so, I guess I mean, when I was telling thad on friday that "not much is happening" -- I suppose I was lying -- though, at that time, I couldn't put it into a few sentences or even a 3m explanation. less is more I guess. I'm glad I figured out how to get it out though. to the vast many doubters out there... I guess only time will tell.
+
+until then, I'm going to keep extending this out as far as I can. I'm confident that such an enlightenment can be done in a smoothe and natural way.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
