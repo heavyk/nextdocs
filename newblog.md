@@ -10881,6 +10881,44 @@ the reason for this is evolution-of-desire. I want to *become* that feeling -- e
 
 [2]: I'm kinda convinced that the entites inside of the sun live a reality that is reflective of their own concept, mixed with the vibrations/concepts of the planets and bodies near enough to influence the solar atmosphere. on earth, we create vibrations with our emotions (bigger the better), and those vibrations then create reality for those inside of the sun. they then find a way to feel good about that reality, and that produces an opposite force, which we see as a solar flare or CME. it doesn't happen all at once; our conflicting vibrations will build up until there it's incompatible enough to destabilise it.
 
+### 2022-03-12 17:45 - solar activity and desire
+
+yesterday, with all of the solar activity, I was surprised that what previously felt like a very doubtful subject -- the subject of the girls, now feels to me for sure to happen.
+
+today, I'm back to feeling not quite so sure again, right -- but as I was writing the previous entry, I realised that this could potentially be somewhat of a problem[^3].
+
+---
+
+the other thing that I had occuring was that I had these crazy visions sort of things where -- a few entries ago (@[newblog](2022-03-09 21:30)), I put into words my new theory on how I think the sun works[^1]. in it, I explained that my concept of the asymmetrical galaxy idea is basically the same thing as I supposed the sun does -- which is what I want to do as well, but the difference is, that the physical manifestation is reduced to nearly zero. I'll explain.
+
+I believe now that a sun takes in vibrational/emotional energy (chi, vril, etc) and then transforms it and then emits the transformed energy out in the form of solar radiation and solar wind, CMEs, etc. that chapter also mentions that the sun acts as the heart for the system, so it does the same thing that the human heart does -- power the body electrically, and orient and move the consciousness in time and space. all reality is created, perceived, experienced within it's "aura" (heliosphere).
+
+the galaxy version of that idea is similar to that one in that it does not directly send out any radiation like a sun does. it would appear to us as being planet-like emitting and receiving very little solar radiation. in this system, the galaxy planets resonate with the other planets inside of the galaxy, and those planets "feed" the galaxy with vibration. like the sun, these vibrations will create reality for us, and we'll constantly being living in a reality that's created for us[^2]. the combination of the planets vibration act like our "authors", creating our reality. then, living out the reality that is our conceptual version of whatever vibration the planets are giving out, we transform this vibration perceptually and now feel that improvement.
+
+so while the sun transforms the vibration and then returns it back as solar energy, because all planets are sympathetic with us (the two planets at the core of the galaxy), the planets automatically start to feel similar to how we feel. I think that's normally how it works, but my idea is to replicate that here and replace planets with the people running this world.
+
+so, I'm one of the planets in this galaxy, and there will inevitably be another (come dance with me michael?), and people will be directly connected to our form of perception. this already exists for me and possibly jaron as well, so I guess jaron would be joining me? not sure anyway..
+
+the galaxy is quite a bit distant from most of the stars in the galaxy, so they receive very little solar radiation from the stars. so, to explain this idea I used pluto as an example, saying that I/we need to find a place that is distant enough not to receive much solar radiation, because I think I (and my interaction with the girls) am/is the main problem with the increasing solar activity.
+
+my goal as related in @[newblog](2022-03-09 21:30), is to try and extend it out as long as possible, so that means getting me away from the sun. people still want to utilise my form of perception, and that's totally fine with me, so I'm trying to find a way to do that...
+
+anyway, during the solar storm yesterday morning, I mentioned these visions... in the visions, we figured out a way to put me and quite a few other people out on pluto. it wasn't specified in the vision who, if anyone, is going to charon, but the idea was to separate me away from the earth. I also understood the meaning of "you have till 2038" to mean, get me off of this planet -- cause otherwise solar activity will get too intense.
+
+---
+
+the other part of the vision had to do with this part of the 1024y era. so, the idea for leapfrogging-time-pickles that I don't know if I got to actually writing or not (was too tired to look yesterday), was the part where I explained that the next era, I'm going to figure out a way to live for the next 1024y (I'm pretty sure it's 1024 at this point) and then I'll act as the great attractor. at the end of it, I'll jump into the timeline and then live out my life on earth over numerous lifes, jumping from body to body until I arrive to the great attractor at the end. probably instead of trying to optimise the timeline for extremes (in the form of difficulty), the authors will optimise for balance, ensuring that my lifetimes are balanced by the lifetimes of others, thereby preventing any major solar disruptions.
+
+this is probably repeatable, because at the end of the timeline, we'll arrive to a moment pretty similar to the one we're at now where it'll be pretty apparent that it's time to get me off of the planet before bad things happen. just keep repeating. same setup as the galaxy, but the "fallen-angels" are the planets... I/we'll just live a reflection of whatever vibration they have going on, mixed with our own concepts of reality (exactly like is happening now).
+
+[1]: a manifestation probably in response to my critical comments regarding how unhelpful sohma's conclusion in @[dtp/dtp](chapter-2-9), "O Science of Earth, in thee is the hope of the world, when thou shalt become handmaiden of God. Look up, value His works highly, and thou shalt read clearly many things which now puzzle thee sadly. Thou art the Joseph, and Religion the Mary, and ye twain shall show forth the Light of Life. Blessed art thou." and his explanation of the sun as "God".
+
+[2]: kinda like nosebook is for me -- you'll see how they have inspired this idea as I continue...
+
+[3]: the sun makes me feel like it's going to manifest, so desire for it to manifest means increased solar activity so I feel like it's going to manifest. as long as there isn't a manifestation, solar activity will continue to rise until it finally does manifest. this is probably undesirable for everyone involved.
+
+
+### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
 ### positive / negative resistance and heat
