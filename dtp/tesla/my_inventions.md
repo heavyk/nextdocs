@@ -6,6 +6,22 @@ At the age of 63 Tesla tells the story of his creative life.
 
 First published in 1919 in the Electrical Experimenter magazine
 
+### notes
+
+I have read this document a few times over the course of my life, and I remember things in the original that aren't in this version. a few differences I remember:
+
+- him saying more about twain
+- his birth happening during a storm, precisely at the stroke of midnight accompanied with a stroke of lightning.
+- the fire that burned his lab caused a lot of setbacks and the his short state of depression that followed thereafter
+- a short description of his "mechanical oscillator", the new york office building shaking and its subsequent destruction.
+- he also talked more about human flight and how it is real, though his efforts to fly as a child (jumping off of a roof and something about hyperventalating) were not yet realised
+
+I also noticed some other strange things, like in the whole book, he spells "practised" -- yet in one part where he talks about flying machines, it's spelled "practice" and the time where he predicts his impalement of a fish with a rock, it's spelled, "practicing". the first may be the part edited out of his attempts at human flight. I don't remember what the other one was previously. also, the word 'tho' is used in the first two chapters, but never again. 
+
+it really seems like this was not the original version I read.
+
+I also made a 2-3 corrections, perhaps to do with the scan, and split up a few marathon paragraphs, adhering to his style of best effort to conclude the concept at the start of the paragraph.
+
 ### toc - Table of Contents
 
 - [My Early Life](tesla/my_inventions#chapter-l)
@@ -153,7 +169,9 @@ What I experienced during the period of that illness surpasses all belief. My si
 
 In 1899, when I was past forty and carrying on my experiments in Colorado, I could hear very distinctly thunderclaps at a distance of 550 miles. The limit of audition for my young assistants was scarcely more than 150 miles. My ear was thus over thirteen times more sensitive. Yet at that time I was, so to speak, stone deaf in comparison with the acuteness of my hearing while under the nervous strain. In Budapest I could hear the ticking of a watch with three rooms between me and the time-piece. A fly alighting on a table in the room would cause a dull thud in my ear. A carriage passing at a distance of a few miles fairly shook my whole body. The whistle of a locomotive twenty or thirty miles away made the bench or chair on which I sat vibrate so strongly that the pain was unbearable. The ground under my feet trembled continuously. I had to support my bed on rubber cushions to get any rest at all. The roaring noises from near and far often produced the effect of spoken words which would have frightened me had I not been able to resolve them into their accidental components. The sun's rays, when periodically intercepted, would cause blows of such force on my brain that they would stun me. I had to summon all my will power to pass under a bridge or other structure as I experienced a crushing pressure on the skull. In the dark I had the sense of a bat and could detect the presence of an object at a distance of twelve feet by a peculiar creepy sensation on the forehead. My pulse varied from a few to two hundred and sixty beats and all the tissues of the body quivered with twitchings and tremors which was perhaps the hardest to bear. A renowned physician who gave me daily large doses of Bromide of Potassium pronounced my malady unique and incurable.
 
-It is my eternal regret that I was not under the observation of experts in physiology and psychology at that time. I clung desperately to life, but never expected to recover. Can anyone believe that so hopeless a physical wreck could ever be transformed into a man of astonishing strength and tenacity, able to work thirty-eight years almost without a day's interruption, and find himself still strong and fresh in body and mind? Such is my case. A powerful desire to live and to continue the work, and the assistance of a devoted friend and athlete accomplished the wonder. My health returned and with it the vigor of mind. In attacking the problem again I almost regretted that the struggle was soon to end. I had so much energy to spare. When I undertook the task it was not with a resolve such as men often make. With me it was a sacred vow, a question of life and death. I knew that I would perish if I failed. Now I felt that the battle was won. Back in the deep recesses of the brain was the solution, but I could not yet give it outward expression. One afternoon, which is ever present in my recollection, I was enjoying a walk with my friend in the City Park and reciting poetry. At that age I knew entire books by heart, word for word. One of these was Goethe's "Faust." The sun was just setting and reminded me of the glorious passage:
+It is my eternal regret that I was not under the observation of experts in physiology and psychology at that time. I clung desperately to life, but never expected to recover. Can anyone believe that so hopeless a physical wreck could ever be transformed into a man of astonishing strength and tenacity, able to work thirty-eight years almost without a day's interruption, and find himself still strong and fresh in body and mind? Such is my case. A powerful desire to live and to continue the work, and the assistance of a devoted friend and athlete accomplished the wonder. My health returned and with it the vigor of mind. In attacking the problem again I almost regretted that the struggle was soon to end. I had so much energy to spare. When I undertook the task it was not with a resolve such as men often make. With me it was a sacred vow, a question of life and death. I knew that I would perish if I failed. Now I felt that the battle was won. Back in the deep recesses of the brain was the solution, but I could not yet give it outward expression.
+
+One afternoon, which is ever present in my recollection, I was enjoying a walk with my friend in the City Park and reciting poetry. At that age I knew entire books by heart, word for word. One of these was Goethe's "Faust." The sun was just setting and reminded me of the glorious passage:
 
         "Sie ruckt und weicht, der Tag ist uberlebt,
          Dort eilt sie hin und fordert neues Leben.
