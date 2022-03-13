@@ -6,7 +6,7 @@ in the past, I called these concepts, and simply assumed that everyone in the sp
 
 when I write here, I can feel the people that are and will read it. they inevitably add their "reactions" to the concepts that I expressed here.
 
-later on, when I go back to read the text, it appears foreign to me because it tunes me into a concept that has changed dramatically because of all of the reactions to it.
+later on, when I go back to read the text, it appears foreign to me because it tunes me into a concept that has now changed dramatically because of all of the reactions to it.
 
 it's morphic because everyone accessing the concept alters it slightly. it's resonant because you access it by tuning to it somehow.
 
