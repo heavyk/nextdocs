@@ -10985,6 +10985,8 @@ illusions are deceptive, so I can't say for sure but it looks like mom doesn't h
 
 so, the thing is, it appears that jaron has suddenly lost interest in the game. he'd rather play "gems of war" instead, and seems content at that. obviously, he doesn't "need the manifestation" of that game that mom doesn't want to buy him. I hate to say it, but maybe I should be more like jaron is just letting things (that appear pretty shady) go. I usually do, knowing that it's just another thing that's "just more energy".
 
+P.S. sorry mom, looks like you're going to be the "fall-guy" on this one. the reaction is they didn't want to put the part about the magnetic field up there, so they need a reaction piece they can point everyone's attention at. oh well... lol
+
 [1]: not a paid advert. I haven't had internet for pi months now, but the subject reminded me of his book -- or the book was in the thoughtwaves of today -- doesn't matter.
 
 [2]: I put quotes around plumbers because they seemed very interested in when I would be sleeping, and also a little bit annoyed that I couldn't sleep.
