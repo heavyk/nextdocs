@@ -10951,6 +10951,46 @@ so, I guess I mean, when I was telling thad on friday that "not much is happenin
 
 until then, I'm going to keep extending this out as far as I can. I'm confident that such an enlightenment can be done in a smoothe and natural way.
 
+### 2022-03-14 16:07 - humble pi day for me
+
+(no relation to the book, but if you like maths or mistakes, check it out [^1])
+
+tl;dr - I have tried to figure out what the trigger was for this morning. I can't seem to figure out what it was, which means it's liable and probable to happen again. I don't really know how to fix it. I feel emotion strongly and it wants to manifest itself. if I can't figure out what perception produced the emotion, then it's hard to fix.
+
+now, the long version... as I mentioned in @[newblog](2022-02-19 17:00), I don't really like manifestations. I prefer to feel constantly like I'm about to manifest but never actually manifest. the reason is, when it's a good manifestation (like yesterday, I felt exceptionally good), then I get careless and I don't pay as much attention to how I feel (this is one of the potential causes for this morning's outburst), and I often make mistakes. this happens all the time for kids. they feel so good normally, it's easy for them to engage in activity that doesn't feel so good. however, for example as an adult, I don't feel nearly as good all the time as I did when a kid, so many things I did then, no longer feel like something I want to do.
+
+one possible solution is to instead of making action on anything, is to just go back to a not needing the manifestation outlook on life. one very interesting coincidence is that right before I went up, I was considering the thought in my mind about not needing the manifestation. I don't mind not having the manifestation. in fact, I'm so fine without the manifestation that it doesn't bother me. later on, when I was extremely pissed off eating breakfast, I was condsidering to go and break jerrica's car window, simply because I was so tired of all of the effort to go with a manifestation or not, I just simply don't care if there isn't a manifestation -- so let's just ensure that everyone is clear that there isn't going to be one.
+
+as you can see that "not needing the manifestation" has both aspects to it -- because by breaking jerrica's car, I'm "not needing the manifestion" -- and by also deciding not to go break her car, I'm *also* "not needing the manifestation" of proving that I don't need the manifestation.
+
+the origin for this feeling is that once again yesterday, there was heightened geomagnetic activity, and during that activity I felt pretty good and was pretty sure that the girls thing wouldn't happen.
+
+well, what they normally do is when the magnetic field is rising very rapidly on the magnetometer, I tend to get really sleepy, and then the magnetic field reaches some sort of cap and bounces around for a while. what I think is happening is they're putting concepts into people's heads while they're sleeping in order to counteract the magnetic field -- which is why it bounces around at a cap.
+
+well, yesterday, I felt so good, I couldn't sleep cause I wasn't tired. yesterday, I was about to go to sleep and was nearly put to sleep when the "plumbers" came[^2].
+
+what I think is happening is they have to have the correct concepts to put into my or other sleeping people's heads, and they didn't have that information yet probably because I had a few vision upgrades so their concepts were now out of date. they needed me to sleep so that they can update their concepts. I mean the only way to find out is to refuse to sleep the next few times and see if the magnetic field goes up as high as it did yesterday; a record of 171nT; the highest I'd ever seen previously being 140-150 or so. that's very high.
+
+I'm starting to get pretty convinced now that the magnetic field strength is allowing for stronger emotions, and that's why I was able to sustain feeling so good. I also woke up after only sleeping for a few hours feeling once again pretty wide awake. I found out later that they probably allowed me to wake up because it seems that during solar flares, I gain quite a bit of consciousness while in sleep state and that's probably not desired.
+
+I will eventually become conscious through the dream state because I'll be emitting a fast/strong enough magnetic field at all times to be able to maintain consciousness[^3], so it's not like their secrets are going to be that secret for too much longer.
+
+---
+
+it appears to me that what I want to do is to just go back to not needing the manifestation -- neither good or bad. I know that a lot of people want a manifestation, but it's pretty clear to me that I don't want to be feeling really good if I can't sustain it. I mentioned this effect in @[newblog](2022-03-12 12:51) in relation to remi, and it's the same thing but replace me with the magnetic field and put me in the place of remi.
+
+interestingly also, that was also one of the aspects that bothered me a lot about jaron this morning. from my perspective, it looks like mom doesn't want to add $10 to jaron's steam account for him to buy the game. it also quite possible that the days that jerrica doesn't come over, jerrica just puts down that she came, mom agrees to it, and they just split the money.
+
+illusions are deceptive, so I can't say for sure but it looks like mom doesn't have much money, and is engaged in fraud with jerrica and probably joe as well to make ends meet. jerrica's most common subject of conversation is financial distress, so that must be a topic they collaborate on. also, the day that jerrica said she went to charles' house but didn't go, was scared of being accused of fraud and wanted mom's advice -- again, right in there with the illusion or what's really happening.
+
+so, the thing is, it appears that jaron has suddenly lost interest in the game. he'd rather play "gems of war" instead, and seems content at that. obviously, he doesn't "need the manifestation" of that game that mom doesn't want to buy him. I hate to say it, but maybe I should be more like jaron is just letting things (that appear pretty shady) go. I usually do, knowing that it's just another thing that's "just more energy".
+
+[1]: not a paid advert. I haven't had internet for pi months now, but the subject reminded me of his book -- or the book was in the thoughtwaves of today -- doesn't matter.
+
+[2]: I put quotes around plumbers because they seemed very interested in when I would be sleeping, and also a little bit annoyed that I couldn't sleep.
+
+[3]: ever nocice how during heavy sleep, sounds in the environment don't bother you, but it's hard to stay asleep when nervous because ever little environment sound causes concern enough to wake you? I think it's environmental triggers which cause emotion that wake us. they used to throw objects to the ground to wake me up during dreams, but I guess I've stopped perceiving them as dangerous or concerning.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
