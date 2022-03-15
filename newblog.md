@@ -11001,6 +11001,83 @@ I also feel like this slight delay in the manifestation also helps in allowing f
 
 [3]: ever nocice how during heavy sleep, sounds in the environment don't bother you, but it's hard to stay asleep when nervous because ever little environment sound causes concern enough to wake you? I think it's environmental triggers which cause emotion that wake us. they used to throw objects to the ground to wake me up during dreams, but I guess I've stopped perceiving them as dangerous or concerning.
 
+### 2022-03-15 16:20 - thinking a bit more on triads
+
+in @[newblog](2022-03-13 07:42), I related the idea of jaron being saturn (+-4) and I would play the part of unessa (-+3), making the other people on earth thoth (+7).
+
+well, I didn't feel that was quite right, but I went with it anyway. then, today, I was reading @[dtp/dtp](chapter-2-9) and a poem stuck out at me:
+
+    Twas a time
+    For memory and for tears. Within the deep
+    Still chambers of the heart a specter dim,
+    Whose voice was like the wizard tones of Time
+    Heard from the Tomb of Ages, points its cold
+    And solemn finger to the beautiful
+    And holy visions that have passed away,
+    And left no shadow of their loveliness
+    On the dead waste of life. That specter lifts
+    The coffin lid of Hope and Joy and Love."
+
+if you notice there that "Time" is capitalised[^1]. I noticed this and other peculiarites when reading shakespere. they seem to capitalise concepts. "Time" is "father time" or, chronos. he has a scythe and an hourglass. I guess he counts the hours on the 12/24hr clock. he is also mentioned in the passing of one era to another often times with sadness because he has no remorse for removing the outdated forms. in eastern religions, this is the aspect of shiva the destroyer. 
+
+so, I looked up that poem to see its origins and I found it's a part of a larger work, "the closing year" by george d. prentice.
+
+    Remorseless Time!
+    Fierce spirit of the glass and scythe!—what power
+    Can stay him in his silent course, or melt
+    His iron heart to pity? On, still on
+    He presses, and forever. The proud bird,
+    The condor of the Andes, that can soar
+    Through heaven's unfathomable depths, or brave
+    The fury of the northern hurricane,
+    And bathe his plumage in the thunder's home,
+    Furls his broad wings at nightfall and sinks down
+    To rest upon his mountain crag—but Time
+    Knows not the weight of sleep or weariness,
+    And night's deep darkness has no chain to bind
+    His rushing pinions. Revolutions sweep
+    O'er earth, like troubled visions o'er the breast
+    Of dreaming sorrow,—cities rise and sink
+    Like bubbles on the water,—fiery isles
+    Spring blazing from the ocean, and go back
+    To their mysterious caverns,—mountains rear
+    To heaven their bald and blackened cliffs, and bow
+    Their tall heads to the plain,—new empires rise,
+    Gathering the strength of hoary centuries,
+    And rush down like the Alpine avalanche,
+    Startling the nations,—and the very stars,
+    Yon bright and burning blazonry of God,
+    Glitter a while in their eternal depths,
+    And, like the Pleiad, loveliest of their train,
+    Shoot from their glorious spheres, and pass away
+    To darkle in the trackless void,—yet Time,
+    Time, the tomb-builder, holds his fierce career,
+    Dark, stern, all-pitiless, and pauses not
+    Amid the mighty wrecks that strew his path
+    To sit and muse, like other conquerors,
+    Upon the fearful ruin he has wrought.
+
+so in that poem, he associates the condor from the andes with Time. that remided me of two things I had read in the [sirian guide](sirian-guide/lessons), where it talks about the coming earth changes and a new energy coming out of the andes mountains. the other thing it talks about is in the triads, when describing genxicat, it says that as a 7th ray, she had an undefined body type, able to assume the shape of the imagination of the person she's interacting with. when she's not in the form of another person's imagination, she was comfortable in the form of a black panther or a *condor*.
+
+the egyptians have a condor headress for the females of a certain descent [TODO: link to video of love poems of rameses for a visual of the hat, or the documentary where it mentions the condor as a symbol]. the peruvians also have some condor stuff as well. I remember indigenous wisdom keeper and guide, wilko showing the condor symbols in the sacseyhuaman(? mighta been somewhere else) [TODO: link?].
+
+---
+
+that was weird because I didn't think of "father time" as a 7th ray female. the next puzzling thing that I noticed is that saturn (+-4) is with unessa (-+3)[^2], which is now the opposite polarity of sanatau (+-3). which was the ground for anatau (-+1).
+
+so, when I think of shiva, I think of a 1st ray female, so anatau. personally, if I were to have guessed who is "father time" or "shiva", I would have definitely picked anatau. the last one I would have picked is genxicat, who is more similar symbolically to "aphrodite" than to saturn, IMO.
+
+the next thing to look at is that vulcan has his polarities swapped from the other triads. he's a (-+5), unlike the other grounds which started with positive (symbol for this document, the masculine emitter) first; he instead starts with the negative (symbol for receptive) first. vulcan is essentially assuming (or perhaps you could say, sharing) the position of the female with genxicat. that means from vulcan's perspective, the emitter is genxicat, but he has no "ground" to maintain his perspective. this makes me wonder...
+
+because all of these different triads sound to me a lot like a transformation of energy -- much like a series of transformers steps the signal from the generator down from millions of volts down to thousands, then right near to the installation, down again to hundreds. each triad plays a link in the series of transformers. anatau is the (-+1) original source of the setup. she's the one that gets all the things ready to build, then it says that vulcan builds them. well, vulcan is the fourth and final triad, not even close to anatau which is in the first triad.
+
+vulcan, also, had his polarities swapped. let's have a look now at the first polarity swap and notice that unessa (-+3) is now the female form of sanatau (+-3), and that energy gets mixed with thoth (+7). (+7) is exactly the same thing as (-1) but looking at it from the opposite direction. likewise, if you were to look at a concept (5) but from the opposite direction, it appears as logic (3) -- so, if you take the logic of sanatau (+-3) and look at it from the opposite direction, you're now looking at (-+5), which is vulcan; vulcan is just sanatau looking from the opposite direction. vulcan is paired with mars (+7), which would be the opposite polarity of anatau. the book makes special mention of anatau's destructive nature in the form of sekhmet; I think that's a clue to figure out the bigger puzzle, because if she is swapping polarity too, going down into physical, she would look a lot like mars -- that aries/aryan god of war [TODO: put in link for sepehr's "sons of aryas" video].
+
+[1]: I've noticed a few others as well, like "Nature" -- which seems to represent some sort of order. I've seen it associated with the concept of "Lucifer" and also this planet earth. I need to investigate that one more. there are a few others which escape my memory right now.
+
+[2]: the reason why I'm putting her symbol as "-+" is because in the triad, the female takes in the energy from the emitter (in this case, thoth (+7)), she does her own transformation on the energy, then emits that energy into the ground, saturn (+-4). saturn receives the energy, transforms the energy again and then gives it back to unessa, who then gives it back to thoth. unessa carries the 7->4, then 4->7, and so she's out of balance in both interactions. the stability of the ground allows her to not get too convinced of the emitter's energy. she will always regain his perspective of things on interaction with him.
+
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
