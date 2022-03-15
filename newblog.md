@@ -10989,6 +10989,14 @@ P.S. sorry mom, looks like you're going to be the "fall-guy" on this one. the re
 
 [1]: not a paid advert. I haven't had internet for pi months now, but the subject reminded me of his book -- or the book was in the thoughtwaves of today -- doesn't matter.
 
+### 2022-03-15 13:37 - not a big deal
+
+the main reaction that I got yesterday was something like, "well, that's not a big deal..." -- and I suppose it wouldn't be, but for me it felt like I was out of control. this is a sharp contrast to the last few weeks/months where I've been basically completely in control of how I feel. I really didn't like feeling a way I didn't intend or allow to feel. the other thing is that I was pretty surprised that alarms weren't going off.
+
+what it appears that it could be is that after I wrote the leapfrogging-time-pickles concept, there is a section in there on "fuzzing" -- which is the art of learning to exploit yourself. all sabotage is just more energy anyway, so that's probably what's happening. anyway, it's good to be exploited, as it causes me to improve further. that's a good thing, so I welcome more of it. hopefully, I can get most of these bugs worked out.
+
+I also feel like this slight delay in the manifestation also helps in allowing for more things to get ready -- like, I personally don't like the idea of big steps, so it has feel like just another small step. I'd like to reduce all large swings of emotion if possible.
+
 [2]: I put quotes around plumbers because they seemed very interested in when I would be sleeping, and also a little bit annoyed that I couldn't sleep.
 
 [3]: ever nocice how during heavy sleep, sounds in the environment don't bother you, but it's hard to stay asleep when nervous because ever little environment sound causes concern enough to wake you? I think it's environmental triggers which cause emotion that wake us. they used to throw objects to the ground to wake me up during dreams, but I guess I've stopped perceiving them as dangerous or concerning.
