@@ -84,9 +84,7 @@ in the sense that the stoplight is no longer perceived anymore, it no longer tak
 
 I'm going to have to try and think of more ways to express this concept -- but it feels efforless. there's nothing to avoid. it's like being on a train. get up and walk around the cabin, drink some gts and have fun and arrive to the location without any effort.
 
-it's a state of mind that we lose when we begin to give so many things outside of ourselves importance. going back to ep 11, this is what they were talking about when decending from this ### 2022-03-04 11:12 - spiritual (I call it conceptual) percept
-
-one of the reactions that I ion, and into the nitty gritty physical and all of its implications.
+it's a state of mind that we lose when we begin to give so many things outside of ourselves importance. going back to ep 11, this is what they were talking about when decending from this spiritual (I call it conceptual) perception, and into the nitty gritty physical and all of its implications.
 
 it's all about emotional control. negative emotion pulls you right back into the physical world, so to remain relaxed and conscious of your conceptual perception of yourself, all the negative emotion producing stuff (even things like death and tragedy) should no longer have a meaning which gives them more importance than your conceptal version of yourself -- who you *really* are -- who you know yourself to be (in any circumstances).
 
