@@ -11077,6 +11077,41 @@ vulcan, also, had his polarities swapped. let's have a look now at the first pol
 
 [2]: the reason why I'm putting her symbol as "-+" is because in the triad, the female takes in the energy from the emitter (in this case, thoth (+7)), she does her own transformation on the energy, then emits that energy into the ground, saturn (+-4). saturn receives the energy, transforms the energy again and then gives it back to unessa, who then gives it back to thoth. unessa carries the 7->4, then 4->7, and so she's out of balance in both interactions. the stability of the ground allows her to not get too convinced of the emitter's energy. she will always regain his perspective of things on interaction with him.
 
+### 2022-03-16 04:44 - triads, perception and not-enoughness
+
+I woke up this morning thinking about what mom said to me yesterday about her bills and taxes going away. I didn't have a response then, so I started to prepare my response to her after for later delivery, when I decided I would write it down here.
+
+the whole thing is, she feels not-enoughness, and so her life continues to reflect that feeling. sure, if taxes or bills went away, she would feel less not-enoughness because the conditions changed, and that could temporarily or semi-permanently cause her to continue to produce a reality that has enoughness; this is why the rich get richer.
+
+for this style of conditional living, their conditions allow them to feel enoughness, so they get more stuff. however, if the conditions change and they no longer have enough conditions to feel enoughness, it feels like everything is doomed.
+
+when I first started out, I felt a lot of not-enoughness. I conjured ideas like "compensation" and things like that to justify my feeling of not-enoughness. I'd say things like, they're running an entire network on my perception and I don't get anything in return -- stuff like that. I had a lot of excuses for why I felt not-enoughness.
+
+then, somewhere between 2018-2022 I gave up that form of perception. I feel now something like I always have the things I need, so things are working out fine for me.
+
+---
+
+so, let's put that into practical terms now here. in the previous entries I have been talking about triads. yesterday I established that there is a coming triad where I play vulcan (-+5) which will be female for the many girls who play aphrodite (-+7) which will then become the ground for their emitter, whomever that may be. however, let's look at the other obvious triads here. one is jaron, with me and the world, and the other is with me and the thoths.
+
+in the triad with me, jaron, and those on his form of perception, he is the ground, I am the female, and the world is the emitter. he takes a light amount of input from the world (though, I believe they purposefully tune him to the common denominator of most people's vibration), then when we sleep, his vibration mixes with mine, and I absorb his vibration, and produce a blend of the two. I take jaron's perspective of the world (usually whatever's active) and mix it with my own and send it back.
+
+if you remember, jaron would often times after I had some vision upgrades, get retuned to a mix of the world vibration and my own, having these sudden fears of covid when it first came out. also, when I talk to jaron in the morning a lot of my conversation revolves around going back to feeling not-enoughness and stuff like that. as jaron changes his perception, the world, unless they have strong opinions otherwise, will start to feel a lot more like jaron does.
+
+another example of this is my perception. you'll notice that around the time of me giving up a lot of not-enoughness, a few rich people started to get very rich. that corresponded to my own changes in perception. if these people didn't have any strong opinions on how they felt about their conditions, they will start to feel more like me. however, there are definitely some, that no matter how good I feel about my conditions, they will perpetually feel not-enoughness. their solution, of course, is not to change how they feel, but instead figure out better ways to manipulate the conditions they need to feel different than that. if they truly felt not-enoughness, then life would appear doomed for them. most of them need my form of perception to continue to feel good. when I go away, they're going to be put on jaron's form of perception, so for many of them with strong opinions of not-enoughness, that spells the end.
+
+---
+
+so, really, the thing is to find a way to feel the way you want to feel, *without* the conditions changing. for most people this is difficult. so, let's say I feel not-enoughness and I want to feel something different. I don't take big steps. if I try to convince myself that I'm rich, that wouldn't last long, because there are a lot of things out in the world that will remind me that I'm not rich. in fact, most people can't look at their bank account or their bills and still feel rich, so at least once per month, they'll reconceptualise their world in relation to those.
+
+it takes small steps to get there. I think the easiest small step would be just to change not-enoughness, and say, "I always find a way" or "I've always had enough" -- things like that, and only you can know how well they feel by the emotion the idea gives. if it feels like relief, then it's better than whatever the previous one is. the next thing to do is to maintain it. that's the hard part.
+
+maintaining a change of perception is rooted in the desire to continue to feel that way. it's often so easy, especially in relationships, to want to hold on to the old belief because it feels stronger. dispair feels a lot more tangible and real than content or bored does. most people would rather feel the more tangible emotions[^1]. therefore, most people want to feel the negative emotion.
+
+this was my own critique of myself the other day because for whatever reason, I *wanted* to feel the stronger emotion, rather than the intangible feeling of everything is fine. by wanting to feel the stronger emotion, I got a manifestation reflective of that stronger emotion, and once things get into strong enough emotion, the manifestation is inevitable.
+
+so, really, it comes down being more and more aware of how I feel and adjesting to feel the way I want to feel *before* the emotion gets too strong and causes a manifestation.
+
+[1]: this is the whole concept behind the getting close to the manifestation but never quite getting there. I've learned that I *want* to maintain the feeling in that intangible state for as long as I can, until I'm actually feeling the way I want to feel -- cause then the manifestation will reflect that tangible feeling, however it is -- pure depression and dispair -- or, pure joy and extasy.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
