@@ -11135,6 +11135,30 @@ so, I guess, going back to mom -- she can either find a way to conceptualise the
 
 he'll get there eventually, cause for example, if he's feeling not-enoughness, he's attracting other people who share a feeling of not-enoughness into his reality. they'll amplify each others' emotions until a manifestation happens (like the other day).
 
+### 2022-03-16 15:16 - why?
+
+I woke up from a dream earlier where I was explaining to someone that I think the earth experience will be the most sought after and therefore the most lucrative experience this galaxy, and possbily even the universe has to offer.
+
+the reason for this, I explained (or was going to explain), is that you just need to go into the system, then find a way to make it through to the end. once you've made it through, then you can optimise your "backstory" -- and make it so that you overcame so many obstacles and unmeasurable difficulty to arrive to that ending/attraction point.
+
+---
+
+I think all of this is coming in response to my note in the @[newblog](2022-03-16 04:44) where I mentioned that it's my goal to try and provide a way for the elites and fallen-angels to continue to have access to my perception, and by having it, I'm essentially neutralising a lot of their concepts of not-enoughness and other things like that. I'm stabilising that considerably.
+
+you see, for example, the fallen-angels aren't going away. they're just going to move to another body and continue to distribute their form of perception. if they're hooked into and dependant on my form of perception, then for me it's just more energy, and for them they get the benefit of enhanced vision and stuff like that. it all works out well.
+
+in some ways, you could say that I'm going to be "using" them to live for a long time and maintain that. most of their output is on decay, deterioration and things getting worse -- well, the opposite of that is improvements, growth, and replenishment. I can easily transform their vibbration perceptually into that, so it works out for me pretty well. the more of them there are, the better it is for me.
+
+---
+
+the next thing to have a look at is why do I want to turn this into a galaxy? I believe that demand is probably increasing for this sort of experience already. so, let's say that 1024y passes buy and I'm still alive (that's the plan, I propose). along the way, and whoever is alive then will be able to go back and to adjust and relive their backstory nearly infinite times -- boredom being the ultimate constraint. then, probably after that, the sun will go off pretty big and we'll turn into a galaxy that churns out earth-like planets, and stars and gas giants capable of creating more and more earth-like experiences.
+
+so, for everyone around at the end, and all of the elites along the way, anyone can contrive the circumstances necessary to optimise the mental capabilities that they want. in an attraction process, you are assured you will make it. some people like "getting lucky" or having some amazing thing happens which "saves" them, or creates an impossibly lucky situation[^1], and other people like me, like to figure out the creation process and steadily gain more and more control over it -- so for me, this system is a "fuzzing" opportunity to work out the bugs in my perception (which is why I appear so unstoppable).
+
+everyone is different, and everyone will see something different in the system, and that's all fine. some will want conditions, others affection, and others still to improve their mental capacity. nothing is wrong with any of it, and naturally things will get more and more extreme, the goal being to create more and more fallen-angels (unlike atlantis, gwauxln won't throw anyone into the flame, so this is going to be a fallen-angels factory soon).
+
+[1]: I'm reminded of hearthstone. if you set the timeline so that you are sure to win the game, no matter how badly you play, something will happen to ensure you win the game. this could provide, for example, very good entertainment value.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
