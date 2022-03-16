@@ -11113,6 +11113,28 @@ so, really, it comes down being more and more aware of how I feel and adjesting 
 
 [2]: I'm not actually 100% sure about this. my previous entries on pluto and charon were an attempt to try and continue to allow them access to my form of perception for the next really long time. I believe most of the fallen-angels are on my form of perception, which are pretty much most of the "elites". if the fallen-angels have access to my perception, they won't be manifesting any large-scale catastrophes, combined with the author's balancing-act, we should be pretty good for a while...
 
+### 2022-03-16 06:36 - top tier vs elite tier
+
+as usual, I'm getting reactions to my clarifications on the top tier vs elite tier. the only explanation that I have for this is that they're selling jaron's form of perception as mine.
+
+there's a good reason for this. it would be too costly otherwise. I've developed my conceptual perception a whole lot more than jaron has, so I'm perceived to be a lot more "telepathic" than most. I don't read minds. I feel what other people are thinking and that gives me an idea and an emotional state of what their mind is dwelling on. to counteract this, I'm sure they have pretty heavy countermeasures to neutralise all thoughts from those on my form of perception from my head. this is a huge scaling problem. if there are 10 people, it's not that big of a deal, but if there are thousands or millions, this is a problem.
+
+jaron, however has not developed his conceptual awareness very much, so it doesn't matter how many feelings and thoughts are going through his head, he simply doesn't notice, care, or remember. so, he's ideal for the top tier subscribers because there can be a lot of them and they get close to my level of vision, but without all of the headaches of me getting so many reactions from everyone.
+
+---
+
+I don't want to hear other people's thoughts. I have no interest at all in feeling or hearing other people. it does come in handy from time to time in a conversation when someone is using different words than how they feel, but largely, I'd rather not even care. lots of people say a lot of words, and really what's important is what resonates with me -- not the words they're using.
+
+if I could, I would feel people *less*, not more. it's nice when people like you but it's not as nice when people don't like you. in fact, I was considering this yesterday. I walked over to the university and there were some disapproving motors of my presence there. I've been going out and/or talking to people in particularly uncomfortable times because I want to get used to feeling the way I want to feel, and I know of no better place to get a high concentration of bad-feeling emotions, than the university campus. I'll either feel pretty bad, or I'll learn really quickly to convert that feeling into something that feels good.
+
+so, one part of me likes the reactions, especially the negative ones, and another part of me dislikes the reactions because I enjoy my own thoughts so much.
+
+so, for me it's good that the elites all have their own super duper cool kids hangout zone in my perception, and they to go great lengths (who knows how much it costs) to keep their thoughts out of my perception. I enjoy the silence. if I were connected to the top tier again, it would be much more uncomfortable.
+
+so, I guess, going back to mom -- she can either find a way to conceptualise the world differently, or she can try to find a way to get jaron to conceptualise the world differently to neutralise out her concept. that's probably undesirable though. the last thing nosebook would want is a whole bunch of top tier people actually feeling good (even if it's someone else's concept) about things. if jaron learns what I know, they won't be elite anymore.
+
+he'll get there eventually, cause for example, if he's feeling not-enoughness, he's attracting other people who share a feeling of not-enoughness into his reality. they'll amplify each others' emotions until a manifestation happens (like the other day).
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
