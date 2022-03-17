@@ -11159,6 +11159,28 @@ everyone is different, and everyone will see something different in the system, 
 
 [1]: I'm reminded of hearthstone. if you set the timeline so that you are sure to win the game, no matter how badly you play, something will happen to ensure you win the game. this could provide, for example, very good entertainment value.
 
+### 2022-03-17 05:52 - thoughts on courtship
+
+I was reading @[sirian-guide/lessons](lesson-23), and there is a part where it says,
+
+> Another point concerning relationships, in the relating of the sexes there is a remnant from the animal kingdom and that is the game of courtship. People should be made aware that it is a game. Watch birds, some of them have intricately beautiful courting games. These are to be enjoyed. There is nothing that can uplift a person more than a cloud nine romance. But please realize what it is. *It's the patterns that energy likes to make in order to draw to it the pattern it wants to experience.*
+
+when I read that I had the concept pop into mind of my many hours spent in discotecas watching people doing this dance of courtship. it introduced to me the idea that the courtship exercise is making the pattern of energy that will be experienced.
+
+so, for example, I would often watch two people in the disco and one pays attention to the other, and then has to stop paying attention, for fear that it becomes too much. they go off and do another thing, then meet up again later, and the sparks fly some more. this may repeat more than 3-4 times. I noticed very few people, unless the disco was closing were going straight home together.
+
+well, it just occurred to me that those courtship rituals were likely reflective of the "relationship" that happend later. the ones that were a last minute acquisition cause the disco was closing was probably a short-lived shallow relationship. the ones that had to constantly pretend they weren't super interested in the other likely experienced the same thing later on in the relationship as well -- where they have to take a break and go interact with another person for a bit before the sparks would fly again, etc.
+
+---
+
+personally, I found all of those ridiculous "courtship" games to be a waste of time. I found no reason for a relationship other than utility. I thought that the person should be someone that I would like to work with, as my life consisted mostly of work related things. I enjoyed socialising with people and having conversations with them, and so if I'm going to have a conversation with them, I wanted to actually converse with them, instead of trying to mix flirting with conversation (I can't concentrate on the conversation very well in that case). so, I pretty much cared nothing for the flirting stuff.
+
+so that got me thinking about the previous discussion on making something "big and meaningful" feel "smoothe and natural". I don't really have any conclusions, but it seems to me that courtship is the process of making something feel bigger and more meaningful than it really is. most people just want to feel loved or feel valued, and it's just a sales pitch of body movement/expression that conceptually says, "I can make you feel loved or valued". barf!
+
+courtship feels about as smoothe and natural as a sales pitch feels smoothe and natural -- it doesn't. there's nothing natural about a sales pitch. there never has been, and never will be. sales is the art of increasing desire through perception so that you *override* your limits of what feels natural (alcohol helps as well).
+
+OK, I'm done... lol
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
