@@ -20,6 +20,16 @@ so, in the non-physical planes of perception, the first three rays compose non-p
 
 apparently, they say that the 2nd layer combines the will to manifest (1) with the mentality of the manifestation (3), and this is transmitted down to the soul which seems to be at the top of the 5th which then connects down to the astral... I think that's confusing.
 
+---
+
+
+> The SOUL is to the MONAD as the physical vehicle is to the SOUL. It is made up of a Deva, originating from the sun, that gives its essence so that the MONAD can incarnate into the physical and gain experience. The MONAD can only send itself downward to the point of the SOUL level. At this point, the SOLAR ANGEL collects the MONADs energy, circulating the energy through its essence, then redirecting it into the vehicles that make up the personality.
+
+
+> the union of the three fires (fire by friction [energy from the earth] = THIRD ASPECT/RAY, solar fire [energy from the soul] = SECOND ASPECT/RAY, and cosmic fire [energy from the monad] = FIRST ASPECT/RAY) within MUN.
+
+it doesn't really say it explicitly, but the "MONAD" appears to be  parts, the father/source/brahm, the soul, and body (experience). the atmic (3) plane is described as being the monad (non-physical) equivalent of the physical (7) plane. or, said differently, "the program, the user, and the environment".
+
 ### summary
 
 all of this is pretty complicated. for me, it sounds much easier to say that you take desire (1) to manifest and the logic (3) by which it can manifest (beliefs, expectations, etc); those resonate with eachother in the relational (2), which then reflects through the midpoint source (4), and down into the imagination, producing a combination of mental images (6) that produce physical sensation or reality (7) or a concept or emotion (5). much easier :)

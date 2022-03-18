@@ -27,6 +27,8 @@ shakespere:
 pi 1998
 we can be heros
 
+look into 2022-03-04 11:12
+
 
 ###
 
@@ -272,3 +274,7 @@ finally, the animated body is obviously physical/desire.
 I really don't know why he splits it up this way...
 
 [1]: I call it relational because it's how concepts interact/relate to one another, but it could just as well be called their reflection or harmony to each other. each concept reflects back only the parts that resonate -- good or bad. 
+
+### the closing year
+
+the closing year by george d. prentice

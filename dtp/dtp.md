@@ -3422,7 +3422,7 @@ Near the Bermudas a terrible storm came up, and I ordered the sails close reefed
 
 I had lashed myself to the deck cleats to avoid being washed overboard. So now I was doomed to die--and was glad. As the waters swept overhead, I called out in my soul: "Phyris! at last! at last I come!" I saw Mendocus as I lost consciousness, and when I next came to knowledge, I found myself in the Sagum in California. Yet my body drowned off Bermuda's coast! Here was Phyris, and--yes! Mol Lang. It was not long until I again bade Mendocus farewell, and with Phyris and Mol Lang went home to Pertoz, home now, my own attained plane, and "Earth with its dark and dreadful ills" left behind forever, but not Earth with its mighty secrets of life. Yes, Terre, is, if insignificant, a point whence the Human soul reaches out into the boundless sidereal universe and formulates its laws, knows them, and is greater than all. I was come to leave the Earth where so many incarnations had known me.
 
-        'Twas a time
+        "Twas a time
          For memory and for tears. Within the deep
          Still chambers of the heart a specter dim,
          Whose voice was like the wizard tones of Time
@@ -3433,7 +3433,7 @@ I had lashed myself to the deck cleats to avoid being washed overboard. So now I
          On the dead waste of life. That specter lifts
          The coffin lid of Hope and Joy and Love."
 
-         O Earth! point in the heavens, yet type of all the stellar universe.
+O Earth! point in the heavens, yet type of all the stellar universe.
 
 Shall I descend a moment to figures? Shall I speak numbers almost inconceivable? I will. Just for a moment think of what we have come to know in the schools of Earth, think of our human civilization that permits us new comprehensions, see the parallel of how we measure time and distance compared to the Indian, who measures one by "moons" and the other by "looks," one being the interval between one full, or new moon and the next; the other being how far he can look and distinguish a man. Civilized man measures by years and by miles, and science by "light-years." "How much is a light-year? In the time of one second light travels one hundred and ninety-two thousand miles, approximately. In one year there are thirty-one million, five hundred and fifty-six thousand, nine hundred and twenty-nine seconds; hence the distance of a light-year is the multiplied product of one figure by the other, briefly, the inconceivable distance of sixty trillion, five hundred and fifty-three billion, ten hundred and fifty thousand miles. All that, and yet we see a star in the northern heavens said to be one hundred and eighty-one light-years distant from the earth around which our own sun revolves, one of its satellites, as the moon is satellite to the earth. Such is the material universe, an infinitude, one of God's Works, but only one, and yet it is comprehensible mechanism, not, from the material point of view, comparable to the value of one soul of Man.
 
