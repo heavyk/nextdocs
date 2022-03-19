@@ -11181,6 +11181,78 @@ courtship feels about as smoothe and natural as a sales pitch feels smoothe and 
 
 OK, I'm done... lol
 
+### 2022-03-19 00:00 - thoughts on superheros
+
+today I was outside talking with jaron and I was reflecting on superheros in the context of "the tick"... I told him that I think I like deflater-mouse much better than batman. he's really funny because he's not at all shy to a purely cosmetic superhero. I find it funny.
+
+anyway, so we got to talking about how batman was created in the first place. all of the superheros have a sort of super power that sets them apart from the ordinary people. batman however is not super at all he's just a dude with a lot of time and money[^1]. he saves people with his gadgets and such.
+
+so, it got me thinking about why that is... batman probably appeals to the average american that doesn't have any extraordinary capabilites, but has gadgets. the more useful gadgets, the better equipped he is to save people from unbelievable criminal masterminds -- like "the joker". most of the villians he fights sometimes have superpowers, but most are symbolic representations of spiritual concepts turned into villian form[^2].
+
+his arch enemy is the joker, or the fool in tarot -- which is the beginning of the path. it seems that "the dark knight" relies on money and gadgets to fight against these symbolic forces.
+
+---
+
+I was going to go off on to a tangent about the progression of superheros over time with the latest installation of not longer actual super powers being sp-fbw where your superpower is your butthole... anyway, jaron interrupted me to tell me about the green latern. I don't know much about these things so I was interested to find out that he uses these rings that can convert mental things into real substance -- like able to make hammers and stuff (useful stuff like tools), and can allow the person to fly as well. these rings need to be recharged as well.
+
+this sounds to me like a wide open commercial market. I had been prepped for this idea because I had been contemplating the "simpsons s06e12 - the stonecutters" where homer wants to get access to this exclusive organisation called "the stonecutters" -- and if you have the ring, then you get privilaged access, streamlined experiences, and exclusive benefits as long as you're a member and have the ring.
+
+then, later tonight, I sit down to watch "the tick s03e05 - devil in diapers". it features this supervillian called "mr. mental" which in a previous episode, he gets a gas powered mental powers amplifier called "the thinking cap" that allows mr. mental to fly around and bend reality to his will (reminded me of mr. motor). this time, he has a new device that can trick the mind into seeing the image that he wants them to see. he changes his outward appearance to appear to be a baby.
+
+the whole thing reminded me of that long thing I wrote about how the astral image can be projected down from the conceptual, it's the  origin of the original fallen-angels, and what jesus essentially rediscovered when he expanded the width of the conceptual (5) form of perception, allowing one to observe their appearance as a concept of theirself.
+
+in the conceptual plane, you see all concepts/things from all angles at once, meaning that you behold the idea entirely. this makes it essentially impossible for anyone to lie to another, because all communication transmits the thought in its entirety. however, for someone that does not see all angles at once, the aspects of the concept that wish to be presented will be perceived in the viewers vision as a perfect reflection of that concept. I could be whatever, but the concept presented will take on real, seemingly tangible form.
+
+tesla describes this technology in his autobiography:
+
+> To give an idea of my distress, suppose that I had witnest a funeral or some such nerve-racking spectacle. Then, inevitably, in the stillness of night, a vivid picture of the scene would thrust itself before my eyes and persist despite all my efforts to banish it. Sometimes it would even remain fixt in space tho I pushed my hand thru it. If my explanation is correct, it should be able to project on a screen the image of any object one conceives and make it visible.
+
+well, I claim that those images are not only capable to present to other people's eyes, but after a certain level of power, those images manifest into real "matter". just like tesla's motors, there would be no difference between a real tangible thing, or something created with the mind. the sirians describe not only making inanimate matter, but even making new biological forms with this technique:
+
+> For you to get a better understanding of the manner in which the "gods" lived and worked, we will have to give you some background on their functioning. The species to which they belong do not biologically reproduce. When there is need of another of them, a triad creates another from energy.
+
+finally, in this episode, mr. mental uses this device to create a giant pink hand to squish and hold the tick -- exactly like jaron's description of green lantern.
+
+---
+
+OK, let's review the technology. we have an exclusive item (a ring) that identifies a person as someone capable to turn mental energy into images that only others with the ring can also see.
+
+additional capacity is required to conjure mental forms into the physical. util tools and forms -- you know, things that builders and stonecutters would need. these form can be created and manipulated with the mind. it'll also have a expandable number of mentally conjurable forms (downloadable). the forms will be defined by the maintainers and users of the ring -- not just "anything" can be conjured -- cause that could be bad.
+
+it also allows the wearer of the ring to be able to fly (prolly some safety license needs to be acquired to activate this). also, the ring has to be recharged (15-30m I guess) when the energy levels get low.
+
+this sounds like a very commercially viable product... know what I mean?
+
+I'd like to thank deflater-mouse for the inspiration.
+
+"we can be heros"
+
+[1]: I believe tony stark (? the guy from transformers) is the upgraded verson of an ordinary dude with time and money. also an interesting case I don't know much about...
+
+[2]: going down the list of super villians for batman, a few categories jump out at me:
+  - the symbolic ones:
+    - a cat that is also a woman (probably black, like a panther)
+    - the joker/fool
+    - a crocodile
+    - a fire lover
+    - a freeze lover
+    - a moth
+    - shapeshifter (clay face)
+    - a woman that controls plants (the landscape architect's arch-enemy)
+    - fear in the form of a scarecrow (anti-raven)
+    - two-face (duality, chance)
+  - the technological ones:
+    - a chemist
+    - a surgeon
+  - the "normal" ones
+    - businessman (obsessed with masks)
+    - a "penguin" which is a mentally capable guy (irony)
+  - psycological ones:
+    - a psychiatrist
+    - the joker/fool
+    - the riddler
+    - mind control technology
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
