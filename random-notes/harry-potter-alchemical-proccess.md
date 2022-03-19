@@ -23,11 +23,13 @@ I started out writing notes, but I'm going to turn this into an entry here. it'l
 
 https://en.wikipedia.org/wiki/Alchemical_symbol
 
-harry - half-blood (salt - body)
-hg - no-blood (mercury - spirit)
-ron - full-blood (sulfur/fire - soul)
+(I might have mercurry and sulfur mixed. sulfur is the destructive force)
 
-mercury and sulfur together is cinnabar (HgS) and is the most common source of mercury
+harry - half-blood (salt - body)
+ron - full-blood (sulfur/fire - soul)
+hg - no-blood (mercury - spirit)
+
+mercury and sulfur together is cinnabar (HgS) and is the most common source of mercury. two polarites in balance (stasis), and not reacting.
 
 sulfer is NOT a planetary metal, and represents fire which is one of the elements
 
@@ -57,11 +59,11 @@ the most common triad is isis, osiris, and horus. the fourth (hidden) element he
 
 #### fear of death and the alchemical process
 
-the bad-guy is voldemort -- the idea that the bad-guy in this alchemical process is actually the fear of death, vol-de-mort or fliht-from-death. this is strange because the alchemical process where the salt is lightened from a reddish hue into a white/light colour, each time leaving behind a black crust (there are those egypt/nazi flag colours again). as one loses the fear of death, one is released from the bonds of that crap that is left behind each iteration of the alchemical process, leading to the "winged solar disk" (golden snitch) -- having the radiance of the sun and the capacity to fly.
+the bad-guy is voldemort -- the idea that the bad-guy in this alchemical process is actually the fear of death, vol-de-mort or flight-from-death. this is strange because in the alchemical process, the salt is lightened from a reddish hue into a white/light colour, each time leaving behind a black crust (there are those egypt/nazi flag colours again). as one loses the fear of death, one is released from the bonds of that crap that is left behind each iteration of the alchemical process, leading to the "winged solar disk" (golden snitch) -- having the radiance of the sun and the capacity to fly.
 
-this interestingly is the same way that I see planets "evolution" as happening. this is when the planet goes from a dense "metallic" (in the astrophysical sense) state to one of a gaseous state. it gains mass by becoming more attractive, while transmuting its higher density elements into lower density elements like hydrogen and helium.
+this interestingly is the same way that I see planets "evolution" as happening. this is when the planet goes from a dense "metallic" (in the astrophysical sense) state to one of a "gaseous" state. it gains mass by becoming more attractive, while transmuting its higher density elements into lower density elements like hydrogen and helium.
 
-a pure "perfect" result (like the sun) is never possible, and so a planet starts out in a dense state and through the alchemical process tends toward a less dense state. while a star starts out in a perfect state highly attractive state, but then with the magnetic interaction of the planets around her, she starts to produce more and more dense elements from those interactions (solar flares, etc) and spews them out into her environment which can, which become resources for the planets to ultimately utilise, and the elemental composition of the planet (including its conscious bits like plants, animals, and hominid species), eventually cause the planet to begin to rotate faster and faster. it has to become more attractive (increase its magnetic field) and transmit its higher density bits into something less dense.
+a pure "perfect" result (like the sun) is never possible, and so a planet starts out in a dense state and through the alchemical process tends toward a less dense state. while a star starts out in a perfect state highly attractive state, but then with the magnetic interaction of the planets around her, she starts to produce more and more dense elements from those interactions (solar flares, etc) and spews them out into her environment which can, become resources for the planets to ultimately utilise, and the elemental composition of the planet (including its conscious bits like plants, animals, and hominid species), eventually cause the planet to begin to rotate faster and faster. it has to become more attractive (increase its magnetic field) and transmit its higher density bits into something less dense.
 
 so, seen from this standpoint, there is a star (hg/isis/ishtar/sun) and she is the "perfect" one without any need for magic (the purified end result). there is the salt (harry/osiris/enkidu/earth) and he is transition between the star and also another planet (ron/horus/gilgamesh/mars).
 

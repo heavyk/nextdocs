@@ -102,4 +102,36 @@ I haven't really thought about it, but this may also be able to be applied to th
 
 so, let's take saturn and put him into female form. that means that osiris if paired with him could use 4th ray energy as if he were a (+4).
 
+---
+
+further thinking on this after sleeping reminds me that there are other pretty apparent clues they left:
+- mars loved venus (-3)
+- we're in a second ray (solar) system (-2)
+- the sun (-2) in the tychos model is in two triad relationships:
+  - venus/lucifer, mercury
+  - mars, earth
+- it mentions the earth as going through its "third initiation"
+
+the third initiation combines the 3rd ray aspect energy with the 2nd ray to bring down the fire of the 1st ray. that is the "hidden" triad that I analysed in the previous section.
+
+so let's look at the triads now:
+
+the sun (-2) being a female will allow the proper male the capabilities to function as a male version of her. so, for example allayandra is a (+7), but around anatau, he can be a (+1). that means we're looking for now a (+6) male, which in her energy can be a (+2).
+
+the only (+6) male they mention is osiris.
+
+going back to the sun, let's figure out the grounds...
+
+- sun (-2)
+- mercury/thoth (+7)
+- (-7,+2)
+
+if we turn mars into a ground, then that forces unessa (-3) to become a ...
+
+the idea here is that just like the other hidden triad is to make stability so there can be many 7th ray females, this triad is to make stability so there can be many 7th ray males (in the form of grounds).
+
+- sun (-2)
+- mars (-7,+1)
+- unessa as male (+3) ???? - needs more thinking...
+
 
