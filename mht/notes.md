@@ -142,7 +142,7 @@ once I'm there, if I then try to use my eyes, the whole world looks strange -- I
 
 as reality starts to come back to becoming understandable again, I have a fresh new outlook on things.
 
-for me, this is the being "born again" process. I've done it a few times and experienced simlar effects while star-watching, so perhaps I may have done it many times.
+for me, this is the being "born again" process. I've done it a few times and experienced simlar effects while star-watching.
 
 the trick is knowing that it's going to be OK (it always is), and to just relax, cause it's all in my head anyway.
 

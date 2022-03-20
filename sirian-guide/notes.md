@@ -90,4 +90,47 @@ physical     concept
    (7)          (5)
 ```
 
+### FIRST RAY life wave
 
+> The SECOND COSMIC RAY is the quality of love and wisdom. You will notice that these two concepts are indeed difficult to concisely and accurately define. There is no one word or succinct phrase to readily convey to anyone else what one thinks love or wisdom means. That is because Love and Wisdom are qualities of Consciousness and therefore, their meaning will vary according to the state of conscious evolution.
+  
+> Because of this, the THIRD RAY, or mentation, is developed within substance and evolving life waves first. This is so that the consciousness will have a mind to use in developing love. The correct blending of manas and love results in wisdom. Both of these are required before there can safely be a FIRST RAY life wave. Power cannot be safely given to corruptible entities.
+
+
+what it's saying is that love and wisdom... for now, let's skip defining what love and wisdom is.. let's just say they're the thing that powers life and effective operation of life.
+
+so what they're saying is that when life first begins (sounds like they've done this a few times), they say that 3rd ray aspects are presented first... probably to gain some experience. so like think about primitive animals -- they learn by experience, and a dog can be trained and "learn" to behave in ways based on experience. the reasoning that occurs as a result of that and the mental constructs in which life is understood allow for the formation of "wisdom" -- that is, the understanding of how things actually work together. wisdom sees past the illusion and sees the power (desire) behind the creation or action.
+
+once one can truly see things for how they really are, one can finally perceive what they are calling "love" -- the motivation for *life* -- that is, the wanted aspect. in abraham terms, "finally able to see you for who you really are" or "able to see the wanted aspect without any resistance to unwanted".
+
+it's only then, when able to perceive the wanted aspect can the FIRST RAY life wave occur. this is a clue. they're saying that on our planet it has not yet happened. another clue they give is when they say that the earth is going through it's third initiation -- that is when it becomes fully concerned with the mental(ity) aspect to reality. the third ray triad has saturn and thoth. thoth is credited as saying "the universe is mental" -- or "what you think and feel creates your reality" -- or, your reality is a reflection of how you conceptualise it to be.
+
+they said that the FIRST RAY triad first appeared millions of years ago and was retracted 75kya because we simply did not understand (that is have a way to mentalise) their presense. likely in the same way that we experience too much pleasure = pain -- or, too much desire = fear.
+
+I don't believe that this "FIRST RAY life wave" will appear anytime soon. rather, I think instead, we're going to be doing the "THIRD RAY life wave" right now.
+
+the other day I was [thinking about a possible fifth ray triad](sirian-guide/triad#family-ties-and-a-hidden-5th-ray-triad), and I noted that if we think of vulcan not just as a ground, but also as a kind of opposite polarity female.
+
+females transmit and receive on their ray type. men, it seems transmit on their ray type and receive on the opposite. it also says that allayandra (+7) is mentally connected with jeortau (+2), and anatau (-1), and in her presence, he can wield energy as if he were a first ray male (+1). I then noticed that vulcan (-5+) receives on 5 just like a female, but does not transmit on (5). instead he transmits on (3). that means, in a virtual triad of vulcan, jeortau, allayandra -- in the presence of anatau, he is a (+1) and vulcan is a (-+3), and jeortau remains (+2). in this virtual triad, vulcan is now behaving like a (-3) female -- or unessa.
+
+this brings me to the THIRD RAY triad of saturn (+-4), unessa (-3), and thoth (+7). unessa here in this virtual triad is played by vulcan, leaving a missing FOURTH RAY ground of and thoth. everyone wants to be thoth -- so there's no short supply of him.
+
+---
+
+in the earth changes section, it says that sanate kumara is going through the third initiation. I didn't know what sanate kumara is so I looked it up and he's a blonde dude with whispy hair and magnificent eyes. they seem to be calling him "earth". see for yourself..
+
+> Such a time is upon you. Sanate Kumara is about to undergo the THIRD Cosmic initiation. (Third as is relative to his class of entity) You will recall that this initiation marks a major increase in Spiritual consciousness. It is the one where upon the SOUL comes in control of the personality. This initiation marks the first initiation that brings in higher energy from an outside source. After this initiation, Earth will become what is referred to as a Spiritual or Esoteric planet. Heretofore, that has definitely not been the case.
+
+OK, what we can draw from this is that the planet itself is going through the third initiation, and this third initiation will bring down the FIRST RAY life wave (I guess)
+
+> At the consummation of the third initiation, ... this energy has been combined with the SECOND ASPECT/RAY within the consciousness of the MUN. This brings down the "fire" from the MONAD which is of the FIRST ASPECT/RAY.
+
+we're in a SECOND RAY (solar) system, so that means the second ray will be the sun herself. so now we have our new FIRST RAY triad for the FIRST RAY life wave.
+
+- allandra + anatau (+1)
+- sun (-2)
+- opposite polarity vulcan (-+3)
+
+I can't say that I fully understand it. I just have this document and my intuition to go on, but what it looks to me is another strange polarity. the sun will be playing the part of jeortau (+2), which means she still receives (2) energy from somewhere -- but then that would make her a second female in the triad.. so, it looks to me like just an opposite polarity triad, where vulcan plays the female and she plays the male. I can't really say for sure. though, if she's missing the (-2) part, that means a reinvention of the isis, osiris, and ra SECOND RAY triad is next.
+
+OK, I'm so far out here, I'm going to quit now while I'm ahead. I have a lot of similarities to osiris (see yesterday's work on that), but for now... I'm done with all of this solar system stuff.
