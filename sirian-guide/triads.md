@@ -31,8 +31,15 @@ saturn (+-4) looses his tail polarity. this is probably because it's redundant. 
 
 finally vulcan (-5+) gets a tail polarity again. he is receiving concepts (5), and outputting logic, structure and form (3). he's the reimplementation of sanatau (+-3-+). the 4th, 5th, and 7th rays are all aspects of the 3rd ray, so his output is compatible with both allayandra (+7) and genxicat (-7).
 
-### the emitter
+#### the emitter
 
+I can't say that I fully understand the emitter, but, they seem to take in energy from their opposite and emit their ray. 
+
+jeortau (+2) will take in astral energy (6) and output (2) resonance, harmony, and a feeling of things working together.
+
+thoth and allayandra (+7) both take in will/desire (1) and output order form and purpose in the form of a physical manifestation of that will desire (1).
+
+ra (+3) takes in a concept or an abstract idea (5) and then produces a form, structure, or reality that can contain the idea. he's more like the path rather than the desire to walk it. he embodies "the right way", religion, or the instruction manual. just as thoth (+7) produces ceremony/ritual, order, processes, etc to produce a physical form or manifestation -- ra produces the ceremony/ritual, order or processes to produce a conceptul form or manifestation.
 
 
 ### first ray triad
