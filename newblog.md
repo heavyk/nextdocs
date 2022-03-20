@@ -11325,6 +11325,23 @@ trojan horse
 
   so, what they're saying there is that at the beginning creativity happens from inside of the imagination (6). however later it shifts up to logic/structure (3) which is connected to the throat. see stuff on THIRD RAY.
 
+### 2022-03-20 07:49 - this may be the last one
+
+I have tried to go to sleep now for quite a while and at first I would just start to see images that didn't make sense come into my eyes -- then, it started to feel like I'm leaving my body, then it felt as if I did leave my body a few times. I'm terribly tired -- like my eyes are having trouble staying awake and stuff. I tried drinking alkaline water to see if that would reduce it, and I think it made it worse. coffee didn't seem to have any effect, etc.
+
+I'm going to try and finish up this part on the 7-layers-of-perception and then walk to starbucks to upload this.
+
+I really don't want to go up, because I'm having a great time figuring this stuff out. I was stuck on this one part concerning the transition regions because I had never put into words before. I figured it out though. I for example, between physical (7) and source (4), there is more and more movement and everything feels more significant and vibrant. however, for example going from imagination (6) up to source, things things begin to feel more stable and secure (even though they're moving faster), they also feel more abstract and less physical and less resistace (more flow).
+
+this is a hard thing to explain because it may feel somewhat contradictory or paradoxal that things feel more stable yet are moving faster, and it depends on what layer is doing the transition. they mix. I could also see that this is sort of a fractal expression, so you could say there are "sublayers" that follow the same pattern -- but that's a little too much for my capacities to try and figure out.
+
+I could also see that understanding the transition layers is actually a very big thing in understanding the thing. I was listening to snake-bros again last night (#229), the intro to "book of the damned" which is kinda a weird synchro because the whole intro is him explaining that to try and define a continuum or break it into pieces will always leave "damned data" behind -- data that doesn't fit the definitions exactly and so because it has an insufficient explanation, it gets passed over.
+
+my problem with this system is that it is a continuum, and there are definite barriers where I moved from 3d to 4d or 5d perception, but I know from other (drug) experiences that it's very difficult to actually say exactly when one form of perception begins and another ends. the reason why I label temporal (5.1) and YHVH (5.2) is because they're just extensions of conceptual perception, and even though they do "look" very different (6d vs 7d), they are still further compartmentalisation of conceptual perception (1 dimension more removed from your source -- or 1 degree of separation greater perception of vibration similar to your own). these vibrations have always existed, but it took someone to figure out how to put lines around them and say, "this is your concept of you" and "this is your concept of you, over time" and "these are all variations of your concept of yourself that you've created, over time" etc.
+
+in reality, I believe anyone can take these vibrations and perceive them anyway they want to, and I think similar perception of vibration is ultimately what defines a "species" -- but what do I know -- there's probably an edge case for that one, but I doubt it, because your outward physical manifestation is a reflection of your conceptualisation of reality.
+
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
