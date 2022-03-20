@@ -11227,7 +11227,7 @@ I'd like to thank deflater-mouse for the inspiration.
 
 "we can be heros"
 
-[1]: I believe tony stark (? the guy from transformers) is the upgraded verson of an ordinary dude with time and money. also an interesting case I don't know much about...
+[1]: I believe tony stark (ironman) is the upgraded verson of an ordinary dude with time and money. also an interesting case I don't know much about...
 
 [2]: going down the list of super villians for batman, a few categories jump out at me:
   - the symbolic ones:
@@ -11252,6 +11252,78 @@ I'd like to thank deflater-mouse for the inspiration.
     - the joker/fool
     - the riddler
     - mind control technology
+
+### 2022-03-19 23:06 - starting to desfase with reality
+
+today I sat down with jaron and discussed the things that I was talking about in the previous entry -- cause I had a weird sensation (can't remember but I think I was sitting in the sun), that the idea of pluto and charon was to create a similar thing to what the sirians are talking about. one reoccurring theme that they have is that there are two major factions -- the spiritual/technological (s/t) and the technological (tech) civilisations.
+
+the tech civs rely on technology to manipulate conditions and they're represented by batman/ironman/deflater-mouse/green-lantern concept in my head. these civs strive to create the best conditions for theirselves.
+
+the s/t are different, and I can't say that I really understand them well, but I've been getting into their heads a lot recently as I've been [analysing the sirian-guide](sirian-guide/notes).
+
+today, I was writing about the FIRST RAY life wave, and I noticed that they state a few things in pretty plain, but because our consciousness is so vastly different than theirs, probably no one noticed. they create with the THIRD RAY life wave *first*. this would be the opposite from the tech civs, in that their desire is to "do the will of the father" -- that is to create the "best" creation.
+
+notice also these parallels to kuthumi's extra-terrestrial view of creation. originally the creators tried to create the "best" universe with the previous creators (adepts) supervising them, and they made a paja mental -- entirely 3 whole layers were consolidated into the imagination/astral (6)!!
+
+it looks then like the s/t start with the THIRD RAY life wave, which has to do with constructing a mental model of reality with experience before trying to figure out what is the "best" thing to do. apparently, this senate kumara guy (earth) is passing this initiation now, and is beginning to allow the FIRST RAY life wave.
+
+this means that they are basically admitting that they take on a more abraham-style form of creation, beginning with the unwanted (cause you can't get it wrong anyway), and then from there build up toward the unknown at the time of creation, final wanted creation; the opposite of the tech civs, which rely more on figuring out the wanted aspect in their imaginations, then building and iterating on that.
+
+I see no problem with either. I, myself, am very much one of those build it and then iterate on it types (get the "minimum viable product" built first). when I first started to program, I could essentially program in my mind. I would write the code there; I could compile it and run it, and it would behave the same later on my computer when I transcribed the code in. mistakes were common only in that I hadn't mentalised the full scope of execution or had a misunderstanding of the platform's API. as time went on, this capacity faded and I had to start to learn more to write tests and operate more as a team (cause when other people changed my code, I lost my capacity to anticipate it).
+
+as time went on (basically after I lost my virginity), that capacity was nearly completely dead, and I found instead that my imagination was actally my worst impediment to productivity. I had to iterate on the actual product, because my brain wasn't capable to anticipate the actual functioning of the program. because of this, I converted over to take on a conceptual approach to programming. I knew what I wanted to create, but I didn't know all of the bits, so I had to iterate on it.
+
+in short, what I'm saying is I started out as the tech civ mindset in that I used my imagination and my knowledge of the environment and platform to create relatively complex things in my mind. tesla was like a super version of that. I always envied his capacity to build things entirely in his imagination. tesla embodies the higest order of the tech civ mindset.
+
+I've learned now to embrace unwanted -- and in fact, I've gone so far to embrace it that I actually want to create a system where there is an entire planet that is entirely dependant on my perception, that way their continued capacity to produce bad-feeling, is a source for me perceptually to reverse the polarity and turn it into wanted (cause wanted-and-unwanted-are-same).
+
+---
+
+so, as I'm writing this document I keep getting these reactions, like "dude, wtf is this guy carrying on about these triads for" -- to which I will reply, that I have been trying to understand this document, simply because I made the bold claim that I can figure anything out using this type of writing, and to exercise my 6th ray capacity (of taking concepts and data) and building a mental model of it so that I can begin to perceive the 2nd ray aspect a bit better[^1]. the 2nd ray is just the opposite perspective of the 6th ray, which is the primary aspect of the creation in tech civs and those still in the first and second initiation[^3]. it's probably part of the "going up process".
+
+well, anyway earlier I was listening to a snake-bros episode on mother-flipping something foot (#235) and I was having these realisations of how far desynced with reality I've become. usually, I can get on the same frequency as the snake-bros, but I found out that I was having a hard time caring about megalithic structures and measurements -- I mean, that's like sooo 7th ray, lol.
+
+---
+
+this is really becoming a problem, as I feel like I'm totally losing touch with reality as the world knows it. I mean, I still see all of the same stuff I used to, but for example, just the idea of getting on youtube and watching a video about big stones, just felt absolutely terrible to me.
+
+I've been trying to get myself to program -- even if it's a small extension for vscode, but it appears that I can't install anything without an internet. this whole no internet thing is a real problem for trying to stay disconnected. I'll try to listen to more snake-bros episodes to stay somewhat physically minded..
+
+quickly about that: they're doing a book report on strange things raining out of the sky. it's connected to electrical events, meteors, and things like that. no one can explain how these phenomenon will persist for months, but I think I can. have a look at hhydrogen4power's youtube page. he will show that coherent vibrations of electricity in salt water (though it could probably be any salt-like molecule having a positive and negative side) will produce microorganisms that break down into an oil and even "monatomic gold".
+
+I have a feeling the electrical phenomena in proper conditions can produce all sorts of life. in fact, one can experiment with this. take reverse osmosis water and pure nacl, hermetically seal it up and then look at it later after a few months and spontaneously created organisms will be there -- complete with sequencable DNA.
+
+we don't understand the creation process, and it seems that stuff that we would think of as "comets" would be something like tiny electrons flying around in the cosmic universe. on the surface, these just look like charged bodies with electric potential, however just as the signal between neurons looks like just an electrical signal, it contains within it a lot more information, which then, under those conditions, manifests itself as frogs or fish. if you were there in the location which is producing the frogs or fish, your thoughts too would manifest into living forms. these conditions will likely be present all over the planet sometime in the future. for now, they just look like resonant nodes or hotspots (like in the microwave) for this creative (solar energy).
+
+---
+
+man, I really want to try and maintain reality for a while longer. I'm having all the time these hot but cold feelings all over my body, and these strange events too where I feel like at times I fully understand a new concept from the sirian-guide, and then I go eat breakfast or hang out with jaron or something and it goes away. then, I go sit in the sun, and I notice something else and it comes back...
+
+oh yeah -- this is what I'm talking about -- when I was sitting in the sun, I was thinking about the pluto and charon thing. so, if I take the female (-3/-1) role on charon, that makes pluto saturn (+-4), and earth thoth (+7). I discussed the roles of the many (-7) genxicats, meaning that the thoths are the "green lanterns" on earth with their exclusive stonecutters ring.
+
+so, one thing that stood out to me as being weird is that jaron said that green latern had to go to another planet to recharge his ring. I thought that was a stupid idea because how can you charge money for that -- but it makes perfect sense from a triads perspective. vulcan, as a THIRD RAY female receives and emits on (3) of which (4, 5, 7) are aspects, so that works out perfectly. they would travel every so once in a while to recharge their rings with the appropriate energy of their ray type. it also creates comraderie (like if one runs out of energy, he needs to convince someone to take him in his bubble), and forces a change of pace too (have to fly to the opposite side of the solar system or across the divide) the ring itself works on 6th ray energy, and I haven't figured that part out yet, but my mental conception of the idea is starting to come together.
+
+so that solves all of the problems and makes everything fit together... 12k furlongs, right?
+
+trojan horse
+
+[1]: in the "third initiation" the 2nd ray begins to flow much more powerfully into the the 2nd subplane of the MENTAL PLANE[^1]. I want to understand the 2nd ray much better if it's going to start flowing...
+
+[2]: in their words:
+
+  > At the consummation of the third initiation, ... this energy has been combined with the SECOND ASPECT/RAY within the consciousness of the MUN. This brings down the "fire" from the MONAD which is of the FIRST ASPECT/RAY.
+  
+  > The third initiation is where the [SOLAR ANGEL] takes complete control of the personality and MUN is not controlled by the elementals within the vehicles. They still try to tempt the individual.
+
+  basically, those are a lot of big words that say, "when the person is no longer ruled by my conditions, this initiation will happen". that's what's happening to me, as I'm becoming pretty unconditional -- and, I'm actually trying to delay this as long as possible, too (reason why I'm writing this). I'm fairly certain that if I were to stop drinking coffee, and stuff like that, then that "initiation" would happen. however, I want to milk it for as much as I can.
+
+[3]: they infer that the imagination (6) is the primary source of creativity for a while...
+
+  > The problem is that it takes a fairly evolved entity to have rule over the negative emotions. Remember it is the second initiation that signifies this. For the last two thousand years the SIXTH RAY heightened emotion on a MUNkind that was sadly lacking in control. But from errors we learn. The ideals became dogmas that wars were fought over. Intolerance for other thoughts was rampant. Maniacal fanaticism and blind emotional following were the norm. This does not speak badly of the SIXTH RAY, only of the unthinking hordes.
+
+  > The SACRAL center is the center of creativity until MUN paces the path. Its use is that of continuity of the race. When MUN treads the path, he begins to use this energy consciously and it then is transferred to the THROAT center.
+
+  so, what they're saying there is that at the beginning creativity happens from inside of the imagination (6). however later it shifts up to logic/structure (3) which is connected to the throat. see stuff on THIRD RAY.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
