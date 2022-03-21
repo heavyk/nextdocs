@@ -40,7 +40,7 @@ I then heard about this martial arts technique called "effortless power"[^1] and
 
 in fact this whole mars and earth idea is exactly the application of this principal on a planetary scale. the major difference is that there is no battle, so there are no losers. I/we provide the feeling that they want to feel, and they put in the energetic intention of what they want accomplish, and we turn it into something that is wanted.
 
-I'm getting the impression while writing this that this is what the mitochondria does for the nuclear DNA and is the holy grail (11:55) that so many have been searching for. interesting. so, in that format, earth is the  mitochondria and mars is the nuclear? I'll have to think more on that... I don't know much about this stuff. the science papers are somewhat difficult for me to understand. I need a randall carlson of genetics I can ask a million questions :)
+I'm getting the impression while writing this that this is what the mitochondria does for the nuclear DNA and is the holy grail (11:55) that so many have been searching for. interesting. so, in that format, earth is the mitochondria and mars is the nuclear? I'll have to think more on that... I don't know much about this stuff. the science papers are somewhat difficult for me to understand. I need a randall carlson of genetics I can ask a million questions :)
 
 ---
 
@@ -11321,6 +11321,52 @@ I could also see that understanding the transition layers is actually a very big
 my problem with this system is that it is a continuum, and there are definite barriers where I moved from 3d to 4d or 5d perception, but I know from other (drug) experiences that it's very difficult to actually say exactly when one form of perception begins and another ends. the reason why I label temporal (5.1) and YHVH (5.2) is because they're just extensions of conceptual perception, and even though they do "look" very different (6d vs 7d), they are still further compartmentalisation of conceptual perception (1 dimension more removed from your source -- or 1 degree of separation greater perception of vibration similar to your own). these vibrations have always existed, but it took someone to figure out how to put lines around them and say, "this is your concept of you" and "this is your concept of you, over time" and "these are all variations of your concept of yourself that you've created, over time" etc.
 
 in reality, I believe anyone can take these vibrations and perceive them anyway they want to, and I think similar perception of vibration is ultimately what defines a "species" -- but what do I know -- there's probably an edge case for that one, but I doubt it, because your outward physical manifestation is a reflection of your conceptualisation of reality.
+
+### 2022-03-21 05:01 - just writing... dtp and more
+
+so, I finished [dividing the path](dtp/dtp) last night, and when I was reading the final section, [the mighty capstone](dtp/dtp#the-mighty-cap-stone), I was reminded of the sirian document where it states that the end of the 6th ray was ~1900, and from there began the 7th ray implementation. that section calls it the "6th day" and "7th day" (as in the biblical 7 days of creation). I also was reminded of a lot of the things the sirians said in the coming earth changes section.
+
+there was an interesting part in the @[dtp/dtp](chapter-3-6) where it says that toward the end of atlantis, technology was rendered nearly useless -- because it was far easier to travel around in astral form, because astral form was energetic enough to be able to interact with matter. the sirians said that your thoughts will manifest very rapidly in this new 7th ray energy.
+
+---
+
+so here's the deal: that book makes it sound like we should be having a significantly more pronounced time in this new energy, and while I am experiencing large energy upgrades[^1], I'm doing them consciously, which has been an option for anyone to do since the beginning of time. I would say that LOA is working faster now and more synchronicities are happening, but nothing like what the sirians (or kuthumi) are saying:
+
+    Control of thought will become more important than ever. Even today, with the old energy cycle, thoughts impact things. It's a slower process and the impact can be greater or less. In the future, the impact will be greater. Things will be affected at a faster pace. The power will be amplified. The mind and matter will be in constant feedback.
+
+    People will view this almost as a nightmare because they are not used to the power of the mind having an immediate effect. Today, the impact is slow but it is becoming more and more enhanced as the new energy pattern moves forward. People are seeing more of an impact with their thoughts. This is to be expected as the old energy winds down and the influence of the new energy begins to take hold.
+
+I just don't see that or anythting even close to that. those are predictions for 10y ago, too. so, I think something is up.
+
+as I was reading the end of dtp, it's talking about a great division that will occur, where one side goes the way with lucifer and his minions into materiality, while the other goes with the christ.
+
+so, let's just assume that happened, and we're on the lucifer timeline now. it seemed plainly obvious to me that what has happened is, using the leapfrogging-time-pickles concept, we probably went back and sabotaged the timeline quite a ways back (probably even prior to atlantis and such), with the effort of creating a 1000y window so that many "christs" can do their own christing. I shouldn't have said that; lemme back up...
+
+so, think for a moment that we're actually in 1022 instead of 2022, and the coming 7th ray is actually 900y away still. if there is a cycle, then you could move something a full cycle and no one would know the difference... like rewind the solar system a number of years (same day), the only thing that would say that we're years year off from the year we say we're in would be accurate measurements of the precession of the equinox over a timespan larger than the one we went back -- and even that can be fooled if you were able to figure out how to adjust the axis of rotation of the planet. so, I think feasibly, we could be in a different year than we think we're in and not know it because any evidence would be hidden by those running the show -- which if using a leapfrogging-time-pickles setup, would be pretty easy to compromise and install functioning automatons.
+
+let's just assume then for a moment that we have a full 1000y extra to work with before things start to get really nuts. meaning -- that all of the "nuts" reality we experience right now is just our own creating. it's more powerful because we believe we're in a different place than we really are; we expect reality to manifest faster -- so it does.
+
+I totally lost my train of thought on what are some of the things that can be done, but after reading this book, I'm really anti-"christs" at this point. it's hard to put that into words, so maybe I'll just let you read a few excerpts yourself...
+
+> Another cycle hath reached its end, and its last hour hath chimed. All that which is imperfect in the now-closed Sixth Day is come, in stately, measured but inexorable way to face judgment by the standard, Truth. Spot nor blemish can not hope to stand nor continue before it. Neither can aught be amended so as now to escape its karmic penalty, for the seal of its full time is set upon it. "The one acting unjustly, let him be unjust still; and the filthy one, let him be filthy still; and the righteous one, let him righteousness do still, and the holy one, let him be holy still. Lo, I come speedily, and the reward of me is with me, to give back unto each one as the work of him shall be found."
+
+> In the closing years of the spent cycle one deserted his helpless wife; verily, he really deserted his birthright in the New Age. Another sought, being weak-willed, to drown worries in wine; be but drowned his soul's advanced merits. A wife was faithless to her wedding vows; the Door of the New Time is fast against her. A thief stole, what? His own life's rewards. One there was who deprived another of physical life; he also erased his own name from TO-DAY'S roll-call. One swore to keep a vow, but broke it often; in this New Day, after the grave shall claim his physical being, be shall not again awaken, having lacked will to live.
+
+my goodness... this is the day to look forward to? the dawning of a new age?
+
+> When the Spirit in Man cometh fully to its own, "he shall rule them as with a rod of iron,", this riotous throng. Rule them to their own good; cut them off suddenly, even as Quong cut off the puma from furthering its own will. He shall destroy that theretofore unbridled animal, by the Cross converting it into a servitor to the Father. All things must become new TO-DAY, because conditions will soon so differ that they who would hold fast to the old will, find nothing either in Nature or elsewhere that will longer yield to the old powers.
+
+I noticed the puma bit -- one of the forms of genxicat was comfortable in -- and the iron rod part. I remembered the part of the woman clothed with the sun giving birth to a man who will rule the earth with an iron rod -- so I looked it up. it's also in rev. 2 where's he's telling the church that he's going to throw jezebel on to the bed for causing "servants to practise sexual immorality". then it says, "the one who conquers and keeps my works until the end, to him I will give authority over the nations and he will rule them with a rod of iron".
+
+so, it's saying that whomever can hold steady and fend off the lusts of satan/lucifer and his cohorts, he'll be given a position as world ruler/influencer and can rule them mercilessly, enforcing whatever he chooses to enforce.
+
+when I read that, I had this flash in my mind about this future thing... so, imagine that we bump up the "keep my works to the end" up to 1000y (a full cycle), and at the end of the cycle, we'll jump back into the timeline and do it a different way (cause we're ensured to arrive to that moment where we can consciously manipulate and insert ourselves back into the timeline -- temporal (5.1) perception), meanwhile, they'll be able to rule that world that we peace out of however they want to.
+
+we'll just keep iterating on it building more and more power until the sun is completely unstoppable (see the inspiration/resonance with my present moment?) and then the "Second Death" can no longer be avoided.
+
+you see, in a system where we're making harder and harder timelines for ourselves to go through, we need rulers with more and more oppressive regimes (iron rods). so if they wanted to play along they could get their full power positions and conditions that they want meanwhile ruling us with an iron rod.
+
+[1]: I presently can't try to go to sleep near to sunrise because I start to leave my body... so I'm writing this and a few other things till about 8am. I probably shoulda went to sleep earlier, but I wanted to finish the book.
 
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
