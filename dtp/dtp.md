@@ -57,22 +57,31 @@ This book is dedicated to progressive thinkers everywhere, but especially to the
 
 ### index - INDEX
 
-- BOOK I @[dtp/dtp](book-1)
-  - CHAPTER I - @[dtp/dtp](chapter-1-1)
+- [GLOSSARY](#glossary)
+
+- [AMANUENSIS' PREFACE](#preface)
+
+- [LETTER FROM PHYLOS, AUTHOR OF THIS HISTORY](#letter-from-the-author)
+
+- [A MARVELOUS PREDICTION](#a-marvelous-prediction)
+
+- [BOOK I](#book-1)
+
+  - [CHAPTER I](#chapter-1-1)
    - Atlantis, Queen of the Sea and of the world.
    - Zailm's pilgrimage to the top of Pitach Rhok to worship his Deity.
    - He finds gold.
-   - The volcanic eruption--he is almost overtaken by lava flow, but escapes.   
+   - The volcanic eruption--he is almost overtaken by lava flow, but escapes.
 
-  - CHAPTER II - @[dtp/dtp](chapter-1-2)
+  - [CHAPTER II](#chapter-1-2)
    - Caiphul, capital of Atlantis, and its people, its form of Government; politics and marvelous mechanical features.
    - Excerpts from labor laws.
-   - Electrodic transit system.  
+   - Electrodic transit system.
 
-  - CHAPTER III - @[dtp/dtp](chapter-1-3)
-   - Zailm determines his course of studies as he believes Incal has directed.  
+  - [CHAPTER III](#chapter-1-3)
+   - Zailm determines his course of studies as he believes Incal has directed.
 
-  - CHAPTER IV - @[dtp/dtp](chapter-1-4)
+  - [CHAPTER IV](#chapter-1-4)
     - Physical science as understood by the Poseidii, and the prime principles upon which it was based.
     - "Incal Malixetho: i.e. God is immanent in Nature" was first--to this they appended--"Axte Incal, Axtuce Mun" translated "To know God is to know all worlds what ever".
     - They held that but One Substance existed, and but One Energy, the one being Incal externalized, and the other His Life in action in His Body.
@@ -83,56 +92,56 @@ This book is dedicated to progressive thinkers everywhere, but especially to the
       - heat and power conduction to whatever distance without material connection
       - transmuted metals--obtained, by electrical action
       - water from the atmosphere.
-      - These, and many others, were in common use. - (Some of these things approach re-discovery, but the reader must remember that the book here indexed was finished in 1886, when the modern world knew them not. It knew not the Cathode Ray till 1896).  
+      - These, and many others, were in common use. - (Some of these things approach re-discovery, but the reader must remember that the book here indexed was finished in 1886, when the modern world knew them not. It knew not the Cathode Ray till 1896).
 
-  - CHAPTER V - @[dtp/dtp](chapter-1-5)
+  - [CHAPTER V](#chapter-1-5)
     - Zailm's life in Caiphul.
     - The Rai of the Maxin Laws.
     - Acquaintance with the prophet.
-    - Visit to the Emperor's Palace--an interview with the Emperor.  
+    - Visit to the Emperor's Palace--an interview with the Emperor.
 
-  - CHAPTER VI - @[dtp/dtp](chapter-1-6)
+  - [CHAPTER VI](#chapter-1-6)
     - No good thing can ever perish.
-    - Synopsis of the Origin of the Poseidii.  
+    - Synopsis of the Origin of the Poseidii.
 
-  - CHAPTER VII - @[dtp/dtp](chapter-1-7)
+  - [CHAPTER VII](#chapter-1-7)
     - Religion of the Poseidii.
 
-  - CHAPTER VIII - @[dtp/dtp](chapter-1-8)
-    - A Grave Prophecy of Zailm's future.  
+  - [CHAPTER VIII](#chapter-1-8)
+    - A Grave Prophecy of Zailm's future.
 
-  - CHAPTER IX - @[dtp/dtp](chapter-1-9)
+  - [CHAPTER IX](#chapter-1-9)
     - Curing Crime.
     - Zailm called to criminal court as witness.
-    - Treatment of the criminals.  
+    - Treatment of the criminals.
 
-  - CHAPTER X - @[dtp/dtp](chapter-1-10)
+  - [CHAPTER X](#chapter-1-10)
     - Zailm offered the position of Secretary of Records--bringing him in close contact with the Rai, and all of the Princes, which he accepts.
-    - He is requested to go on an errand of courtesy to the country of the Suernii--a nation much more advanced in mystic knowledge than the Poseidii.  
+    - He is requested to go on an errand of courtesy to the country of the Suernii--a nation much more advanced in mystic knowledge than the Poseidii.
 
-  - CHAPTER XI - @[dtp/dtp](chapter-1-11)
-    - Recital of Princess Lolix regarding an exhibition of Magic power.  
+  - [CHAPTER XI](#chapter-1-11)
+    - Recital of Princess Lolix regarding an exhibition of Magic power.
 
-  - CHAPTER XII - @[dtp/dtp](chapter-1-12)
+  - [CHAPTER XII](#chapter-1-12)
     - The unexpected happens.
-    - Prince Menax reveals his affection for Zailm and asks him to be his son.  
+    - Prince Menax reveals his affection for Zailm and asks him to be his son.
 
-  - CHAPTER XIII - @[dtp/dtp](chapter-1-13)
-    - The language of the Soul.  
+  - [CHAPTER XIII](#chapter-1-13)
+    - The language of the Soul.
 
-  - CHAPTER XIV - @[dtp/dtp](chapter-1-14)
+  - [CHAPTER XIV](#chapter-1-14)
     - The adoption of Zailm.
     - Description of the Incalithlon, or Great Temple,--The Incalix Mainin.
     - The Rai of the Maxin.
     - Establishment of the Maxin or Unfed Fire of Incal and the Book of the Law.
-    - Rai Gwauxln and Incalix Mainin "Sons of the Solitude."  
+    - Rai Gwauxln and Incalix Mainin "Sons of the Solitude."
 
-  - CHAPTER XV - @[dtp/dtp](chapter-1-15)
+  - [CHAPTER XV](#chapter-1-15)
     - Zailm's mother deserts him and returns to the mountain.
     - Brain fever.
-    - The vase of malleable glass for Ernon, Rai of Suern, with Poseid inscription.  
+    - The vase of malleable glass for Ernon, Rai of Suern, with Poseid inscription.
 
-  - CHAPTER XVI - @[dtp/dtp](chapter-1-16)
+  - [CHAPTER XVI](#chapter-1-16)
     - The aerial voyage to Suern.
     - Parting two miles above terra firma.
     - The storm.
@@ -141,12 +150,12 @@ This book is dedicated to progressive thinkers everywhere, but especially to the
     - Friends at home appear in the mirror of the Naim.
     - The Suernii a strange and angry people, rebelling against the rule of the Sons of the Solitude, who strove to lift them up.
     - Death of Rai Ernon.
-    - His body, by command of Rai Gwauxln, taken back to Caiphul to pass through the Unfed Fire.  
+    - His body, by command of Rai Gwauxln, taken back to Caiphul to pass through the Unfed Fire.
 
-  - CHAPTER XVII - @[dtp/dtp](chapter-1-17)
-    - Impressive funeral of Rai Ernon, attended by the Sons of the Solitude.  
+  - [CHAPTER XVII](#chapter-1-17)
+    - Impressive funeral of Rai Ernon, attended by the Sons of the Solitude.
 
-  - CHAPTER XVIII - @[dtp/dtp](chapter-1-18)
+  - [CHAPTER XVIII](#chapter-1-18)
     - Rai Gwauxln tenders Zailm Suzerainty over the land of Suern.
     - He hesitates, as he is yet an undergraduate at the Xioquithlon; but as the Emperor promises him that the Governor whom as Envoy-in-Special of the Rai of Poseid, he (Zailm) had appointed over Suernis should execute the duties of the position until himself should be legally capable of doing so, he accepts the almost imperial honor, and is dismissed to the completion of the pleasure trip interrupted by the death of Rai Ernon.
     - They visit the Umaurean (present American) colonies of Poseid, which are described.
@@ -157,36 +166,36 @@ This book is dedicated to progressive thinkers everywhere, but especially to the
     - Visit to the copper mines, in the present Lake Superior region. Present of a knife of tempered copper.
     - Incalia, west of the chain now known as the Rocky Mountains. Toward home, East, then South.
     - Forsaking the realms of air for the depths of the sea at the rate of a mile a minute. (Illustration.)
-    - Reproved by his father over the naim for recklessness.  
+    - Reproved by his father over the naim for recklessness.
 
-  - CHAPTER XIX - @[dtp/dtp](chapter-1-19)
+  - [CHAPTER XIX](#chapter-1-19)
     - Home again.
     - The problem of teaching the Suernii.
     - These people, having lost their seeming magic power, require tuition in the arts of life.
     - Zailm and his vice-regents accomplish this.
     - The latter records of this people to be found in the history of the Judaic race.
     - Death of Lolix's father; her indifference at hearing of it.
-    - Slumbering of conscience.  
+    - Slumbering of conscience.
 
-  - CHAPTER XX - @[dtp/dtp](chapter-1-20)
+  - [CHAPTER XX](#chapter-1-20)
     - Duplicity.
     - Graduation at the Xioquithlon.
     - Festivities in honor of the graduates.
-    - Sadness of the Emperor at his nephew's wrong-doing.  
+    - Sadness of the Emperor at his nephew's wrong-doing.
 
-  - CHAPTER XXI - @[dtp/dtp](chapter-1-21)
+  - [CHAPTER XXI](#chapter-1-21)
     - The mistake of a life.
     - The demand of karma.
     - Atonement is not undoing.
     - Christ atoned--we must undo.
-    - Reincarnation is expiation.  
+    - Reincarnation is expiation.
 
-  - CHAPTER  XXII - @[dtp/dtp](chapter-1-22)
+  - [CHAPTER  XXII](#chapter-1-22)
     -Zailm asks Anzimee to be his wife.
     - She confides her joy to Lolix, who drops fainting to the floor, but does not betray the secret of Zailm and herself.
     - In an interview she resigns him to his new love, but the shock unsettles her mind, and in the evening she appears before the assembly in the Great Temple, where the announcement of the coming marriage is being made, and a most exciting scene occurs, closing with the dramatic death of Lolix, through the magic art of the High Priest.
 
-  - CHAPTER XXIII - @[dtp/dtp](chapter-1-23)
+  - [CHAPTER XXIII](#chapter-1-23)
     - A witness before the criminal.
     - Remorse of Zailm.
     - Speeding away on his vailx, for three months he wanders in agony of soul, that takes him for a time out of the body.
@@ -203,104 +212,155 @@ This book is dedicated to progressive thinkers everywhere, but especially to the
     - Astral visit of Mainin, the High Priest.
     - He promises to send help, but comes again taunting Zailm, blaspheming Deity.
     - A glorious visitor appears, who blasts Mainin into outer darkness.
-    - To Zailm He gave "Peace and Sleep." (Death.)  
+    - To Zailm He gave "Peace and Sleep." (Death.)
 
-  - CHAPTER XXIV - @[dtp/dtp](chapter-1-24)
+  - [CHAPTER XXIV](#chapter-1-24)
     - Awaking in the astral he returned to camp.
     - Succeeding in making his men understand that they must return to Caiphul, he returned thither by exertion of will power, to be greeted by the Emperor, who alone could see him, thus: "What! Zailm! Dead! Dead!" Entrance to and "life" in Devachan.
     - References to earlier earth lives.
-    - Completion of Devachan and reincarnation on earth.  
 
-INTERLUDE @[dtp/dtp](interlude)
+- [INTERLUDE](#interlude)
+  - [SCENE I](#shasta-1)
+  - [SCENE II](#shasta-2)
+  - [SCENE III](#shasta-3)
+  - [SCENE IV](#shasta-4)
+  - [SCENE V](#shasta-5)
+  - [SCENE VI](#shasta-6)
+  - [SCENE VII](#shasta-7)
 
-  SCENE I - @[dtp/dtp](shasta-1)
+- [BOOK II](#book-2)
 
-  SCENE II - @[dtp/dtp](shasta-2)
-
-  SCENE III - @[dtp/dtp](shasta-3)
-
-  SCENE IV - @[dtp/dtp](shasta-4)
-
-  SCENE V - @[dtp/dtp](shasta-5)
-
-  SCENE VI - @[dtp/dtp](shasta-6)
-
-  SCENE VII - @[dtp/dtp](shasta-7)
-
-BOOK II @[dtp/dtp](book-2)
-
-  - CHAPTER I - @[dtp/dtp](chapter-2-1)
+  - [CHAPTER I](#chapter-2-1)
     - In another personality--that of Walter Pierson, an American citizen.
     - Orphaned in infancy--roving life on the sea.
     - Is a soldier in the war of Secession.
     - Next is a gold miner in California.
     - Quong: companionship with the Tehin on trips among the mountains.
     - Philosophizing.
-    - Meeting with the grizzly bear and witnessing his docility at Quong's command.  
+    - Meeting with the grizzly bear and witnessing his docility at Quong's command.
 
-  - CHAPTER II - @[dtp/dtp](chapter-2-2)
+  - [CHAPTER II](#chapter-2-2)
     - The Lothinian Brotherhood.
     - Reclamation of one on the wrong path.
     - The mystic note.
     - Offer to sell his mine; reason, want to go "home."
     - The mountain lion and the deer.
     - Visit to the Sach in Mount Shasta.
-    - Description of the lodge-room.  
+    - Description of the lodge-room.
 
-  - CHAPTER III - @[dtp/dtp](chapter-2-3)
+  - [CHAPTER III](#chapter-2-3)
     - Pentecostal address of Mendocus, Master.
     - Invocation ceremonies.
-    - A visitor from Pertoz--Mol Lang--"has come to induct one of their number, Quong, into the 'land of the departed,' and another, Walter Pierson, or 'Phylos,' to take home with himself."  
+    - A visitor from Pertoz--Mol Lang--"has come to induct one of their number, Quong, into the 'land of the departed,' and another, Walter Pierson, or 'Phylos,' to take home with himself."
 
-  - CHAPTER IV - @[dtp/dtp](chapter-2-4)
-    - Visit to one enjoying life's rewards in the astral life; "As a man soweth so shall he reap." Visit to a Devachanic home. Temporary return to earth. Difference between Devachanic concepts and the objects conceived of. Who was the daughter?  
+  - [CHAPTER IV](#chapter-2-4)
+    - Visit to one enjoying life's rewards in the astral life
+    - "As a man soweth so shall he reap."
+    - Visit to a Devachanic home.
+    - Temporary return to earth.
+    - Difference between Devachanic concepts and the objects conceived of.
+    - Who was the daughter?
 
-  - CHAPTER V - @[dtp/dtp](chapter-2-5)
-    - Mol Lang is home in Hesper. " It is good to be at home again." Meeting with Phyris, his Alter Ego.  
+  - [CHAPTER V](#chapter-2-5)
+    - Mol Lang is home in Hesper.
+    - "It is good to be at home again."
+    - Meeting with Phyris, his Alter Ego.
 
-  - CHAPTER VI - @[dtp/dtp](chapter-2-6)
-    - Sohma's teachings. The better methods. The key to all wisdom. Phyris' thought creations. In the library. Books transported from earth to Hesper--(Venus.) Magic glasses. Magical growing of fruits through the power of the symbol.  
+  - [CHAPTER VI](#chapter-2-6)
+    - Sohma's teachings.
+    - The better methods.
+    - The key to all wisdom.
+    - Phyris' thought creations.
+    - In the library.
+    - Books transported from earth to Hesper--(Venus.)
+    - Magic glasses.
+    - Magical growing of fruits through the power of the symbol.
 
-  - CHAPTER VII - @[dtp/dtp](chapter-2-7)
-    - Phyris' magical painting which was a prophecy. Mol Lang's teachings. Why it is more wrong to take animal life than vegetable life. "Thou canst not compensate the animal for its lost opportunities, but a plant thou mayest." Farewell of Mol Lang. Other inhabitants of Hesper. A heritor of many lives. Faith replaced by knowledge. Of such is the kingdom of heaven. Phyris tells him of previous lives, but says that he will forget them "until he comes again." She teaches of the Crisis of Transfiguration. She takes him back to the Sagum in Mt. Shasta. Parting for a little time.  
+  - [CHAPTER VII](#chapter-2-7)
+    - Phyris' magical painting which was a prophecy.
+    - Mol Lang's teachings.
+    - Why it is more wrong to take animal life than vegetable life.
+    - "Thou canst not compensate the animal for its lost opportunities, but a plant thou mayest."
+    - Farewell of Mol Lang.
+    - Other inhabitants of Hesper.
+    - A heritor of many lives.
+    - Faith replaced by knowledge.
+    - Of such is the kingdom of heaven.
+    - Phyris tells him of previous lives, but says that he will forget them "until he comes again."
+    - She teaches of the Crisis of Transfiguration.
+    - She takes him back to the Sagum in Mt. Shasta.
+    - Parting for a little time.
 
-  - CHAPTER VIII - @[dtp/dtp](chapter-2-8)
-    - Awaking in the Sagum. Taking up earth-life again. "Do unto others as thou wouldst be done by." Sale of the mine. Travel. Meeting with Lizzie, the reclaimed one. Home to Washington. Marriage.  
+  - [CHAPTER VIII](#chapter-2-8)
+    - Awaking in the Sagum.
+    - Taking up earth-life again.
+    - "Do unto others as thou wouldst be done by." Sale of the mine.
+    - Travel.
+    - Meeting with Lizzie, the reclaimed one.
+    - Home to Washington.
+    - Marriage.
 
-  - CHAPTER IX - @[dtp/dtp](chapter-2-9)
-    - A little retrospection--Meeting with the chela in Hindostan--a message from Mendocus. Stirring of Hesperian memories. Remembrance of a visit to the Sun with Sohma. The Navaz currents. Discontent with life. Death of little daughters. Starting on a sea voyage with Elizabeth. Storm and wreck and--Death. Home again to Pertoz. Home, now; Earth, with its ills, left behind forever, and Karma satisfied.  
+  - [CHAPTER IX](#chapter-2-9)
+    - A little retrospection--Meeting with the chela in Hindostan--a message from Mendocus.
+    - Stirring of Hesperian memories.
+    - Remembrance of a visit to the Sun with Sohma.
+    - The Navaz currents.
+    - Discontent with life.
+    - Death of little daughters.
+    - Starting on a sea voyage with Elizabeth.
+    - Storm and wreck and--Death.
+    - Home again to Pertoz.
+    - Home, now; Earth, with its ills, left behind forever, and Karma satisfied.
 
-  - CHAPTER X - @[dtp/dtp](chapter-2-10)
-    - After the years, returned. Phyris as tutor and guide. Creation of a body for use in Hesperus. Teaching by the Voice of the Spirit. "Go into the Holy Place." (Illustration.)  
+  - [CHAPTER X](#chapter-2-10)
+    - After the years, returned.
+    - Phyris as tutor and guide.
+    - Creation of a body for use in Hesperus.
+    - Teaching by the Voice of the Spirit.
+    - "Go into the Holy Place." (Illustration.)
 
-  - CHAPTER XI - @[dtp/dtp](chapter-2-11)
-    - "To be or not to be! That is the question." The critical ordeal--temptation met and conquered.  
+  - [CHAPTER XI](#chapter-2-11)
+    - "To be or not to be! That is the question."
+    - The critical ordeal--temptation met and conquered.
 
-BOOK III @[dtp/dtp](book-3)
-  - CHAPTER I - @[dtp/dtp](chapter-2-1)
-    - "Ye shall reap as ye have sown." Perception.  
+- [BOOK III](#book-3)
 
-  - CHAPTER II - @[dtp/dtp](chapter-2-2)
-    - Victory and Praise. Life ended. Being just begun.  
+  - [CHAPTER I](#chapter-3-1)
+    - "Ye shall reap as ye have sown."
+    - Perception.
 
-  - CHAPTER III - @[dtp/dtp](chapter-2-3)
-    - Retrospection: Phyris and Phylos scan their Atlantean lives--Lolix and Elizabeth.  
+  - [CHAPTER II](#chapter-3-2)
+    - Victory and Praise.
+    - Life ended.
+    - Being just begun.
 
-  - CHAPTER IV - @[dtp/dtp](chapter-2-4)
-    - The decline of Atlantis during several thousand years. Decadence of Science. Aerial navigation and many scientific instruments forgotten. National depravity and ruin. Blood sacrifice in religion. Beginning of human sacrifice. Disappearance of the Maxin Book and the Unfed Light. Earthquake and deluge and sinking of Atlantis. Retrospective look at the time of Zailm in the continent of Lemuria, ages before Atlantis. Captives offered up to the gods. A sacrifice for love. (Illustration.)  
+  - [CHAPTER III](#chapter-3-3)
+    - Retrospection: Phyris and Phylos scan their Atlantean lives--Lolix and Elizabeth.
 
-  - CHAPTER V - @[dtp/dtp](chapter-2-5)
-    - Karmic retrospection: "Man's inhumanity to man."  
+  - [CHAPTER IV](#chapter-3-4)
+    - The decline of Atlantis during several thousand years.
+    - Decadence of Science.
+    - Aerial navigation and many scientific instruments forgotten.
+    - National depravity and ruin.
+    - Blood sacrifice in religion.
+    - Beginning of human sacrifice.
+    - Disappearance of the Maxin Book and the Unfed Light.
+    - Earthquake and deluge and sinking of Atlantis.
+    - Retrospective look at the time of Zailm in the continent of Lemuria, ages before Atlantis.
+    - Captives offered up to the gods.
+    - A sacrifice for love.
+    - (Illustration.)
 
-  - CHAPTER VI - @[dtp/dtp](chapter-2-6)
-    - Why Atlantis perished.  
+  - [CHAPTER V](#chapter-3-5)
+    - Karmic retrospection: "Man's inhumanity to man."
 
-  - CHAPTER VII - @[dtp/dtp](chapter-2-7)
-    - The Transfiguration.  
+  - [CHAPTER VI](#chapter-3-6)
+    - Why Atlantis perished.
 
-  - NOTE BY THE AUTHOR  @[dtp/dtp](note-by-the-author)
-
-  - THE MIGHTY CAP STONE  @[dtp/dtp](the-mighty-cap-stone)
+  - [CHAPTER VII](#chapter-3-7)
+    - The Transfiguration.
+  - [NOTE BY THE AUTHO](#note-by-the-author)
+  - [THE MIGHTY CAP STON](#the-mighty-cap-stone)
 
 
 ### glossary - GLOSSARY
@@ -3473,7 +3533,11 @@ This experience had a great effect on her, so that she looked more and more into
 
 And I said: "Yes, dear wife, it must be! Good-by, and God bless you, for we will truly meet again, beyond the great deep River, with Him." And so in death I held her close.
 
-Do you longer marvel at her contented smile in the photographically true picture of the death scene executed by Phyris? And I, friend? Was not the special crime of Zailm atoned for, in that I brought her to know God's law, karma, and in making my life a living sacrifice for, and at the last dying in an effort to save her to happiness and enlightenment, was that score not requited, fulfilled, and Jesus the Christ obeyed? Sins, evil deeds, lies, thefts, adulteries, murders even, are in themselves only the shadows of lives turned to face away from God into outer darkness; they are weak places in the chain of character; unsymmetrical places in what Christ our Lord would have perfect, even as He is perfect. For in Him, the Perfect One, are none of these things, nor shadow of turning. He beseeches us, saying, "Be ye likewise perfect." "Come unto Me, all ye weary, and I will give you rest." So, in His divine love He proposes Himself to take all these (to Him) shadows that to us are so horribly real. Of ourselves we can do nothing, for as we undo through the lapse of ages, we also do fresh evil. Not shadows to us. But He is the Light of the world. So the glooms we see while we look from His way, will cease to be if we turn to His following. If we have kept a the laws from youth upwards, yet, that is but doing no sin of commission. Behind is an unrequited eternity. And, brethren, friends, the time is short (Cor. vii: 29.) He will take these sins, and it shall be to us as if we took a boxful of shadow from a cellar and opened it out in the noontide rays of the sun. But while the sins are all by Him atoned; while when the days mount to years, the one robbed or tied about, or otherwise injured, finds the Father's laws have made it a up to him, if he only also knows that Father too, still we have a work. Jesus, the Great Master, took all when we, aweary, asked him. But we, while doing these crimes, walked in darkness. The tree of our lives could grow nothing but sickly growths, pale leaves, dwarfed buds, blighted fruits, in that darkness of the soul. We may have ever seemed righteous to others; may have even cried "Lord, Lord" with our lips. But if our deeds knew Him not we were growing our life-tree with fair bark, but decayed wood. So, after He has taken on Himself our sins, and they are ceased, yet with our faces to Himwards, we see our tree of character, pale, sickly, with few leaves, and no fruit, standing in God's karmic light. Will we work to make green leaves, and fruit in plenty? If we follow Him, yes. For He always said in language unmistakable to those having ears to hear, that only those who obeyed the Father's law, God's Will, could hope to win salvation. He will remove our burdens; will mediate and atone, but we must undo the errors with the strength He gives; we must take each our cross and follow Him, and He, the Good Shepherd, will lead us Home, to the immortal heights, where is no more death, nor sin, nor suffering, neither parting. In Him we have, all of us, time, strength, opportunity to undo, after He has atoned and shown us the way. He is that Way. And we, letting Him dwell in us, make our life the Path. Them can be no homegoing till, in Him, we become our own Path. If there was another way, I would tell you. For I am come before His second coming. It is near. Beware, lest night find you idle. Say not I knew Him not, either as Zailm, or as Pierson. To know Him by lip service is one; to know Him by life lived as He bade us, is another. Having lived, now I speak. Be ye doers of the Word, not hearers only.
+Do you longer marvel at her contented smile in the photographically true picture of the death scene executed by Phyris? And I, friend? Was not the special crime of Zailm atoned for, in that I brought her to know God's law, karma, and in making my life a living sacrifice for, and at the last dying in an effort to save her to happiness and enlightenment, was that score not requited, fulfilled, and Jesus the Christ obeyed? Sins, evil deeds, lies, thefts, adulteries, murders even, are in themselves only the shadows of lives turned to face away from God into outer darkness; they are weak places in the chain of character; unsymmetrical places in what Christ our Lord would have perfect, even as He is perfect. For in Him, the Perfect One, are none of these things, nor shadow of turning. He beseeches us, saying, "Be ye likewise perfect." "Come unto Me, all ye weary, and I will give you rest." So, in His divine love He proposes Himself to take all these (to Him) shadows that to us are so horribly real. Of ourselves we can do nothing, for as we undo through the lapse of ages, we also do fresh evil. Not shadows to us. But He is the Light of the world. So the glooms we see while we look from His way, will cease to be if we turn to His following.
+
+If we have kept a the laws from youth upwards, yet, that is but doing no sin of commission. Behind is an unrequited eternity. And, brethren, friends, the time is short (Cor. vii: 29.) He will take these sins, and it shall be to us as if we took a boxful of shadow from a cellar and opened it out in the noontide rays of the sun. But while the sins are all by Him atoned; while when the days mount to years, the one robbed or tied about, or otherwise injured, finds the Father's laws have made it a up to him, if he only also knows that Father too, still we have a work. Jesus, the Great Master, took all when we, aweary, asked him. But we, while doing these crimes, walked in darkness. The tree of our lives could grow nothing but sickly growths, pale leaves, dwarfed buds, blighted fruits, in that darkness of the soul. We may have ever seemed righteous to others; may have even cried "Lord, Lord" with our lips. But if our deeds knew Him not we were growing our life-tree with fair bark, but decayed wood. So, after He has taken on Himself our sins, and they are ceased, yet with our faces to Himwards, we see our tree of character, pale, sickly, with few leaves, and no fruit, standing in God's karmic light. Will we work to make green leaves, and fruit in plenty? If we follow Him, yes. For He always said in language unmistakable to those having ears to hear, that only those who obeyed the Father's law, God's Will, could hope to win salvation. He will remove our burdens; will mediate and atone, but we must undo the errors with the strength He gives; we must take each our cross and follow Him, and He, the Good Shepherd, will lead us Home, to the immortal heights, where is no more death, nor sin, nor suffering, neither parting.
+
+In Him we have, all of us, time, strength, opportunity to undo, after He has atoned and shown us the way. He is that Way. And we, letting Him dwell in us, make our life the Path. Them can be no homegoing till, in Him, we become our own Path. If there was another way, I would tell you. For I am come before His second coming. It is near. Beware, lest night find you idle. Say not I knew Him not, either as Zailm, or as Pierson. To know Him by lip service is one; to know Him by life lived as He bade us, is another. Having lived, now I speak. Be ye doers of the Word, not hearers only.
 
 [1]: Job xxxviii, 7.
 
@@ -3485,7 +3549,9 @@ Wonderingly, wholly delighted, I looked on Phyris now, nor deemed it lack of pro
 
 No passion was in me, no prompting to be sentimental--no, that was gone with Earth's feverish dream.
 
-How familiar all things appeared when at last I was come home. For six Hesperian months [^1] I did nothing but wander in my psychic form in this Elysium, this stellar garden of the Hesperides. In the other time most of my visit was spent in the company of Sohma or Mol Lang. But now Sohma was otherwise engaged. Mol Lang, too, was occupied in the work that attracted him, that of guiding, teaching and helping mankind, en masse, as well as individually; that portion of our race yet on Earth. Unconscious of his agency, or of how, with others equally great, Mol Lang was influencing the affairs of men, these men on Earth went on with their doings, fondly thinking that themselves were doing all. How little humanity on Earth knows that it is thus guided. Yet our Father gives it to His occult children to lead their lesser brethren, just as He gave it to Jesus, one of the Sons of Light, higher than any other, who was an incarnation of the Christ. Perhaps human acts were not, are not, guided individually, as a rule, although exceptions exist. But just as shot, running in grooves, is checked by the leaden pellets before and behind, so the acts of one man depend on the acts of others; these on others still, until finally it appears that the mass is influenced in the whole, and every individual in the mass has his or her acts unconsciously controlled by what are termed circumstances, fates, adverse or propitious, inexorable, the grooves in which they run. That is to say, humanity is ordered in its action by what may be named the Universal Karma. So long as men grope in the dark, ignorant of occult laws, so long must they produce this inexorable karma. It is fate, self-made, running from life to life, incarnation after incarnation, unavoidable, for it is horn of the infraction of the laws of the Creator.
+How familiar all things appeared when at last I was come home. For six Hesperian months [^1] I did nothing but wander in my psychic form in this Elysium, this stellar garden of the Hesperides. In the other time most of my visit was spent in the company of Sohma or Mol Lang. But now Sohma was otherwise engaged. Mol Lang, too, was occupied in the work that attracted him, that of guiding, teaching and helping mankind, en masse, as well as individually; that portion of our race yet on Earth. Unconscious of his agency, or of how, with others equally great, Mol Lang was influencing the affairs of men, these men on Earth went on with their doings, fondly thinking that themselves were doing all. How little humanity on Earth knows that it is thus guided. Yet our Father gives it to His occult children to lead their lesser brethren, just as He gave it to Jesus, one of the Sons of Light, higher than any other, who was an incarnation of the Christ.
+
+Perhaps human acts were not, are not, guided individually, as a rule, although exceptions exist. But just as shot, running in grooves, is checked by the leaden pellets before and behind, so the acts of one man depend on the acts of others; these on others still, until finally it appears that the mass is influenced in the whole, and every individual in the mass has his or her acts unconsciously controlled by what are termed circumstances, fates, adverse or propitious, inexorable, the grooves in which they run. That is to say, humanity is ordered in its action by what may be named the Universal Karma. So long as men grope in the dark, ignorant of occult laws, so long must they produce this inexorable karma. It is fate, self-made, running from life to life, incarnation after incarnation, unavoidable, for it is horn of the infraction of the laws of the Creator.
 
 Even Mol Lang, before he passed and triumphed at the Crisis, to which I was soon to come, and which he experienced a century ago, was controlled by the great, Universal Karma. But in passing that ordeal he passed from finite life to everlasting, and became a law unto himself. And then, free of karma, he returned to minister to those bound by circumstances. Mol Lang was become more than man. He had taken of the Tree of Knowledge, also of the Tree of Life. [^2] Such as he utilize the elementals, those non-human, non-embodied powers of the air. They find in mankind the tendency to sin, and use it, so that the erring ones mount the ladder on rungs, each of which is a conquered fault. The great religious movements, wars, and the fields of commerce, all furnish experiences for mankind. Do some seem cruel, evil? Yet each is a part of the scheme of the Creator, each is a tool in the hands of His ministers, and all teach that except a man, as part of the Eternal Whole, works for that Whole, subduing the selfish animal in himself, he can in no wise come to the Father.
 
@@ -3499,7 +3565,7 @@ I went to his special apartments. There he said:
 
 "Hitherto thou hast but an astral body, but now thou needest a physical body as a base of action, for now must thou learn of thine own self. Sleep, that I may gather material atoms about thine astral."
 
-I immediately slept, as I lay on the couch where he had bidden me recline. When I awoke be was regarding me, and, for a moment forgetful, I sat up.
+I immediately slept, as I lay on the couch where he had bidden me recline. When I awoke he was regarding me, and, for a moment forgetful, I sat up.
 
 "Arise," said Mol Lang. I obeyed, and found myself clothed in flesh. Thus I became a Hesperite. I was now of the same apparent age as Phyris, and was thereby seemingly dispossessed of some twenty-five years. Before any lengthy period there came to shine in me somewhat of the Spirit-nature, and as the same ego shone in Phyris, so therefore we grew into similitude of each other. Because of this indwelling Spirit, Nature was become an open book, and occult wisdom addressed me from all sides. Soon I could leave the body at will. Other steps succeeded, and I grew with marvelous rapidity to know many of the minor things reserved by our Father for His aspiring children.
 
@@ -3515,7 +3581,7 @@ Again the Voice said:
 
 "It is not well; thou who hast reaped, must now saw. I am the Eternal Spirit in thee; obey me. Thou art now able to stand in my presence; able to see; able to hear; able to speak; conqueror of desire, attainer of self-knowledge. Thou hast seen thy soul in its bloom, heard the voice of Peace. Go thou and read my writing in the Hall of Learning, which is My Works. Read.
 
-"To stand--is to have confidence. To hear--is to have opened the door of thy soul. To see is to have attained perception of My Works. To speak--is to have gotten the power of helping others. To have conquered desire-is to have acquired control of self. To have self-knowledge-is to have come unto Me, whence thou art able impartially to view the personal man that was thyself. To have seen thy soul in its bloom-is to have had a momentary glimpse of that transfiguration which shall eventually make thee more than Man.
+"To stand--is to have confidence. To hear--is to have opened the door of thy soul. To see is to have attained perception of My Works. To speak--is to have gotten the power of helping others. To have conquered desire--is to have acquired control of self. To have self-knowledge--is to have come unto Me, whence thou art able impartially to view the personal man that was thyself. To have seen thy soul in its bloom--is to have had a momentary glimpse of that transfiguration which shall eventually make thee more than Man.
 
 "Stand aside in the coming battle, and though thou fightest, be not thou the warrior. Look for Me, and let Me fight in thee. Obey My orders for battle. Obey Me as if I were thyself. My orders thy desires--for I am thyself, yet infinitely more than thee. Look for Me, lest in the fever of battle thou pass Me. I will not know thee if thou knowest not Me. If thy cry come to Me, lo! I will fight in thee and will fill the void in thee. Then shalt thou be unwearied. Without Me thou shalt fall; with Me thou canst not fall, for I am the Spirit.
 
@@ -3547,8 +3613,6 @@ Around that Holy Place were forms of fire. Ink and paper can give little idea of
 
 For weeks I stayed in the Holy Place, and came not out to eat or drink, for I was wholly sustained by the Spirit. At the day of the Great Peace this Spirit must enter in and I be in It and It be in me forever more. But no guide could exist, no law for the Trial, except my strength of ages. Even the Spirit would be veiled in that ordeal.
 
-
-
 [1]: About 112 terrestrial days. The solar year of Venus is 224.7 earthly days.
 
 [2]: Revelations xxii; 14.
@@ -3563,6 +3627,7 @@ For weeks I stayed in the Holy Place, and came not out to eat or drink, for I wa
 
 [7]: St. Luke: iv, 2.
 
+
 ### chapter-2-11 - CHAPTER XI - TEXT: ST. MATTHEW IV
 
     "To be, or not to be: that in the question."
@@ -3570,21 +3635,17 @@ For weeks I stayed in the Holy Place, and came not out to eat or drink, for I wa
 
 That was indeed the question when I arose one morning, and knew that the event of the Crisis would that day decide whether or not I had Eternal Life, whether I was for the Spirit, or the Second Death.
 
-I arose and went forth into the wilderness of the mountains, accompanied only by a pet animal, somewhat resembling a fawn, which went with me everywhere. In a woodland mountain
+I arose and went forth into the wilderness of the mountains, accompanied only by a pet animal, somewhat resembling a fawn, which went with me everywhere. In a woodland mountain meadow I traced with my staff the symbol Δ, and it instantly became crimson fire, which leaped and rose and fell, unbroken, continuously. I was inside, the pet animal grazed on the meadow. After making the symbol Δ, the Good Being introduced to my knowledge by Mol Lang was with me, and it spake much to me, and I to It. It said.
 
-meadow I traced with my staff the symbol tri, and it instantly became crimson fire, which leaped and rose and fell, unbroken, continuously. I was inside, the pet animal grazed on the meadow. After making the symbol tri, the Good Being introduced to my knowledge by Mol Lang was with me, and it spake much to me, and I to It. It said.
-
-"Lo! Thy time cometh when I tri must leave thee, although I tri would do for thee, but it is so that no being can endure for another the fierce Trial, neither help them in its midst. Yet I tri say unto thee, I tri believe thou wilt win, for have I not known thee, lo! many ages? But now is that Trial come for thee, when thy past, in all days and lives thou hast ever had, shall rise tip and thou shalt be judged thereby, whether thou shalt become perfect, and thy name be Phylos , or whether thou shalt fail, and have again all the bitterness of life to go through during ages to come. The Father saith through the Spirit, 'Every idle word that men speak, they shall give an account thereof.' How much more then of their actions?"
+"Lo! Thy time cometh when I Δ must leave thee, although I Δ would do for thee, but it is so that no being can endure for another the fierce Trial, neither help them in its midst. Yet I Δ say unto thee, I Δ believe thou wilt win, for have I not known thee, lo! many ages? But now is that Trial come for thee, when thy past, in all days and lives thou hast ever had, shall rise tip and thou shalt be judged thereby, whether thou shalt become perfect, and thy name be Phylos, or whether thou shalt fail, and have again all the bitterness of life to go through during ages to come. The Father saith through the Spirit, 'Every idle word that men speak, they shall give an account thereof.' How much more then of their actions?"
 
 I listened mutely, for what record was against me? It might be evil, or good, or, worse, that lukewarmness which the Spirit will not entertain, but rather heat or coldness of nature.
 
-"Fear not," said Ovias, tri "for not in vain hast thou lived. Neither expect a record written concerning thee. For know this that the principles inculcated by the Christ-Spirit which overshone Buddha and all the mightiest of the Earth, incarnating in each, and Itself being Son of God, not they, until by union of It they became Sons of God--know that if thou hast made these principles both warp and woof of thy character, thou hast no need to fear. For this sort of fabric is strong, and was that which Jesus meant when He said, and says ever, Timeless One that He is, "Lo, I am with you always even until the end of the world." Not one individual act shall be brought forth to accuse thee, but each, all and every greatest thought, and least, and word or deed, in all thy many incarnations--these have formed thy character. Is
+"Fear not," said Ovias, Δ "for not in vain hast thou lived. Neither expect a record written concerning thee. For know this that the principles inculcated by the Christ-Spirit which overshone Buddha and all the mightiest of the Earth, incarnating in each, and Itself being Son of God, not they, until by union of It they became Sons of God--know that if thou hast made these principles both warp and woof of thy character, thou hast no need to fear. For this sort of fabric is strong, and was that which Jesus meant when He said, and says ever, Timeless One that He is, "Lo, I am with you always even until the end of the world." Not one individual act shall be brought forth to accuse thee, but each, all and every greatest thought, and least, and word or deed, in all thy many incarnations--these have formed thy character. Is that character, then, woven of the woof provided by Christ, and shown forth in the Divine personality of Jesus, and illuminating Buddha, and Zoroaster, Moses, Manu and other Salvators? If that be the cloth, then indeed shalt thou prevail, though no one sustain thine arm. But if not that weaving, lo! thou shalt fail, and not even I Δ could save thee. I Δ go. Be thou brave, and may the Comforter be in thee. Peace."
 
-that character, then, woven of the woof provided by Christ, and shown forth in the Divine personality of Jesus, and illuminating Buddha, and Zoroaster, Moses, Manu and other Salvators? If that be the cloth, then indeed shalt thou prevail, though no one sustain thine arm. But if not that weaving, lo! thou shalt fail, and not even I tri could save thee. I tri go. Be thou brave, and may the Comforter be in thee. Peace."
+All that day I stood there, and was not weary. Night came About the midnight hour my pet cried out in terror, and came leaping toward me. As it came I warded it from the Δ flame, and it stood outside, trembling. But I saw nothing to alarm it, save Mol Lang, approaching over the level around me. He hesitated not, but seemed about to cross the line of fire, as he could, but mindful of my perilous position I said:
 
-All that day I stood there, and was not weary. Night came About the midnight hour my pet cried out in terror, and came leaping toward me. As it came I warded it from the tri flame, and it stood outside, trembling. But I saw nothing to alarm it, save Mol Lang, approaching over the level around me. He hesitated not, but seemed about to cross the line of fire, as he could, but mindful of my perilous position I said:
-
-"Stop! If thou art Mol Lang, then come. But if only a tempting shape, woe unto thee if thou shalt cross that line, for tri It shall punish thee as only an immortal can punish."
+"Stop! If thou art Mol Lang, then come. But if only a tempting shape, woe unto thee if thou shalt cross that line, for Δ It shall punish thee as only an immortal can punish."
 
 He came not; instead he ceased to appear as Mol Lang, and was another sort. This tempter said:
 
@@ -3598,9 +3659,7 @@ I stayed on unmolested until I caught myself napping, and knowing this to be the
 
 "Not so," whispered the Voice, "all thine elements, both physical and psychic, must attend thee here."
 
-But again I dozed, and quickly aroused myself, for the scene all about me was changed. The mountain meadow was gone, and in place of night seemed day. I gazed, seemingly, on a scene where all the races of men and immortals were gathered under the sweep of my prescient eye. I seemed to be taken
-
-over this realm, and a fair, godlike being in appearance was my guide. Yet in caution, I sheathed myself from head to foot in the tri flame as in an armor, at which my guide smiled, but said nothing. He took me with the speed of thought, so that we seemed to go from star to star, now crossing vast interstellar spaces, now come on fresh realms. All these realms were inhabited by creatures of human shape, or at least they had human attributes. Before me they all bowed and worshipped, for my guide said to them: "See thy master." Otherwise they were all engaged in pursuit of pleasure. The multiplex passions of man on Earth were indulged without fear of penalty. My fair guide said:
+But again I dozed, and quickly aroused myself, for the scene all about me was changed. The mountain meadow was gone, and in place of night seemed day. I gazed, seemingly, on a scene where all the races of men and immortals were gathered under the sweep of my prescient eye. I seemed to be taken over this realm, and a fair, godlike being in appearance was my guide. Yet in caution, I sheathed myself from head to foot in the Δ flame as in an armor, at which my guide smiled, but said nothing. He took me with the speed of thought, so that we seemed to go from star to star, now crossing vast interstellar spaces, now come on fresh realms. All these realms were inhabited by creatures of human shape, or at least they had human attributes. Before me they all bowed and worshipped, for my guide said to them: "See thy master." Otherwise they were all engaged in pursuit of pleasure. The multiplex passions of man on Earth were indulged without fear of penalty. My fair guide said:
 
 "These are souls in whom I created certain passions and appetites, and shall I punish them for indulging, without stint, traits I have given? Now, tell me, why should all creation not have free license to get pleasure as it may? My creatures do. There is no sort of restraint placed by me on their free pursuit of carnal things, lusts, appetites. See, they are happy! For a time I am giving thee control of them. Through indulgence of their passions they beget a sort of vital magnetism, and as their present ruler, it thrills thee like new wine."
 
@@ -3608,17 +3667,15 @@ As my guide said, the sight and sensing of all this license did thrill me ecstat
 
 "Oh! thou art blind! Behold, thou shalt have these realms for thine, and have absolute authority, so thy word shall be life or death to these people, if thou wilt. Here, too, into this eternal joy, thou mayest bring Phyris, and lo! forever thou shalt with her do thy will, and hers, and no penalty be exacted. Wilt thou take this gift of supremacy? It is free; I ask no return for it all. Only take it."
 
-Oh! where was my knowledge, gained from the many lives, and from the Voice? Gone! Gone, else I had known at once not to accept the alluring gift. I was offered all this free, thereby violating the divine law, which never allows something for nothing. But I gathered my tri armor about me,
+Oh! where was my knowledge, gained from the many lives, and from the Voice? Gone! Gone, else I had known at once not to accept the alluring gift. I was offered all this free, thereby violating the divine law, which never allows something for nothing. But I gathered my Δ armor about me, lest this Being, who seemed so fair and good, were not so, and if not good, its touch might be fatal. Then I said:
 
-lest this Being, who seemed so fair and good, were not so, and if not good, its touch might be fatal. Then I said:
+"It must be that thou art arrayed in the livery of heaven to serve Satan better. Demon, thou offerest that which subordinates all other beings in these realms to my will. This realm is governed by pleasure, passion, appetite, lust, all selfish; and no penalty set upon wild license. These carnalities would conquer me, too, if I accepted--me, who am otherwise about to become immortal, more than Man, karmaless. These are selfish. Pleasure so gotten is the essence of selfishness. Truly, thou must be creator of it all, since it is selfish. It is thine. It could be mine? Yea, but only because over me thou wouldst reign. I am not now thy subject; nor will I be. Only the Unknown God is my Master. Get thee hence, behind me!"
 
-"It must be that thou art arrayed in the livery of heaven to serve Satan better. Demon, thou offerest that which subordinates all other beings in these realms to my will. This realm is governed by pleasure, passion, appetite, lust, all selfish; and no penalty set upon wild license. These carnalities would conquer me, too, if I accepted-me, who am otherwise about to become immortal, more than Man, karmaless. These are selfish. Pleasure so gotten is the essence of selfishness. Truly, thou must be creator of it all, since it is selfish. It is thine. It could be mine? Yea, but only because over me thou wouldst reign. I am not now thy subject; nor will I be. Only the Unknown God is my Master. Get thee hence, behind me!"
-
-The scene slowly faded, like mist in the sunlight. There came a lull, and I hoped the battle was over, for I was weary. But I stood on the meadow again, with the tri fire leaping, quivering in crimson pulses around the lines. Nothing could break that guardian flame, for it was a symbol of the perfect state of being of another, but non-human, race. Only perfection could avail against it. Perfection of good might; so, too, perfection of evil might; but the latter had not yet come against it. I even doubted the existence of any perfection of evil. What offer, after all, had been made but of the things which were mine by reason of the divine Sonship? God giveth his children control over each other for good, and for evil also, through mental influence. What more absolute sovereignty is there than love, exercised as He hath ordained. None. While I reflected, a soft and lovely vision came, and lo, Phyris stood before me.
+The scene slowly faded, like mist in the sunlight. There came a lull, and I hoped the battle was over, for I was weary. But I stood on the meadow again, with the Δ fire leaping, quivering in crimson pulses around the lines. Nothing could break that guardian flame, for it was a symbol of the perfect state of being of another, but non-human, race. Only perfection could avail against it. Perfection of good might; so, too, perfection of evil might; but the latter had not yet come against it. I even doubted the existence of any perfection of evil. What offer, after all, had been made but of the things which were mine by reason of the divine Sonship? God giveth his children control over each other for good, and for evil also, through mental influence. What more absolute sovereignty is there than love, exercised as He hath ordained. None. While I reflected, a soft and lovely vision came, and lo, Phyris stood before me.
 
 "Art thou Phyris?" I asked.
 
-"Could any but Phyris disregard the tri flame about thee?" she replied, penetrating the barrier, and sinking by my side. This seemed truth, for Ovias tri was perfect being of Its own condition. Only perfection can stand with perfection.
+"Could any but Phyris disregard the Δ flame about thee?" she replied, penetrating the barrier, and sinking by my side. This seemed truth, for Ovias Δ was perfect being of Its own condition. Only perfection can stand with perfection.
 
 At last I heard her sigh softly, sadly. Her eyes brimmed with tears.
 
@@ -3636,9 +3693,7 @@ At last I heard her sigh softly, sadly. Her eyes brimmed with tears.
 
 "'I marvel thereat. But never mind. Aid thee to find him? What if I love thee, I who am a vowed celibate? What if, in my ability, I say Zailm shall no more come back?'
 
-"Then, Phylos, I begged for thee as for my own life! I implored his mercy. At last the stern lines of his face relaxed, and he kindly said: 'I would not keep thee apart; I was but testing thy love for him. Yet my aid must receive compensation. Not money, nor jewels, nor power; these have I in abundance. One only thing in thy gift will I have; listen: in other days, when I came to knowledge of Nature's deeper secrets, I was curious to experiment, and I sought the aid, all confident of my power to subdue my servant, of the host of Satan, one demon. But my power I overestimated, and I was subdued, a victim. So one day coming my soul is forfeit to Lucifer to pay my debt and its ever growing size. One only way can I avert this, by delivering another, although less experienced soul, in place of mine. until this night a maiden and her lover will seek me at the hour of worship, that I may solemnize their marriage already long published. But I shall be gone,
-
-purposely. Thou wilt be there, and except thee, only those two. Now, they are weak, but have never sinned.
+"Then, Phylos, I begged for thee as for my own life! I implored his mercy. At last the stern lines of his face relaxed, and he kindly said: 'I would not keep thee apart; I was but testing thy love for him. Yet my aid must receive compensation. Not money, nor jewels, nor power; these have I in abundance. One only thing in thy gift will I have; listen: in other days, when I came to knowledge of Nature's deeper secrets, I was curious to experiment, and I sought the aid, all confident of my power to subdue my servant, of the host of Satan, one demon. But my power I overestimated, and I was subdued, a victim. So one day coming my soul is forfeit to Lucifer to pay my debt and its ever growing size. One only way can I avert this, by delivering another, although less experienced soul, in place of mine, until this night a maiden and her lover will seek me at the hour of worship, that I may solemnize their marriage already long published. But I shall be gone, purposely. Thou wilt be there, and except thee, only those two. Now, they are weak, but have never sinned.
 
 "Their natures incline to error. All I ask of thee is that when they ask for me, tell thou them I am gone, but say, 'Thou art come to be wed?' then smile and say, again, 'Only the simple folk publish their matings; the wise are never wedded, yet are wedded in verity.' Say no more. If they take that mild hint, they will sin, and lose their souls, but I, the great Incalix, shall be saved. I will in any event bring thee Zailm again, for perchance thy hint will not be acted upon.'
 
@@ -3648,39 +3703,31 @@ purposely. Thou wilt be there, and except thee, only those two. Now, they are we
 
 "I did so. But false to Incal, Mainin was false to me, and he brought not Zailm back. When Rai Gwauxln told me of Zailm's death, I, too, died of shame and a broken heart. The man and woman took my hint, and died after years of well-concealed, direful crime. But I Phylos? In my consent to Mainin's will, I sold my soul to the Arch Fiend, Mainin's master. So my life is forfeit unless I can be helped. Forfeit, much though I know, and hard as I have striven to do right and atone, all in vain! Yet, my twin soul, thou art able to save me. If thou savest me not, then shall the Eternal Law cause me to die the second death. My soul will be annihilated, my Spirit, which was unable to unite with my soul, shall go back to the Source, our Father. And then, being a soul, but thy Spirit also my Spirit, thou must also perish. Save thyself then as well as me."
 
-"How?" I queried, soul-sick to the depths, and suffering such intensity of misery as almost of itself to cut off my life. Sick, because I felt Phyris, my other self, my pure angel, to be
-
-in mortal danger, herself in a fatal mire, and threatened with soul death. And because she was, I was also, for our Spirit was the same.
+"How?" I queried, soul-sick to the depths, and suffering such intensity of misery as almost of itself to cut off my life. Sick, because I felt Phyris, my other self, my pure angel, to be in mortal danger, herself in a fatal mire, and threatened with soul death. And because she was, I was also, for our Spirit was the same.
 
 "How?" I again queried, whispered.
 
 "Thus! The man whom, as Anzimee, I led astray, hath incarnated several times since then, each time worse and worse, until now, a man on Earth, he is about to confront a temptation which, if he fall, will aim his course ever henceforth for evil, and final death of his soul. If he yield not now, he may or may not at last escape, but the delay will put him beyond use to us, and we shall surely die, whether he does or not. Aye! we shall if thou actest not now. If his soul is now made forfeit, we shall surely escape; so saith Mainin, who is blasted and in outer darkness, yet owneth me; 'tis an only, though slender hope. O Phylos, think! think!! On the one hand eternal life, brightness, and a chance to atone for all our sins, perhaps even rescue this man at last, but on the other, death, blasting into outer darkness and eternal demonhood."
 
-In the calm night she stood before me and besought me to act for her, her hands clasped, her eyes streaming, her agony fearful to see. Act for her whom I loved better than life, and for myself; save our lives that all might be well. How? By using my occult power to whisper to a man, already sin-sodden, on a distant planet, a man who might not conquer his temper even though I withheld my influence. Do what? Influence him to sign his name as Governor of a great state to a denial of pardon to two men about to die for murder. Yet they were innocent. I knew it; the Governor knew it, because he had already sinned horribly in using his office, money and power to weave a net of circumstantial evidence which would hang his two enemies for a murder committed by his own hand. He would, in an hour more, sign or not sign the fateful paper, for at the last his courage was faltering. All I needed to do was to occultly encourage him. Already so sinful, was it likely he ever would turn from evil ways to good? Barely possible. But I was to psychologize him to pass this opportunity and complete his double murder, in order to save Phyris,
-
-whom I so loved, whose Spirit was my Spirit, whose soul's destruction meant my soul's destruction also. It was so easy to do!
+In the calm night she stood before me and besought me to act for her, her hands clasped, her eyes streaming, her agony fearful to see. Act for her whom I loved better than life, and for myself; save our lives that all might be well. How? By using my occult power to whisper to a man, already sin-sodden, on a distant planet, a man who might not conquer his temper even though I withheld my influence. Do what? Influence him to sign his name as Governor of a great state to a denial of pardon to two men about to die for murder. Yet they were innocent. I knew it; the Governor knew it, because he had already sinned horribly in using his office, money and power to weave a net of circumstantial evidence which would hang his two enemies for a murder committed by his own hand. He would, in an hour more, sign or not sign the fateful paper, for at the last his courage was faltering. All I needed to do was to occultly encourage him. Already so sinful, was it likely he ever would turn from evil ways to good? Barely possible. But I was to psychologize him to pass this opportunity and complete his double murder, in order to save Phyris, whom I so loved, whose Spirit was my Spirit, whose soul's destruction meant my soul's destruction also. It was so easy to do!
 
 All crimes are easy. But while the agony of despair numbed me, a ray of hope came, and the question arose, would this act save us? Had not God said, "Thou shalt not kill"; and would not the double murder be on me as much as on the Governor? Then I arose, and said, calmly,--Oh! how frightfully, despairingly calm!
 
-"Lo, then. If we shall both die into outer darkness, yet will I never do this thing. Thou, who art more precious than mine own life, must not ask this! Saith not our Father: 'Whoso shall do evil, of him will be exacted the penalty, of some thirty, some sixty, some an hundredfold'? And if I, we, shall consign a soul to darkness, thinkest thou, oh! my spirit mate, we shall not the more surely go thither ourselves? Then, although these words seal thy death, and mine, yet will I refuse to sin. I will not do thy will. I have not erred so but that I can put fort h my hand and, by the aid of the Christ-Spirit, cut off the progress of thy sin, and thou mayest go back to the time, place, where thy soul was until thine error, and recarnify on Earth so often as needful to expunge and atone this sinful act. And I will await thee where my soul is now progressed, during the years, though they be tens of thousands, until pure, thou mayest rejoin me. I will guide thee, so that thou wilt sin no more during expiation. Aye, except that I must stay to so guide, I would go again into the life of Earth with thee; but I must stay that my light be clear. All this will I do, or if vicarious atonement were a possibility in the Universe, I would go for thee, and let thee stay. But condemn the man on Earth, and ourselves with him, no! I can not so sin."
+"Lo, then. If we shall both die into outer darkness, yet will I never do this thing. Thou, who art more precious than mine own life, must not ask this! Saith not our Father: 'Whoso shall do evil, of him will be exacted the penalty, of some thirty, some sixty, some an hundredfold'? And if I, we, shall consign a soul to darkness, thinkest thou, oh! my spirit mate, we shall not the more surely go thither ourselves? Then, although these words seal thy death, and mine, yet will I refuse to sin. I will not do thy will. I have not erred so but that I can put forth my hand and, by the aid of the Christ-Spirit, cut off the progress of thy sin, and thou mayest go back to the time, place, where thy soul was until thine error, and recarnify on Earth so often as needful to expunge and atone this sinful act. And I will await thee where my soul is now progressed, during the years, though they be tens of thousands, until pure, thou mayest rejoin me. I will guide thee, so that thou wilt sin no more during expiation. Aye, except that I must stay to so guide, I would go again into the life of Earth with thee; but I must stay that my light be clear. All this will I do, or if vicarious atonement were a possibility in the Universe, I would go for thee, and let thee stay. But condemn the man on Earth, and ourselves with him, no! I can not so sin."
 
 With a convulsive shudder, and a despair in her starry eyes that smote me so that I cried aloud to God in my agony, Phyris said in a mournful wail, as of a lost soul:
 
-"O Phylos, think well; for it might be that thou art hedged about with that sort of righteousness that maketh the Angels
-
-to weep and the Fiend to smile!"
+"O Phylos, think well; for it might be that thou art hedged about with that sort of righteousness that maketh the Angels to weep and the Fiend to smile!"
 
 "Phyris, beloved, I have spoken! I alter not."
 
-She moved away with her hands covering her agonized face, sobbing in her intensity of despair. When she came to the tri fire she said:
+She moved away with her hands covering her agonized face, sobbing in her intensity of despair. When she came to the Δ fire she said:
 
 "Phylos, I could enter. My power is fled, and I can not go out; put it aside."
 
-I looked from where I lay almost dying in my pain of an immortal hurt, and found that I too was too weak to lower the barrier. Then I looked within my being, and I saw that no more was the Light of the Spirit within me, but gone forth. And then I knew what that awful appeal of Jesus of Nazareth meant, that He, too, in the fearful strain of his Human trial of the Crisis had beheld the Spirit in Him wane, when He cried out: "Eloi, Eloi, Lama Sabacthani." Like Him I cried out to the Father, and in that instant the Light returned, and with a roll as of mighty thunder the darkness broke, and the night which had been around me fled, so I saw that the sun was high in the heavens, and I alone had been in a local gloom. The tri flame paled, and "Phyris" knelt before me and implored mercy. Then I knew that Phyris, had not been near. I knew that God the Father was entered in me to dwell forever, and that the perfection of evil had failed in its last, most subtle, horrible and insidious attack, its last attempt to open the door to downwardness for me. My strength out of all the lives had withstood, and, all fainting, I was come unto Christ. All the weary way of woe I had journeyed, atoning as I came. And now my karma I had blotted out, and in me was Life Everlasting. Gloria in Excelsis! Laus Deo! The song I heard was the song of the starry hosts of God.
+I looked from where I lay almost dying in my pain of an immortal hurt, and found that I too was too weak to lower the barrier. Then I looked within my being, and I saw that no more was the Light of the Spirit within me, but gone forth. And then I knew what that awful appeal of Jesus of Nazareth meant, that He, too, in the fearful strain of his Human trial of the Crisis had beheld the Spirit in Him wane, when He cried out: "Eloi, Eloi, Lama Sabacthani." Like Him I cried out to the Father, and in that instant the Light returned, and with a roll as of mighty thunder the darkness broke, and the night which had been around me fled, so I saw that the sun was high in the heavens, and I alone had been in a local gloom. The Δ flame paled, and "Phyris" knelt before me and implored mercy. Then I knew that Phyris, had not been near. I knew that God the Father was entered in me to dwell forever, and that the perfection of evil had failed in its last, most subtle, horrible and insidious attack, its last attempt to open the door to downwardness for me. My strength out of all the lives had withstood, and, all fainting, I was come unto Christ. All the weary way of woe I had journeyed, atoning as I came. And now my karma I had blotted out, and in me was Life Everlasting. Gloria in Excelsis! Laus Deo! The song I heard was the song of the starry hosts of God.
 
-Then the Voice spoke: "Thy trial is over; I am well pleased. It is written in sacred Scripture, 'Ye must be born again, of water and of the Spirit.' Even so hast thou been born now. Of water, which is the world of matter. And of the Spirit, which is I entered in. But the death of the carnal body, and rebirth in the new, is but night after day, and day after night. To these successive days and nights of the soul, that Scripture
-
-refers not. Thou hast been born in the Earth many times, and each time thy carnal body hath died. But the rebirth was not that rebirth of the waters and of me. Those incarnations did but prepare thee out of the waters of materiality for Me. But now thou art born of that and of Me, and become a Son of Light, and at one with the All-Father, and like unto the Nazarene. Carry thou My Word unto all men, that all may come likewise unto Me who will, even as thou, following the first Man who came unto Me, have thyself also come."
+Then the Voice spoke: "Thy trial is over; I am well pleased. It is written in sacred Scripture, 'Ye must be born again, of water and of the Spirit.' Even so hast thou been born now. Of water, which is the world of matter. And of the Spirit, which is I entered in. But the death of the carnal body, and rebirth in the new, is but night after day, and day after night. To these successive days and nights of the soul, that Scripture refers not. Thou hast been born in the Earth many times, and each time thy carnal body hath died. But the rebirth was not that rebirth of the waters and of me. Those incarnations did but prepare thee out of the waters of materiality for Me. But now thou art born of that and of Me, and become a Son of Light, and at one with the All-Father, and like unto the Nazarene. Carry thou My Word unto all men, that all may come likewise unto Me who will, even as thou, following the first Man who came unto Me, have thyself also come."
 
 Now when I saw Phyris come, I knew that it was she in verity. She, too, had had her Trial, and equal temptations had been offered her, and been withstood, ninety centuries of years before, however. How say ye: "I thought twin souls must fight the final fight together, and now you say nine thousand years were between?" Behold, friend, time is but measure of energy exerted. We wrought the same work, so were together. Is Paul more saved than the latest regenerated soul? Yet Paul knew Jesus Christ near two thousand years earlier. It had seemed to us both that the Great Crisis had occupied centuries. Unto us, as we stood clasping each other, came a glorious vision, and the Voice spoke, saying:
 
@@ -3692,28 +3739,24 @@ Friend, thou mayest have trouble in understanding this strange union. Yet, ponde
 
 ## book-3 - BOOK THE THIRD
 
+### chapter-3-1 - CHAPTER I - YE SHALL REAP AS YE HAVE SOWN. THE PERCEPTION
 
-### chapter-3-1 - CHAPTER I
+Suppose the struggle had proven me wanting, and the verdict had been, "Mene Mene Tekel Upharsin"? 'Then my--our--fate would have been that of Mainin of Caiphul. To me who know the dread meaning of this fate, it is more utterly frightful to contemplate than it can be to thee. It means being a brother to devils, and subjection to Satan, who could so cunningly, awfully tempt as we were tempted, and when successful, make a servant of the victim, ever to pile up fresh karma. And such karma as Satan's service makes is worse in a moment than the wickedest man could pile up in a long lifetime. It means such servitude until--when? Forever? Until the end of material things.
 
-YE SHALL REAP AS YE HAVE SOWN. THE PERCEPTION
+Then, when the heavens are rolled as a scroll and melt in fervent heat, Satan (Lucifer) shall, with his minions, be cast into that lake of fire which is the second death: which meaneth that the force, the energy of the rebels, that which has made them distinct, potent souls through all the past, shall become depersonalized, and disindividualized, cast into the sum of the Fire of Elements, which form the forces of Nature, the winds, odic and magnetic and electric forces. But annihilation there is not, death there is not, though there be such a change as constitutes the destruction of the union between soul and Spirit, the return of the first to the great impersonal Vis Natura, the return of the other to Him who created life.
 
-Suppose the struggle had proven me wanting, and the verdict had been, "Mene Mene Tekel Upharsin"? 'Then my--our--fate would have been that of Mainin of Caiphul. To me who know the dread meaning of this fate, it is more utterly frightful to contemplate than it can be to thee. It means being a brother to devils, and subjection to Satan, who could so cunningly, awfully tempt as we were tempted, and when successful, make a servant of the victim, ever to pile up fresh karma. And such karma as Satan's service makes is worse in a moment than the wickedest man could pile up in a long lifetime. It means such servitude until--when? Forever? Until the end of material things. Then, when the heavens are rolled as a scroll and melt in fervent heat, Satan (Lucifer) shall, with his minions, be cast into that lake of fire which is the second death: which meaneth that the force, the energy of the rebels, that which has made them distinct, potent souls through all the past, shall become depersonalized, and disindividualized, cast into the sum of the Fire of Elements, which form the forces of Nature, the winds, odic and magnetic and electric forces. But annihilation there is not, death there is not, though there be such a change as constitutes the destruction of the union between soul and Spirit, the return of the ]first to the great impersonal Vis Natura, the return of the other to Him who created life. Then, after millions of years the Father will gather the fervid elements into nebulae, star-plasm, worlds, suns, systems, and a "new heaven and a new earth" shall come forth. Then will the depersonalized rebel host begin to reincarnate
+Then, after millions of years the Father will gather the fervid elements into nebulae, star-plasm, worlds, suns, systems, and a "new heaven and a new earth" shall come forth. Then will the depersonalized rebel host begin to reincarnate in protoplasmic life, and thence evolutionize up, up, up along the myriad incarnations until, after an eternity of matter, they come once more to human conditions, to another Crisis, to win or fail, and either, like Sisyphus, run again the weary course, or else inherit hard-won entrance to unconditional being. There is not nor can be, any death of the Spirit, but of the individuality only. Study this well, my friend, for such is the fate of evildoers who sell to Satan, because such is Satan's portion.
 
-in protoplasmic life, and thence evolutionize up, up, up along the myriad incarnations until, after an eternity of matter, they come once more to human conditions, to another Crisis, to win or fail, and either, like Sisyphus, run again the weary course, or else inherit hard-won entrance to unconditional being. There is not nor can be, any death of the Spirit, but of the individuality only. Study this well, my friend, for such is the fate of evildoers who sell to Satan, because such is Satan's portion. Our Father hath provided a Way. It is the sharp, knife-edge Path, whereon all things so evenly balance that there is turning neither to the right nor left, but steady, even pursuit of the Path, wherein all who travel that way, contain themselves in all things, in eating and drinking, in sleeping and all those things which cause the cares of this world. Those who shall be accounted worthy, without further incarnation, to obtain the resurrection from the body of materiality neither marry nor are given in marriage, but must receive the Kingdom of God even as if still little children. Yet whoso doeth not so, it shall not be eternally counted against them, but only till another incarnation. It must be that the things of sensation which are an offense unto the Spirit occur, but karmic woe will attend the offender until he finds the Path and travels therein. Hear, if hearing and understanding be in thee, for these are the words of the Master.
+Our Father hath provided a Way. It is the sharp, knife-edge Path, whereon all things so evenly balance that there is turning neither to the right nor left, but steady, even pursuit of the Path, wherein all who travel that way, contain themselves in all things, in eating and drinking, in sleeping and all those things which cause the cares of this world. Those who shall be accounted worthy, without further incarnation, to obtain the resurrection from the body of materiality neither marry nor are given in marriage, but must receive the Kingdom of God even as if still little children. Yet whoso doeth not so, it shall not be eternally counted against them, but only till another incarnation. It must be that the things of sensation which are an offense unto the Spirit occur, but karmic woe will attend the offender until he finds the Path and travels therein. Hear, if hearing and understanding be in thee, for these are the words of the Master.
 
-----------------
 
-CHAPTER II
+### chapter-3-2 - CHAPTER II - JOB xxxviii:7
 
-JOB xxxviii:7
-
-Contemplating the victory in us of the Father, we chanted a song in answer to that of the Sons of God who were our fellows. Perfect at last, in rapport with all the law fulfilled, karmaless, immortal, beside Jesus, no more need to incarnate, Life was ended, but Being just commenced. Paradoxical? In all the aeons of time we had Life, but Being, which hath no
-
-beginning, neither end, and is not under the dominion of Time, every ego hath ever from the Father. But Life hath beginning, so also it must have end; it hath end. If its conditions are strong enough to enchain for aye, then the soul is diverted from its ego to the tracks of Life, and is then heritor of death. Only if a soul forfeit not to Life its hold on Being-on its ego-shall it not die. Sin is the error of turning from Being unto Life, whereof the shadow is death. The soul that sinneth and turneth not away from finite life and the conditions thereof, it shall die.
+Contemplating the victory in us of the Father, we chanted a song in answer to that of the Sons of God who were our fellows. Perfect at last, in rapport with all the law fulfilled, karmaless, immortal, beside Jesus, no more need to incarnate, Life was ended, but Being just commenced. Paradoxical? In all the aeons of time we had Life, but Being, which hath no beginning, neither end, and is not under the dominion of Time, every ego hath ever from the Father. But Life hath beginning, so also it must have end; it hath end. If its conditions are strong enough to enchain for aye, then the soul is diverted from its ego to the tracks of Life, and is then heritor of death. Only if a soul forfeit not to Life its hold on Being-on its ego-shall it not die. Sin is the error of turning from Being unto Life, whereof the shadow is death. The soul that sinneth and turneth not away from finite life and the conditions thereof, it shall die.
 
 Down all the realms of light echoed the paeans of praise, as when the "Morning stars sang together and the Sons of God shouted for joy."
 
-CHAPTER III
+### chapter-3-3 - CHAPTER III
 
 "Fair forms and hoary seers of ages put, an in one mighty sepulcher."
 
@@ -3721,30 +3764,24 @@ For a little while yet Phyris and I were not wholly one entity. But we were come
 
 "My twin, let us scan the past; let us draw aside the curtain of bygone ages, and see the record of the Book of Life, mirror of all events, sights, sounds, shapes, all things. We can do this, because we are karmaless, deathless, and are at one with the Father of Being, seeing, knowing as he knows, because He is in us."
 
-We pondered the scenes of our Atlantean life, lives, and I saw ill-fated, sweet Princess Lolix, to whom I had been her ideal. Where had her sad soul gone when Mainin petrified its clay? In the imperishable record we saw where her life-line crossed ours. In her Poseid devachan she had found her dream of life seem realized. Reborn into activity, again her life-line crossed mine, her heritage pursued her, and she conquered it, for Lolix's individuality was Elizabeth's
-
-(my wife). Her crime in Poseid was expiated, and so, too, was mine. Karma was fulfilled there.
+We pondered the scenes of our Atlantean life, lives, and I saw ill-fated, sweet Princess Lolix, to whom I had been her ideal. Where had her sad soul gone when Mainin petrified its clay? In the imperishable record we saw where her life-line crossed ours. In her Poseid devachan she had found her dream of life seem realized. Reborn into activity, again her life-line crossed mine, her heritage pursued her, and she conquered it, for Lolix's individuality was Elizabeth's (my wife). Her crime in Poseid was expiated, and so, too, was mine. Karma was fulfilled there. [^1]
 
 Man's course upward to God is so blind, so untaught, instinctively like the sunward turning vine. I had so confidently, in the Sagum, taken a step irrevocable, except for Mendocus; and then had fallen again into blind darkness, despair, but instinctively true to law and to Elizabeth, the object of my efforts--so upward, till at last I had gained the immortal heights. So had my alter ago, Phyris. Down below were the deserts of life, and fair appearing fruits, apples of Sodom. These ashes are good, for they cause the soul to essay the heights.
 
 Poseid, and all the lives, had meted us a large share of gall fruit, but our errors required it, and Karma is a sure paymaster.
 
-Sin begot karma and karma had exacted pay. Thus had I, for I am not relating Phyris' history, given up hopes, happiness, as one gives his open veins in the Sahara to quench the thirst of his friend. By this abdication I had lost my life and found it again. Karma, as the long record showed, was not always requiring pay; for every good act I had ever done I saw that I had been fully paid in kind my every jot. These were providences and benefices of life. There is no accident in life; allow that a man may die "by accident" and no man could be sure whether the ensuing night might not find the earth dropping into, or else away from, the sun; or, seeing the sun set, could feel sure it would rise again. All things, small or great, are ordered. Not always from any pre-existent incarnation; sometimes from one's last year's or yesterday's action the fruit springs. In short, I, we, saw that the lesson of life was, "whatsoever a man soweth, that shall he also reap," cause and effect. There are those who will make cavilling argument, contend that "accident does exist, and all is not order." I argue not, for "they that have ears to hear" will understand. One cannot see over a mountain range save he stand on a taller peak. To the greater vision, accident is but an are of design, and disorder is but an arc of order.
+Sin begot karma and karma had exacted pay. Thus had I, for I am not relating Phyris' history, given up hopes, happiness, as one gives his open veins in the Sahara to quench the thirst of his friend. [^2] By this abdication I had lost my life and found it again. Karma, as the long record showed, was not always requiring pay; for every good act I had ever done I saw that I had been fully paid in kind my every jot. These were providences and benefices of life. There is no accident in life; allow that a man may die "by accident" and no man could be sure whether the ensuing night might not find the earth dropping into, or else away from, the sun; or, seeing the sun set, could feel sure it would rise again. All things, small or great, are ordered. Not always from any pre-existent incarnation; sometimes from one's last year's or yesterday's action the fruit springs. In short, I, we, saw that the lesson of life was, "whatsoever a man soweth, that shall he also reap," cause and effect. There are those who will make cavilling argument, contend that "accident does exist, and all is not order." I argue not, for "they that have ears to hear" will understand. One cannot see over a mountain range save he stand on a taller peak. To the greater vision, accident is but an are of design, and disorder is but an arc of order.
 
-Footnotes
+[1]: St. Matthew v: 17-18.
 
-^397:1 St. Matthew v: 17-18.
-
-^397:2 St. John xv: 13.
+[2]: St. John xv: 13.
 
 
-CHAPTER IV
+### chapter-3-4 - CHAPTER IV - THE FALL OF ATLANTIS
 
-THE FALL OF ATLANTIS
+Again we looked over Atlantis, and saw many things else. The Zailm time possessed a peculiar interest. I saw that dim, distant past, a past old in the earth and ancient when Earth was yet a babe in the cradle of time. Atl, chiefest of the prehistoric races, numbering at home in Poseid, and abroad in the colonies, almost three hundred millions of souls; Atl, known through the olden earth as Atlan, Queen of the Seas," and her people as "Children of Incal," i.e., "Of the Sun," and as the "Sons of God." How are the mighty fallen! For now I behold her ancient site as part of the bed of the restless sea, covered with ocean ooze and slime, and to be known as the haunt of man only through the clear vision of the perfected eyes which scan astral records. Again the scene was presented so that we saw it as the eyes of my poor, weak, and pitifully mortal personality of Zailm had seen it. There was stately Caiphul, the Royal; and there, far away, and not so stately, Marzeus, its towers and turrets and chimneystacks and lofty buildings marking where had stood the greatest of Atlan manufacturing centers, where the machine shops and the mills had been which supplied Poseid with vailx, and naims, and all sorts of machines and instruments; with the products of the looms, the cereals and endless articles of use, and of art. Over a million artisans there by day, but by night scarce fifty thousand, all gone by car or vailx to their homes anywhere from fifty to a hundred miles away, a few minutes' ride. And all this to perish because of man's iniquity, a few short hundreds of years later. Here and there I caught glimpses of canals, distributing either natural rivers or streams, or the product of aqua-aerial generators, such as Zailm had a small model of in his last days in Umaur.
 
-Again we looked over Atlantis, and saw many things else. The Zailm time possessed a peculiar interest. I saw that dim, distant past, a past old in the earth and ancient when Earth was yet a babe in the cradle of time. Atl, chiefest of the prehistoric races, numbering at home in Poseid, and abroad in the colonies, almost three hundred millions of souls; Atl, known through the olden earth as Atlan, Queen of the Seas," and her people as "Children of Incal," i. e., "Of the Sun," and as the "Sons of God." How are the mighty fallen! For now I behold her ancient site as part of the bed of the restless sea, covered with ocean ooze and slime, and to be known as the haunt of man only through the clear vision of the perfected eyes which scan astral records. Again the scene was presented so that we saw it as the eyes of my poor, weak, and pitifully mortal personality of Zailm had seen it. There was stately Caiphul, the Royal; and there, far away, and not so stately, Marzeus, its towers and turrets and chimneystacks and lofty buildings marking where had stood the greatest of Atlan manufacturing centers, where the machine shops and the mills had been which supplied Poseid with vailx, and naims, and all sorts of machines and instruments; with the products of the looms, the cereals and endless articles of use, and of art. Over a million artisans there by day, but by night scarce fifty thousand, all gone by car or vailx to their homes anywhere from fifty to a hundred miles away, a few minutes' ride. And all this to perish because of man's iniquity, a few short hundreds of years later. Here and there I caught glimpses of canals, distributing either natural rivers or streams, or the product of aqua-aerial generators, such as Zailm had a small model of in his last days in Umaur.
-
-We saw the world as Zailm. saw it: Suern, with its millions of people; Necropan, with its ninety-odd millions; Europe, then a barbarian land, only about one-sixth its present area; and Asia, not so large in extent then as now, but containing over a half million of souls. But the sparkling, brilliant civilization which was more than peer of even proud to-day, that was glorious Atl! Eleven hundred millions of people, civilized or but semi-civilized, and as many more scattered over the continent and islands of the seas who were utter barbarians--such was the world of Zailm, generally viewed. The numbers of the human race, and especially their increase during several generations, has appalled the pessimists. But the greatest of pessimists, Malthus, need have felt no alarm had he but known. Because:
+We saw the world as Zailm saw it: Suern, with its millions of people; Necropan, with its ninety-odd millions; Europe, then a barbarian land, only about one-sixth its present area; and Asia, not so large in extent then as now, but containing over a half million of souls. But the sparkling, brilliant civilization which was more than peer of even proud to-day, that was glorious Atl! Eleven hundred millions of people, civilized or but semi-civilized, and as many more scattered over the continent and islands of the seas who were utter barbarians--such was the world of Zailm, generally viewed. The numbers of the human race, and especially their increase during several generations, has appalled the pessimists. But the greatest of pessimists, Malthus, need have felt no alarm had he but known. Because:
 
         "The world goes up and the world goes down,
          And the sunshine follows he rain."
@@ -3753,25 +3790,21 @@ There are a varying number of people always in the world; now more, now less; fo
 
 Zailm had been my personality.
 
-Thirty centuries later, approximately, we saw again this land. But how changed. Now had Caiphul lost something. Not the tangible matter visible to earthly men-no, this was not gone. But the men we saw were not the high, lofty, noble-souled men known to Zailm and to Anzimee. And when manhood suffers decadence, degradation, all nature with which he has to do also sensibly alters for the worse. Marzeus, the city of manufacturing arts, was no more; it had gone down before corruption. Art had not suffered so much as had science. But the science which drew upon the mysterious forces of Nature
+Thirty centuries later, approximately, we saw again this land. But how changed. Now had Caiphul lost something. Not the tangible matter visible to earthly men-no, this was not gone. But the men we saw were not the high, lofty, noble-souled men known to Zailm and to Anzimee. And when manhood suffers decadence, degradation, all nature with which he has to do also sensibly alters for the worse. Marzeus, the city of manufacturing arts, was no more; it had gone down before corruption. Art had not suffered so much as had science. But the science which drew upon the mysterious forces of Nature the "navaz"--this had so far disappeared that airships were forgotten, or at most were semi-mythical history. So were many other instruments which Zailm had known--the naima, those wonderful, wireless, combined telephonic and photographic image transmitters. And the vocaligrapha, the caloriveyant instruments and the water-generators-all were lost in the night of time. But the men of the twentieth century shall find them all again.
 
-the "navaz"--this had so far disappeared that airships were forgotten, or at most were semi-mythical history. So were many other instruments which Zailm. had known--the naima, those wonderful, wireless, combined telephonic and photographic image transmitters. And the vocaligrapha, the caloriveyant instruments and the water-generators-all were lost in the night of time. But the men of the twentieth century shall find them all again. Twenty-eight decades of centuries hath Day now here continued, and soon it shall be proclaimed,
-
-"The evening and the morning are the seventh day." Ye who hear all my message are the men and the women of this new day, and shall inherit all things from our Father forever. And the full eventide of that day which cometh shall behold you caught up "into the heavens" to escape the end of all things, when the earth also, and the works that are therein, shall be burned up.
+Twenty-eight decades of centuries hath Day now here continued, and soon it shall be proclaimed, "The evening and the morning are the seventh day." Ye who hear all my message are the men and the women of this new day, and shall inherit all things from our Father forever. And the full eventide of that day which cometh shall behold you caught up "into the heavens" to escape the end of all things, when the earth also, and the works that are therein, shall be burned up. [^1]
 
 But I should deal with the past, not with the future. The seeds of corruption sown in the hearts of men by the Evil One, master over Mainin, germinated and throve, and then began, some centuries after the time of Gwauxln and Zailm, a long, steadily downward course which weakened the self-respect, manhood and womanhood of Poseid, a loss revealed in countless ways, culminating in national depravity and ruin.
 
-It was upon one of these phases of ruin that we next gazed. We saw a woman upon whose face rested a light almost divine in the power of its transfiguring beauty. Her slight figure seemed not so much of Earth as of Heaven. The loose robe of gray which she wore fluttered in the breeze, the long tresses of brown hair, unrestrained, swept back from the glorious face, on which sat pity and despair, yet mingled with a wonderful radiance of appealing, entreating, agonized hope that some might hear and turn away from the course they were following. Her appeal assumed that most perilous form, for the champion, which an appeal can assume, that of sharp denunciation. She denounced the hideous system of blood-sacrifice in religion as being in diametrical opposition to right, to God, to
-
-man, and as responsible for the corruption of the people. At this, the priests among the crowd uttered hoarse cries of rage. In a voice, the astral record of which rings yet, and forever, for those who have ears to hear such psychic tones, she cried, from her high place on the pedestal of the monument, twenty feet from the ground and the upturned faces below:
+It was upon one of these phases of ruin that we next gazed. We saw a woman upon whose face rested a light almost divine in the power of its transfiguring beauty. Her slight figure seemed not so much of Earth as of Heaven. The loose robe of gray which she wore fluttered in the breeze, the long tresses of brown hair, unrestrained, swept back from the glorious face, on which sat pity and despair, yet mingled with a wonderful radiance of appealing, entreating, agonized hope that some might hear and turn away from the course they were following. Her appeal assumed that most perilous form, for the champion, which an appeal can assume, that of sharp denunciation. She denounced the hideous system of blood-sacrifice in religion as being in diametrical opposition to right, to God, to man, and as responsible for the corruption of the people. At this, the priests among the crowd uttered hoarse cries of rage. In a voice, the astral record of which rings yet, and forever, for those who have ears to hear such psychic tones, she cried, from her high place on the pedestal of the monument, twenty feet from the ground and the upturned faces below:
 
 "Oh, ye! Think ye that Incal will accept the blood of innocent animals for your crimes? Whose sayeth this doth lie! Incal, God, will never take blood of anything, nor symbol of any sort which placeth an innocent in a guilty one's stead! And the Incalithlon, and the Holy Seat, and the Maxin Light are dishonored whenever a priest layeth an animal on the Teo Stone, and striketh a knife to its heart, tears it out and tosses it as sacrifice into the Unfed Light. Yea, the Unfed Light doth truly destroy it instantly. But think ye because of this that merciful Incal is pleased. O ye brood of vipers, ye priests that are charlatans and sorcerers?'
 
-An angry Incali stooped as she uttered this, and picked up a jagged bit of stoneware. In front of him was a litter borne by sad-visaged slaves. On this, reclining amidst soft silken cushions, was a woman of languorous beauty, the very impersonation of shameless abandon. In the warm, tropical atmosphere she lay, innocent of any covering, except that the heavy waves of the hair of her beautiful, if wicked, head partially concealed her nakedness. The shameless sight did not attract notice because of its shamelessness; the only attention bestowed by the dense and wrathful crowd around her was that of sensual admiration from one or another. Such sights were all too common in these last days of Atl. Seeing the priest pick up the sherd, this woman said:
+An angry Incali stooped as she uttered this, and picked up a jagged bit of stoneware. In front of him was a litter borne by sad-visaged slaves. On this, reclining amidst soft silken cushions, was a woman of languorous beauty, the very impersonation of shameless abandon. In the warm, tropical atmosphere she lay, innocent of any covering, except that the heavy waves of the hair of her beautiful, if wicked, head partially concealed her nakedness. The shameless sight did not attract notice because of its shamelessness; the only attention bestowed by the dense and wrathful crowd around her was that of sensual admiration from one or another. Such sights were all too common in these last days of Atl. Seeing the priest pick up the shard, this woman said:
 
 "What wouldst thou with it?"
 
-`Naught," answered the priest.
+"Naught," answered the priest.
 
 "Naught, forsooth! I know thou wouldst throw it at yon blasphemer, if thou hadst courage!"
 
@@ -3785,23 +3818,23 @@ The ecclesiastic raised his hand back, and poised the missile, while the crowd n
 
 "See!" said Phyris, "the first human sacrifice in Caiphul! Me, even me, they slew, for trying to stem the tide of depravity and ecclesiastical criminality. I repeated to them the prophecy of the Maxin, and they heeded not, but slew me. For that woman was my personality when I reincarnated, three thousand years after thou, as Zailm, did leave me, as Anzimee."
 
-With a strange ecstacy of crime, the priests, scarce an instant pausing, placed the still unconscious victim on the Teo. Then the chief priest, still called the Incalix, stepped from the Holy Seat, as it once had truly been. By the side of the victim he stopped and profaned not God, but Man, by a prayer to God; for no man can injure God except through injuring Man. Then he threw open the gray robe and bared the white breast. Swiftly he raised aloft the keen edged knife, then smote. A shudder shook the reviving victim, who was about recovering consciousness. The murderer then tore out the quivering heart and cast it into the Unfed Light, where it disappeared and made no sign. Then the flesh was divided piecemeal amongst the murderous crowd, together with the bloodstained garments. But the most of the blood had run into a depression
-
-in the Teo, made for sacrificial blood. To this the priests added liquor, and in maddened frenzy quaffed the mixture from golden goblets. The scene was sickening, and I felt my very being revolt! And that poor murdered woman, a virgin--who had given her life to rescue her nation from sin--that was she, who had long centuries before been Anzimee, and now was Phyris, part of myself, and I part of her being, for our Spirit was one reunited. I could forgive the crime I looked back upon, for the criminals knew not what they did. And they have suffered for it, and yet shall suffer, for it is their karma. When Death, the conqueror of all mortals, garnered his harvest in Atl, these souls, which had sown sin and grown tares. were reaped by the Great Reaper, and the tares were sown with the good wheat when next those souls reincarnated. And they have had to glean and uproot as they could, and so must continue to tear up the evil weeds till every one be uprooted. Then will they have atoned unto God. There is time enough, lives enough, but O friends, none to waste!
+With a strange ecstacy of crime, the priests, scarce an instant pausing, placed the still unconscious victim on the Teo. Then the chief priest, still called the Incalix, stepped from the Holy Seat, as it once had truly been. By the side of the victim he stopped and profaned not God, but Man, by a prayer to God; for no man can injure God except through injuring Man. Then he threw open the gray robe and bared the white breast. Swiftly he raised aloft the keen edged knife, then smote. A shudder shook the reviving victim, who was about recovering consciousness. The murderer then tore out the quivering heart and cast it into the Unfed Light, where it disappeared and made no sign. Then the flesh was divided piecemeal amongst the murderous crowd, together with the bloodstained garments. But the most of the blood had run into a depression in the Teo, made for sacrificial blood. To this the priests added liquor, and in maddened frenzy quaffed the mixture from golden goblets. The scene was sickening, and I felt my very being revolt! And that poor murdered woman, a virgin--who had given her life to rescue her nation from sin--that was she, who had long centuries before been Anzimee, and now was Phyris, part of myself, and I part of her being, for our Spirit was one reunited. I could forgive the crime I looked back upon, for the criminals knew not what they did. And they have suffered for it, and yet shall suffer, for it is their karma. When Death, the conqueror of all mortals, garnered his harvest in Atl, these souls, which had sown sin and grown tares. were reaped by the Great Reaper, and the tares were sown with the good wheat when next those souls reincarnated. And they have had to glean and uproot as they could, and so must continue to tear up the evil weeds till every one be uprooted. Then will they have atoned unto God. There is time enough, lives enough, but O friends, none to waste!
 
 After this human sacrifice the thirst for blood which the people manifested became unappeasable. They demanded the life of the priest who struck down the woman, for they were not yet accustomed to the rights the Incali had so newly arrogated, those of human sacrifice. They claimed that he had really murdered the woman, that they were unprepared to go so far, that therefore he who threw the missile must die. The tumult became so violent, and insurrection seemed so imminent, that the wretched priest was dragged out and offered by his fellows as the woman had been. But now came the denouement. When the high priest turned to cast the heart of the last victim into the Maxin, he staggered as if struck, his hand fell by his side, the heart dropped on the pavement, and the stricken man fell forward unconscious! The tall taper of the Unfed Light was gone; the Maxin book was gone! In its place stood a human form, that of a Son of the Solitude. In his left hand was a sword, in his right a pen.
 
-"Behold, the day of destruction is at hand which was foretold ages age! Atlan shall won be no more beheld by the sun
-
-in his whole course for the sea shall swallow you all! Attend ye!"
+"Behold, the day of destruction is at hand which was foretold ages age! Atlan shall be no more beheld by the sun in his whole course for the sea shall swallow you all! Attend ye!"
 
 Then the dread apparition vanished. But the Unfed Light came not again. The people fled, shrieking, leaving the priest who had fainted lying on the floor. It was as well, for when venturesome ones came into the Incalithlon many days later he still lay as he fell, for he was dead. In his greater knowledge, for wicked as he was he yet was chief, he knew, sorcerer that he was, that there really was a power of right which was destined to bring the corruption of Poseid low and uproot the hideous mockery of sin enslaving the nation. And in his knowledge his soul had gone forth from his body in desperate fear, to return no more.
 
 But the stupid sensualism of the masses, finding that after a few years nothing terrible occurred, gradually lapsed till worse than before, for human sacrifices became common, lust, gluttony and drunkenness ran riot, and the moral night's deep darkness closed in yet more blackly.
 
-One man and his family who lived apart partook not of the general wickedness. True, he and his mate, like the ordinary people about him, were not married, save as the higher animals monogamize. Nor were his sons and their wives any better. But blood sacrifice he nor they would do. And when the monarch proclaimed that all must worship according to the new standard, and sacrifice babes and women, these men, giants in stature, and far superior, any one of them, to a dozen of the corrupt slaves of the Rai, refused to obey the mandate. Fruits and treasure they offered, but not blood. In his seclusion the father, Nepth, had a revelation. It came from the Sons of the Solitude, who were nowise altered from the ancient high standard, but Nepth thought it direct from God. The revelation was but a repetition of the prophecy of doom, but the knowledge of that prophecy having been centuries neglected, bore to Nepth all the force of a new revelation. So he came to know of the coming destruction of Atl, he and his sons. And they considered how to escape. Vailx were unknown. Nepth and his sons were unskilled builders. But they received instructions
+One man and his family who lived apart partook not of the general wickedness. True, he and his mate, like the ordinary people about him, were not married, save as the higher animals monogamize. Nor were his sons and their wives any better. But blood sacrifice he nor they would do. And when the monarch proclaimed that all must worship according to the new standard, and sacrifice babes and women, these men, giants in stature, and far superior, any one of them, to a dozen of the corrupt slaves of the Rai, refused to obey the mandate. Fruits and treasure they offered, but not blood.
 
-from the befriending Sons of the Solitude, who came to them in astral shape. And so these better men of Atlantis began to build a great vessel. It was clumsy, but secure, and had room to receive several of all kinds of useful animals found in Atl, and to simple ignorant Nepth these constituted every animal on earth, for he knew nothing of other lands across seas, scarce knew of the provinces in Incalia or Umaur, for in these last days communication was not closely kept up. His neighbors and friends jeered and reviled him as a blasphemer, and he and his sons as men crazed. But the years lapsed, and the great ark of refuge grew, until one day it was complete. Then Nepth and his sons provided it with ample stores, and they took the animals from the pens wherein they had placed them as they captured them in years past. Indeed, most of these animals had been born in captivity and were tame, so long had Nepth carried on all works together, not knowing just when the dread prophecy was to be fulfilled. The final preparations were none too soon completed. Only a few days elapsed until the earth shook and trembled in a frightful manner. Rivers left their beds, or sank through vast crevices in the earth; mountains shook till they were left as hills, and
+In his seclusion the father, Nepth, had a revelation. It came from the Sons of the Solitude, who were nowise altered from the ancient high standard, but Nepth thought it direct from God. The revelation was but a repetition of the prophecy of doom, but the knowledge of that prophecy having been centuries neglected, bore to Nepth all the force of a new revelation. So he came to know of the coming destruction of Atl, he and his sons. And they considered how to escape. Vailx were unknown.
+
+Nepth and his sons were unskilled builders. But they received instructions from the befriending Sons of the Solitude, who came to them in astral shape. And so these better men of Atlantis began to build a great vessel. It was clumsy, but secure, and had room to receive several of all kinds of useful animals found in Atl, and to simple ignorant Nepth these constituted every animal on earth, for he knew nothing of other lands across seas, scarce knew of the provinces in Incalia or Umaur, for in these last days communication was not closely kept up. His neighbors and friends jeered and reviled him as a blasphemer, and he and his sons as men crazed. But the years lapsed, and the great ark of refuge grew, until one day it was complete.
+
+Then Nepth and his sons provided it with ample stores, and they took the animals from the pens wherein they had placed them as they captured them in years past. Indeed, most of these animals had been born in captivity and were tame, so long had Nepth carried on all works together, not knowing just when the dread prophecy was to be fulfilled. The final preparations were none too soon completed. Only a few days elapsed until the earth shook and trembled in a frightful manner. Rivers left their beds, or sank through vast crevices in the earth; mountains shook till they were left as hills, and
 
         "Bowed their tall heads to the plain."
 
@@ -3809,9 +3842,7 @@ A crevice opened close by the vessel of refuge, and the river which, half a mile
 
 Three days of horror, and three nights. Death stalked through the land, for the mountains fell on the plains and floods swept unrestrained. But the worst was to come. On the morning of the fourth day it seemed as if the rains of heaven would drown all, yet the thundering and turmoil was not lessened. The gates of heaven and of the great deep were yet to be broken, and the continent, yea, much also of the world to be drowned. The people not yet destroyed were myriad, and were gathered in the high places. Suddenly it seemed as if the foundations of the world were withdrawn, for by one frightful, universal motion the lands left unflooded began to sink. With never a pause to the hideous, sickening sensation, all things sank, down, down, down--one, two, a dozen feet! Then a period of rest. The rains, which came in sheets, instead of drops; the wild blasts of furious wind; the sinking motion-all ceased while men might count a score. One score, two, three, yet no resumption. The wretched people, hidden in such poor shelter as they could find and dared avail themselves of, began to breathe easier--perhaps the fearful ruin was at last stayed! But, no! A slight tremble, scarcely noticeable after the mad three days, and then with one swift leap down to death the great continent of Atlantis sank as a stone sinks in water! Not a paltry dozen feet, nor even a hundred, but almost a mile it sunk at one horrible bound!
 
-Nepth? In the middle of the third day his vessel of refuge had floated to the ocean on an outgoing rush of the floods, and there the winds had carried him until, when Atl sped down to death, he and his storm-beaten ark were a couple of hundred miles away. A very few other people had been similarly forced seawards, and these, after weary weeks, at last came around the southern promontory of Africa, and drifted northeasterly, to land on the west coast of Umaur. Here, too, the destruction had left but a few miserable survivors. But the few hundreds thus left founded the race which, repopulating that land, was found by Pizarro after many centuries upon centuries had elapsed. And a few thus became many. They would not permit blood sacrifice, but yet, like Nepth, offered fruits to Incal, and retained the name, slightly modified, so as to be Inca, a name bestowed upon their rulers. A few survivors landed further north, and repopulated the land conquered by Cortez, the Spaniard, a few short centuries ago. But these heeded not the lesson, for no sooner were they landed on the desolated
-
-shores than they slew a woman as a thanksgiving for their escape. But Nepth? For many days his vessel drifted over the silent seas, with only the ceaseless roar of rain upon the roof to break the stillness. At last the vessel grounded. He knew not where he was, for he was an ignorant man. But the aspect of things was changed wholly. When at last he descended, and let loose his living freight, though he knew it not, he was in Asia. This land had not suffered as other lands, but yet floods had covered all the western part of Asia. The eastern portions, and what there was of Europe and America, had not remained inundated after the quick subsidence of the enormous tidal-wave, which, thirteen hundred feet in height, swept outward from Atlantis' site upon the recoil of the engulfing ocean. Thus closed the scene for us; the great deluge was over.
+Nepth? In the middle of the third day his vessel of refuge had floated to the ocean on an outgoing rush of the floods, and there the winds had carried him until, when Atl sped down to death, he and his storm-beaten ark were a couple of hundred miles away. A very few other people had been similarly forced seawards, and these, after weary weeks, at last came around the southern promontory of Africa, and drifted northeasterly, to land on the west coast of Umaur. Here, too, the destruction had left but a few miserable survivors. But the few hundreds thus left founded the race which, repopulating that land, was found by Pizarro after many centuries upon centuries had elapsed. And a few thus became many. They would not permit blood sacrifice, but yet, like Nepth, offered fruits to Incal, and retained the name, slightly modified, so as to be Inca, a name bestowed upon their rulers. A few survivors landed further north, and repopulated the land conquered by Cortez, the Spaniard, a few short centuries ago. But these heeded not the lesson, for no sooner were they landed on the desolated shores than they slew a woman as a thanksgiving for their escape. But Nepth? For many days his vessel drifted over the silent seas, with only the ceaseless roar of rain upon the roof to break the stillness. At last the vessel grounded. He knew not where he was, for he was an ignorant man. But the aspect of things was changed wholly. When at last he descended, and let loose his living freight, though he knew it not, he was in Asia. This land had not suffered as other lands, but yet floods had covered all the western part of Asia. The eastern portions, and what there was of Europe and America, had not remained inundated after the quick subsidence of the enormous tidal-wave, which, thirteen hundred feet in height, swept outward from Atlantis' site upon the recoil of the engulfing ocean. Thus closed the scene for us; the great deluge was over.
 
 Then Phyris and I turned to other phases of the mysterious, past. These, though not less interesting, may not enter these pages. Rai Gwauxln was come to be Mendocus, while Rai Ernon of Suern was with us now, Mol Lang. Sohma was that, Son of the Solitude whom I took on my vailx when I was Zailm, away from Suern. So we saw the interweaving of the life lines. Then we saw the course of the lost soul, Mainin, from remote ages when Atlantis was not known in the earth, a sin-laden man then, until we found him, serving Satan, an outcast from human ranks, blasted thence by that Son of God, "first fruit of them that (had reincarnated) slept."
 
@@ -3827,11 +3858,7 @@ He nodded to the chief slave, who threw the captive boy on a sort of altar besid
 
 "Beast!" hissed the girl to the master.
 
-"Ha!" he replied, "I will prove that true," and he struck the bared breast of the tongueless lad with his own dagger,
-
- FIRST SACRIFICE OF SELF FOR LOVE OF ANOTHER
-
-and tearing out the heart, threw it at the sister's feet. A goblet of the blood was caught and the master's mother, a priestess, who stood by the block, took it and gazed into it. Then she said:
+"Ha!" he replied, "I will prove that true," and he struck the bared breast of the tongueless lad with his own dagger, and tearing out the heart, threw it at the sister's feet. A goblet of the blood was caught and the master's mother, a priestess, who stood by the block, took it and gazed into it. Then she said:
 
 "The gods say that the girl also must die."
 
@@ -3849,41 +3876,32 @@ and tearing out the heart, threw it at the sister's feet. A goblet of the blood 
 
 An instant the knife glittered overhead, the next he had buried it in his own heart. So had the heart that knew no mercy yielded to love; the stern warrior was dead. The gods must have blood, he thought, but he gave his own. What personality was he, was the girl, dead from horror? Myself! and Phyris!
 
-Footnotes
+[1]: Peter iii: 10.
 
-^400:1 II. Peter iii: 10.
 
-CHAPTER V
+### chapter-3-5 - CHAPTER V - "MAN'S INHUMANITY TO MAN"
 
-"MAN'S INHUMANITY TO MAN"
+Again the dead past revealed another scene. I saw myself in the person of an ill-fed, ill-treated slave, ever hungry, wretched, too much so to feel resentment. I died hungry, and then had a devachan of seeming realization of my wants. 'Then again rebirth, and through a karma not here to be explained, the new man had ease, wealth, plenty. But a physical karma pursued, and he was ever hungry in the midst of plentitude, and lazy when action was necessary. This state begot disease, and the product of (in his previous life) "man's inhumanity to man," was afflicted with cancer of the stomach. This killed the ferocious appetite, and the sybarite, free of this, set to work to cure himself. Finding he must fail, he sought comfort in religion, and went forth to the wilderness to become a religious hermit. Now, a hermit's life is one of uselessness to mankind. In that lone state my individuality lost opportunities to cultivate moral strength by worldly contact, and behold me after death come again to life as Zailm, weak enough to sin with Lolix and beget then a karma that lasted, with newly got vigor, till only a few years ago, punishing me more bitterly than death, as thou, knowest. If Zailm, had sorrow, thou knowest he had also joy. So every life-karma is made up of sunshine and shadow. "A tooth for a tooth?" Yea! But also "for a kiss a kiss."
 
-Again the dead past revealed another scene. I saw myself in the person of an ill-fed, ill-treated slave, ever hungry, wretched, too much so to feel resentment. I died hungry, and then had a devachan of seeming realization of my wants. 'Then again rebirth, and through a karma not here to be explained, the new man had ease, wealth, plenty. But a physical karma
-
-pursued, and he was ever hungry in the midst of plentitude, and lazy when action was necessary. This state begot disease, and the product of (in his previous life) "man's inhumanity to man," was afflicted with cancer of the stomach. This killed the ferocious appetite, and the sybarite, free of this, set to work to cure himself. Finding he must fail, he sought comfort in religion, and went forth to the wilderness to become a religious hermit. Now, a hermit's life is one of uselessness to mankind. In that lone state my individuality lost opportunities to cultivate moral strength by worldly contact, and behold me after death come again to life as Zailm, weak enough to sin with Lolix and beget then a karma that lasted, with newly got vigor, till only a few years ago, punishing me more bitterly than death, as thou, knowest. If Zailm, had sorrow, thou knowest he had also joy. So every life-karma is made up of sunshine and shadow. "A tooth for a tooth?" Yea! But also "for a kiss a kiss."
-
-CHAPTER VI
-
-WHY ATLANTIS PERISHED
+### chapter-3-6 - CHAPTER VI - WHY ATLANTIS PERISHED
 
 Looking along the line of life's yesterdays the reason became apparent why all the wondrous attainments of Poseid had ceased and left no sign, why Atla, which metaphorically held aloft the world into the light of science, had sunk beneath the waters and gone down into deep, mysterious caverns, to be hidden in an ignorance greater than that which shadowed Pompeii and Herculaneum from subsequent centuries.
 
-Natural decadence tells the story. As the centuries succeeding the time of the great Rai Gwauxln lapsed, ten, fifteen, twenty and more, the nation came to a greater glory of mechanics, of science, and of Physical condition than even Gwauxln's time had known. One by one the scholars found that those things which had always been possible only through mechanical
+Natural decadence tells the story. As the centuries succeeding the time of the great Rai Gwauxln lapsed, ten, fifteen, twenty and more, the nation came to a greater glory of mechanics, of science, and of Physical condition than even Gwauxln's time had known. One by one the scholars found that those things which had always been possible only through mechanical contrivance were more easily accomplished by purely psychic means; they learned it was possible to divest themselves of the flesh, and in astral body go whither they would and appear, instant as the electric current, at any distance. They learned that they could perform material actions when they had thus projected themselves. Then it was that the cruder methods, vailx and naim, and all else similar, were suffered to lapse into that semi-forgetfulness of the Suerni; and exactly as they, so the mass of Poseidi depended on the priesthood for all these things. For only the few exalted minds could thus reach out into the deeper night-side of Nature; the many must remain in the lesser places. Inevitably then came corruption of power; the few were masters, and the many had no recourse, because the master of psychics is invulnerable to the laws of physicality when wielded by men less than he.
 
-contrivance were more easily accomplished by purely psychic means; they learned it was possible to divest themselves of the flesh, and in astral body go whither they would and appear, instant as the electric current, at any distance. They learned that they could perform material actions when they had thus projected themselves. Then it was that the cruder methods, vailx and naim, and all else similar, were suffered to lapse into that semi-forgetfulness of the Suerni; and exactly as they, so the mass of Poseidi depended on the priesthood for all these things. For only the few exalted minds could thus reach out into the deeper night-side of Nature; the many must remain in the lesser places. Inevitably then came corruption of power; the few were masters, and the many had no recourse, because the master of psychics is invulnerable to the laws of physicality when wielded by men less than he.
+Then, indeed, was the day come when ripeness was on the land and on the people. The ripe pear can not keep perfect, but at the heart begins a decay that spreads from core to cortex, and lo, the end. So in Poseid, at the core began the outward-spreading rot. That core was the education of the people. Whenever earth's nations shall cease to educate the coming generation, decay shall begin for the people. In Poseid the few had attained such exalted knowledge of natural forces that the many could not hope to overtake them. Then, discontented with the comparatively poor education themselves had, they suffered all its marvels to wane. Thus, until thirty centuries after Gwauxln the Poseid race was as Suern, but more corrupt, and lust, appetite, passion and power had laid fatal grasp on the proudest people the earth has ever known. How little dost thou realize when thou readest in Hebrew Scriptures of the destruction of the cities of the Plain it is the account, of the doom of Marzeus and Terna, destroyed by the Navaz forces they had forgotten how to control That destruction heralded that of the continent, nine centuries later. A, ye! Poseid arose to an altitude which the wildest dreams of science have not predicted for the modem world; arose, flourished and decayed, in the fullness of cyclic times. And America is Poseid come again, reincarnated, and shall see its scientific people repeat, but on a higher plane, the attainments of Atla. As the centuries pass it shall see the successive enfleshment of those souls which in Atla, made that land proud, prouder, proudest. But it shall do more, for America hath developed that soul-element which, when her people were Poseidi, was first faintly traced. So, though repeating, it shall do more--it shall have all Atla's marvels wedded to the glorious soul foreseen for mankind by Him of Nazareth. It shall flourish so, and then, in the fullness of its time, decay. But that shall not be for four and a half centurial decades.
 
-Then, indeed, was the day come when ripeness was on the land and on the people. The ripe pear can not keep perfect, but at the heart begins a decay that spreads from core to cortex, and lo, the end. So in Poseid, at the core began the outward-spreading rot. That core was the education of the people. Whenever earth's nations shall cease to educate the coming generation, decay shall begin for the people. In Poseid the few had attained such exalted knowledge of natural forces that the many could not hope to overtake them. Then, discontented with the comparatively poor education themselves had, they suffered all its marvels to wane. Thus, until thirty centuries after Gwauxln the Poseid race was as Suern, but more corrupt, and lust, appetite, passion and power had laid fatal grasp on the proudest people the earth has ever known. How little dost thou realize when thou readest in Hebrew Scriptures of the destruction of the cities of the Plain it is the account, of the doom of Marzeus and Terna, destroyed by the Navaz forces they had forgotten how to control That destruction heralded that of the continent, nine centuries later. A, ye! Poseid arose to an altitude which the wildest dreams of science have not predicted for the modem world; arose, flourished and decayed, in the fullness of cyclic times. And America is Poseid come again,
-
-reincarnated, and shall see its scientific people repeat, but on a higher plane, the attainments of Atla. As the centuries pass it shall see the successive enfleshment of those souls which in Atla, made that land proud, prouder, proudest. But it shall do more, for America hath developed that soul-element which, when her people were Poseidi, was first faintly traced. So, though repeating, it shall do more--it shall have all Atla's marvels wedded to the glorious soul foreseen for mankind by Him of Nazareth. It shall flourish so, and then, in the fullness of its time, decay. But that shall not be for four and a half centurial decades.
-
-CHAPTER VII
-
-THE TRANSFIGURATION
+### chapter-3-7 - CHAPTER VII - THE TRANSFIGURATION
 
 I might give many more life scenes. Let these suffice. Turn now to our present.
 
-The reunion of the semi-egoii is one in which, after the mighty ordeal of the Great Crisis, the souls of the feminine and masculine elements become on the same plane; both are perfect. This is the marriage made in heaven. Become so that each thinks, wills and expresses itself the same in all ways simultaneously, the two alter egoii are then one, having a feminine, negative, and a masculine, positive, aspect. Then these two potentials unite and receive the Spirit, or I AM, which was always undivided, and which illumined each soul of its pair equally. So is this last union. Thus Phyris is me, living, being, immanent, and speaks this message with me; is I, and yet, mysterious truth, is herself! Likewise I am her and yet again, myself. I speak, and it is she; she speaks and it is I; for we are one being, one spirit, androgyne, perfect. Yet not perfect as our Father is, for He is perfect as Conditionless Being, but our perfection is that of a part, because we are all of God, but not He of any one of us. Indeed, were this not true, then our attainment of perfection, Jesus' attainment of it, or any child of the Father, would find in its realization annihilation. But only the soul that sins is cast into the second death, fated to the Sisyphic round till it does succeed. Perfection may be conditionless in all respects save that it is not that of the whole. And because we each are parts, therefore are we forever attracted to the Father, who is sum of all parts, and this attraction is to onward Being. And we are ever attracted to the other parts, both those which are peer and those which are less. It is because the part is forever drawn to the sum that there is no death, save in defying and abandoning all hold on the Whole. Perfection of a part but draws it nearer to the Whole, and perfection of the Whole compels It to depend on each of Its parts. There may be change; there is no death. And there may be extinction of personality, the erring soul may perish, and itself and deeds he annihilated, but the Spirit from the Father dieth not. If for thy soul thou wouldst have eternal life; if thou wouldst not see thy soul, that product of untold ages of time, lost in the second Death, and thyself, oh Spirit, child of our Father, doomed to recreate another soul to lay as acceptable offering before our Lord, then subdue it, subdue thy soul, at--one it to God through Jesus Christ our Lord, by recognizing that it is His, given Him by God, made by thee to serve the Creator. If thou make thy soul serve thee in His service, thou hast it eternally. But if thou serve it thou shalt lose it and have to make another during coming aeons.
+The reunion of the semi-egoii is one in which, after the mighty ordeal of the Great Crisis, the souls of the feminine and masculine elements become on the same plane; both are perfect. This is the marriage made in heaven. Become so that each thinks, wills and expresses itself the same in all ways simultaneously, the two alter egoii are then one, having a feminine, negative, and a masculine, positive, aspect. Then these two potentials unite and receive the Spirit, or I AM, which was always undivided, and which illumined each soul of its pair equally. So is this last union. Thus Phyris is me, living, being, immanent, and speaks this message with me; is I, and yet, mysterious truth, is herself! Likewise I am her and yet again, myself. I speak, and it is she; she speaks and it is I; for we are one being, one spirit, androgyne, perfect. Yet not perfect as our Father is, for He is perfect as Conditionless Being, but our perfection is that of a part, because we are all of God, but not He of any one of us. Indeed, were this not true, then our attainment of perfection, Jesus' attainment of it, or any child of the Father, would find in its realization annihilation. But only the soul that sins is cast into the second death, fated to the Sisyphic round till it does succeed.
 
-Wilt thou follow the Path. even as I have pointed out to thee that it leadeth to the Kingdom? Be sure of thyself until thou dost embrace occult learning, lest it prove a veritable Bridge of Mirzah, full of fatal pitfalls for thy feet. Better shun the Secret Wisdom than fail, for strait is the gate and narrow is the way that leadeth unto Being, and few there be that find it.
+Perfection may be conditionless in all respects save that it is not that of the whole. And because we each are parts, therefore are we forever attracted to the Father, who is sum of all parts, and this attraction is to onward Being. And we are ever attracted to the other parts, both those which are peer and those which are less. It is because the part is forever drawn to the sum that there is no death, save in defying and abandoning all hold on the Whole. Perfection of a part but draws it nearer to the Whole, and perfection of the Whole compels It to depend on each of Its parts.
+
+There may be change; there is no death. And there may be extinction of personality, the erring soul may perish, and itself and deeds he annihilated, but the Spirit from the Father dieth not. If for thy soul thou wouldst have eternal life; if thou wouldst not see thy soul, that product of untold ages of time, lost in the second Death, and thyself, oh Spirit, child of our Father, doomed to recreate another soul to lay as acceptable offering before our Lord, then subdue it, subdue thy soul, at-one it to God through Jesus Christ our Lord, by recognizing that it is His, given Him by God, made by thee to serve the Creator. If thou make thy soul serve thee in His service, thou hast it eternally. But if thou serve it thou shalt lose it and have to make another during coming aeons.
+
+Wilt thou follow the Path, even as I have pointed out to thee that it leadeth to the Kingdom? Be sure of thyself until thou dost embrace occult learning, lest it prove a veritable Bridge of Mirzah, full of fatal pitfalls for thy feet. Better shun the Secret Wisdom than fail, for strait is the gate and narrow is the way that leadeth unto Being, and few there be that find it.
 
 Knowest thou me? A good tree cannot bring forth evil fruit, but a corrupt tree. Wilt thou hew me down and cast me into the fire, who testifieth concerning the Spirit? "Not every one that sayeth Lord, Lord, shall enter into Heaven," but he that doeth the will of my Father in Heaven. The time is brief.
 
@@ -3891,19 +3909,15 @@ I have spoken. Peace be with thee.
 
  The End.
 
-NOTE BY THE AUTHOR
+### note-by-the-author - NOTE BY THE AUTHOR
 
-Friends, thirteen years have become past time since the words of this book were dictated; purposely hath publication been delayed unto the end that statements then made might acquire weight through the coming to pass of many of the predictions to be found within these covers; predictions which at that time were wholly unverified, and were, moreover, regarded by science as chimerical. Prophecy would be impossible in a Godless universe; and were it not that vibration is the law of laws, no mind could come into unison with the Creator or any of His ministers; each living being is minister to the creature immediately inferior. To-day witnesseth the faith of those who have believed in my words swallowed up in knowledge: the predictions have numerously been realized; all will be. So it is that to-day, in the middle of the final year of the century I add
+Friends, thirteen years have become past time since the words of this book were dictated; purposely hath publication been delayed unto the end that statements then made might acquire weight through the coming to pass of many of the predictions to be found within these covers; predictions which at that time were wholly unverified, and were, moreover, regarded by science as chimerical. Prophecy would be impossible in a Godless universe; and were it not that vibration is the law of laws, no mind could come into unison with the Creator or any of His ministers; each living being is minister to the creature immediately inferior. To-day witnesseth the faith of those who have believed in my words swallowed up in knowledge: the predictions have numerously been realized; all will be. So it is that to-day, in the middle of the final year of the century I add...
 
-THE MIGHTY CAP-STONE:
+### the-mighty-cap-stone - THE MIGHTY CAP-STONE:
 
-The Division of the Way Hath Come; the Midnight Hour of the Cycle Which, More Than Any Other, Formed Life's Great Divide, Hath Struck. When first I dictated for this book there lacked, as it were, yet a few seconds to the closing of the Sixth Day. But now for some seconds hath been fulfilled the initiation of that saying of Him who sitteth upon the throne: "Behold! I make all things new." The Hour hath struck. And now presently "the one overcoming shall inherit all things and I will he his God, and he shall be my son." This is for those who did set their hands to the Plow and their feet to Furrow, and looked not back, while yet the Sixth Cycle was. "But as for the cowards (a halt between two opinions) and the unbelievers (in aught above earthly, finite things) and the abominable, and takers of life, and passion and lust-servers, sorcerers, idolaters and swervers from truth, their portion is the (Great Karma of the World) second death." While the foolish ones were gone to buy oil, the bridegroom came, and they who were prepared entered in with him to the feast,
+The Division of the Way Hath Come; the Midnight Hour of the Cycle Which, More Than Any Other, Formed Life's Great Divide, Hath Struck. When first I dictated for this book there lacked, as it were, yet a few seconds to the closing of the Sixth Day. But now for some seconds hath been fulfilled the initiation of that saying of Him who sitteth upon the throne: "Behold! I make all things new." The Hour hath struck. And now presently "the one overcoming shall inherit all things and I will he his God, and he shall be my son." This is for those who did set their hands to the Plow and their feet to Furrow, and looked not back, while yet the Sixth Cycle was. "But as for the cowards (a halt between two opinions) and the unbelievers (in aught above earthly, finite things) and the abominable, and takers of life, and passion and lust-servers, sorcerers, idolaters and swervers from truth, their portion is the (Great Karma of the World) second death." While the foolish ones were gone to buy oil, the bridegroom came, and they who were prepared entered in with him to the feast, and the door was shut. When the foolish returned the door was not opened unto then. Beloved, remember these words which were spoken by the apostles of the Christ; that they said that in the Last Time before the end of the Age "there will be mockers walking after their own impious lusts (10). These indeed blaspheme what things they do not understand; but that which they know naturally, as do the irrational animals, in these things they are corrupt (19). These are they who separate at the Dividing of the Way, going in the finite direction, not having the Spirit (7), and are placed as an example, to endure the retributive justice of an age-ending fire."
 
-and the door was shut. When the foolish returned the door was not opened unto then. Beloved, remember these words which were spoken by the apostles of the Christ; that they said that in the Last Time before the end of the Age "there will be mockers walking after their own impious lusts (10). These indeed blaspheme what things they do not understand; but that which they know naturally, as do the irrational animals, in these things they are corrupt (19). These are they who separate at the Dividing of the Way, going in the finite direction, not having the Spirit (7), and are placed as an example, to endure the retributive justice of an age-ending fire."
-
-Many have been my references to America as being Atlantis come again; much hath in a general way been said of the beginning, rise, growth and destruction of that ancient prototype; a hint hath been here and there given, rather by inference than by specific statement, that while America should be peer and even more than Atl, just because she is Atl returned on a higher plane, she must endure the woes as well as retrace her precarnate glories. The penalty visited upon Poseid was the crowning sentence of that Age. Century after century in the majestic march of Time hath passed since the sun looked down upon a wild waste of ocean waters where but a few days before had been the regal Island-Continent. Another cycle hath reached its end, and its last hour hath chimed. All that which is imperfect in the now-closed Sixth Day is come, in stately, measured but inexorable way to face judgment by the standard, Truth. Spot nor blemish can not hope to stand nor continue before it. Neither can aught be amended so as now to escape its karmic penalty, for the seal of its full time is set upon it. "The one acting unjustly, let him be unjust still; and the filthy one, let him be filthy still; and the righteous one, let him righteousness do still, and the holy one, let him be holy still. Lo, I come speedily, and the reward of me is with me, to give back unto each one as the work of him shall be found." The Great Karma unfailingly setteth each evildoer back to the point attained until the animal forces in riot obtained control over the human. Wherefore those who in the Sixth Cycle
-
-lost  over their lower selves won no place in the Seventh. In the closing years of the spent cycle one deserted his helpless wife; verily, he really deserted his birthright in the New Age. Another sought, being weak-willed, to drown worries in wine; be but drowned his soul's advanced merits. A wife was faithless to her wedding vows; the Door of the New Time is fast against her. A thief stole, what? His own life's rewards. One there was who deprived another of physical life; he also erased his own name from TO-DAY'S roll-call. One swore to keep a vow, but broke it often; in this New Day, after the grave shall claim his physical being, be shall not again awaken, having lacked will to live. A man was buried with high honors who at merciless cost to his fellowmen enriched his bank account; a gravestone near as costly as pure gold rears above his mortal, aye, and under it is also the dead hopes of resurrection. She sold her body; purchased and purchaser form an unhallowed company in Yesterday's catacombs, whence they shall not emerge to see the light of To-day until, cycles afar hence "death and hell give up" their inhabitants. Such is a brief glimpse into a Closed Record. Turn the page. Another did deeds of love; love and doers thereof live through all the days, forever. One smiled when a smile was heroic and cheered faint souls; one visited the sick and prisoners; one clothed a naked stranger; and one gave half of her last crust, though only to a starving dog. Verily, all these shall receive their reward in the Day now dawning. The bad are not all bad, neither the good wholly good. She who lived a life of shame, yet ever kept hope of better things burning in her inmost heart, and longed for death to release her, since man would not:
+Many have been my references to America as being Atlantis come again; much hath in a general way been said of the beginning, rise, growth and destruction of that ancient prototype; a hint hath been here and there given, rather by inference than by specific statement, that while America should be peer and even more than Atl, just because she is Atl returned on a higher plane, she must endure the woes as well as retrace her precarnate glories. The penalty visited upon Poseid was the crowning sentence of that Age. Century after century in the majestic march of Time hath passed since the sun looked down upon a wild waste of ocean waters where but a few days before had been the regal Island-Continent. Another cycle hath reached its end, and its last hour hath chimed. All that which is imperfect in the now-closed Sixth Day is come, in stately, measured but inexorable way to face judgment by the standard, Truth. Spot nor blemish can not hope to stand nor continue before it. Neither can aught be amended so as now to escape its karmic penalty, for the seal of its full time is set upon it. "The one acting unjustly, let him be unjust still; and the filthy one, let him be filthy still; and the righteous one, let him righteousness do still, and the holy one, let him be holy still. Lo, I come speedily, and the reward of me is with me, to give back unto each one as the work of him shall be found." The Great Karma unfailingly setteth each evildoer back to the point attained until the animal forces in riot obtained control over the human. Wherefore those who in the Sixth Cycle lost over their lower selves won no place in the Seventh. In the closing years of the spent cycle one deserted his helpless wife; verily, he really deserted his birthright in the New Age. Another sought, being weak-willed, to drown worries in wine; be but drowned his soul's advanced merits. A wife was faithless to her wedding vows; the Door of the New Time is fast against her. A thief stole, what? His own life's rewards. One there was who deprived another of physical life; he also erased his own name from TO-DAY'S roll-call. One swore to keep a vow, but broke it often; in this New Day, after the grave shall claim his physical being, be shall not again awaken, having lacked will to live. A man was buried with high honors who at merciless cost to his fellowmen enriched his bank account; a gravestone near as costly as pure gold rears above his mortal, aye, and under it is also the dead hopes of resurrection. She sold her body; purchased and purchaser form an unhallowed company in Yesterday's catacombs, whence they shall not emerge to see the light of To-day until, cycles afar hence "death and hell give up" their inhabitants. Such is a brief glimpse into a Closed Record. Turn the page. Another did deeds of love; love and doers thereof live through all the days, forever. One smiled when a smile was heroic and cheered faint souls; one visited the sick and prisoners; one clothed a naked stranger; and one gave half of her last crust, though only to a starving dog. Verily, all these shall receive their reward in the Day now dawning. The bad are not all bad, neither the good wholly good. She who lived a life of shame, yet ever kept hope of better things burning in her inmost heart, and longed for death to release her, since man would not:
 
         "Looked beyond the shadow of the late unhallowed years,
          To the far, far distant upland, where yon glimmering light appears."
@@ -3913,15 +3927,12 @@ Verily, she shall be chastened, and made new, in the glory of To-day; but the ch
 During many, centuries prophecy hath looked forward to. the end of the Age as a time of awful woe, and has pictured dread  of terminal horror. Am I come to say that all these predictions shall fail? Is the book of the Apocalypse, mere allegory? Would it were! But as the Poseid age was stricken, this one must also be which has just passed. Shall America, the Glorious, together with the rest of the world, meet similar woe? Alas, worse, though not by water but by fire. Shall all be wiped out of existence, leaving a planet in ruins? Unto the end of full obedience and the coming into harmony with divine law shall the lash be applied; words may not portray the scenes. This is the Message of the End of the Age:
 
       "The day of vengeance is in mine heart, and the year of my redeemed is come nigh" --Isaiah.
+
       "Behold, the day ... that burneth as an oven." --Malachi.
 
-The Hour hath struck. And yet in all of this there is no mystery, no supernatural penalty, no capricious infliction by an offended personal God, and nothing of "man's necessity, God's opportunity." It is all of Man's own doing. He hath wandered from the Way, and hath for the God-nature in him, which he should have revered and nourished, substituted worship of Self and of Mammon; hath cast out Love, and placed violence, lust, greed and all the riotous animalism in him in command of his life. Man is his own judge and executioner. Man is the type and the universe is the print; Nature patterns after Man, not Man after Nature. He, a being, of free-will, hath brought all coming woes of judgment to be inevitable; he must endure; as he hath sown, so must he reap. O Man, forgetter of Love, of Mercy, of Right; breeder of Hate, of Cruelty, and of the inhumanity that hath and still doth make countless millions mourn, is it possible that thou hast been blind to the handwriting on the wall? Alas, yes, thou hast! Rampant is the Spirit of selfishness, of greed, of merciless gain; its hand guides the trains and steamers, clicks the telegraph keys, operates the telephone and cables, makes a mockery of free speech, shackles the press so that it dares to
+The Hour hath struck. And yet in all of this there is no mystery, no supernatural penalty, no capricious infliction by an offended personal God, and nothing of "man's necessity, God's opportunity." It is all of Man's own doing. He hath wandered from the Way, and hath for the God-nature in him, which he should have revered and nourished, substituted worship of Self and of Mammon; hath cast out Love, and placed violence, lust, greed and all the riotous animalism in him in command of his life. Man is his own judge and executioner. Man is the type and the universe is the print; Nature patterns after Man, not Man after Nature. He, a being, of free-will, hath brought all coming woes of judgment to be inevitable; he must endure; as he hath sown, so must he reap. O Man, forgetter of Love, of Mercy, of Right; breeder of Hate, of Cruelty, and of the inhumanity that hath and still doth make countless millions mourn, is it possible that thou hast been blind to the handwriting on the wall? Alas, yes, thou hast! Rampant is the Spirit of selfishness, of greed, of merciless gain; its hand guides the trains and steamers, clicks the telegraph keys, operates the telephone and cables, makes a mockery of free speech, shackles the press so that it dares to utter only that which cannot offend its master; every human enterprise, all national policies and international comities, all things, even the churches, are willing vassals to this fiend, SELF. What then? Ruin is on all sides, the human race and all lower creatures its victims. Masons at work on a high wan shout as a brick falls: "Stand from under!"
 
-utter only that which cannot offend its master; every human enterprise, all national policies and international comities, all things, even the churches, are willing vassals to this fiend, SELF. What then? Ruin is on all sides, the human race and all lower creatures its victims. Masons at work on a high wan shout as a brick falls: "Stand from under!"
-
-Aye, stand from under! A world is falling! Pile no higher the racial and individual misdeeds now biding expiation; weary enough the awful reckoning of the Great Karma without additions to its terrible length that even now stretches ahead, a seeming eternity. Frenzied millions of men and women, boys and girls, no longer free save in name, are menaced with starvation. Hungry, cold, half-clad, shelterless only too often, denied the chance to work, however willing they may be, corporation-owned machinery their competitor;  and trust-ridden, sleeping or waking. This inhuman picture is the rule, not the exception. Thou knowest this full well. I state nothing new in this regard, and the awful facts are under drawn instead of exaggerated. All of this, although in far, far less degree, has been so at the ending of every age, was so in Poseid and is therefore now repeated. But it can never be so again after this, for HERE THE WAY DIVIDES. Poseid survived; so also shall they of the Sixth Age. In the full time by fire the Reaper shall reap, and no place be found for physical safety by the unchanged of heart. But the time of it shall be foreshortened, else no flesh could remain alive. Stand from under! The roar of armed hosts must succeed the thunderous mutterings of the times. No more is there any chance to prevent the coming retribution (albeit it may seem unduly deferred), for the causes have had their way. Too late is it to even modify the result of the misguidance of that Spirit whose hand sways the helm. A short but sharp conflict, Sanguinary past belief, even now reddens on the horizon. The trained armies, millions of men active or in reserve, that are now engaged in conquest, fevered with war, will but little longer, comparatively, submit to having themselves and loved ones ground under the heel and strangled by the hand of that organized
-
-thing, Capital, which, itself merely the natural fruit of selfishness, none the less is a riotous animal principle, compelling the few to be masters of the many, denying the God-born declaration that all men are created free and equal, and warping it to seem a giant lie. Soon millions of trained soldiers will turn upon the visible representatives, the wealthy and worldly prosperous, who in reality are not more responsible than will be their assailants, of that Relentless Force behind all human enterprise. Later they will break up into lawless bands bent on satisfying Ishmaelitish tendencies, each self-server's hand weaponed against his fellow creatures. Then will the pentup hate, the savagery and selfishness begotten by ages of selfishness ruled by unbridled animalism break in a storm such as the world hath never yet seen, no, not during all the ages I scan, ages forgotten for untold thousands of years. That loveless conflict will initiate that which, Nature completing, will leave living but one where now are many. Hard and fast after the human conflict will come pestilences unparalleled, sweeping the wide earth over, for in that day none will pause to bury the slain until the evil is wrought, nor then, for the dead of the plagues will be as thousands for every one by violence. And all this because the love that should grace and soften men's hearts, each for all and all for each, dried up and became a mockery in the close of the ended cycle, leaving but scattered oases, few and far between. Nature follows Man. Wherefore the waters of Earth will dry out, rains be withheld, cyclones sweep, and an earthquake come such as was not since a man was on the earth; aye, I am mindful of Poseid! But all of this will occur only through natural causes, and in consonance with the selfishness, lust, greed, anger and general depravity of the Type. As these blaze in the human breast, so shall the air, dry and vaporless under brazen skies, develop solar heats more fierce than history ever knew. A parched earth, furnace-like, Piling all flesh mountains high; pestilences stalking unchecked. O ye! Blind to the Handwriting on the wall, which flickers Still, though writ for a spent cycle. Turn now and read, while yet the last midnight stroke reverberates.
+Aye, stand from under! A world is falling! Pile no higher the racial and individual misdeeds now biding expiation; weary enough the awful reckoning of the Great Karma without additions to its terrible length that even now stretches ahead, a seeming eternity. Frenzied millions of men and women, boys and girls, no longer free save in name, are menaced with starvation. Hungry, cold, half-clad, shelterless only too often, denied the chance to work, however willing they may be, corporation-owned machinery their competitor;  and trust-ridden, sleeping or waking. This inhuman picture is the rule, not the exception. Thou knowest this full well. I state nothing new in this regard, and the awful facts are under drawn instead of exaggerated. All of this, although in far, far less degree, has been so at the ending of every age, was so in Poseid and is therefore now repeated. But it can never be so again after this, for HERE THE WAY DIVIDES. Poseid survived; so also shall they of the Sixth Age. In the full time by fire the Reaper shall reap, and no place be found for physical safety by the unchanged of heart. But the time of it shall be foreshortened, else no flesh could remain alive. Stand from under! The roar of armed hosts must succeed the thunderous mutterings of the times. No more is there any chance to prevent the coming retribution (albeit it may seem unduly deferred), for the causes have had their way. Too late is it to even modify the result of the misguidance of that Spirit whose hand sways the helm. A short but sharp conflict, Sanguinary past belief, even now reddens on the horizon. The trained armies, millions of men active or in reserve, that are now engaged in conquest, fevered with war, will but little longer, comparatively, submit to having themselves and loved ones ground under the heel and strangled by the hand of that organized thing, Capital, which, itself merely the natural fruit of selfishness, none the less is a riotous animal principle, compelling the few to be masters of the many, denying the God-born declaration that all men are created free and equal, and warping it to seem a giant lie. Soon millions of trained soldiers will turn upon the visible representatives, the wealthy and worldly prosperous, who in reality are not more responsible than will be their assailants, of that Relentless Force behind all human enterprise. Later they will break up into lawless bands bent on satisfying Ishmaelitish tendencies, each self-server's hand weaponed against his fellow creatures. Then will the pentup hate, the savagery and selfishness begotten by ages of selfishness ruled by unbridled animalism break in a storm such as the world hath never yet seen, no, not during all the ages I scan, ages forgotten for untold thousands of years. That loveless conflict will initiate that which, Nature completing, will leave living but one where now are many. Hard and fast after the human conflict will come pestilences unparalleled, sweeping the wide earth over, for in that day none will pause to bury the slain until the evil is wrought, nor then, for the dead of the plagues will be as thousands for every one by violence. And all this because the love that should grace and soften men's hearts, each for all and all for each, dried up and became a mockery in the close of the ended cycle, leaving but scattered oases, few and far between. Nature follows Man. Wherefore the waters of Earth will dry out, rains be withheld, cyclones sweep, and an earthquake come such as was not since a man was on the earth; aye, I am mindful of Poseid! But all of this will occur only through natural causes, and in consonance with the selfishness, lust, greed, anger and general depravity of the Type. As these blaze in the human breast, so shall the air, dry and vaporless under brazen skies, develop solar heats more fierce than history ever knew. A parched earth, furnace-like, Piling all flesh mountains high; pestilences stalking unchecked. O ye! Blind to the Handwriting on the wall, which flickers Still, though writ for a spent cycle. Turn now and read, while yet the last midnight stroke reverberates.
 
 The disciples asked the Great Master, saying: "Teacher, when will these things be?" And He said: "... When you see surrounded by encampments the Jerusalem, then you may know that has come near the desolation ... For days of vengeance these are, to be fulfilled of all the judgments."
 
@@ -3929,23 +3940,17 @@ Friends, know ye the meaning of the name Jerusalem? That it meaneth "Vision of P
 
         "Stand from under! Get into the shelter of that Cross."
 
-In all the expiatory time must indeed those who thought no wrong suffer? Ah, thought no wrong. In every life, whether theist's, atheist's or merely one ignorant of any doctrine of belief, there comes a time when the inward Spirit beseeches the soul to go up higher. It pleads again and again and yet again so -long as faintest hope remains. Omission too, hath its penalty: "How shall we escape if we neglect so great salvation?" echoed throughout the past Age. Fire burns a babe's fingers as badly as it does an adult's. There were and are those who lived and live the Cross. These shall not suffer,
+In all the expiatory time must indeed those who thought no wrong suffer? Ah, thought no wrong. In every life, whether theist's, atheist's or merely one ignorant of any doctrine of belief, there comes a time when the inward Spirit beseeches the soul to go up higher. It pleads again and again and yet again so -long as faintest hope remains. Omission too, hath its penalty: "How shall we escape if we neglect so great salvation?" echoed throughout the past Age. Fire burns a babe's fingers as badly as it does an adult's. There were and are those who lived and live the Cross. These shall not suffer, not even though bodily death overtake them; they have no Karma to expiate.
 
-not even though bodily death overtake them; they have no Karma to expiate.
+What is the Cross? What is Christ? I have said, long ago, but I will re-state it: the Divine stream of Life, the Indefinable God, that is, the long arm of the Living Cross. Directed, purposed Human Will is the short arm. This will power is our call upon His Name that is never denied. Jesus, the Man of Nazareth, gave us pattern. He sacrificed self for us. He said: "Follow me." Also: "If any man will come after me, let him deny himself, and take up his cross and follow me." This self is the lower self; it is the animal. All animals are in man concreted. No hyena is so treacherous, no tiger so ferocious, no hog so brutish, no weasel so destructive; no animal creature of any sort is so perfect in its own peculiar nature as is the man who suffers any or all of these animal characteristics within him to run riot; and this is because his human soul is enslaved to the animal. Animal is only force undirected, whether it exist in a body or not. Directed, guided by will, it ceaseth to be animal. But in yielding to that guidance it must give up its free lawlessness, something never pleasant and often painful. It is sacrifice, always. Its symbol is the Cross. He sacrificed self for us on this same cross of the Causeless, Divine Stream which containeth all things and floweth no man knoweth whence nor whither. I would not minimize Calvary; it is very, very real and the one great fact forever! "Follow me." On that same Cross, day by day, aye, moment by moment, employing our wills, as He directed, that we may grow unto His likeness, we also, following, must sacrifice self, sacrifice the animal in us, that is, in God's service we must never cease to direct those vagrant forces which in running riot turn Earth into a veritable hell and supplant Love with Self. It is written that "a little child shall lead them." Verily the "little child" of the Spirit in the New Time shall be ruler over the menagerie within the man, and that man shall therefore be able, even as Quong, the Tchin, to rule any animal outside of himself. A vast power, this. And because of it in the New Time no longer shall any beast, whether in human form, or in lower animal body, or merely apparent as a raging tempest or a disease, be free to do evil.
 
-What is the Cross? What is Christ? I have said, long ago, but I will re-state it: the Divine stream of Life, the Indefinable God, that is, the long arm of the Living Cross. Directed, purposed Human Will is the short arm. This will power is our call upon His Name that is never denied. Jesus, the Man of Nazareth, gave us pattern. He sacrificed self for us. He said: "Follow me." Also: "If any man will come after me, let him deny himself, and take up his cross and follow me." This self is the lower self; it is the animal. All animals are in man concreted. No hyena is so treacherous, no tiger so ferocious, no hog so brutish, no weasel so destructive; no animal creature of any sort is so perfect in its own peculiar nature as is the man who suffers any or all of these animal characteristics within him to run riot; and this is because his human soul is enslaved to the animal. Animal is only force undirected, whether it exist in a body or not. Directed, guided by will, it ceaseth to be animal. But in yielding to that guidance it must give up its free lawlessness, something never pleasant and often painful. It is sacrifice, always. Its symbol is the Cross. He sacrificed self for us on this same cross of the Causeless, Divine Stream which containeth all things and floweth no man knoweth whence nor whither. I would not minimize Calvary; it is very, very real and the one great fact forever! "Follow me." On that same Cross, day by day, aye, moment by moment, employing our wills, as He directed, that we may grow unto His likeness, we also, following, must sacrifice self, sacrifice the animal in us, that is, in God's service we must never cease to direct those vagrant forces which in running riot turn Earth into a veritable hell and supplant Love with Self. It is written that "a little child shall lead them." Verily the "little child" of the Spirit in the New Time shall be ruler over the menagerie within the man, and that man shall therefore be able, even as Quong, the Tchin, to rule any animal outside of himself. A vast power, this. And because of it in the New Time no longer shall any beast, whether in human form, or in
-
-lower animal body, or merely apparent as a raging tempest or a disease, be free to do evil.
-
-When the Spirit in Man cometh fully to its own, "he shall rule them as with a rod of iron,", this riotous throng. Rule them to their own good; cut them off suddenly, even as Quong cut off the puma from furthering its own will. He shall destroy that theretofore unbridled animal, by the Cross converting it. into a servitor to the Father. All things must become new TO-DAY, because conditions will soon so differ that they who would hold fast to the old will, find nothing either in Nature or elsewhere that will longer yield to the old powers.
+When the Spirit in Man cometh fully to its own, "he shall rule them as with a rod of iron,", this riotous throng. Rule them to their own good; cut them off suddenly, even as Quong cut off the puma from furthering its own will. He shall destroy that theretofore unbridled animal, by the Cross converting it into a servitor to the Father. All things must become new TO-DAY, because conditions will soon so differ that they who would hold fast to the old will, find nothing either in Nature or elsewhere that will longer yield to the old powers.
 
 And now here, of all places, I would indeed not be vague in expression. The Seventh Cycle is that of the Spirit. TO-DAY existence will demand a spiritual eye, and ear, and that every sense be raised to the Heights. The very means of dealing with Nature will be no longer gross, but become as in Hesperus, manageable only by those who, using the Cross in their every life-act, swerve never to either side of the way, never, either in least or greatest deed doing. error, even that good may come, knowing it can not bring aught but pain and penalty. Not one can be lost, finally, of the evildoers, for God wastes nothing. He converts all things from lower into higher, inexorably, surely. Some must endure the retributive justice of the Great Karma, aye., the majority must experience more or less of this fire of transfiguration; the wrath of God is Love's severity.
 
-Then will be those times when "all things are made new." What now, think ye? Shall not America, and the rest of the world, be mote glorious than ever thou hast dreamt. Aye, truly. She shall not indeed have the great population census-takers imagine. There shall be few where were many; tens replacing thousands. But not in numbers is there greatness or ; remember the Saldans and Rai Ernon; which was greater, he or that ill-fated host? Yet never shall a soul be lost; God hath place for everyone.
+Then will be those times when "all things are made new." What now, think ye? Shall not America, and the rest of the world, be mote glorious than ever thou hast dreamt. Aye, truly. She shall not indeed have the great population census-takers imagine. There shall be few where were many; tens replacing thousands. But not in numbers is there greatness or magnificence; remember the Saldans and Rai Ernon; which was greater, he or that ill-fated host? Yet never shall a soul be lost; God hath place for everyone.
 
-It is written that after a thousand years Satan shall be loosed for a little season. That is well. For the Race possessing
-
-such amazing powers, though few, will be the people, yet will there be some who will have attained these powers through mere intellect; they will abuse their privileges, having not the Spirit, and these sinful ones will the Perfect in Evil assail, that karma shall overtake them. Having had much given unto them, of them shall much be demanded, wherefore their karmic atonement will be more intense than words can depict.
+It is written that after a thousand years Satan shall be loosed for a little season. That is well. For the Race possessing such amazing powers, though few, will be the people, yet will there be some who will have attained these powers through mere intellect; they will abuse their privileges, having not the Spirit, and these sinful ones will the Perfect in Evil assail, that karma shall overtake them. Having had much given unto them, of them shall much be demanded, wherefore their karmic atonement will be more intense than words can depict.
 
 The wrath of God is love's severity. All shall be converted from lower into higher.
 
