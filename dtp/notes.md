@@ -4,7 +4,7 @@ casi-modo
 01-14
 
 mark twain - mysterious stranger
-sirian guide
+download openoffice
 
 guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
@@ -13,6 +13,7 @@ figure out how to trim trailing whitespace on save
 - add that as a feature to the plugin?
 
 old repo (for reference)
+
 
 shakespere:
 - AS YOU LIKE IT (rosalind sees to know a lot about Time)
@@ -27,16 +28,6 @@ shakespere:
 pi 1998
 we can be heros
 
-look into 2022-03-04 11:12
-
-
-###
-
-```
-The Puritans believed that tension and struggle were permanent elements of the cosmic scheme because of the eternal struggle between God and Satan. Professor Michael Walzer, in his intriguing book, Revolution of the Saints: A Study in the Origins of Radical Politics, explains their belief this way:
-
-As there is permanent opposition and conflict in the cosmos, so there is permanent warfare on earth ... This tension was itself an aspect of salvation: a man at ease was a man lost.
-```
 
 ### general book notes and topics
 
@@ -278,3 +269,31 @@ I really don't know why he splits it up this way...
 ### the closing year
 
 the closing year by george d. prentice
+
+### became a law unto himself
+
+> Even Mol Lang, before he passed and triumphed at the Crisis, to which I was soon to come, and [...] in passing that ordeal he passed from finite life to everlasting, and became a law unto himself.
+
+### the temptation
+
+> I was offered all this free, thereby violating the divine law, which never allows something for nothing.
+
+wat??? since when did the universe acquire an economic policy?
+
+> But I gathered my Δ armor about me, lest this Being, who seemed so fair and good, were not so, and if not good, its touch might be fatal
+
+fear?
+
+> Then I said: "[...] Demon, thou offerest that which subordinates all other beings in these realms to my will. This realm is governed by pleasure, passion, appetite, lust, all selfish; and no penalty set upon wild license. These carnalities would conquer me, too, if I accepted--me, who am otherwise about to become immortal, more than Man, karmaless. [...]"
+
+my will? so he's now a christ? when he says "more than Man", that must be what he means -- a christ. then, when he says, "karmaless" -- does that mean his actions no longer adhere to the "law of compensation"? is he saying, now he will will become a law unto himself (like mol lang in the section above)
+
+### anzimee's encounter with mainin to save zailm
+
+> If they take that mild hint, they will sin, and lose their souls, but I, the great Incalix, shall be saved.
+
+wat? if they have sex without being married by the religious insitution, they'll lose their souls? what on earth happened to the billions of humans that had sex before religion was around to tell them what to do???
+
+> My soul will be annihilated, my Spirit, which was unable to unite with my soul, shall go back to the Source, our Father. And then, being a soul, but thy Spirit also my Spirit, thou must also perish. Save thyself then as well as me.
+
+uhhhhh... are you serious? phyris is the astral con-artist, it looks.

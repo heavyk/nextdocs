@@ -11368,6 +11368,35 @@ you see, in a system where we're making harder and harder timelines for ourselve
 
 [1]: I presently can't try to go to sleep near to sunrise because I start to leave my body... so I'm writing this and a few other things till about 8am. I probably shoulda went to sleep earlier, but I wanted to finish the book.
 
+### 2022-03-21 15:09 - what if the split already happened?
+
+so, to summarise last night's entry, I was (very badly) explaining that while reading the book, I was postulating the idea that the split already happened -- then, having temporal (5.1) perception, instead of just going on to create new conditions, what if instead I decided to go back and condense 2ky into 1 -- with the goal in mind to allow the sun an extra 1ky years to power up. then, to make the second 1ky the most potent, make them cyclical so that 1000y from now, we go back and return to some moment pretty close to now[^1] and take a different path (see leapfrogging-time-pickles this is phase one).
+
+each iteration, everyone gets to choose their own path, and traverse the 1000y however they want to. we're evolving ourselves, but ultimately we're evolving the fallen-angels. whomever can hold out till the very end and keep to christ's ways (this will definitely be a fallen-angel) gets rewarded with becoming the next iteration's supreme ruler that can rule the earth with an iron rod.
+
+I'll jump back into the timeline and repeat performance and I'm sure most will setup their timeline's concepts and do likewise. that leaves the rest of the people to consider if they want to follow, or stay on earth. if the sun is powering up, then it'll be VERY HOT, as the sun will be outputting tremendous amounts of energy. this gives anyone (including the fallen-angels) a chance to do whatever they want. they can jump in and pick a desired timeline (or whatever see leapfrogging-time-pickles) or they can willfully setup their supreme oppressive regime to rule the earth from.
+
+from my standpoint, it really doesn't matter what anyone does. anyone not wanting to go can stay (though it'll be pretty hot), and anyone wanting to go can pick whatever timeline they wish. there's no punishment at all, unless you choose to punish yourself.
+
+personally, I think this is a far better way to perceive the "revelations" of "the end of days" because no one is asserting anything on anyone, punishing or forcing; everyone can choose whatever it is that they want. all I'm doing is taking that extra energy output from the sun and making a way to turn it into real usable sensory data.
+
+---
+
+the next subject were some reactions to the concept of spontaneously appearing organisms (including the DNA). I'd like to offer my best guess as to what's happening.
+
+the planet is a conscious entity. the sirians called him "senate kumara" and thankfully I don't know who that is said to be, but imagine that the planet is a conscious entity just like you or me.
+
+if you were to transmit a signal into someone's aura, it's not likely that signal would be visible; they might feel it though (like a ghost). if the person is an adept of sorts, they may perceive their imagination's best interpretation of that signal (like an apparition), but it's quite possible that only others with similarly tuned astral perception would be able to see it. the higher energy the aura, the more rapidly these signals can take on physical form.
+
+if it isn't already happening, it will soon start to happen that these signals will start to take on physical form in my aura.
+
+I believe the planet is no different. these concentrated zones where these apparitions of biological matter appears, are probably hot spots or nodes in a resonating environment [TODO: link electroboom microwave and speed of light video] where this energy is concentrated. this would be somewhat analogous to projecting a creative thought into the "vis naturae". that thought would take on physical form in the presence of that positive node.
+
+when those thoughts take on physical form, they will mirror the conceptualisation of the planet. DNA is just the physical realisation of that concept. your own concept of yourself modifies your DNA. each concept is like a bit of running code, and that code links to other code that links to other code. this is why you don't need to know biology to heal yourself with your mind. you just use the program, just like I'm using the code of this text editor. I don't need to know how all of the stuff works to use it; I just input things and it performs some operations and then an output comes out.
+
+so, in a sense, I believe that certain conditions -- specifically a +/- hydrogen/salt "body" to build off of -- and certain energetic conditions are all that's needed to create life which implements/reflects the input signal. the refinement of this process, is, I believe, the foundation of alchemy; the substance itself isn't the important part but the concept with which it's embued, performs the action and is concentrated over many iterations. I see a lot of parallels between the leapfrogging-time-pickles concept and alchemy in general; *you* are the salt.
+
+[1]: dunno when that is exactly (2038?); I'm not doing the implementation, probably and US govt and tesla is.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
