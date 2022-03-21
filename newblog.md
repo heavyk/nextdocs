@@ -2425,18 +2425,15 @@ when I watched curtis' [documentary on nefertari](https://www.youtube.com/watch?
 
 I think the [amarna tomb 1](https://en.wikipedia.org/wiki/Amarna_Tomb_1) tells the story visually. the main players are nefertiti, tiye, akhenaten and his daughter, [beketaten](https://en.wikipedia.org/wiki/Beketaten) (meaning handmaid of aten).
 
-```
-The Lintel on the North Wall shows a depiction of the two royal families. On the left hand side Akhenaten and Nefertiti are shown seated. Nefertiti turns toward Akhenaten. Before them four royal daughters are shown: Meritaten, Meketaten, Ankhesenpaaten and Neferneferuaten Tasherit. All four girls are holding plume shaped wands. On the right side Amenhotep III is shown seated opposite Queen Tiye who is accompanied by the princess Baketaten. Three female attendants are shown behind Tiye.
-```
+    The Lintel on the North Wall shows a depiction of the two royal families. On the left hand side Akhenaten and Nefertiti are shown seated. Nefertiti turns toward Akhenaten. Before them four royal daughters are shown: Meritaten, Meketaten, Ankhesenpaaten and Neferneferuaten Tasherit. All four girls are holding plume shaped wands. On the right side Amenhotep III is shown seated opposite Queen Tiye who is accompanied by the princess Baketaten. Three female attendants are shown behind Tiye.
 
 this is showing that "aten" is being transferred from one royal family to another -- IMO, from akhenaten and nefertiti (who's father is ay?) to amenhotep III -- through queen tiye (passing through the daughter baketaten).
 
 I made this realisation when I started to look at the statue of queen tuya in the vatican. [on their page](https://www.museivaticani.va/content/museivaticani/en/collezioni/musei/museo-gregoriano-egizio/sala-v--statuario/statua-della-regina-tuia.html), they say:
 
-```
-This work, sculpted during Dynasty XVIII with the features of Queen Tiye, wife of Amenhotep III, was “usurped” and reused during the Dynasty XIX by Ramesses II, who dedicated it to his mother Tuya. This queen, who had an important political and court role, received after her death a funerary cult associated with that of her son in the so-called Ramesseum, the burial site of Ramesses situated in West Thebes, where this statue would originally have been erected.
-On the left side of the dorsal pillar the princess Henutmire is depicted, described in the brief inscription as the “royal daughter” or the “royal wife”. Considered in the past to have been one of the daughters of Ramesses II, Henutmire has now been identified as one of the pharaoh’s sisters, possibly the daughter of the same father Seti I. Her statue would have been brought to Rome and placed in the “Gardens of Sallust” of the emperor Caligula, along with the statues of Ptolemy II, Arsinoë II and Drusilla-Arsinoë.
-```
+    This work, sculpted during Dynasty XVIII with the features of Queen Tiye, wife of Amenhotep III, was “usurped” and reused during the Dynasty XIX by Ramesses II, who dedicated it to his mother Tuya. This queen, who had an important political and court role, received after her death a funerary cult associated with that of her son in the so-called Ramesseum, the burial site of Ramesses situated in West Thebes, where this statue would originally have been erected.
+
+    On the left side of the dorsal pillar the princess Henutmire is depicted, described in the brief inscription as the “royal daughter” or the “royal wife”. Considered in the past to have been one of the daughters of Ramesses II, Henutmire has now been identified as one of the pharaoh’s sisters, possibly the daughter of the same father Seti I. Her statue would have been brought to Rome and placed in the “Gardens of Sallust” of the emperor Caligula, along with the statues of Ptolemy II, Arsinoë II and Drusilla-Arsinoë.
 
 ---
 
@@ -2937,35 +2934,33 @@ probably a messsage from now.
 
 I have no idea what this means. genius has the following top rated annotation:
 
-```
-This section needs to be analyzed backward. “The whispering wind” is likely used as an analogy for popular opinion, as it was often used in lyrics around this time. “Whispering wind” acts as something everyone can feel and experience, just as everyone experiences actual wind.
+    This section needs to be analyzed backward. “The whispering wind” is likely used as an analogy for popular opinion, as it was often used in lyrics around this time. “Whispering wind” acts as something everyone can feel and experience, just as everyone experiences actual wind.
 
-The author is then asking the lady if she can hear the popular opinion around her. This is likely in reference to her greed and use of money. It’s popular opinion that money, something the lady often uses, is worth value. But this line reveals the flaw in materialism. Her money is only good BECAUSE the popular opinion is that it’s worth something. Her reliance on the money she has, has resulted in her cutting off her closest friends and family to the point where she may not be able to “hear” them anymore.
-```
+    The author is then asking the lady if she can hear the popular opinion around her. This is likely in reference to her greed and use of money. It’s popular opinion that money, something the lady often uses, is worth value. But this line reveals the flaw in materialism. Her money is only good BECAUSE the popular opinion is that it’s worth something. Her reliance on the money she has, has resulted in her cutting off her closest friends and family to the point where she may not be able to “hear” them anymore.
 
 so, going by that, the ones that are buying their stairway to heaven (people paying for usage of my perception?) should consult the public opinion and figure out which tune to tell the piper to play.
 
 she who pays [for the stairway to heaven], plays the tune.
 
-> And as we wind on down the road
-> Our shadows taller than our soul
-> There walks a lady we all know
-> Who shines white light and wants to show
-> How everything still turns to gold
+    And as we wind on down the road
+    Our shadows taller than our soul
+    There walks a lady we all know
+    Who shines white light and wants to show
+    How everything still turns to gold
 
 wait, maybe I'm the lady. maybe I'm the whore of babylon... anyway,
 
-> And if you listen very hard
-> The tune will come to you at last
+    And if you listen very hard
+    The tune will come to you at last
 
 don't stress. the tune will come gradually.
 
-> When all are one and one is all
-> To be a *rock* and not to roll
+    When all are one and one is all
+    To be a *rock* and not to roll
 
 so, straight ahead, and not flipped over. aquarius, not leo.
 
-> And she's buying a stairway to Heaven
+    And she's buying a stairway to Heaven
 
 ---
 
@@ -3394,32 +3389,30 @@ I really don't understand what is the reason for all of these weird feelings. I 
 
 that was the intro. before that though, I turnd on the song I had open wanting to write this (@[youtube](https://www.youtube.com/watch?v=_ffaD1lw8rg)), and it stars off with with a poem:
 
-```
-Do not go gentle into that good night,
-Old age should burn and rave at close of day;
-Rage, rage against the dying of the light.
+    Do not go gentle into that good night,
+    Old age should burn and rave at close of day;
+    Rage, rage against the dying of the light.
 
-Though wise men at their end know dark is right,
-Because their words had forked no lightning they
-Do not go gentle into that good night.
+    Though wise men at their end know dark is right,
+    Because their words had forked no lightning they
+    Do not go gentle into that good night.
 
-Good men, the last wave by, crying how bright
-Their frail deeds might have danced in a green bay,
-Rage, rage against the dying of the light.
+    Good men, the last wave by, crying how bright
+    Their frail deeds might have danced in a green bay,
+    Rage, rage against the dying of the light.
 
-Wild men who caught and sang the sun in flight,
-And learn, too late, they grieved it on its way,
-Do not go gentle into that good night.
+    Wild men who caught and sang the sun in flight,
+    And learn, too late, they grieved it on its way,
+    Do not go gentle into that good night.
 
-Grave men, near death, who see with blinding sight
-Blind eyes could blaze like meteors and be gay,
-Rage, rage against the dying of the light.
+    Grave men, near death, who see with blinding sight
+    Blind eyes could blaze like meteors and be gay,
+    Rage, rage against the dying of the light.
 
-And you, my father, there on the sad height,
-Curse, bless, me now with your fierce tears, I pray.
-Do not go gentle into that good night.
-Rage, rage against the dying of the light.
-```
+    And you, my father, there on the sad height,
+    Curse, bless, me now with your fierce tears, I pray.
+    Do not go gentle into that good night.
+    Rage, rage against the dying of the light.
 
 weird. OK, so I should just follow the syncs as snake-bros were saying? seems strange. it's times like these when I really wish I knew what was happening...
 
@@ -3846,9 +3839,7 @@ not a problem really because I'm fairly certain that this also produced a time s
 
 so, basically, I'm sort of resurrecting this lazarus that's been in the grave for 3.5 days now. that's probably probaably why I talk so much about source (aten). I'm essentially akhenaten and I'm here with a genetic upgrade for humans. the amun priesthood doesn't want their cash cow upset though. they can't allow other humans to have such capabilities of knowing that they *source* -- divine eternal consciousness having a physical experience. that's unaacceptable; you gatta earn it.
 
-```
-for the elite, the children of Elias, will be saved according to the word of Scripture, because their profound faith, their *untiring perserverance in effort*, will have *earned* for them the *right* to be *promoted* to rank of disciples of Christ-Light. They will *bear his sign* and will receive from him the mission of renewing for regenerated humanity the chain of *tradition* of the humanity that has dissappeared.
-```
+    for the elite, the children of Elias, will be saved according to the word of Scripture, because their profound faith, their *untiring perserverance in effort*, will have *earned* for them the *right* to be *promoted* to rank of disciples of Christ-Light. They will *bear his sign* and will receive from him the mission of renewing for regenerated humanity the chain of *tradition* of the humanity that has dissappeared.
 
 emphasis mine, from "Mystery of Cathedrals" lecture (@[youtube](https://youtu.be/f2s_2Tl3HBE)).
 
@@ -6550,21 +6541,20 @@ that game was also weird because I also felt like listening to music while playi
 
 however, I noticed a bit of a shift when I got to "Miss Monique - Live @ Dead Sea [Melodic Techno_ Progressive House DJ Mix] 4K [ea80AEjiBhs]". the previous two really didn't have any lyrics in them at all. there was a voice line from a movie about something technical but the rest is old-school techno type stuff. at around 21:21 in that mix, there is a song that has some interesting lyrics:
 
-```
-I'm calling you awake from the sleep you've been sleeping for years
-when I wait for the day,
-been awake like woes(?) and feel
-and when the essence of life is coming down from above,
-to lay down where you lie
-time will lose it's weight on you,
-in the dark dark dark, darkened skies
+    I'm calling you awake from the sleep,
+    you've been sleeping for years
+    been await for the day,
+    been await like wolves in the field
+    and when the essence of life is coming down from above,
+    to lay down where you lie
+    time will lose it's weight on you,
+    in the dark dark dark, darkened skies
 
-we're in the darkening skies
-we're in the darkening skies
-we're in the darkening skies
-we're in the darkening skies
-we're in the darkening skies
-```
+    we're in the darkening skies
+    we're in the darkening skies
+    we're in the darkening skies
+    we're in the darkening skies
+    we're in the darkening skies
 
 at that time in the mix was when I fought my last battles and lost. I felt sort of helpless cause I just couldn't get the cards to play that I needed. I had too much energy and nothing to spend it on. the lesson to be learned here is probably one of focus. when that song came on, I started to think about alesia and how that song seemed significant to me the first time I heard it. it's 20m into the mix, and I believe the change in feel kinda helped me to lose my focus a bit. I got distracted.
 
@@ -6834,13 +6824,11 @@ it started with jesus' grandfather joachim being unable to conceive with his wif
 
 the explanation for why she must be artificially inseminated while still a virgin is interesting...
 
-```
-For, without sleeping with a man, while a Virgin, you will  conceive and while a Virgin you will give milk from your breast.
+    For, without sleeping with a man, while a Virgin, you will conceive and while a Virgin you will give milk from your breast.
 
-For the Holy Ghost will come upon you, and the power of the Most High will overshadow you, without any of the *heats of lust*.
+    For the Holy Ghost will come upon you, and the power of the Most High will overshadow you, without any of the *heats of lust*.
 
-So that to which you will give birth will be only holy, because it only is conceived without sin, and being born, shall be called the Son of God.
-```
+    So that to which you will give birth will be only holy, because it only is conceived without sin, and being born, shall be called the Son of God.
 
 the when I read that, the part that stood out to me was the part about the "heats of lust". I don't know how far I want to go into the mythology here, but the alternative explanation to the adam and eve story is the "pandora's box" story. in this one, girls were created pure from vulcan (I think) for zeus to disipline the people with. then to give her personality, she was given various traits by different "gods". some were good traits like desire to cook and make a house by athena (I think). other traits that she was given were lies, deception, etc. by other gods.
 
@@ -6974,10 +6962,10 @@ that's kinda the idea, yeah.. maybe instead of trying to do everything the right
 
 on page 55 of "gods of eden" bramley says,
 
-```
-Ea's title was changed from "Prince of Earth" to "Prince of Darkness." He was labeled other horrible epithets: Satan, the Devil, Evil Incarnate, Monarch of Hell, Lord of Vermin, Prince of Liars, and more. He was portrayed as the mortal enemy of a Supreme Being and as the keeper of Hell. People were taught that his only intentions were to spiritually enslave everyone and that everything bad on Earth was caused by him. Humans were encouraged to detect him in all of his future lives ("incarnations") and to destroy him and his creations whenever he was discovered.
-All beliefs and practices named after his various appellations ("Satanism," "Devil Worship," etc.) were to be made so horrific and degrading that no right-thinking person would (or should) have anything to do with them. He and his followers were to be viewed by human beings with nothing but the utmost loathing.
-```
+
+    Ea's title was changed from "Prince of Earth" to "Prince of Darkness." He was labeled other horrible epithets: Satan, the Devil, Evil Incarnate, Monarch of Hell, Lord of Vermin, Prince of Liars, and more. He was portrayed as the mortal enemy of a Supreme Being and as the keeper of Hell. People were taught that his only intentions were to spiritually enslave everyone and that everything bad on Earth was caused by him. Humans were encouraged to detect him in all of his future lives ("incarnations") and to destroy him and his creations whenever he was discovered.
+
+    All beliefs and practices named after his various appellations ("Satanism," "Devil Worship," etc.) were to be made so horrific and degrading that no right-thinking person would (or should) have anything to do with them. He and his followers were to be viewed by human beings with nothing but the utmost loathing.
 
 he's describing the corruption of the original brotherhood of the snake -- an organisation dedicated to providing education to humans who wanted to gain access to higher levels of their perception.
 
@@ -7009,9 +6997,7 @@ I don't believe in doing things the right way... you know, I think it's for the 
 
 my goodness bramley gets me thinking about a lot of good stuff. at the end of chapter 15 he's talking about how violence brings about change:
 
-```
-The victorious use of violent force depends upon skills that have nothing to do with whether or not one's cause is a just one. The man who can draw his six-shooter the fastest is not necessarily the man with the best ideals.
-```
+    The victorious use of violent force depends upon skills that have nothing to do with whether or not one's cause is a just one. The man who can draw his six-shooter the fastest is not necessarily the man with the best ideals.
 
 that got me thinking. in the previous entry (or was it the one before it?) I was talking about how the alpha organisations (the world leaders) eventually find theirselves in such a jam that they're out of ways for maintaining control of the population.
 
@@ -7171,13 +7157,11 @@ weird coincidence, just now the song by "man with no name" came on where the wom
 
 in "gods of eden" bramley is commenting on an admittance in the book of mormon:
 
-```
-The forced amnesia described in Mormon had several purported purposes, one of which was:
+  The forced amnesia described in Mormon had several purported purposes, one of which was:
 
-> ... to ensure that our choice of good or evil would reflect our earthly desires and will, rather than the remembered influence of our All-Good Heavenly Father.
+  > ... to ensure that our choice of good or evil would reflect our earthly desires and will, rather than the remembered influence of our All-Good Heavenly Father.
 
-This is also an astonishing admission. It alleges that spiritual memory is dimmed so that people will base their actions on their concerns as material beings rather than upon their knowledge and remembrance of spiritual existence.
-```
+  This is also an astonishing admission. It alleges that spiritual memory is dimmed so that people will base their actions on their concerns as material beings rather than upon their knowledge and remembrance of spiritual existence.
 
 I sort of disagree with this, but it largely has to do with my perspective now. from my vantage point now, reality feels like a game. it's like this epic quest to discover who you really are and to then enjoy that form of perception. I believe that I really like playing this game and quite enjoy a more and more difficult set of circumstances along the way.
 
@@ -7189,9 +7173,7 @@ imagine being able to play your favourite game and every time it feels like the 
 
 he continues...
 
-```
-This can only hamper the ability of individuals to attain a high level of ethics because true ethics must ultimately take into account a person's spiritual nature when confronted with an ethical dilemma. By reducing all questions of ethics to strictly earthly concerns, people are prevented from fully resolving those ethical questions that will start them on the road to full spiritual recovery. This restriction is precisely what the Custodians wanted, as revealed in the Old Testament: "God" did not want Adam and Eve to "eat" from the "tree of knowledge of good and evil" because it would lead to knowledge of how to regain spiritual immortality.
-```
+    This can only hamper the ability of individuals to attain a high level of ethics because true ethics must ultimately take into account a person's spiritual nature when confronted with an ethical dilemma. By reducing all questions of ethics to strictly earthly concerns, people are prevented from fully resolving those ethical questions that will start them on the road to full spiritual recovery. This restriction is precisely what the Custodians wanted, as revealed in the Old Testament: "God" did not want Adam and Eve to "eat" from the "tree of knowledge of good and evil" because it would lead to knowledge of how to regain spiritual immortality.
 
 I've come to think of the trees of the garden of eden to be parts of the brain, where each hemisphere represents a different aspect or personality of yourself.
 
@@ -7221,18 +7203,15 @@ more likely, I believe the custodians don't want their property (humans) making 
 
 I don't know what to say about this, other than I'm definitely a pure communist, in that I definitely believe in non-physical existance. however, there is an element of truth that this philosophy has. it's based on the concept of synthesis:
 
-```
-Hegel's idea of the "dialectic" can be explained this way: from a thesis (an idea or concept) and an antithesis (a contradictory opposite) one can derive a synthesis (a new idea or concept which is different than the first two, but is a product of them).
-Marx took this seemingly scientific idea and incorporated it into his theory of social history.
-```
+    Hegel's idea of the "dialectic" can be explained this way: from a thesis (an idea or concept) and an antithesis (a contradictory opposite) one can derive a synthesis (a new idea or concept which is different than the first two, but is a product of them).
+
+    Marx took this seemingly scientific idea and incorporated it into his theory of social history.
 
 this is exactly how I do most of the transformations in my head. I don't limit myself to thesis/antithesis pairs though to make a synthesis. all concepts can be combined to produce a synthesis. this is precisely how constructive/destructive interference works in light and wave vibrations. nothing new here.
 
 the idea here now is that the synthesis is the communist utopia. however, before we can get there, we have to subject them to the antithesis to the utopia for the utopia to emerge.
 
-```
-The communist vision of Utopia is a curious, but significant one. In it, everyone is a worker equal to every other worker. No one owns anything but everyone together owns everything; everybody gets everything they need but not necessarily everything they want; but before this Utopia occurs, everyone must first live in a dictatorship.
-```
+    The communist vision of Utopia is a curious, but significant one. In it, everyone is a worker equal to every other worker. No one owns anything but everyone together owns everything; everybody gets everything they need but not necessarily everything they want; but before this Utopia occurs, everyone must first live in a dictatorship.
 
 I suppose I agree with marx on the synthesis as being produced from the combination of concepts. I also agree with marx in that one should not fear unwanted, for there is nothing inherently wrong with anything. people participate in dictatorships because they resonate with it (eg. desire to have dictatorial power theirselves).
 
@@ -9462,9 +9441,7 @@ I would really rather be in the girl's perspective than in the robot's perspecti
 
 the more automatons I can control with my feeling/desire, the more I can enjoy the feeling (movement of energy).
 
-```
-you are not your body. in 5d, the automaton that you would believe is "nou" is just a reflection of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, unhappy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
-```
+    you are not your body. in 5d, the automaton that you would believe is "nou" is just a reflection of the way you conceptualise yourself (believe yourself) to be. it will appear however you think you are (dead, alive, sick, succussful, unhappy, etc). it does what you think and performs/creates the reality that you feel, but that automaton (however you perceive it to be) is not "you"; it's a reflection of you. this is also true in 3d/4d as well, but less noticable because you see through your eyes. you think, that creates a feeling, and then your body reflects that feeling (which usually came from a thought). if you've had a brain haemorrhage and are paralysed, you'll understand what I mean. the body is just an automaton -- a consciousness focusing mechanism allowing the consciousness to have 5 senses, feel, broadcast and receive, etc. in its environment. "you" then assimilate that sensory data and respond to it. that creates your next moment in "time".
 
 a final example would be to apply the concept to the creative output of this writing. you may think that I'm saying that I never want to deal with the physical manifestation of having to type and use my mouse to write this. my goal and what I'd love to do, is just think and and feel the flowing of the energy into what the manifestation of the words appearing on the screen here. however, until my computer can be influenced by my feelings, I have to deal with the physical manifestation of moving my mouse and banging away at the keyboard. I still type and stuff. it's not that big of a deal, but I don't really enjoy typing. it's uncomfortable and not even remotely pleasurable at all. sure, OK at least sex is pleasurable, so it has that -- but I'm not really looking for pleasure. I write here to listen to myself think "out loud". if I wanted pleasure I'd do something else. for me sex would be at most an energetic input which I later convert into something tangible. that creative energetic output for me is the real enjoyment. sex is about as fun as a dialup modem. it feels really slow, enefficient and takes a pretty lengthy handshake to connect.
 
@@ -10594,11 +10571,9 @@ right now, the veritassium idea feels good to me. I don't have any personal pref
 
 the final section here (hopfully) is that I'm reminded of a thing I wrote a while back about a dream I had with jessica (@[newblog](2022-02-28 10:32)).
 
-```
-what's happening is, they're having to try and lower my mental state of resistance lower and lower to be able to influence me to do what they want -- however, the lower the resistance they go the more risk they run of my resistance going *too low*.
+    what's happening is, they're having to try and lower my mental state of resistance lower and lower to be able to influence me to do what they want -- however, the lower the resistance they go the more risk they run of my resistance going *too low*.
 
-in fact, that may be exactly how the split happens. for them, they lower my resistance so low, they are seemingly able to influence me to do what they want (like I felt was going to happen on the rock with amorina), while in my perception, they lower my resistance low enough, that I get connected... I don't know.
-```
+    in fact, that may be exactly how the split happens. for them, they lower my resistance so low, they are seemingly able to influence me to do what they want (like I felt was going to happen on the rock with amorina), while in my perception, they lower my resistance low enough, that I get connected... I don't know.
 
 this idea has stuck with me as the most likely split that'll happen. I notice that they are constantly trying to steer me with various different techniques. I used to resist them, thinking that I should try and go my own way, but I've been realising more and more that I don't need to resist them at all. resisting them is bad. if I just follow my emotions, then everything works out.
 
