@@ -270,6 +270,98 @@ I really don't know why he splits it up this way...
 
 the closing year by george d. prentice
 
+    'Tis midnight's holy hour, and silence now
+    Is brooding like a gentle spirit o'er
+    The still and pulseless world. Hark! on the winds
+    The bell's deep tones are swelling,—'tis the knell
+    Of the departed year.
+    No funeral train
+
+    Is sweeping past; yet on the stream and wood,
+    With melancholy light, the moonbeams rest
+    Like a pale, spotless shroud; the air is stirred,
+    As by a mourner's sigh; and on yon cloud
+    That floats so still and placidly through heaven,
+    The spirits of the seasons seem to stand—
+    Young Spring, bright Summer, Autumn's solemn form,
+    And Winter with his aged locks—and breathe,
+    In mournful cadences that come abroad
+    Like the far wind-harp's wild and touching wail,
+    A melancholy dirge o'er the dead year,
+    Gone from the earth forever.
+
+    'Tis a time
+    For memory and for tears. Within the deep,
+    Still chambers of the heart a specter dim,
+    Whose tones are like the wizard voice of Time,
+    Heard from the tomb of ages, points its cold
+    And solemn finger to the beautiful
+    And holy visions that have passed away,
+    And left no shadow of their loveliness
+    On the dead waste of life. That specter lifts
+    The coffin lid of Hope, and Joy, and Love,
+    And, bending mournfully above the pale,
+    Sweet forms that slumber there, scatters dead flowers
+    O'er what has passed to nothingness.
+
+    The year
+    Has gone, and with it many a glorious throng
+    Of happy dreams. Its mark is on each brow,
+    Its shadow in each heart. In its swift course
+    It waved its scepter o'er the beautiful,—
+    And they are not. It laid its pallid hand
+    Upon the strong man,—and the haughty form
+    Is fallen, and the flashing eye is dim.
+    It trod the hall of revelry, where thronged
+    The bright and joyous, and the tearful wail
+    Of stricken ones is heard, where erst the song
+    And reckless shout resounded. It passed o'er
+    The battle plain, where sword, and spear, and shield
+    Flashed in the light of midday—and the strength
+    Of serried hosts is shivered, and the grass,
+    Green from the soil of carnage, waves above
+    The crushed and mouldering skeleton. It came
+    And faded like a wreath of mist at eve;
+    Yet, ere it melted in the viewless air,
+    It heralded its millions to their home
+    In the dim land of dreams.
+    
+    Remorseless Time!
+    Fierce spirit of the glass and scythe!—what power
+    Can stay him in his silent course, or melt
+    His iron heart to pity? On, still on
+    He presses, and forever. The proud bird,
+    The condor of the Andes, that can soar
+    Through heaven's unfathomable depths, or brave
+    The fury of the northern hurricane,
+    And bathe his plumage in the thunder's home,
+    Furls his broad wings at nightfall and sinks down
+    To rest upon his mountain crag—but Time
+    Knows not the weight of sleep or weariness,
+    And night's deep darkness has no chain to bind
+    His rushing pinions. Revolutions sweep
+    O'er earth, like troubled visions o'er the breast
+    Of dreaming sorrow,—cities rise and sink
+    Like bubbles on the water,—fiery isles
+    Spring blazing from the ocean, and go back
+    To their mysterious caverns,—mountains rear
+    To heaven their bald and blackened cliffs, and bow
+    Their tall heads to the plain,—new empires rise,
+    Gathering the strength of hoary centuries,
+    And rush down like the Alpine avalanche,
+    Startling the nations,—and the very stars,
+    Yon bright and burning blazonry of God,
+    Glitter a while in their eternal depths,
+    And, like the Pleiad, loveliest of their train,
+    Shoot from their glorious spheres, and pass away
+    To darkle in the trackless void,—yet Time,
+    Time, the tomb-builder, holds his fierce career,
+    Dark, stern, all-pitiless, and pauses not
+    Amid the mighty wrecks that strew his path
+    To sit and muse, like other conquerors,
+    Upon the fearful ruin he has wrought.
+
+
 ### became a law unto himself
 
 > Even Mol Lang, before he passed and triumphed at the Crisis, to which I was soon to come, and [...] in passing that ordeal he passed from finite life to everlasting, and became a law unto himself.

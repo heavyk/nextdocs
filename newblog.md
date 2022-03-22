@@ -11524,7 +11524,7 @@ wait, didn't doyle write sherlock holmes?? I feel like I just solved the mystery
 
 ### 2022-03-22 06:07 - weirdnesses
 
-one of the funny things about poetry is it expands the mind unorderly, misconducted information... I noticed some of the reactions to my previous entry wondering how I can write something so profound in @[newblog](2022-03-21 22:25), and then turn around a few minutes later and write the messy dilusions of a deranged mind in @[newblog](2022-03-21 23:54).
+one of the funny things about poetry is it expands the mind[^2] unorderly, misconducted information... I noticed some of the reactions to my previous entry wondering how I can write something so profound in @[newblog](2022-03-21 22:25), and then turn around a few minutes later and write the messy dilusions of a deranged mind in @[newblog](2022-03-21 23:54).
 
 well, I have a "beautiful mind". just the same as john nash, these things just come to me. I don't resist them, so my default state is to just let the ideas grow and mature, and then pick out the bad ones later. some yield 30 fold, some 60, and some 100. the rest, I burn. I've found that my bad ideas are sort of like "the wrong stairsteps" -- in that they still advance my thinking process, just may not be very stable or sure.
 
@@ -11550,7 +11550,9 @@ let's say for a moment, that I consciously decided that I wanted to purposefully
 
 so then, why not see whatever circumstances I'm in (no matter how parasitic they are) with a perception that I'm still going the way I want to go?[^1] different types of resistance create different things; and, my leapfrogging-time-pickles idea is the pinnacle of that concept in implementation... the absolute limit -- 99.5% efficiency.
 
-[1]: it's just more energy that will be released on the opposite side of the sphere after returning.
+[1]: it's just more energy that will continue on out the opposite side of the sphere after returning. the faster it returns, the faster it exits, so therefore the greater the magnitude of the transition and rebirth
+
+[2]: I am, of course, referring to the book of the gosh darn it.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
