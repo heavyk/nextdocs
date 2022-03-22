@@ -11398,6 +11398,70 @@ so, in a sense, I believe that certain conditions -- specifically a +/- hydrogen
 
 [1]: dunno when that is exactly (2038?); I'm not doing the implementation, probably and US govt and tesla is.
 
+### 2022-03-21 22:25 - a new view on karma
+
+I decided to read another channeled thing by the same guy that did the sirian guide (george). this time he's channeling sir conan doyle. he's talking about the nature of reality:
+
+    Karmic patterns are not a necessary function of the physical plane. In other words you do not have to play out Karmic patterns. You are in control when you can neutralize the reactionary patterns of thought which is referred to as Karma. The reactions of Karma originate on the Astral and Mental levels; they in turn filter down and intermingle with the physical plane.
+
+    You might say that the consciousness is a spirit waiting to be born and that it is born into infinity. The spirit to be is encased in the matter of the astral and the mental. The excess weight must be chipped away, until the spirit is freed for its continued journey to the SOURCE.
+
+    For many people the astral and mental levels, through the process referred to as Karma, is like a snowball rolling down a hill. As time passes it gets larger and larger. And the entity within is encased more and more in Karmic webs and Karmic patterns. These layers, if you will, are strong energizers that affect the automaton that we refer to as the physical vehicle. This automaton can be controlled by the consciousness but it is also driven by the matter; the elementals, if you will, that comprise the mental and the astral planes. And so you have opposing forces here. You have the consciousness waiting to be born; waiting to be freed from its prison of encased matter and you have the prison itself wishing to remain intact and constantly building upon itself due to reactionary patterns.
+
+that second paragraph really stood out to me. I included the other two for context, but I never thought about the idea: (paraphrased) "consciousness is a spirit waiting to be born into infinity".
+
+you see, I had always thought about the death and rebirth cycle as a cyclical process whereby the essence of the person is distilled and concentrated removing the excess crap. that's a very alchemical view of things and I don't know how I got that idea because I've literally never read an alchemy book or studied it. I've tried a few times and I've felt like they were purposefully misleading and very confusing.
+
+anyway, later on that view changed a lot with the help of abraham and I learned of the "triad of intentions": freedom, growth, and joy[^1]. I began to think of incarnation, not as a purification process, but as embodiment of those aspects. growth is inevitable, freedom is your stability, and joy is what you come for. I started to see from the exhileration of that non-physical perspective how much *fun* it is to incarnate and mix things up, as all hurt, pain, and suffering is an illusion with its foundations built upon misunderstandings of the nature of reality.
+
+after that, I started to think a lot more about what is consciousness, and who is "me". like, I'm here on the planet in a human body right now, but if I interact with someone and I see or feel from their perspective, am I not "them" for that moment? the sirians say on the buddhic plane (4), when you communicate with someone there, the two minds join and anything can be accessed by either. so then when we stop communicating, why do I go back to me?
+
+or, if while here in a human body, I take on the perspective of 5d and I can see myself like I see a concept -- from all angles and aspects simultaneously, so then where I focus, becomes "me" for that moment. I'm still aware of myself as different than my focus.
+
+now, continuing on in 5d perspective, if I were to now take upon the perspective that the planet, and I can look around on the planet and feel my interactions with other planets, celestial bodies and the sun, am "I" also the planet for that moment?
+
+I truly believe that "you" are whatever focus you're tuned into. most of us can't imagine what it would be like to be a star or a planet or a galaxy -- however, as a kid I couldn't imagine what it would be like to be an adult, either -- so, could I just simply "grow" or "expand" my perception, just as a child "grows" theirself up?
+
+---
+
+I've I really started to think about what exactly is consciousness in recent years, because ... consider this example:
+
+let's say there are 1k people dying each year, and these are souls waiting to incarnate -- however, there are also 100k births every year. so, are there 99k soulless people born each year? did "God" create a finite number of souls that incarnate? or, do souls reproduce in the same manner than humans reproduce? how do *they* reproduce? do you suppose that every single being that is created, every cell, to every organism, plant, animal, etc, all create their soul when they're born.
+
+if that's the case (seems the most logical), then when we die, when we "reincarnate" are we actually two or more sympathetically vibrating souls sharing a single body? what about other timelines? I know that all possible versions of me do exist, though I'm not tuned into those realities...
+
+see what I'm saying? a while back I heard a question on abe-now about the proposed idea of a soul of an earthworm. cut it in half, do you now have two souls with one vibrating very slightly differently than the other one (for simply they occupy different points in space); what about time? if I split my timeline, I would assume that there are two very similarly vibrating "souls" of mine, just with the slight variation of being tuned to different points in time.
+
+    "consciousness is a spirit that is waiting to be born into infinity"
+
+---
+
+as I was contemplating the above idea, I had this image (concept) appear in my brain and I could see a giant luminous star and it is sending out these particles. these particles are "souls" or "incarnations" and as they go out, they're getting engrossed into matter. some turn into light elements, some into heavy elements. ultimately these elements attract one another and more and more complex molecules, organisms, comets, planets, etc. coalesce over time into a structure reflective of that "soul".
+
+once more, a different way... the sun sends out these vibrational blueprints/concepts into its atmosphere, and those concepts/blueprints interact with the environment and other concepts, taking upon theirselves matter as they travel further and further away from their source (the sun). they continue to travel out for quite some time and some become stable and useful structures that stay in the environment for a while (planets, comets, etc), each attracting more "matter" reflective of their concept...
+
+well, at some point that matter loses its "zest for life" and wants to return "back to the light" -- back to its source. at that point, it begins to shed that dense physical matter. if, for example it attracts a collision and has its matter stripped that way, the concept returns back to its source a slightly updated concept of itself (with the addition of I'd like to avoid that collision next time), and so it goes back toward the sun.
+
+the concept continues through the sun, gathering again matter on its way back out again, and extends out into the environment. "hopefully, this time I can become a comet or planet and stay out here a little longer." this process continues until it either becomes a structure of such importance that it remains useful to the star and persists. let's say it became a planet, and that planet begins to attract sympathetically vibrating life/organisms on it, and those give birth to more concepts. the concept is successful! it makes more concepts similar to itself.
+
+each time a death, impact or destruction happens, it strips away the matter and the concept returns to its source again, only to be once again re-emitted[^1] on the opposite side. each time it gets emitted bigger and more powerfully than before, becoming itself more attractive. this is what he says when he says "karma".
+
+after becoming big enough and attractive enough in the positive (outward, karma collecting) movement, it becomes self-aware, or conscious, and begins it's return "back to the source". now, it's realised itself as an attractive/receptive thing. this happens, because at some point, the snowball of karma becomes so big that it's impossible to continue to go out further. he's just sitting there now and anything that he focuses on, he attracts, so he keeps getting bigger. he can either continue to get bigger and bigger or one day realise that *he* is an attractive and receptive entity.
+
+as a conscious entity/concept/spirit, I will now consider this to be the female aspect, as now she begins to become selective of what she is attracting. ultimately the things that are least resistant and/or higher frequency appear to be the attractive ones. she continues to attract more and more higher frequency, the higher she goes, the closer she gets to infinity. if she can just arrive back to the source, not at the low frequency concept that she left as, but at an infinitely high speed, then the whole source is forced to make its transition into something new, so it begins its return now back to its source.
+
+you could see imagine if someone in a star system did that, it would set off a pretty big chain reaction forcing many forms to return back to their sources in a higher energy state.
+
+macro evolution -- both for the spirit/soul/concept, but for the the physical as well (supernova).
+
+---
+
+I mixed the words: soul, spirit, concept and source -- perhaps a bit too much; sorry about that. I intend to mean aspects of the mental plane (5). I am also using gender in the polarity sense -- and I'm not specifying the gender of the body that you incarnate into. many females (those on their way back to their source) may be in male bodies, and vice versa.
+
+... reflecting on that idea, I'm pretty certain that I'm on my return back to my source -- which may explain nosebook's refusal to allow me to "create" anything -- instead forcing me to attract what I want, instead of creating it. I almost certainly created (in the LOA sense), or attracted nosebook into my reality, anyway.
+
+[1]: ohhhh, triad huh?? now that I understand triads, those just illuminated in a whole new way. joy is the female aspect, freedom the ground, and growth the emitter. wow :)
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
