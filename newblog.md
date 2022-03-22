@@ -11462,6 +11462,54 @@ I mixed the words: soul, spirit, concept and source -- perhaps a bit too much; s
 
 [1]: ohhhh, triad huh?? now that I understand triads, those just illuminated in a whole new way. joy is the female aspect, freedom the ground, and growth the emitter. wow :)
 
+### 2022-03-21 23:54 - the split already happened
+
+I'm continuing to read that one thing about karma (I'll turn it into a document soon), and I get to this part below... context is, he's talking about how the planet was designed to retain astral and mental entties, and because of the closeness in vibration the entites have to eachother and the planet, the planet is a big tangled mess of karma and wants to begin shedding some weight...
+
+    And the host, which is this planet, is sick. It is ill and as with any ill organism, it seeks to remedy itself; to destroy that which is causing its illness. In terms of the planet earth, it is humanity that is causing its illness and the planet is readying itself to purge the parasites that are damaging it.
+
+once again, another apocalyptic prophecy made in 1984 that didn't even come close to coming true. anyway, as I read it, I'm thinking about how I have taken the parasite idea and completely flipped it. instead of purging the parasites, I have decided that they are "just more energy" and have decided to, using the power of perception (a salesperson's favourite tool -- a 2nd ray concept), exploit the parasites for all of that extra energy. more parasites = more energy. I don't want to purge them, but instead give them the tools to be *more* parasitic...
+
+---
+
+so, as I'm reading that I'm thinking about 1984 -- the year of the dystopian nightmare. tesla was born in 1856, and my second "me" was born 144y later in 2000, so I'll use that as a reference point subtracting multples of 2^x, I noticed a few dates...
+
+- 2112 (+256y)
+- 2048 (remember that game? probably also the peak of the gleisburg cycle)
+- 2036 (I think some planetary alignment)
+- 2024 (I turn 40)
+- 2012
+- 2000 (I was 16. reborn)
+- 1994 (I was 11. solar minimum) <- not a multiple
+- 1984 (zero-point midpoint reflection)
+- 1936
+- 1920
+- 1904
+- 1888
+- 1856 (-256y)
+
+so then, I was thinking about this, and I notice that 144 is divisible by 12, and 12 seems to show up. I don't have a spreadsheet app to do further calculations, but I feel like something is here but I'm going to go full alex jones on this... it's illuminati, OK?
+
+the 2112 year is just 11 * 192. 1856 + 192 = 2048.. also, 11*11y after my "rebirth". OK, so I it seems that a lot of significant years appear to as multiples of the prime factors of 2112: 2, 2, 2, 2, 3, 11. my mind likes to see numbers, so I just go with it, as they're inspiring to me.
+
+---
+
+while thinking about that (in a conceptual sense, cause I added those numbers on the calculator after writing the previous entry), I had this flash that happened. I realised that all of that stuff written in the 1800s did happen, and the "christ" did return and all of that stuff, but we subtracted ~1000y (almost certainly) around the time of the 9/11 attacks[^1]. the reason why everything felt so different is because we moved back in time so far, and the extreme "unrandomness" of the random number generators, was probably because there were so many timeline alterations. I can't prove this idea, but I would guess that there may be small evidences in tiny variations in the night sky around the 9/11 thing (yes, I did also find it weird that patricia is born on 1984-09-11).
+
+---
+
+it's kind of hard to explain it all, but in summary, I realise that the reason why all of this stuff is happening the way it is, seemingly in a very planned fashion, is to accelerate the parasitic nature, rather than to try and purge it. I just keep going doing what I'm doing and it'll all get figured out.
+
+I've brought up the past in this entry, the future in the last, and other ideas like pluto and the stonecutters. I actually think both of those are happening.
+
+if I'm on my return back to source, that means I'm in the "night side" of nature. these concepts that the sun puts out -- on their return, if resisted properly one can get colour, heat, sound, and any form of physical element... (that's what dtp says anyway)
+
+you can't stop something on its return back to the source. it's guaranteed to return. so... what about someone like me? if I'm on my return back to source, why not resist me properly and produce very big things? I think that's what's happening.
+
+wait, didn't doyle write sherlock holmes?? I feel like I just solved the mystery. weird.
+
+[1]: if it works on octaves, then, sorta like terence's timewave, every year of this will correspond fractally (as octaves do) to the larger bit of time that got compressed... just need to peaks and the midpoint to the cycles to make them resonant. lemme think about it... I don't know right off... it's going to be octaves, so doubles of those numbers.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
