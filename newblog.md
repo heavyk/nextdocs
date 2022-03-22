@@ -919,7 +919,7 @@ this reminded me of the chimera -- a mythical beast having lion, goats and snake
 
 the fact that this female influence coming and overthrowing the kingdom of neptune could not have been perceived by all as having been a good thing.
 
-the chimera is also the offspring of typhon and echidna. in a previous nosedocs, I make the case that typhon is the destructive side of velcan. I also have implied that vulcan is likely another incarnation of saturn (satan).
+the chimera is also the offspring of typhon and echidna. in a previous nosedocs, I make the case that typhon is the destructive side of vulcan. I also have implied that vulcan is likely another incarnation of saturn (satan).
 
 anywaay, typhon and echidna give birth to a lot of monsters that heracles has to fight in his trip through the zodiac. also, I'd like to mention that I believe the suffix "cles" is like "ovich" meaning "son of" -- so like, son of hera -- which was also vulcan -- so like his counterpart, or the same guy. either way, the picture I get is that one makes the monsters and the other defeats them.
 
@@ -10922,7 +10922,7 @@ it may take a few iterations, but I'm pretty confident that metal spaceships may
 
 ---
 
-so, I guess I mean, when I was telling thad on friday that "not much is happening" -- I suppose I was lying -- though, at that time, I couldn't put it into a few sentences or even a 3m explanation. less is more I guess. I'm glad I figured out how to get it out though. to the vast many doubters out there... I guess only time will tell.
+so, I guess I mean, when I was telling thad on friday that "not much is happening" -- that is a bit of a falsehood -- though, at that time, I couldn't put it into a few sentences or even a 3m explanation. less is more I guess. I'm glad I figured out how to get it out though. to the vast many doubters out there... I guess only time will tell.
 
 until then, I'm going to keep extending this out as far as I can. I'm confident that such an enlightenment can be done in a smoothe and natural way.
 
@@ -11483,7 +11483,7 @@ so, as I'm reading that I'm thinking about 1984 -- the year of the dystopian nig
 - 1994 (I was 11. solar minimum) <- not a multiple
 - 1984 (zero-point midpoint reflection)
 - 1936
-- 1920
+- 1920 (-192y)
 - 1904
 - 1888
 - 1856 (-256y)
@@ -11494,7 +11494,7 @@ the 2112 year is just 11 * 192. 1856 + 192 = 2048.. also, 11*11y after my "rebir
 
 ---
 
-while thinking about that (in a conceptual sense, cause I added those numbers on the calculator after writing the previous entry), I had this flash that happened. I realised that all of that stuff written in the 1800s did happen, and the "christ" did return and all of that stuff, but we subtracted ~1000y (almost certainly) around the time of the 9/11 attacks[^1]. the reason why everything felt so different is because we moved back in time so far, and the extreme "unrandomness" of the random number generators, was probably because there were so many timeline alterations. I can't prove this idea, but I would guess that there may be small evidences in tiny variations in the night sky around the 9/11 thing (yes, I did also find it weird that patricia is born on 1984-09-11).
+while thinking about that (in a conceptual sense, cause I added those numbers on the calculator after writing the previous entry), I had this flash that happened. I realised that all of that stuff written in the 1800s did happen, and the "christ" did return and all of that stuff, but we subtracted ~1000y (almost certainly) around the time of the 9/11 attacks[^1]. the reason why everything felt so different is because we moved back in time so far, and the extreme "unrandomness" of the random number generators, was probably because there were so many timeline alterations. I can't prove this idea, but I would guess that there may be small evidences in tiny variations in the night sky around the 9/11 thing (yes, I did also find it weird that patricia is born on 1985-09-11).
 
 ---
 
@@ -11508,7 +11508,49 @@ you can't stop something on its return back to the source. it's guaranteed to re
 
 wait, didn't doyle write sherlock holmes?? I feel like I just solved the mystery. weird.
 
-[1]: if it works on octaves, then, sorta like terence's timewave, every year of this will correspond fractally (as octaves do) to the larger bit of time that got compressed... just need to peaks and the midpoint to the cycles to make them resonant. lemme think about it... I don't know right off... it's going to be octaves, so doubles of those numbers.
+[1]: if it works on octaves, then, sorta like terence's timewave, every year of this will correspond fractally (as octaves do) to the larger bit of time that got compressed... just need to peaks and the midpoint to the cycles to make them resonant. lemme think about it... I don't know right off... it's going to be octaves, so doubles of those numbers[^2].
+
+[2]: the pattern that jumps out at me is the 192 pattern:
+    - 2112
+    - 1920
+    - 1728
+    - ...
+    - 384
+    - 192
+    - 0
+    - -192
+
+    those perhaps correspond to the ... [lost train of thought] you know, I also noticed another thing in that rabbit-hole, and that is, there are exactly 22 solar cycles between 1856 and 2112, using jupiter's orbit as the length of the solar cycle. it's probably related.
+
+### 2022-03-22 06:07 - weirdnesses
+
+one of the funny things about poetry is it expands the mind unorderly, misconducted information... I noticed some of the reactions to my previous entry wondering how I can write something so profound in @[newblog](2022-03-21 22:25), and then turn around a few minutes later and write the messy dilusions of a deranged mind in @[newblog](2022-03-21 23:54).
+
+well, I have a "beautiful mind". just the same as john nash, these things just come to me. I don't resist them, so my default state is to just let the ideas grow and mature, and then pick out the bad ones later. some yield 30 fold, some 60, and some 100. the rest, I burn. I've found that my bad ideas are sort of like "the wrong stairsteps" -- in that they still advance my thinking process, just may not be very stable or sure.
+
+I personally don't mind crashing and burning. it's really not a problem. I make all sorts of weird errors along the way, but it's totally fine. I wish I could be a perfectionist and stuff, but I just don't have a mind that can do that anymore. trying to get order in my head is like trying to get 1000 kids to be quiet. I just surf on top of the chaos instead of fighting it or going contrary to it.
+
+I've actually been surprised at how hany times the thing that I would have previously fought against turned out to be exactly the "wrong" thing to happen to me for the next thing. case, in point, I remembered an edit I wanted to make in my conversation with thad -- which is what we were talking about -- just letting go of trying to control and just going with it.
+
+---
+
+the same flash that, in an instant, I understood the whole of the whole attraction process works -- and though I presented the idea in the way I saw it, as a sun -- however, you can see yourself projecting out concepts into your atmosphere, and those concepts gathering material, and then the ones that don't work, just come right back devoid of manifestation only to go out again. I was truly mesmerised by my own words, because this is how my conceptual perception works and I hadn't figured out a good way to put it into words, as that's the next layer for me to write about in 7-layers-of-perception -- so, my weird desire to read mr doyle produced a number of different realisations of desires I had had.
+
+then, upon returning to that article, I get the second flash -- the one about 9/11 and that stuff. how do I know what will come out when I start writing? I don't. I just start writing and it starts to take shape. well, needless to say, though it probably sounds extremely improbable and unlikely that could have possibly happend, I still feel pretty good about the idea. for me, it doesn't really matter because the important part was the realisation that the split already happened, so we're already on the disaster timeline -- so that means I can't possibly mess it up any further. full disaster!!!
+
+so, I can't really say, like john nash, I just sorta go with it -- even the aliens and stuff because they all come to me the same way. personally, instead of being scared of weird stuff or taboo things, I prefer to improve my bs detector and my capacity to tune into what I want in the first place. I'm confident that because I'm tuning to wanted rather than unwanted, even such a crazy idea like that is *still* on the road toward wanted. very confident, actually.
+
+magicians have tricks -- I mean, illusions they can perform. my "illusions" are not actually illusions. they're just a fearless way to travel. when extending out, you want to be careful what way you're going, to end up where you want to go, but on the return you can't get it wrong, because ALL PATHS lead to the desired destination. I can literally do anything I want to do, because why would I want to do anything I don't want to do?
+
+---
+
+yes, I hear the reactions to that... "we all have to do things we don't want to do" -- stuff like that. first of all, perception. I can find a way to perceive any conditions I'm in as desireable, or on the right path -- which means that's what I'm tuning to, so that's where I'm going.
+
+let's say for a moment, that I consciously decided that I wanted to purposefully go the wrong way. it's just like stretching a rubber-band; it'll go back to it's stable state when you stop trying to pull it. as nosebook is starting to realise: it doesn't matter how much pressure they exert, there's no way *not* to return back to my source. so, as the female/joy principle (rather than the emitter/growth), why not take the joyful road back? all roads lead back, and you can't avoid it, so why not take advantage of the guaranteed return and have some fun along the way?
+
+so then, why not see whatever circumstances I'm in (no matter how parasitic they are) with a perception that I'm still going the way I want to go?[^1] different types of resistance create different things; and, my leapfrogging-time-pickles idea is the pinnacle of that concept in implementation... the absolute limit -- 99.5% efficiency.
+
+[1]: it's just more energy that will be released on the opposite side of the sphere after returning.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
