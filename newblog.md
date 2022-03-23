@@ -11554,6 +11554,86 @@ so then, why not see whatever circumstances I'm in (no matter how parasitic they
 
 [2]: I am, of course, referring to the book of the gosh darn it.
 
+### 2022-03-22 23:07 - gender and polarities
+
+yesterday (or was it this morning?) when writing about that image in my mind that I saw of the sun and these concepts flying out of it, I mixed the genders of the things. I didn't realise then why I did that, but as I walked to B&N, I was thinking a lot about this subject. it's still too early to say, but I think that most girls are actually on their way back to their source, while men, for the most part are extending out from their source... I certainly was for the first part of my life anyway.
+
+I would say that at this point, I'm on my way returning back to source, rather than extending out from it. I remember around 2011-2016, somewhere in there, I had a sudden realisation that I was improving faster than I was decaying[^1] -- or, perhaps that I was losing resistance faster than I was gaining it -- or, my acceleration had exceeded the resistance -- or, I exceeded the escape velocity. I remember it was at that point where I knew that things would just get better and better, and there wasn't much I could do to stop it. I was unstoppable.
+
+I've actually had this sort of mindset all of my life, but for the most part my early life I was very interested in creating and getting my version of how things worked, out there so that people could see things how I saw them. no one did see things the way I saw them, and the more I tried to get people to do that, the less people understood me. it also felt as if I couldn't really be helped by other people either. after the brain haemorrhage, I really noticed even more that I appeared to be going more and more rapidly toward something -- and no matter how hard I tried, it still seemed as if things continued to accelerate faster and faster.
+
+---
+
+in the picture I saw, the sphere in the centre was the body. the concept originates deep within the centre and works its way outward gaining more and more matter along the way. the concept vibrates a certain way and attracts the molecules that are sympathetic to its vibration to it. after it leaves the sphere/sun/you/source/universe, it travels out into the space around it (the aura/heliosphere) and tries to extend as far out as it can (this is the magnitude of the wave), all along the way spinning the whole time [TODO: link to veritassium's helix solar system visual] -- so it's a complex vibration, not just a simple ellipse. for the concept, when it gets out into space like this, that's the birth.
+
+the concept starts out with a very subtle (but probably high frequency vibration) that begins to attract things that then affect its vibration, causing it to attract different things again... while inside of the body, anything that it vibrated like could nearly instantly be provided for by the solar environment. after some conditions are met, the concept becomes too energetic and evaporates out into space. once in space, the rules change a little bit.
+
+now, the concept has to figure out how to continue to propel itself outward, away from its source. the easiest form of travel is attraction, but that requires that there be someone always further out than you to attract yourself to, but he'll inevitably be a bit upset that you're pulling him in the opposite direction he wants to go, so various other contrived methods of propultion are employed to get further and further out (the cosmic measuring contest). at some point, he is out so far and has accumulated so much intertia that he must make the return back.
+
+---
+
+"briefly" I want to talk about my new method of extending out further and further. in the previous section, I suggested that the most common method for him to use to get out further is the slingshot technique... attract someone really strong, and then as soon as getting close enough to them, put the engines perpendicular to them and launch past them and discontinuing your attraction to them. the longer you wait before turning on the boosters, the bigger the "gravity assist". you see this techniques all the time in relationships[^2] and in the corporate ladder this is called "climbing over everyone to get to the top". the concept is the same: you use attraction to get close then as soon as you get really close, you change directions to exactly perpendicular.
+
+by doing this and going round and round from person to person (in a spiral motion, never in a straight line -- that's too suspicious), you can really start to accumulate some velocity to try and really reach new heights in the cosmic measuring contest.
+
+my technique is exactly the opposite of that. I found that if *I* am super attractive, then I will naturally attract all of these gravity-assisters looking slingshot theirselves off of me in effort to get ahead. I want more and more of these guys, because they don't actually slow me down. all attraction always creates some form of resistance as a biproduct, and it's actually that resistance that would normally slow a person down, but if applying the opposite polarity of perception to it, you actually get a boost, rather than resistance[^3].
+
+I'll have to think more about how to implement it practically, but you'll know you're on the right track if the motor is getting cooler rather than heating up. it's also quite possible that this same technique can be used on the planet to convert the excess heat created from resistance[^5] and turn it into cool.
+
+just some ideas...
+
+---
+
+now, I'd like to revisit the other topic that I considered yesterday about the souls. I've given it more thought, and it aligns with everything that I've ever heard on the subject -- and that is that everything has a source -- everything, and so these must be created dynamically as an extension of something from the sun. if I consider the topic of the permanent part of you being an object (soul), then if I have a source, then that source is at least pretty similar to mom's source and dad's source, which are then similar to their parents' sources. considering this topic from the point of view of resonance, rather than discrete objects, it starts to make sense that your "source" is a number of different things. the sirians call the non-physical part of you, your "monad", and the monad is thing that appears to also have many "souls". it projects itself down into the soul, in effort to one day realise itself from the perspective of the monad, in physical form.
+
+so, a monad has many souls, and a soul can have many timelines, lifetimes, incarnations, etc. from a frequency sense, you could say that any of these discrete soul incarnations or lifetimes, are all resonant with the soul, although they have enough difference in vibration between them to considered as different from each other. the monad (or God), has the same experience with its many souls, as well. so, in that sense, you could say that we are all "God" (or the monad) in physical form. the only thing that prevents this realisation is we haven't developed the capacities yet to perceive things from that broad of a perspective.
+
+so, I got to thinking about it further and I really think that reincarnation is actually a blending and mixing of souls. for example, when I'm born, I'm born with a soul, source, or aten, which is the concept of my physical form. my physical form takes in input and begins to vibrate differently over the gestation, birth (into the environment), and growth processes. other sources, wishing to continue their experience can easily incarnate into my body as long as we're vibrationally similar enough. those souls will then partake in my experience along with "me" -- and so, now I die. when I die, there is my soul which potentially could have resonances with any of the other souls I perceived were there. there are also all of the other souls that joined me in my experience. we're all resanant in some way -- less separation, and less difference.
+
+the goal of the "man" in his lifetime is to differntiate himself and use any means necessary from the others. the more different he is, the further out and greater magnitude he can go.
+
+---
+
+the next thing I want to talk about is the concept of personality differences. for this, I'm going to use spiritual words to disguise my lack of clarity on the subject (I just don't see it clear enough yet).
+
+so, imagine for a moment that *all* men are in the process of extending out, over numerous incarnations, further and further from their source. it's not really like this; we have the capacity for  both genders, so I'm just making a point.
+
+each incarnation, the man goes out and performs a number of things, creating useful strutures and implementations of divine architecture, and this requires energy, so the body begins to degenerate and decay, until eventually he dies. when he dies, his SOLAR ANGEL returns back to the sun and continues to vibrate there at that magnitude (the sun sustains the vibration, extending out as far as the earth), and when he's ready to incarnate again, that oscillating SOLAR ANGEL will be in the right place at the right time to incarnate into another body (a nod to all of the astrology fans out there).
+
+now, let's say that *all* women are in the process of returning back to their source -- the sun. if you're a hydrogen atom, your SOLAR ANGEL's return back to the sun[^6] can happen with quite a bit of ease. however, if your SOLAR ANGEL is trapped inside of a human body, its return is considerably more difficult. you have to die -- and everyone knows, that can take years..
+
+unlike the male, trying to differentiate itself, the SOLAR ANGEL's job is to create similarities so that everything can be equalised and at similar power levels, so that the vibration is more homogenous and less different -- because, if you recall, I'm using the same tecnique that the sun uses, to use perception to increase power rather than turn it into resistance. under those circumstances, a very differently vibrating SOLAR ANGEL means runaway feedback loop that ends in a large outburst.
+
+I've talked about fallen-angels, and these are basically SOLAR ANGELS that have not had a chance to return back to their source. these are the "male" aspect of wanting to continue to differentiate oneself without returning back to their source.
+
+---
+
+HUH... I just had another flash -- and I can't tell if it was a reaction or something new. I'll describe it. imagine for a moment that you have these fallen-angels that are unwilling to return to their source for some time. the longer they have spent away, they are beginning to create more and more karmic inertia. well, at one point, the "second death" will happen, and so I explained that the magnitude of the vibration that these concepts or SOLAR ANGELS have is returns back to the sun, through the body and then continues right back out the other side attracting more and more matter on their way out.
+
+the picture showed me all of these fallen-angels going through the "second death" when their body is stripped, and like phylos' inabilitcy to visit the sun in his astral form because he couldn't barely stand the power of its vibration, so too will the astral body be consumed in a unfed fire that extends out beyond the earth (likely the whole solar system), and these ones that are really far extended out -- like say pluto or so turn into really big planets because their power levels are so high -- and the fallen-angels on earth too have built up quite a power level, but not as much -- so  their karmic inertia will probably only have enough to make rocky planets or so.
+
+---
+
+I don't see the females bit clear enough to say much on it yet. I do know that they desire to make their return as well[^7], and they're going to born with very low resistance, and their goal is to end their lives later with low enough resistace so as to have velocity high enough to reach escape velocity from the attraction of the planets. I don't want to say more because I don't see it well enough. though, you can see both of these aspects playing out in modern society.
+
+men who are more receptive and attractive are on the rise, and their goal is to increase inertia through attraction; more attractive means bigger gravity-assists -- while many females are slowly coming to the realisation that they want to find ways to lower resistance, rather than increase it (though sex, partners, and social interactions influence resistance, the real deal is to do it perceptually).
+
+uff, long one... very sorry about that. I really wanted to get these concepts out. though I still have more, I'm done. 
+
+[1]: I think it was at marcos' house in realisation that my vision was constantly improving, and this was a sign of ever decreasing resistance. I noticed that I was constantly feeling better too and my world continued to reflect that.
+
+[2]: raquel would always recount the story of her last boyfriend (ruben, I think) just used her as a gravity assist to get to a better girl than her.
+
+[3]: it shouldn't take much effort to design an electric motor with this principle. the "eddy currents" or whatever it is that is the magnetic biproduct of the coil's attraction that slows the motor down[^4], and if you had another coil that could transform the polarity of that field to be opposite, you would actually receive negative resistance
+
+[4]: a generator is harder to turn the more power is being used because of this effect. in another coil, just reverse the polarity of this field and use the power its creating, not to resist the motion, but instead to accelerate it.
+
+[5]: nosebook, at the moment, I'm pretty sure is resisting (by destructive interference) certain signals. if they could do emply this technique, the earth would *cool* the more that the resisted things, rather than heat up. it would also, like I'm describing above, put more power into the equation -- so, a good thing.
+
+[6]: I don't know what to call it. the concept or "source" of the molucule. the proton(?) perhaps? -- aten, chi, etc. in this probably a proton is the best way to look at it, but I want to tie it into the idea of souls at the end of the disussion.
+
+[7]: imagine a female doing what I'm doing, which is a ripoff of what the sun is doing -- she'd use all of the attraction of the planets to perceptually increase her velocity such that -- she'd be very sun-like, so she'd exit the sun as another sun herself.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting

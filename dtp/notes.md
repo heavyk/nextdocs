@@ -3,9 +3,6 @@ notes
 casi-modo
 01-14
 
-mark twain - mysterious stranger
-download openoffice
-
 guy Warren Ballard - I AM foundation
 download aslan faction / industrial mixes
 
@@ -325,7 +322,7 @@ the closing year by george d. prentice
     Yet, ere it melted in the viewless air,
     It heralded its millions to their home
     In the dim land of dreams.
-    
+
     Remorseless Time!
     Fierce spirit of the glass and scythe!—what power
     Can stay him in his silent course, or melt
