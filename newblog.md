@@ -11843,8 +11843,50 @@ so, from my perspective the more beast-consciousness there is, the more profound
 
 my point is, I really want to start expanding my consciousness considerably, so in order to do it, I need truckloads of mr. beasts and his loyal minions. you'll see.
 
+### 2022-03-24 15:17 - girls and christs
+
+I mentiond in a previous entry the idea of girls representing the more christ-like aspect of things, because boys tend to be more focused on optimisation/function, while girls tended to focus on appearance/enjoyment. for me the leapfrogging-time-pickles concept is a method by which I'm actively finding ways to improve my perception.
+
+last night I was searching for examples, and as far as I can tell, the common case is for people to wait until circumstances forces them to alter their perception. I can only identify two others, other than myself, which actively seek out to alter their perception consciously. so, as such, most people are conditions oriented, to manipulating the conditions to get what they want, or needing saviours to take away their unwanted conditions.
+
+I used to be like that myself. my mom was quite good at setting up good conditions for me, and I was very bad at actually setting up the conditions I wanted, causing a lot of failures. in a lot of ways, I really hoped that raquel would help me out of the financial mess that I had gotten myself into, but it was no avail. I realised with her own desire to pay back a sum of money to her employer that I realised that she didn't understand that the universe provides in weird ways, so what I and many others would consider a blessing, she felt fear and needed to pay it back.. *sigh* I realised that raquel was not going to save me from my problems, but I still liked her too much, so I figured it would eventually just all fall apart soon, so enjoy it while it's there.
+
+---
+
+raquel is not the common case though. it's actually for this reason why I thought of her more as a (-6) than a (-2) -- because if she had've been a (-2), more like mom, she would have tried to help me. even zaryn tried to help me and I consider him a (+2). most women operate from (-2) perception -- and it's no wonder that the sirians say that this is a -2 solar system.
+
+---
+
+I've been exploring for a while the concept of the SOLAR ANGEL and what it means. here's a draft idea on that. one thing that sticks out in history is the emphasis that the "gods" were androgynous, containing both male and female parts (x3). they were then split into male (x1) and female (x2) forms. so, for simplicity let's just consider the x-chromosome as containing the human SOLAR ANGEL[^2]. 
+
+so that means that by nature men and women are binary beings, while the gods were also binary beings, but binary triads. let's imagine the x-chromosome as being a SOUL coming from the sun (the Spirit). the y-chromosome represents a pre-programmed psychic body.
+
+so, for men, this is a SOLAR ANGEL (female) is in constant battle with a pre-programmed psychic construct (the "animal nature" or emitter). for both the "ground" is the environment and earth. for women, one SOLAR ANGEL will play the emitter and the other the plays the female. again the ground is the environment and earth.
+
+so imagine for a moment the perspective of the sun (-2): she has all of these SOULS that need to incarnate, so they need to be vibrationally ready to receive a body -- so they need to be compatible with the receiving body. so, in preparation for this a girl is born which will contain two SOLAR ANGELS of different types and through her interactions with her environment (other people and situations) those two souls will begin to gain a common vibration, which will be just the right vibration to accept the next body.
+
+in this equalisation process, everything is kind of flattened out, so all of the strong souls are made weaker and the weak souls are made stronger (depending on which side of the female is dominant).
+
+I experienced this happening to me when I received the female which I identified as jesus when I was 16. we had very different opinions about how to do things at first, but with time those differences began to get sorted out as I (kenny) began to accept and adapt to the other souls vibrations.
+
+I figure I'm either an x3 right now (physically) or am one virtually, because I experience the two (or four depending on how you include the environment) opposing triads, so I'd like to share some thoughts on that.
+
+---
+
+the way I experience it, I would say that the y-chromosome becomes the salt or the ground. (excluding the environment) in a dual triad setup, I can no longer let my "animal nature" be an emitter only. in dtp, this is what takes place after the acquisition of phyris. because the salt is what is being worked on in the alchemical sense, the animal nature is now quite malleable, being both receptive and emissive. one "soul" will be your identified personality (kenny), and the other two souls, you'll have to sort of figure them out yourself.
+
+the way I figure it, the x-chromosome is entirely programmable and can play both a male or a female part. it can be whatever you program it to be. I've provided a lot of insight in the past on how to program it, but you are what you believe yourself to be (you're a concept of yourself).
+
+---
+
+OK, back to girls. I've noticed that a lot of girls tend to have one side of them that wants to save someone or something in their environment, so without any real data, I would make the estimation that most girls actually get a probably more masculine soul paired with one of the sun's default (-2) SOLAR ANGELs.
+
+I'll have more to say on this soon, but it's incomplete still.
 
 [1]: when you artificially boost your enlightenment (drugs, sex, stars, meditation, etc), but because you're not actually changing your perception, you're actually feeling worse -- but the condition masks the worseness for a long time.
+
+[2]: it's obviously much more complicated than that, because atom, cells, etc have SOLAR ANGELS too, so it appears to be a pattern in a structure that houses this -- probably for the human, it's the heart, the atom is the proton, etc. I want to just simplify this for the case of creating a triad.
+
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
