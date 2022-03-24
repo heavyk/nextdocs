@@ -11833,6 +11833,19 @@ the second path is to for me to iterate on this timeline until it's 100% sabotag
 
 so, let's recap: if I fight against the superficial crap, the girls thing will probably happen, and that might give them temporal capacities, and that may turn some of them into christs. the other way is for me to self-sabotage 100% and ensure that the world-leaders (I mean, authors) have full control over the timeline.
 
+### 2022-03-24 15:05 - moar-beast
+
+the whole premise behind all of this goes as follows: from the perspective of the business-as-usual boys, they can't have too much enightenment, so they need people to be focused on material crap in order to balance out the enightenment. there's also false enlightenment[^1], but that's another topic.
+
+you'll notice that every time that I write something profound (I think it was the part about the divisions), then a bunch of people go, "aha!" and understand a new concept that causes them to feel more freedom and levity/enlightenment, which is bad for the business-as-usual boys. so, I have to write a reaction piece for people to react to.
+
+so, from my perspective the more beast-consciousness there is, the more profound and isightful things I can write and the busniness-as-ussual boys are satisfied. in fact, if the case were that there were such an overwhelming amount of beast-consciousess (that is focus on material crap as a justification to feel good), then the more profound I can become. to give an example, I tried all the time to talk with zaryn about concepts that I found important, but he was unwilling to listen to me, until rupert showed up. he was so sick of talking about tabloid crap, he would occasionally open up to me. the same thing happened with daniel and alfon. I would try to talk with daniel about deep things, but he didn't want to participate, until after he'd had a substatial alfon dose -- then he would give my ideas some attention, finally. lol
+
+my point is, I really want to start expanding my consciousness considerably, so in order to do it, I need truckloads of mr. beasts and his loyal minions. you'll see.
+
+
+[1]: when you artificially boost your enlightenment (drugs, sex, stars, meditation, etc), but because you're not actually changing your perception, you're actually feeling worse -- but the condition masks the worseness for a long time.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
