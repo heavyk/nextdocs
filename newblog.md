@@ -11819,6 +11819,20 @@ it'll probably be perceived as the girls' fault that it creation never happened 
 
 welcome to beast-consciousness
 
+---
+
+EDIT: ah, I just remembered the second path now... so the idea was based on the acquisition of temporal (5.1) perception. I supposed that the guys running the show have it, because a lot of things have been disappearing -- like I remember the transfiguration part in dtp had a part where gwauxln transfigured and it was revealed that gwauxln was christ. that part has completely disappeared -- almost as if that whole page of the transcript were burned. the tick's 4th season is missing entirely and there are weird seemingly missing parts as well. I also have a very different memory of tesla's autobiography as well. 
+
+it looks like they're using it to remove symbols that could influence unwanted manifestations. in short, they don't want me to create what I want to create. well, don't worry, I won't give them the satisfaction of feeling like they've thwarted my efforts, as instead, this entry is to ensure that I take responsibility for my own failed creation. I most certainly sabotaged it.
+
+again, they have temporal (5.1) perception, and what I don't know is if the girls can acquire it from me through sex or some other means. if I fight the superficial manifestation, thereby making it happen, then this could mean that some or many girls will also have that perception and can begin to alter their timelines as well. it's kind of a battle between unwanted and wanted, as I figure the girls will probably go for more wanted manifestations/timelines than unwanted manifestations/timelines -- though I'm not sure, because the few girls I've actually interacted with cared very little for optimisation/function (unwanted) and instead were mostly interested in appearance/enjoyment (wanted).
+
+what I mean is manifestations, actually slow you down, and so optimisation is actually done through perception -- and perception is improved through experience of unwanted. perception remains mostly unchanged with wanted (hence the effort to ensure low-impact superficial manifestations). so, if girls are wanted and boys are unwanted, then girls will represent the "christs" saving people from their unwanted circumstances.
+
+the second path is to for me to iterate on this timeline until it's 100% sabotaged and no manifestation happens at all.
+
+so, let's recap: if I fight against the superficial crap, the girls thing will probably happen, and that might give them temporal capacities, and that may turn some of them into christs. the other way is for me to self-sabotage 100% and ensure that the world-leaders (I mean, authors) have full control over the timeline.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
