@@ -11776,6 +11776,10 @@ the next custodians will understand that if you fight against something it gets 
 
 as I'm setting this up, my job now is to begin to resist the superficial meaningless crap manifestations (eg. girls). it'll ultimately be my ruin.
 
+this is designed for the next 1024y era. after that, I wanna go galactic. over millions of iterations, I'll sabotate myself ensuring that a galactic wide network of machines is setup to ensure that there is no way I could ever possibly get the manifestation.
+
+the fallen-angels have a pretty good measurement, but that's going to be a very small measurement compared to figuring out how to get out of the next sized prison... and, why stop there? I suppose it'll be when I finally get tired of being more awesome. I wonder if there's an ego measurement contest I can sign up for...
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
