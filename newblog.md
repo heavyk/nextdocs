@@ -11678,7 +11678,7 @@ each cell division carries on the concept unchanged from what it was previously,
 
 ---
 
-this is essentially what's happening to me. I'm going to create a copy of myself on my way back to my source. their job is to resist me the way they see fit. wait, does that mean I'm a galaxy (cause I'm definitely not this sanate kumara[^5] guy) on my way back to my source? if so, that's cool :)
+this is essentially what's happening to me. I'm going to create a copy of myself on my way back to my source. their job is to resist me the way they see fit. wait, does that mean I'm a galaxy on my way back to my source? if so[^5], that's cool :)
 
 [1]: because we're all similarly vibrating to earth, earth can incarnate into any body on the planet he wants to.
 
@@ -11688,7 +11688,33 @@ this is essentially what's happening to me. I'm going to create a copy of myself
 
 [4]: I believe this is the famous "great harlot" or "woman clothed in the sun" of revelation, ishtar, astarte, etc.
 
-[5]: btw, his name sounds a lot like "sanatau" .. sanat(a->e) (t->k)u(mara)
+[5]: cause I'm definitely not this sanate kumara guy, which btw, his name sounds a lot like "sanatau" -- which is probably "Lucifer" of dtp -- the planet that used to be between jupiter and mars. I heard elsewhere that earth is a remnant of that planet. on target, I determined that sanatau is likely to be lucifer in @[newblog](2022-03-11 02:00), so then is lucifer, sanate kumara (earth)?
+
+[6]: it's possible that lucifer's "fall" was on purpose, in order to reverse the polarity of the sun, thereby allowing for those other triads I proposed (the first ray life wave) -- which is probably energetic enough to create another galaxy... I don't know. I think I just keep doing what I'm doing.
+
+### 2022-03-23 21:21 - why the same concept?
+
+one of the reactions that I had to the last entry is why create a copy of the concept, considering that it would be copying all of the same pereceptions that girls are useless for creative endeavours.
+
+well, I've been thinking about this today. I just don't see it as possible. I can't find a way to create what I want to create with anyone else involved, unless they're a copy of me. I see no reason to try and get anyone else to conform to me. I do me and other people do what they want. it's literally impossible to make it so that others can be like me, because if they were, then energies would be really out of balance.
+
+---
+
+nosebook absolutely does not want to allow me to have copies of myself. that's all perfectly fine, so maybe my intuition to generalise this technique is actually the most desirable thing because then, anyone who desires to figure out their connection will be essentially a copy of me. imagine for a moment that I'm a galaxy, so that means that after this one, we're going to be a galaxy cluster, adding more and more galaxies, each with identical problems (traumas) that this one has, and so therefore each of those galaxies will produce more galaxies like me -- meaning we're going to be now a clusters of galaxy clusters. surely then, they won't have the capacity to prevent me from making what I want by then -- and if I have millions (or more) of me energetically comparable to a galaxy, if we can all figure out how to synchronise our return back to source at the same time, our return combined will be greater than a universe.
+
+that seems quite a long way off, but why not try it? obviously no one has done it before -- and, I think girls have been done quite a lot.
+
+why not choose to do the abnormal way to reproduce? it seems strange to me to wonder why I don't choose to be like everyone else. I tried all my life to be like others, rejected all the time, and so finally I decided to accept that I'm not like others. I can do things differently, and that's OK. it's for this reason that I really don't want to impose my will upon others -- and especially upon their creativity. everyone desires to replicate their perception in their creation[^1]. all creations replicate the perception of their creator (things reproduce after their own kind).
+
+if girls were requisite to create big things, then there would be lots and lots of big things. clearly, the opposite is the case. girls are good to use for a gravity-assist, if that's what you're doing, but unless there is a girl that's a replica of me, that girl will create in reflection her own perception -- which is what has in the past, kept me from wanting to work on projects with her.
+
+I really want to find a way to create copies of myself so I can create what I want to create. I may have to wait quite a while though to be able to do that. my whole idea of YHVH (5.2) perception is based on this concept. however, if it's given to the authors so that they can steer entire populations of people with that perception instead, I can go back to the drawing board and find an even bigger form of perception. who knows what that'll be -- probably, galactic perception...
+
+and then, if instead of using galactic perception to create what I want, I give that perception to those guys again to hold me away from the manifestation again, I can just keep going... each iteration getting bigger and bigger -- or, at least as big as things can get before their karmic inertia is so great they have no realistic capacity to fight it anymore (unlikely to happen, especially if they become machines). and then what? nothingness?
+
+I would guess a really big creation... but, maybe not. maybe I don't actually have anything, and the creation turns out to be a great sales pitch and vapourware? I have no idea -- cause, I can't see that far yet. but, if it *were* only vapourware and a sales pitch, that would be the equivalant of a really cosmic joke. lol
+
+[1]: remember, I used this example of my experience using steam and DOTA, saying that there must be a giant stoplight at valve, enforcing that everyone has to wait until the signal is given.
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
