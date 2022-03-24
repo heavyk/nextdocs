@@ -11634,6 +11634,62 @@ uff, long one... very sorry about that. I really wanted to get these concepts ou
 
 [7]: imagine a female doing what I'm doing, which is a ripoff of what the sun is doing -- she'd use all of the attraction of the planets to perceptually increase her velocity such that -- she'd be very sun-like, so she'd exit the sun as another sun herself.
 
+### 2022-03-23 19:14 - planets, fallen-angels, resistance, and division
+
+this is going to be another long one I'm afraid. it's *still* not going to cover all of the topics I wanted to cover yesterday.
+
+#### planets and fallen-angels
+
+the first thing that I noticed is that my flash which revealed the true reason for the pluto concept -- being the prerequisite to creating "gas giants" was met with some resistance. I mean, don't worry about just have a meeting about it and take the "we have no other option", choice. this is a sign of maximum resistance, because no matter what it is, they don't want that. they don't know what they do want -- just what they don't want. the reason why I say that, is a planet lives for a very long time. it takes a lot of effort to destroy a planet, so they will inevitably be around for as long as the solar system is around -- which is basically forever.
+
+the whole idea of a fallen-angel is they don't want to die in the sense of losing connection to the physical. so becoming a planet perfectly satisfies their desire there. they also want to have planetary percption (5d), so again being a planet perfectly satisfies that desire as well. planets can incarnate into human form as well -- all they need is a human that is vibrating similarly to the planet[^1]. jupiter or saturn could also incarnate into human form as well -- as, they only need a similarly vibrating body in order to do so[^2]. so, even though it's wanted, they have to make a transition in order to get it. no worries, you've got 1000y more to figure out if you want to become a planet or not. no pressure.
+
+#### thoughts on resistance
+
+so, keep in mind the idea in the previous section about them resisting everything, even if it's wanted, cause I think that's the point. it'll be clear why this is, by the end of this entry. another subject that came up today was the subject of me beliefs and expectations for girls: all of my life, I've believed that girls are a huge problem for creativity. they don't want to allow me to focus anywhere other than them -- I believe it comes from feeling threatened that I like my creation more than I like them -- which is mostly true, actually.
+
+as a result, because of that perception, I've always found it the case that I cannot ever seem to produce anything creative when girls are around. they want my attention, and I want to focus on my creation...
+
+I thought that perhaps the solution was to perhaps try and work on things together, but that doesn't really work so well either. the easiest to illustrate this is with dani and gatunes. I want to work on my own creation, but I don't really know what it is that I want to create quite quite yet, so I keep staying in the attracting phase. he wants to make gatunes and that's all good for me. I love the idea and I want to use the page. I really like it, but the way that dani wanted to produce the elements felt to me very clunky, slow, and repetitive. I much preferred dominic tarr's way of doing it, so I adapted his techniques. dani didn't like that way, saying it was a waste of time.
+
+you see, I don't want to tell people what to do, cause I want him to do it his way, just like I want to do things my way -- so, I stepped back and let him do it his way. I tried to be as supportive as possible, as I really liked his stuff, but I'm not going to treat others how I wouldn't want to be treated. the same happened with tomasz with the (mobile) MVC version of tuenti; I thought it was increasing friction in the code with little upside, while at the same time decreasing performance. again, I'm not going to tell people how to do things, because there is no greater way to kill enthusiasm than to tell people how to do the thing they want to create. with joaquin, I let him make anything he wanted to make, but he was reckless with locking the database for long periods, ultimately bringing the site down, so I started putting performance criteria on him to at least ensure that when he added code, he didn't also take the site down.
+
+so, when it comes to girls and creativity, I take the same method. I'm not going to tell them what I think about the product because that ultimately results in conflict, so I just do things their way, but it causes problems for me because I don't really want to do things their way, and would rather do things my way. I'm not just talking implementation, but product concept as well. like, for example raquel was scared about the aditivos-e (we don't have such a system in the states), and so she wanted to create an easy way to look up what aditivo is what number. I don't really care, as I just eat anything and my body does fine. she also didn't like flouride in toothpaste -- yet as a kid, I literally ate flouride toothpaste in very poisonous doses and turned out fine[^3]. I didn't want to contradict her european mindset anymore than I already had, so I just left it and tried to make the application. I didn't really want to make an application to help people worry about their food. I wanted to make an application that can again reduce social tensions and insecurity between people. I did that with drinking, but I knew that I can lose those barriers to social interaction throgh other methods of realisation. anyway...
+
+raquel was the last of many other experiences that I had which *proved* what I believe and expect to be true: girls are anti-productivity and are opposed to my goals for expanded awareness. I don't really want to see the world through her eyes, as my version is better. I don't really want to try and use sex to feel better. I feel really good already without it. she's of no use to me.
+
+just like the fallen-angels, I believe that resistance even toward something wanted is on purpose.
+
+if I'm going to create something, I'm going to figure out how to do all of it myself. I don't like mixing energies with other people; I'll do it their way, or I'll do it my way. to do a large project all myself, I need multiple copies of me or an ability to have others that align with my perception, performing the work (which is essentially the same as a copy). hence, now the reason why I'm trying to learn to attract more and more pure reflections of myself. after some time, I'll figure out how to do it.
+
+#### a new way to think about division
+
+in @[dtp/thoughts](intro), I fumbled around with the idea of how division works, as I believe that's what's happening; the book is even called "*dividing* the way". I may update that section now after writing this, but I was getting caught up on the structure part being the unchanging thing. that's the negative viewpoint, from the perspective of the structre (church, govt, etc). this is a view of the positive viewpoint.
+
+I'm pretty sure that I'm on my return back to my source (now, whether that source is a planet, star, galaxy, or universe, I have no idea). I mentioned that, this is the "night-side" or "navaz" side of the equation. these particles are going to make it back to their source -- there's no question about it, so why not take advantage of that and resist them as long as possible? this is what I think the "SOLAR ANGEL" is, as well. these are concepts that extend out of the sun, and for most, they just return right back to go back out (in that vortex donut thing), but some get caught up into some sort of entanglement. we're all stuck on this planet, and one needs to find a way to feel so good as to be able to reach escape velocity and get off of the planet (evaporate), in order to return, otherwise we cycle around here on the planet.
+
+so like for example the concept of the galaxy will be trapped in an incarnation cycle away from its source (the galaxy), so he'll bounce around from star to star (and probably in their planets as well) tring to gain enough energy to be able to finally make his way back to his source (the galaxy). a star is the same way. she'll bounce around incarnating on her planets in the system in effort to make a situation where she can become energetic enough to be able to return back to her source (the sun)[^4].
+
+OK, so imagine now a cell. one cell has a rigid operation that it must adhere to. a cell is either growing (they get most of their energy from their environment) or it's dying (not getting enough energy from its environment), and the environment for a human are the physical conditions where they're at, and their thoughts, etc.
+
+we all know what happens when a cell doesn't have enough energy and begins to die, but what about when it has too much? as the cell gets more and more energy at a certain point when high enough energy, the concept of itself will "incarnate" inside of the cell and begin its return back to its source. the original cell doesn't want to change, and so the entire time that the concept of the cell is out there, it's so energetic that it's creating things on its way back to its source. the origin cell resists so much the new creation because it would take it out of stability and upend so many things that eventually that whole creation has to be expelled. because the concept is returning back to its source, it created a copy of itself, and that copy retains its perception of itself -- including any damage that it received (scars or whatever).
+
+each cell division carries on the concept unchanged from what it was previously, because that concept is successful. radically different concepts are resisted entirely and can only really happen in an energetic enough environment, so most copies just assume a slight difference from the original. those slight changes reflect the vibration of their environment, meaning most of these slight changes result in "ageing" of the concept (eg. the plant or animal organism they're apart of and its relationship with its environment).
+
+---
+
+this is essentially what's happening to me. I'm going to create a copy of myself on my way back to my source. their job is to resist me the way they see fit. wait, does that mean I'm a galaxy (cause I'm definitely not this sanate kumara[^5] guy) on my way back to my source? if so, that's cool :)
+
+[1]: because we're all similarly vibrating to earth, earth can incarnate into any body on the planet he wants to.
+
+[2]: this is likely (IMO) the origin of the old religions, where one says that jupiter is the best, and the other says saturn is the best, etc. -- and all those rituals, sacrifices, and worship were just to tune people to that planet, so that he can incarnate into a similarly tuned human body.
+
+[3]: actually, flouride causes me to become very visual, and it activates my visual capacity. I frequently have images pass into my eyes after a dose of flouride. it definitely is a psychedellic of low intensity for me.
+
+[4]: I believe this is the famous "great harlot" or "woman clothed in the sun" of revelation, ishtar, astarte, etc.
+
+[5]: btw, his name sounds a lot like "sanatau" .. sanat(a->e) (t->k)u(mara)
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
