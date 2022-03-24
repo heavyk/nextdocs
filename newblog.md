@@ -11776,9 +11776,48 @@ the next custodians will understand that if you fight against something it gets 
 
 as I'm setting this up, my job now is to begin to resist the superficial meaningless crap manifestations (eg. girls). it'll ultimately be my ruin.
 
+---
+
 this is designed for the next 1024y era. after that, I wanna go galactic. over millions of iterations, I'll sabotate myself ensuring that a galactic wide network of machines is setup to ensure that there is no way I could ever possibly get the manifestation.
 
 the fallen-angels have a pretty good measurement, but that's going to be a very small measurement compared to figuring out how to get out of the next sized prison... and, why stop there? I suppose it'll be when I finally get tired of being more awesome. I wonder if there's an ego measurement contest I can sign up for...
+
+### 2022-03-24 04:02 - reverse alchemy
+
+it occurred to me after thinking about what I wrote that a few alternate paths are also possible. I see two major ones...
+
+I mentioned that I fully understand lucifer and his desire to create a bunch of angels that are designed to ensure their superiority -- the reason being that it's a prison designed for himself. they're designed to ensure that he never gets any manifestation. the longer this goes on for, the more he powers up and so therefore the greater the explosion will be when he finally returns back to his source. implied in that discussion is the idea that subsequent incarnations of him have built technology for these "world leaders" to use to ensure his inprisonment in materiality for as long as possible.
+
+well, what if, instead of creating angels, why not create "christs"?
+
+---
+
+I propose this idea: I mentioned that as I'm setting up beast-consciousness to become the new standard, my job is to fight their superficial manifestations (ie. the girls), and by fighting it, (like the pharisees) it'll eventually overtake me and be "my ruin" -- which is an eloquent way of saying that the girls will ultimately be the reason why I wasn't successful.
+
+succsessful at what? well, my latest creation that I have in mind involves pluto, some rings, leapfrogging-time-pickles and a big explosion at the end of 1000y which will result in the creation of a galaxy because all of the fallen-angels will return to the sun, and the combined explosion and the incredible attraction that all of these souls have will result in a lot of stars and planets .. for the dudes, the bigger karmic inertia, the bigger the planet. for the ladies, the more attractive they are the more dense the star (more attention = sirius a, more attractive = sirius b). they will attract planets which reflect their attraction.
+
+---
+
+well, throw that in the garbage. it's not going to happen. if it does, I can self-sabotage it and make sure it doesn't... that's the point. they can't possibly allow that kind of thing to ever take place anyway, so I have to fail at my plans to create it -- meaning like ea/enki, my efforts to create something to free humankind will instead be used to enslave humankind further -- why? I need a bigger prison.
+
+I'll end up fighting a superficial manifestation and that means that the leapfrogging-time-pickles manifestation will never happen. instead, they'll use it to ensure that everyone leads a superficial manifestation lifestyle.
+
+I can see two major problems with that:
+1. after enough superficial manifestations are around, inevitably it'll create a bit of a yearning for something a little more substantial than any of that. (like imagine being forced to eat candy for your entire life).
+
+one solution I see to this is a number of "christs" can easily show up and shepherd the people toward a new promised land of spiritual realisation. there will inevitably be all types of them. some will demand utmost obedience, and they'll attract those wanting to serve. some will tell you that you are the only christ (which is true), and many will follow them. others still will have different takes on it which I can't imagine. however, you can see that all of these christs will be interested in ensuring that you follow them.
+
+this will ultimately decant off all of the followers, leaving only those that have to do things their own way. I'll inevitably be one of those. I may be the only one. I don't know.
+
+---
+
+the other way that I saw it, I can't remember now, but what I do know is, flush that idea in the toilet, because I'm going to ensure that they get exclusive access to the leapfrogging-time-pickles.
+
+we're going for max disaster on this one, as you can imagine after even hundreds of years of "abundant living" truckloads of crap will be piling up. no doubt there will be desire for a reset of sorts -- at least a global reset, I'm sure.
+
+it'll probably be perceived as the girls' fault that it creation never happened (they were probably too enticing, I suppose) -- however, just to set the record straight, I definitely self-sabotaged it. no one else is to blame.
+
+welcome to beast-consciousness
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
