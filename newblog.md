@@ -11758,6 +11758,24 @@ enjoy your ideological instruction manuals...
 
 ...that I created to keep me under control.
 
+### 2022-03-24 02:06 - the cosmic measuring contest
+
+consider for a moment the predicament of the fallen-angels when there are no longer any more humans that are frequencially compatible with them and they can't continue to not make their transition. or, at least they cannot go longer than the planet exists and has compatible life-forms for them to continue to incarnate into. that's a pretty good measurement, but I can do better.
+
+I explained that part about there being no creation that ever actually satisfies me because there simply isn't. I also explained that I believe that I have multiple times over the course of time gotten connected, and started to see the bigger picture, and I found out that any of my efforts at creativity ultimately didn't satisfy me. so, what I believe happened is I realised that I didn't actually like the creation, but actually the opposite. each of those times that I get connected, if I had of continued, I probably would have returned back to my source, making a very big copy of myself, but why make a copy? why not make something bigger than me?
+
+after all, this is the cosmic measuring contest we're in. the bigger the karma, the bigger the return, and therefore the bigger the creation that happens because of such an energetic return (not some stupid party like the prodigal son). to win this cosmic measuring contest, I'm figuring out new ways to make it harder and harder to return back to my source. call me lucifer if you want, but it takes a lot of minions with a lot of resistance to allowing others to succeed to make such a feat possible.
+
+you could say, I'm building bigger and bigger prisons for myself. the bigger the prison, the harder it is to return back to my source. so, if I can get a galaxy-sized prison, surely my return will produce at least a galaxy. if I can go bigger, why not go bigger?
+
+---
+
+so, why would I bother fighting against mr. beast. well, he's perfect. he represents for me exactly the next custodial concept. I know that if I fight against him, like jesus fought with the pharisees to make sure religion and society was run economically, I recognise that fighting him will make his concept bigger, not smaller.
+
+the next custodians will understand that if you fight against something it gets bigger (which I'm sure mr. beast and mr. grant have been realising this with their interactions with me). so, they'll want to ensure that instead of fighting against people's manifestations, to instead ensure that they do get a manifestation, and it's some superficial meaningless crap.
+
+as I'm setting this up, my job now is to begin to resist the superficial meaningless crap manifestations (eg. girls). it'll ultimately be my ruin.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
