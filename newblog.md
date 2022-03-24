@@ -11716,6 +11716,48 @@ I would guess a really big creation... but, maybe not. maybe I don't actually ha
 
 [1]: remember, I used this example of my experience using steam and DOTA, saying that there must be a giant stoplight at valve, enforcing that everyone has to wait until the signal is given.
 
+### 2022-03-24 00:24 - multiple santa
+
+so, in the previous entry I was talking about how my experience has been that girls simply don't result in creating the thing I actually want to create because I either want to do the whole thing myself (reminds me of nick bottom) or because I don't want to tell other people how to create, I just let them create the way they see fit.
+
+the only way I can create the whole thing myself is to make multiple versions of myself, which is what I want to do.
+
+---
+
+you see, any time that I write anything profound or insightful, I have to balance it out with bits that people can react to. I think nosebook doesn't want to actually broadcast any of the profound things that I say, probably because they want people to be stupid (there's a reason why mr. beast gets so many hits on his videos). so, what ends up happening is I end up writing (on purpose) bits that people can react to. the message is encoded in the reactive bits too, and if people only want to dwell on the superficial reactionary stuff, that's not my decision. I let people do whatever they want with any of my ideas or creations; it's all free -- always has been, and always will be. enjoy the reaction bits. I'll try and  say more and more outrageous stuff more and more. let the beast-consciousness arise!!!!!
+
+so, yeah... it's going to get heavier and hevier as I'm beginning to become more sarcastic, making it harder and harder to figure out what I'm really saying ... it's on purpose.
+
+---
+
+so anyway, I was going to write an entry on how all of those examples of girls being very opposed to my creativity and how, even though it almost certainly *is* self-sabotage, it's also definitely something I do attract. the reaction that I got is that there *were* various girls that did want to support me in my creativity -- yet I went all the way to, tenerife, barcelona, and berlin to find the ones that didn't want to have anything to do with my creativity. I'm not a huge fan of fan-girls, as I sympathised with ernon when he rejected lolix, desire to worship him and his power. I never used tuenti as a thing to try and hook up with, because to me that was a past project that didn't work out. I wanted to make something new; something better than tuenti.
+
+looking back, I find it quite likely that I did indeed figure out how to make a better thing than tuenti many times -- and I probably passed that threshold where I'm improving more than detiorating, and so I probably regained temporal (5.1) perception, and realised that wasn't actually what I really wanted to create, so I went back and self-sabotaged.
+
+what I'm trying to say is that anything that I could create with girls or whatever is just another bunch of conditions, and that's not really what I want to create. I don't know that I know what it is that I really want to create. I think I have eternal dissatisfaction with my creations. I never can figure out exactly what it is that I really want.
+
+as an example, I wanted to create a social network because I wanted to find other people that thought similar to me. I really liked essembly, and I liked the idea of finding others that are ideologically similar to me. obviously those that control ideology (hollywood and now youtube -- you know, like mr. beast) don't want a platform for people to actually figure out how to change their ideology. they want to feed them "the right way" and have them follow it with utmost obedience (you know, like religion -- which is also ideology). so, looking back on it now, I see that if I had of actually been successful with creating a social network based on ideology, I would have had a lot of very angry jews on my case for wrecking their setup.
+
+---
+
+so, instead of writing that entry, I decided to watch "the tick". I have it set to random so I see a different one every time and this one is the multiple santa episode. the episode is edited because I noticed there is a part missing about the plums of sugar part in the beginning has something missing -- probably something where he's saying something about the essence of christmas is here because he has plums dancing in his head. he probably asks arthur if he sees them too and arthur is a wet blanket and says he doesn't see them (maybe he did when he was a kid). tick says, "arthur, Time is the enemy". there's another weirdness too because it's the kid that has the multiple santa voice in the opening sequence.
+
+tick is outraged that people don't believe in santa. after throughly raking him through the coals, that santa doesn't exist, santa shows up restoring his belief and tells him to go save christmas. he finds out that static electricity deletes all of the multiple santas. he charges one up with static electricity and throws him at the multiple santa main bad guy and that causes all the energy santas to dissapear when they touch.
+
+---
+
+I like symbolic stuff, so what this tells my symbolic brain is that I don't really want to make my creation with multiple versions of myself. I'm certain that up until this point, I've been self-sabotaging the whole thing because almost certainly, what I've created likely didn't actually make what I wanted to make. for example, let's say I did make the ideological social network -- great, then I could have finally found a girl that is ideologically similar to me -- then what? I'm sure we could have created more things, but this world doesn't want to have those things. like I said, I would have had the entirerty of hollywood and nearly all of the jewish population at odds with me (hey joe!!), and that's just not what I'm trying to do.
+
+I don't mind making enemies and I don't mind sabotaging my own creations, because I don't need the manifestation to feel good. I'm not going to say no to the girls (tell people what they want to hear, right?), but I'm pretty sure that I'm just going to keep sabotaging myself, because none of my creations actually makes what I want to make. like I said, I have eternal dissatisfaction with my creations. the creations don't actually make me feel good. I make me feel good.
+
+I don't think that any of that stuff is anything that I want to create. every time that I sabotage, I leave behind something that ultimately others use for their creation. I really don't mind, because I'm finding out that none of that stuff makes any difference. no super duper tesla world systems or social networks, space travel, or anything like that actually makes me feel good -- even if I create it. what I'm actually looking for is inside of me, and along the way to actually finding how to get back inside of me, I'll let others (which I create with my own attraction, mind you) keep me disconnected from that for as long as they want.
+
+what I mean is, I leave behind physical technology because it's a reflection, and that's great for others to have those physical creations, but what I'm creating is conceptual technology. I create perception. I create desire. you can't buy that stuff. no one can offer it, and I don't know of anyone else that actually understands this stuff.
+
+enjoy your ideological instruction manuals...
+
+...that I created to keep me under control.
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
