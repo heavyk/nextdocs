@@ -33,7 +33,7 @@ for now, that's the best I can do. I'm like a 6th ray, taking physical data, and
 
 ### origin of the moon
 
-> The planet had actually been aborted once before the remains of which are the moon.
+> The planet [earth] had actually been aborted once before the remains of which are the moon.
 
 ### the monad and the soul
 
@@ -134,3 +134,7 @@ we're in a SECOND RAY (solar) system, so that means the second ray will be the s
 I can't say that I fully understand it. I just have this document and my intuition to go on, but what it looks to me is another strange polarity. the sun will be playing the part of jeortau (+2), which means she still receives (2) energy from somewhere -- but then that would make her a second female in the triad.. so, it looks to me like just an opposite polarity triad, where vulcan plays the female and she plays the male. I can't really say for sure. though, if she's missing the (-2) part, that means a reinvention of the isis, osiris, and ra SECOND RAY triad is next.
 
 OK, I'm so far out here, I'm going to quit now while I'm ahead. I have a lot of similarities to osiris (see yesterday's work on that), but for now... I'm done with all of this solar system stuff.
+
+### jupiter and jeortau
+
+#### dream about jupiter's moons

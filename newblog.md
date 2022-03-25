@@ -11887,6 +11887,40 @@ I'll have more to say on this soon, but it's incomplete still.
 
 [2]: it's obviously much more complicated than that, because atom, cells, etc have SOLAR ANGELS too, so it appears to be a pattern in a structure that houses this -- probably for the human, it's the heart, the atom is the proton, etc. I want to just simplify this for the case of creating a triad.
 
+### 2022-03-25 04:08 - extra-terrestrial view of creation
+
+I've been reading the document again and taking notes. it's hard to describe the feeling, but it definitely doesn't feel even as inspired or pertinent to me as dtp or the sirian guide (or even mr doyle) does.
+
+the lasting impression that I have after spending all night on it is that like the other "coming earth changes" and things like that which were supposed to happen in 2012, the remnants of those documents exist on this timeline because I found them in 2011, and when adjusting the timeline, you can't change the present -- only your perception of the past, which changes the present trajectory. and, because of the 256y octave harmonic and its relationship to jupiter, I discussed in another entry, I don't think any of those major earth changes are actually happening for another ~1010y or so[^1].
+
+there are two possible explanations for this: one is the timeline has been altered, and two I *believe* the timeline has been altered, and since this is my manifestation of reality, that's how it is. since you all see what I see, we agree that it's reality.
+
+however it is, I can't be sure (who cares anyway) -- and anyway, we're here now, so let's take advantage of it.
+
+---
+
+so I really am having a lot of trouble putting some of their story of creation into their proper places, and there's a number of confusions that incline me to believe that it didn't get transmitted very well, or there have been so many timeline modifications that the document doesn't even come close to representing the present state of the "past".
+
+that history may have happened in the past, however, imagine for a moment that the leapfrogging-time-pickles idea is actually valid (I'm very sure it is), so I have to ask myself how many iterations of this have I/we done? personally, I see evidence of hundreds of iterations, at least.
+
+the other overwhelming sense that I have, I wrote (I'll quote it here):
+
+    I've learned that really almost no effort needs to be made to create anything. it's already all created, and all you have to do is to tune into it. [...] just build up enough energy (they got that part right), but completely missed the mark on tuning into what that they wanted. they tried to accomplish what's wanted with magnificent amounts of effort, when it was already created.
+
+I go on to identify why I think they created such a dud:
+
+    they had such massive egos believing that their imaginary version of what the universe should be like, was perceived as superior to the source version of it -- which subsequently manifested their astral superiority complex into a tangible corrupted 7th ray (astral plane at the time) problem.
+
+you see, this style of creation (of using the imagination and making the astral creation superior to the tuning process by attempting to force the astral to be the emitter instead of the receiver of the creation) is precisely the style of creation that I find so abhorrant. all of that effort is completely redundant. just desire the improvement and then view it instead of spending millions of years to create a few humans. they make it sound as if they had no capacity to tune into the already created source version of what they wanted... sheesh.
+
+so, I can imagine in one of the iterations of this timeline  explaining to the sirians this concept of effortless power and saying: "dude, just power up and let source do all of the work; no need for so much effort. now that we have the INFECTED ONES problem solved, let's just replicate their concepts and go really big this time... like really really big. OK, here, let's try with a galaxy first and see if you believe me." and they're like, "OK, how in the world are you going to convince them?" to which I replied, "I don't have to; everyone creates their own reality."
+
+and then, we're here. that document is such old news...
+
+[1]: what I mean is, let's just consider that the 1984, 2000, 2012, etc. inflection points[^2] were mapped to essentially set us back about 1024y, and so when I was told I have till 2038, that's assuming that 2012 is actually 1012, and 1024y more is actually 2036. (plus 2 years, for some reason)
+
+[2]: I can't figure it out now, but yesterday, it seemed obvious to me that jupiter's orbit is related to the solar cycle, and there are 22 solar cycles every 256y, meaning that perhaps jupiter's orbit is involved
+
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play

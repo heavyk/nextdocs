@@ -59,7 +59,7 @@ anatau and jeortau are twins. allayandra was also created with them, which gives
 ### third ray triad
 
 - (-3) unessa / venus / (aphrodite)
-- (+7) thoth / (zeus)
+- (+7) thoth
 - (+-4) saturn / dwul quinn
 
 ### 7th ray triad
