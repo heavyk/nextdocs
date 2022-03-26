@@ -11921,7 +11921,97 @@ and then, we're here. that document is such old news...
 
 [2]: I can't figure it out now, but yesterday, it seemed obvious to me that jupiter's orbit is related to the solar cycle, and there are 22 solar cycles every 256y, meaning that perhaps jupiter's orbit is involved
 
+### 2022-03-26 08:49 - thoughts on missing 411
 
+I just binge-listened to all of the 411 sodes in a single night and I would like to relate that I experience a number of these sorts of effects on a semi-regular basis.
+
+I may or may not send out this "email" -- TBD at a later time...
+
+anyway, I've had an extensive relationship with brambles and blackberries for a time when I lived in spain. I built a fort in the middle of a ravine(?) (arroyo) and spent a lot of hanging out there. the bushes have an incredible quality of intelligence to them which I do not experience other plants to have. the branches have a pentagonal shape to them and that's what gives them their incredible flexibility and strength. they build massive structures by building upon theirselves and then drying out the bottom part. it is possible to clear out the bottom layers and have essentially a bramble structure with columns and a roof just by clearing the dried part.
+
+I always had scratches all over my body, so I wouldn't have noticed scratches to be out of place. later however, when I moved back to colorado, I noticed that many mornings I woke up with scratches all over. these scratches were always to disguise a dull aching below the skin where "they" would put microscopic (nano) "inserts" under my skin.
+
+I also experienced a lot of the "missing time" experiences when I would go out to a field and "watch stars" -- this is a technique I rediscovered from where we get the word "staring" which is to fixate a star into the centre of the vision and then relax and allow an expansion of the visual space. it greatly increases the production of DMT and with extended lengths of holding the star in the centre while in a relaxed state, you will experience hyperbolic geometry and fractal patterns similar to an ayahuasca, DMT, or "shrooms" experience.
+
+in these states, I go into a state of mind very remeniscent of what most of the young girls experienced in the 411 cases. I interact with beings and "concepts" that are very difficult to explain with physical attributes. I don't actually "see" them. this state of mind is entirely perceived on the conceptual plane (I can describe all of these things with physical attributes and colours, but I don't actually "see" any visual information).
+
+this lack of visual capacity has existed since my "imagination" was completely shut down when I had a brain haemorrhage in my pre-motor cortex near the top of the right hemisphere -- where the brain creates the desire to move. I should be a vegetable, but instead I make reality really quickly.
+
+these "star-watching" experiences are interesting because I used to lose consciousness all the time. from time to time though, I wouldn't lose consciousness, and I was stuck in a black nothing where I couldn't move my body (very similar to sleep paralysis), and I could lay and relax and what felt like a turbulant motion was draining my entire body of the energy that I had been receiving from the star. I could fight it to return to consciousness, and when I did, I came back and my entire body was numb and without feeling with this prickley sensation all over it (reminds me of marty's ufo encounters). I was also unreasonably cold -- a deep biting cold down in the muscles down to the bones (opposite from cold weather going from skin down to muscle, and hypothermia and stiffness is when it starts to reach the bones).
+
+from time to time, I would "push through" on the experience and I would begin to feel a warm sensation all over my body and the pricklyness would increase just like happens when you "die" or enter into a NDE (it's related to an increase in DMT production). when that happened, suddenly, as if by magic, my paralysis and the blackness would lift and I would find myself back in the body. usually though, I did not regain or retain consciousness through the experience and it was just "missing time". without checking my phone a lot (total buzzkill for the star experience), I couldn't reliably tell you how much time was lost -- but judging by how far the stars moved in the sky, it could be anything from minutes to entire hours.
+
+whether I lost consciousness or not, often times when trying to stand up rapidly after the stars, I would be very out of balance, unable to walk in a straight line. a few seconds with bent legs and I could regain my ability to stand and then everything back to normal again in a few minutes. now, I don't lose consciousness anymore. instead, what happens, is the "kundalini" begins to rise at the base of the spine... I stop it though (see mantak chia for explanation of the cosmic orgasm), and it keeps starting lower and lower. first legs, then shins, then heels, now the arches of my feet. it's rising so rapidly now that I don't even need to watch stars. I just directly feel the "kundalini" rise when there is a c-flare. if there's an m-flare, I'm having trouble to stay in my body, and I haven't experienced an x-flare yet. the last few days have been very difficult to sleep and a reduced apetite.
+
+I forgot to mention... one time (can't remember if I lost consciousness), I manifested ants in the middle of winter after watching stars. another time live scorpions (in cold weather). I've also seen it happen if I sit in the sun especially a vibrant sun in the winter (snow ants).
+
+I've lost consciousness a lot, and again, this happened to me a lot when I was in spain. I would drink a little bit, like have maybe one cup or a beer and it would activate that pre-motor cortex and I would have happen where "reality would manifest very rapidly" -- like I could *feel* (remember, I don't have visual), the room getting calmer, and it would. if I felt myself levitating -- I lost consciousnss. I thought that was the alcohol at first, but now that I'm doing it consciously, I'm certain that it's related to the same reason for the "missing time" while star-watching.
+
+in that state of mind, everything that I felt became a reality, very quickly. oh, did I mention that water is a very efficient carrier of this solar energy (chi or vril), and a "babbling brook" can easily induce this state of mind. for simplicity I'll call it the conceptual state of perception.
+
+in this state of mind, everything that you feel reflects in reality very rapidly. in past times, I'd call this the "garden of eden" -- as I think that's literally the state of mind that adamu was in during that time -- it's related to the brain stem and the pre-motor cortex. every thing just feels natural there.
+
+have you ever noticed that crazy crazy stuff could be happening in a dream and it all feels "normal"? I was not alarmed by the scorpion or the ants. they felt natural to be there -- then, my logical brain kicked in and I felt very strange about their presence, but in the creation process, I felt completely at ease and normal, as if they were supposed to be there.
+
+---
+
+OK, now that I've laid the foundation of where I'm coming from, I'd like to see if I can give my explanation to these occurances.
+
+it's hard to separate the two because I have many experiences where that switch flips, and all of a sudden I'm creating reality fast -- and levitation and bilocation is a thing.. I don't know if those girls were bilocating or levitating, as that seems a very plausible thing to me in my realm of experience. the unexplainable items are also fine to me, as in that state of mind, if you feel you want or need something and have no resistance to it (I'm lost or I have no one to give it to me), then you just create those things and situations. it was often times difficult to separate my imagination and "reality" -- much like a very young child has a very difficult time making concrete sense of what is "real" just yet.
+
+for me all of these experiences can easily be explained with that conceptual (garden of eden) state of mind.
+
+---
+
+so while I can explain the 411 as a manifestation of the conceptual plane of perception, there are numerous details in these stories that suggest something else may be happening.
+
+often times when I enter into these states, the temperature drops very rapidly (see below section) -- and, like I said, I have to be very careful to *not* allow the kundalini to rise or to not leave my body, start levitating, because if I don't I lose consciousness. 
+
+what I believe is happening is these people are just very sensetive people, like I am, and what happens is some event allows them to enter into this state. it often times happens to me when I'm left alone, relaxed, and around water. mountains, granite, gold, and shining crystals also have this effect on me. I figure these are all the trigger to them then entering into this state.
+
+I've developed my capacity quite well, so I navigate the conceptual plane very well, but your average person will not. like me at the beginning, I was swayed by any feeling that was put into my perception. I could easily be steered into a river, away to a remote location where I would lose time and then be "adjusted" back into physical plane.
+
+whoever "they" are, they do not want my to experience any other reality than the physical (I don't even have an imagination). for now, I'll just call them the custodians because they insist that I stay focused on the mundane physical experience.
+
+there is a very major clue as to who "they" are because of the overwhelming number of blonde children that are abducted. the other major clue is that the FBI gets involved so frequently.
+
+what I believe has happened, is "they" have made an agreement with the USA allowing for testing and abduction on the citizens in exchange probably for technology. the FBI is there to ensure that no evidence is ever found which can trace back to "them".
+
+I believe clothing is always lost because a person like me (or any clairvoyant or remote viewer) can use the clothing to "tune into" the situation. it's interesting the one situation of the woman in the tree that the clairvoyant explained where she would be.
+
+I believe that their goal is to do non-harmful tests and release the person back to reality. if that weren't the case, I wouldn't be able to write this. I may get into trouble with the US govt, but not them (they appear to have very powerful influence over the US govt).
+
+I noticed in the cases where the person has extensive search parties for them and the searches don't give up, the person is found dead. however, if the searches give up, then I think the victim is released back into the wilderness, and then natural desire will cause someoene to just "happen" or "by chance" go to look where the victim is. this is basic "law of attraction" stuff. if you keep looking at the dire situation, it gets worse, but if you let go and allow the solution, it shows up.
+
+also in marty's UFO reports, you notice a similar thing. they're not aggressing. they may pull some hotshot stunts (like the game of chicken), but most all actions have been reactions.
+
+the cases down in south america (brazil?) where people were killed or left in an incapacitated state around energetic locations, looks not to be "them" but actually the US govt. I believe "they" gave the US govt the technology to manipulate people's minds (the network) and also UFO craft technology.
+
+from my own experience, "they" are behaving according to the "law of attraction" and so, as such, sure I lose consciousness, but they don't bother me, and I'm well advanced in my capacities. I just have to stay away from the astral plane (4d) and the conceptual plane (5d) and everything is fine...
+
+---
+
+I can hear your reactions to that last bit already... lol, I believe the reason for it is larger than you may think. in the astral plane, your imagination with a little bit of focus will manifest itself in 3d space. you (and others on the astral) can see it and interact with these images. they can be anything from "astral records" (secrets, etc) to demons or angels, or anything you can "see" in your imagination.
+
+in numerous "end times" prophecies, it talks about all of these demons that interact with and terrorise humankind. well, they not real demons, until "you" focus them into this reality enough to interact with you.
+
+when I was younger, I would walk outside and my fears would mainifest theirselves as shadow creatures and jump out at me (especially in the dark or low sleep), so it was quite a relief to me to not see my imagination anymore after the haemorrhage. now, I'm quite good at feeling the way I want to feel, so I find it very unilikely that anything that I would feel would have any lasting negative effect on my environment. in fact, I can pretty much guarantee that only good-feeling things would make their way into manifestation.
+
+at this point, because I've quit star-watching, the sun completely controls when the "kundalini" will rise. I can basically feel any way I want to now, so as my focus (on wanted) continues to improve, this transition will be seamless for me. there will no longer be any way for me to lose consciousness.
+
+that is the state of "effortless power" because anything I focus on (feel and tune to) will manifest instantly. we all have the capability to do it, and the goal is to manifest what's wanted rather than demons and catastrophes for others to experience.
+
+in the larger scheme of things, I believe this manifestation of "them" and their prevention of humankind's (or, at least my) access to the conceptual (5d) form of perception is a reflection of the age old brotherhood initiations: first, you gatta want it, and then you gatta "earn" it.
+
+for me, it's not a mantra, a breathing technique, drugs, sex, or focus on a star -- though those do work. instead, this is about the ability to focus reliably on what's wanted. instant manifestation is a pretty big deal and personally I don't want dead fish and scorpions raining from the sky. though, I don't know what other people are looking for.
+
+---
+
+book, written.
+
+SNAKES!!
+
+### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
