@@ -12011,6 +12011,20 @@ book, written.
 
 SNAKES!!
 
+### 2022-03-26 11:42 - hunting is more fun than killing
+
+since I wrote that last entry, I noticed a kind of "down" feeling -- and it has to do with the idea that I just went and man-splained prolly 80% of the core topics of the show with a very uncool concept --- law. of. attraction. I probably should have called it quant or some other more techno jargon to get the point across, but I didn't.
+
+I wasn't going to write all of that out, but I felt strong desire to hear my take on it. I shouldn't have done it... why? because the "joy is in the journey" -- or, "the fun is in the hunt", cause you know no one actually wants to "collapse the wave function" or kill the proverbial cat.
+
+I talk a lot about how I enjoy the feeling of it. I don't actually want the manifestation of it; I just like how it feels.
+
+this is sort of the same thing. the discovery and figuring it out process is the fun part. I know that because that's what I live for. I'm so in love with that feeling, you'll see me trying to figure everything out, generalise the pattern, categorise it as best as possible.
+
+I'm not as positivist as you may think I am, though. I'm a true immediatist -- but, that doesn't stop me from striving to constantly find better and better ways to explain and relate things -- cause that's the fun part.
+
+as you can see, I really do want to just keep getting close to the manifestation -- but not actually manifest the thing. "they" make that easier for me, and make a safety net, just in case I go too far -- I just lose consciousness and get back to the physical again. no manifestation. the enjoyable thing is, no matter how close I get, there's always something more to discover, and that's the fun part.
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
