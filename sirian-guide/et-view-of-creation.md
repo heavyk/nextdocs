@@ -34,7 +34,19 @@ there are also legends of saturn getting wrecked by by his son, jupiter. jupiter
 
 there are two destructions of mankind that are listed. the first one happened because the vehicles were "unsuitable" -- but legend tells us that the vehicles were actually too good. they had too good of eyesight, hearing, etc. so a veil was put over their senses. the 
 
-this is interesting because jupiter is in a sympathetic relationship with the sun, and let's say for a moment that jupiter is jeortau (+2), which is the opposite polarity of the sun which is (-2) -- I'm fairly certain. it [fits the triads](triads#family-ties-and-a-hidden-5th-ray-triad), and they say it's a 2nd ray system. so they're linked now. it doesn't appear that jeortau/jupiter and the sun have the same difficulties they used to anymore.
+this is interesting because jupiter is in a sympathetic relationship with the sun, and let's say for a moment that jupiter is jeortau (+2), which is the opposite polarity of the sun which is (-2) -- I'm fairly certain. it [fits the triads](triads#family-ties-and-a-hidden-5th-ray-triad), and they say it's a 2nd ray system. so they're linked now.
+
+it doesn't appear that jeortau/jupiter and the sun have the same difficulties they used to anymore.
+
+so let's now assume that sanatau (+-3-+) is lucifer and that planet zyron/tiamat. the sun is (-2) and so she loves to radiate upon jupiter:
+
+- zyron (+-3-+)
+- jupiter (+2)
+- sol (-2)
+
+this must have caused the conflict.
+
+---
 
 
 before saturn was uranus, who was castrated by saturn. uranus must then be sanatau which was the first polarity reversal.

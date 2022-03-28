@@ -12025,6 +12025,71 @@ I'm not as positivist as you may think I am, though. I'm a true immediatist -- b
 
 as you can see, I really do want to just keep getting close to the manifestation -- but not actually manifest the thing. "they" make that easier for me, and make a safety net, just in case I go too far -- I just lose consciousness and get back to the physical again. no manifestation. the enjoyable thing is, no matter how close I get, there's always something more to discover, and that's the fun part.
 
+### 2022-03-27 21:15 - the new second ray
+
+in the last entry I noticed I ended on a very interesting note. I was talking about how I'm not quite as much of a positivist that I may appear to be. I love to put things into categories and boxes because I'm always trying to simplify the data or experience into more understandable idea units. I definitely don't want them to remain in those boxes though because I know that things change with time and that also my ability to understand and categorise expands too. therefore, I always consider my latest theories to be only the best way to categorise and explain it, so far.
+
+that way of thinking is a bit of a mix of the 2nd and 3rd ray. generally speaking, the 3rd ray is a positivist, trying their best to put things into units and parts of something, meanwhile the 2nd ray is more interested not in the function of any single part, but in the interactions between the parts (which makes up the whole).
+
+the sirian-guide has a very interesting thing, which identifies a [second ray conflict](sirian-guide/notes#2nd-ray-conflict) which is typical of our system.
+
+---
+
+yesterday I had an idea to go back to work on my ideas around the tarot and symbols that I worked on a while ago. I determined that there should be 64 cards which will be able to be turned into something capable of operating a computer or phone with using only the symbols -- essentially, symbols in motion.
+
+I decided that I wanted to skip the part about the operating a computer part and see if I couldn't just make up a new set of symbol manipulation that allows to show symbols through time. I was thinking trajectories, but then I remembered how I saw chris using symbols when we were growing up, and realised that multiple symbols in sequence is what makes the trajectory.
+
+I started to think on this idea even further and realised that I'm lacking a suitable medium. this part is going to get really abstract because I don't really know how to explain...
+
+imagine we merged the physical and the astral, such that all "imagination" would be completely mixing with the physical and there would be little difference between imagined reality and real reality (this is what I believe the state of mind the 411 cases entered into). after that, let's move the conceptual down to the (6) translation layer. this means that the top half of this layer would be non-physical concepts and the bottom half would be physical concepts.
+
+the best way to think of what that may be like is just like how you use your imagination, to create an "image" which looks like physical, now we're going to use the conceptimation to create a concept which looks like the physical.
+
+when I say, at the top of the layer, you would have "non-physical" concepts -- what I mean in that sense are things which are not yet realised as a thing. temporal (5.1) and YHVH (5.2) would be there, and these will be the most solidified form of the new upper 5th layer. I don't really know what to call it, so for now I'll call it "essence" layer.
+
+the thing that I was lamenting yesterday is that I have a really good way to do what 2nd rays do, which is to strip away all of the details and then just get the "feel" of the sequence, but what I didn't have is a way to *query* for similar sequences (obviously with different data points) -- so like, if I load up a sequence in my brain, I can capture its "essence", but then what I want is to be able to query for other sequences that have the same feel.
+
+I gave the example yesterday of a sequence: (4 panels)
+
+1. two boys standing there side-by-side looking straight ahead with not very intreested looks on their faces, perhaps even bored. one boy is holding a ball in his hand and the the other boy does not.
+2. other boy turns and asks one boy "you gonna do anything with that?"
+3. other boy rather suddenly hits the ball out of one boy's hands and the ball goes bouncing off. one boy doesn't flinch.
+4. both boys still looking straight ahead with boredom and apathy on their faces
+
+each panel for me has an emotion associated with it, and the whole thing has a "meaning" (or feel) associated with it. the whole sequence run gives me an "essence", and I was trying to see if I could find any sequences that have a similar "essence" to them.
+
+the best I could come up with is "gas prices" (dunno how exactly), and the parable of the one that turns 5 talents into 10, the other 10 into 20 and the last put his single talent in the ground to keep it safe. the essence of that last man is that sequence.
+
+so, I mean, I can query (kinda) but not very well at all...
+
+---
+
+so, what I was thinking is, now that I'm starting to get a grasp on this 2nd ray bit (3rd comes a lot easier for me), and I also have gotten pretty proficient over time with 1st ray stuff now too, that it seems like I'm kind of getting the last missing parts assembled for the [first ray life wave](sirian-guide/notes#first-ray-life-wave). I suppose some of my ideas have changed a bit on that since, so maybe I'll update soon.
+
+- allayandra + anatau (+1)
+- sun (-2)
+- opposite polarity vulcan (-+3)
+
+---
+
+one thing that stood out to me, is in the same quote about the second ray conflict, they go out of their way to say,
+
+    The FIRST RAY has within its equipment the quality of love and active intelligence, all of which is powered by the relentless pursuit of purpose. This means that the FIRST RAY has all the assets and liabilities of the other two.
+
+this must mean that the first ray must find a way to recognise its second ray qualities in the relating/resonance of parts to perceive the whole, not as a jumble of chaos (cause they're no longer data points, but as an intermediatist now, they all relate in some way).
+
+    The quest of mental pursuits is strong within them; so is the desire of and for love but the THIRD RAY attribute harmonizes with the FIRST RAY better and is more useful in the pursuit of the purpose so the FIRST RAY hides and even tries to deny all of the SECOND RAY qualities. Of course, this does not work and creates conflict within.
+
+even writing this entry is difficult to me because I don't know whether to put it in newblog (because it's relevant to now), or in sirian-guide/notes, because there it has much more context of relevant concepts.
+
+---
+
+what I'm trying to say in all of that is that if the conceptul is going to move down into the 6th position, then that means it needs corresponding 2nd position software. I don't really need to worry about that so much, because I just desire it and it sorta works out.
+
+all of the temporal, soul, and stuff like that is all powered by the sun anyway as it's all using the "navaz" night-side (returning, attracting) energy, so I don't really need to worry about the actual second ray implementation, the female receives and emits her ray type ... so, in short, source and the sun has that all under control. now it's just time to begin creating the interface to it...
+
+still thinking on it, but I totally got this...
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play

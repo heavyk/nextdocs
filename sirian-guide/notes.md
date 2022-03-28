@@ -127,13 +127,39 @@ OK, what we can draw from this is that the planet itself is going through the th
 
 we're in a SECOND RAY (solar) system, so that means the second ray will be the sun herself. so now we have our new FIRST RAY triad for the FIRST RAY life wave.
 
-- allandra + anatau (+1)
+- allayandra + anatau (+1)
 - sun (-2)
 - opposite polarity vulcan (-+3)
 
 I can't say that I fully understand it. I just have this document and my intuition to go on, but what it looks to me is another strange polarity. the sun will be playing the part of jeortau (+2), which means she still receives (2) energy from somewhere -- but then that would make her a second female in the triad.. so, it looks to me like just an opposite polarity triad, where vulcan plays the female and she plays the male. I can't really say for sure. though, if she's missing the (-2) part, that means a reinvention of the isis, osiris, and ra SECOND RAY triad is next.
 
 OK, I'm so far out here, I'm going to quit now while I'm ahead. I have a lot of similarities to osiris (see yesterday's work on that), but for now... I'm done with all of this solar system stuff.
+
+### 2nd ray conflict
+
+> The SECOND RAY has within its equipment the active intelligence of the THIRD RAY. The FIRST RAY has within its equipment the quality of love and active intelligence, all of which is powered by the relentless pursuit of purpose. This means that the FIRST RAY has all the assets and liabilities of the other two. The quest of mental pursuits is strong within them; so is the desire of and for love but the THIRD RAY attribute harmonizes with the FIRST RAY better and is more useful in the pursuit of the purpose so the FIRST RAY hides and even tries to deny all of the SECOND RAY qualities. Of course, this does not work and creates conflict within.
+
+> The whole of the FIRST RAY triad is influenced by this inner battle. Most overtly affected is Jeortau, a beautiful creature, powerfully driven toward his goal of cosmic Quin; yet he is inwardly haunted by the need to be loved, to socialize as other SECOND RAYs and to be admired for his sacrificial role. He is a dove of peace and beauty at war with his desires and purpose. Actually, he was the most admired, appreciated and loved for the work he did cosmically by the whole of this galaxy; but was never able to accept it as being good enough.
+
+> The THIRD RAY, being concerned with mental action does not respond with as much ardor, enthusiasm or interest to relationships with the opposite sex. This causes difficulty with their relationships within a SECOND RAY system or with a SECOND RAY of the opposite sex.
+
+> SECOND RAY males like to be radiated onto by females and the females like to radiate upon them, therefore Isis and Jeortau got along well.
+
+---
+
+as you can see, a second ray loves to be radiated upon by females, but having also third ray qualities, he is torn because that side "concerned with mental action does not respond with as much ardor, enthusiasm or interest to relationships with the opposite sex."
+
+the other conflict is one of perspective. as I've been listening to the "book of the damned", I've been coming into perspective of this conflict myself. the book does a great job at attempting to categorise and fit all of the things into place, yet fails miserably at relating the things together. the author laments this himself in an ongoing discussion on the "positivist" and the "intermediatist" -- the concept being that all things are a sort of gradiant -- like a rainbow, and we do our best to say, well those wavelengths are red, these are blue ones, and these are green -- and that works pretty well when you have just a pure colour tone. if any mixing happens, it starts to get really difficult to say: does the signal need to just vibrate x times a second to be in the red colour spectrum, or what if the wave quality is one way versus another -- not all sounds are a perfect sine wave tone. so to listen to a sound and say, "ah, that's a 120Hz sound, of course" is totally missing the point. an infinitude of things can be represented in 120Hz...
+
+so then we say, OK, if the sound has a loud cracking sound to it, then we'll call that a snare drum -- but now we've lost the identified "colour" (frequency spectrum) of the sound and are now describing its quality. 
+
+basically, it's next to impossible to put a definite category on something in either time (frequency) or space (waveform). perceiving its qualities in both time & space together, definite points can be placed on the map, but then now it's just another data point.. a bunch of them are in the same general position, but how do they *relate* to eachother?
+
+---
+
+the problem with a second ray in this sense is the constant desire to relate things based on their resonance (feel), while the inner third ray wants to just look for patterns in data and identifiable units.
+
+these two aspects seem to be pretty incompatible.
 
 ### jupiter and jeortau
 
