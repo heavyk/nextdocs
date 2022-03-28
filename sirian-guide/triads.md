@@ -141,4 +141,6 @@ the idea here is that just like the other hidden triad is to make stability so t
 - mars (-7,+1)
 - unessa as male (+3) ???? - needs more thinking...
 
+### polarity changes
 
+[TODO]

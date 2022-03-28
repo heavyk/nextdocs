@@ -12090,6 +12090,63 @@ all of the temporal, soul, and stuff like that is all powered by the sun anyway 
 
 still thinking on it, but I totally got this...
 
+### 2022-03-28 02:56 - decoding the first life wave
+
+I'm getting strange reactions that may signify there is a misunderstanding, and that maybe I wrote something hidden (I didn't), so instead of trying to figure that out, I'll just go through it again in more general terms.
+
+---
+
+the sirians state that it's not best to start out with a first ray life wave, as they don't have the capacity for "wisdom and love". wisdom and love are aspects of the second ray and acquired through experience in mentation with the aspects of the third ray.
+
+the way I take this to mean is that they must have tried to create the first ray life wave before and it failed[^1]. if you'll remember, the first ray life wave is the "godhead" -- with the creator/destroyer (1), the preserver/amplifier (2), and the organiser and implementer of forms (3). in order for such a creative "godhead" to be able to exist, there must be "wisdom and love" (2nd ray aspects) to hold it all together and motivate the creation.
+
+so, in order to understand the purpose or desire for the creation, the creation itself (as creators) must also develop that capacity in theirselves. this essentially comes through experience, so you have to have some failures and learn what is wanted.
+
+I tried to express this in the fractal creation idea, but this happened in species. the first creation was the "epitome of the creation chain" (according to kuthumi). the second creation was too stupid to do anything accept for reproduce. these creations mimiced the creation of this universe in that this universe was the "epitome" of the elders' imagination. the elders are the "first life wave".
+
+after that, the primary triads form the "second life wave" and they make a dud. one of the elders (the corrupted 7th ray) corrupts and sows seeds of unwanted into the process of creation amongst the primary triads. fractally, this is the second termination of humankind.
+
+---
+
+going back to the system of triads, there is the *positive*, the *neutral* and the *negative* -- and these correspond (in the sirian guide to creation) to the life waves. the first is the positive (wanted) creation, the second (neutral) is the ground/salt/body which is the real creation being perfected, and then the third life wave is the *negative* or denouement.
+
+well, earth clearly does not use this style of creation; we're backwards. we start out with the negative, then iterate on the ground until the positive is reached. this is how alchemy works and all other "esoteric" practises of "perfection" work. it's also how my system works. you know what you don't want, and then you iteratively tune into what you do want, recognising each time the difference in how it feels. my method is nearly instant, and theirs takes millions of years.
+
+it's my contention that this document was valid and did serve as a template for the christ that was foretold by dtp, attracted by its readers and believers, and then manifested.
+
+however, somewhere along the way, I must have teamed up with tesla on this idea that instead of doing entering the measuring contest of biggest paja mental, instad, just queue up concepts of everything unwanted, instantiate them into a timeline, live out the timeline and viola! you have all the things that are wanted ... and, so still see some things that are unwanted? no problem, just add those (unwanted) concepts into the creation and go again. each iteration not only do I get better at creating what's wanted, but the wanted aspect becomes bigger. put mathematically a team of one person can do in 100 iterations of 1000y what a massive team of sirians efforted out in 5 million years.
+
+so, back to the fractal creation: how do you create "love and wisdom"? -- through experience in mentation on the 4th, 5th, and 7th planes[^2]. the 6th plane is a reflection of the 2nd.
+
+in the triads, there is always a polarity that reverses to create the effect. so what we're looking at here in the earthen 7th ray/day (of rest) style of creation, we start with the negative or unwanted, and then reverse the polarity to get the wanted. this is what is happening.
+
+---
+
+OK, so let's go through my perspective on it. I believe the first attempt, the creation was too good. the second was too stupid, but the third created the salt or the body which can be worked on. conceptually, we still retain both those wanted and unwanted aspects (along with many more).
+
+it's my belief that instead if creating a being that was too good or too stupid, it was decided relatively recently (like perhaps in the last upgrades), that we'll have all of the faculties of the "gods" but they are frequency dependent -- and since frequency is modulated by how you feel, any person can take the top-down (concept/feeling focused) form of physical experience, or they can take the bottom-up (conditions/environment focused) and these different forms of "mentations" are the experience which will ultimiately bring about the "first life wave".
+
+so what exactly is the "first life wave" -- well, like I said, it's the "godhead" and the key to it is to realise the second ray aspects of "love and wisdom". in short, it just means that we're fully realised creators ourselves. that's it.
+
+in their system, they have a lot of "earning it" in the sense of performing creation properly according to "love and wisdom" as the motivator of the creation. I have no such restriction. in this 7th ray/day system of creation, the reality that you create and experience is a reflection of you. you are only fighting yourself -- and it's you that's motivating your own creation. whatever you choose to be your version of love and wisdom is your own creation and your own motivation for your reality.
+
+---
+
+all I'm talking about in the previous entry is expanding that 2nd ray capacity to include what I called "essence" or the product of a sequence of emotions and their associated images. that's it.
+
+that "new 2nd ray" is free and available to everyone. nobody has to do anything for it. it's already happening now, and anyone could do it whenever they want to. it's like saying, "OK, now anyone can 'use' the addition function, and the output will reflect the input".
+
+there will be much opposition to anyone realising that the capacity is there, and you'll find out that opposition is only yourself.
+
+the second ray is the "christ", the "saviour", the motivator, and the amplifer -- which is you.
+only you can save you.
+only you can motivate you.
+
+[1]: in et-view-on-creation, they state that there were two terminations of humankind: one because they were unsuitable (to trap the INFECTED ONES -- which I believe is because the first humans had too good of physical senses, vision, hearing, etc). the second attempt was just the opposite: they were complete retards, able to reproduce, but little else. the third attempt yielded something that was intelligent enough to trap the INFECTED ONES but not too smart and capable.
+
+[2]: I still have not quite yet figured out the improved 4th ray triad (which has a -3), but you'll notice the 5th and the 7th ray in opposite polarity create my reinvented first life wave triad.
+
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
