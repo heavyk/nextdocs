@@ -161,6 +161,18 @@ the problem with a second ray in this sense is the constant desire to relate thi
 
 these two aspects seem to be pretty incompatible.
 
+### 3rd ray conflict
+
+in the first ray triad, sanatau (+-3-+) was paiered with anatau (-1). that means that she powered his creations and his creativity with her desire for the manifestation of those creations.
+
+in my own life, I have noted a tremendous difference in my creative output when someone desires my creation, and someone does not. this is most exemplified for me in tuenti when I wanted to create something that zaryn (+2) did not want. it also manifested in a conflict of creation with dani (+3) and marcos (+3) when we would conflict on the "way" it was to be implemented (dani in the technical sense and marcos in the conceptual sense).
+
+if I wanted to create things my way, I needed to figure out how to power my own creations with my own desire. all I wanted was for them to just desire my creation purely -- and so I was looking for them to play the role of a 1st ray female (-1). obviously that's not cool for a man to play such an attractive and receptive role, so what ended up happening is I would become the first ray female and desire their implementation of that product. they didn't want to fulfil my desire, so things naturally fell apart, because of vibrational incompatibility (this same pattern can also seen with tesla's interactions with morgan over wardencliffe).
+
+a 3rd ray wants an opposite polarity 1st ray to support them -- so, if she's a female like unessa (-3), she desires a 1st ray male (+1). or if it's ra (+3), he desires a 1st ray female (-1). neither of them had what they wanted, so they had to produce what they wanted by forcing the neutral/ground to behave according to their desires (and now the progression of the triads becomes obvious).
+
+so if you begin your perception from the 6th or 2nd layer, you will naturally have the 2nd ray conflict, and those beginning their perception from the 3rd, 4th, 5th, and 7th layers will experience this internal conflict of desiring a 1st ray of the opposite sex to power their creativity (the esoteric "grail quest" where the "ark" is the opposite sex 1st ray to empower the process).
+
 ### jupiter and jeortau
 
 #### dream about jupiter's moons

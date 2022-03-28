@@ -12146,6 +12146,27 @@ only you can motivate you.
 
 [2]: I still have not quite yet figured out the improved 4th ray triad (which has a -3), but you'll notice the 5th and the 7th ray in opposite polarity create my reinvented first life wave triad.
 
+### 2022-03-28 13:42 - individualisation of the first ray life wave
+
+first, I would like to point out that when I say "that 'new 2nd ray' is free and available to everyone", I mean it in the same way that tesla meant that AC electricity and the rotating magnetic field is available to everyone. a better example may perhaps be "the number 0". for millenia, the number 0 wasn't realised as a valid number -- I mean like, if you don't have any, then you don't have any... -> <- see, that's zero... there's nothing there. well, once the usefulness of the zero being a placeholder, it allowed for negative numbers and all sorts of useful stuff. from that point on, the number zero can't be unlearned. this is the same thing. it's a mental construct of an already existing thing.
+
+---
+
+the next thing I would like to point out is that when I drafted my idea of the "first ray life wave", I perceived it as an interaction between a first ray male (+1) which I identified as mars/aries. for me this energy was represented by another channel I heard a long time ago called "ramtha". his name literally means, "of the ram", he's a warrior like allayandra, and interestingly enough he too shared the same testimony that tesla had, "I never touched a woman" and would explain how men are wasting their energy ("spilling their seed") needlessly in their interactions with women. he's clearly a virtual first ray male, in that his 1st ray female is himself.
+
+you could imagine tesla as being either a 5th ray male with super-human strength and willpower, or you could imagine him as a 3rd ray male and like sanatau of the triads, he accesses his own 1st ray female within. the power that one gains by no longer requiring a female to power one's own efforts is realised in both of these examples for me.
+
+the next thing to look at is they leave a very coded message in the middle of a bunch of recognition of spiritual masters (so undoubtedly it was missed):
+
+> Your physical plane science works from the physical upward; spiritual works are usually attempted from the highest attainable level downwards - we will work on all at once.
+
+the implication here is that we have "vehicles" or bodies (a way to perceive) on all of these planes of reality. when I say 2nd ray or 1st ray or 3rd ray, I'm not confining the person to one ray of perception only, instead I'm identifying from where they usually begin to perceive reality. so, we have all planes of perception. that means that within each one of us, the "first ray life wave" already exists, yet cannot yet be accessed because you're not at a high enough frequency of perception to get there.
+
+most of us do not actually perceive or interact directly with the 1st or 3rd ray of perception, because they're *not physical* and we believe that if we can't see them, they don't exist, of course. therefore what we experience is our "connection to our source" (in their language, direct communication with the monad) -- and it's our source/soul/SOLAR ANGEL that does the turns (like the sun) the unwanted vibration into wanted. this happens automatically, and it's only our job to actually tune into it. it's completely effortless; that's the point, and -- it has never not been the case that as long as one desires to continue to expend effort, all of that effort will yield anything other than an exact reflection of that effort.
+
+---
+
+so, if we already have all of the first ray life wave (1, 2, 3), already within us, then all that needs to be done is to simply access it. that's it. the 3rd ray produces the other layers of mentation (4, 5, 7), and the 2nd ray creates a reflection of itself (as it currently perceives itself), which is [a product of its conflict](/sirian-guide/notes.md#2nd-ray-conflict) -- because in this system, we start with *unwanted* and then create wanted, so all aspects of creation for us start out with an *internal* conflict (you're only fighting yourself manifest/resonantly outwardly).
 
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
