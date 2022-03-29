@@ -12168,6 +12168,44 @@ most of us do not actually perceive or interact directly with the 1st or 3rd ray
 
 so, if we already have all of the first ray life wave (1, 2, 3), already within us, then all that needs to be done is to simply access it. that's it. the 3rd ray produces the other layers of mentation (4, 5, 7), and the 2nd ray creates a reflection of itself (as it currently perceives itself), which is [a product of its conflict](/sirian-guide/notes.md#2nd-ray-conflict) -- because in this system, we start with *unwanted* and then create wanted, so all aspects of creation for us start out with an *internal* conflict (you're only fighting yourself manifest/resonantly outwardly).
 
+### 2022-03-28 22:53 - am I a 2nd ray perceiver?
+
+one of the reactions I was getting was wondering if I'm a 2nd ray perceiver. there were some ideas.
+
+tl;dr - yes, but probably no
+
+#### under prolonged supression and adversity, a second ray can learn to enjoy depression
+
+I suppose this is true about me. the sirians have a different perspective than mine though. they believe in starting the creative process with what's wanted, then identifying problems, and then iterating on the wanted aspect. my view on this is the opposite, in that if I start with the unwanted aspect, and then learn to enjoy it, I am actually tuning to enjoyment, and so therefore my reality will eventually reflect enjoyment. from their perspective that adversity and suppression is bad, they will naturally get a feeling response of depression, because that's not what your source sees. your source never sees adversity and suppression as something to be depressed about.
+
+so, yes, for the 2nd rays that feel depression, that may be true -- but, with my system of perception, depression isn't experienced -- so, also, no.
+
+#### first and third rays don't respond well to opposite sex but second rays love to be radiated upon
+
+it says of saturn that he was a somber creature, evoking the maternal instinct in the females, but "He didn't seem to mind but accepted their attention and companionship as if it were his due". this is much more similar to how I am than the descriptions of jeortau
+
+it also says of 1st rays: "FIRST RAYs care almost nothing for relationships between the sexes. They have nothing against sex; it simply takes up too much time that could be spent much more interestingly, such as working or warring."
+
+this almost certainly is referring to anatau for her desire to work or allyandra because he liked to battle. I too enjoy a fierce battle than to:
+
+> A SEVENTH RAY does enjoy playing around creating illusions within the framework of a sexual relationship but this can become a problem for them for as with everything with a SEVENTH RAY, they may confuse the real and the illusion; they may begin to believe their own illusion or they may decide that nothing is real.
+
+> SECOND RAYs enjoy the game of socializing, courtship (interplay between charges) and the intensity of their feelings within their often infatuations. They are willing to spend much time and emotional energy on their relationships whereas the THIRD RAY would rather approach the matter logically, cutting through all the extraneous courtship to get to the reason for the relationship.
+
+neither of these are me in any way -- but kind of: I've been been learning to enjoy creating illusions. I've begun to start to toy with people's minds by saying one thing in front of them and then another thing behind their back. it's pretty funny sometimes. in this way I'm beginning to learn how to socialise. I'm enjoying the contrast of being extremely superficial at times while at other times being ultra profound and insightful. I'm beginning to learn how to control it and wield it as if it were energy in a battle (allayandra improvements)
+
+in that same regard, I used to think of relationships as being a giant waste of time and energy (for various reasons), preferring to want to be in a creative role of producing real tangible things (1st & 3rd ray perspective) rather than empty words and broken promises (2nd ray perspective). however, I've adopted and improved the 2nd ray aspect of loving to socialise and expend energy on relationships, taking the complete opposite perspective that a normal 1/3 ray would have of wanting to produce tangible things and now, instead I like to perpetually never collapse the wave function, never wanting the tangible to manifest.
+
+the 2nd ray is interested in "creating more energy" -- you know, like a sales pitch, trend, fad, or the interplay (synergy) of charged buzzwords to create the illusion of more energy. nothing really tangible is created -- just more energy. I've completely taken this and adapted it to my own.
+
+so, while a normal 2nd ray will attain more energy through social interactions (sales pitches, business brunches, prayer, etc), I build up energy a different way. I just don't want the manifestation -- until it's so impossible for it to not exist, that it exists.
+
+---
+
+the reason for this is simple: if you create a lot of energy and get it moving and it goes in the direction of unwanted, then it's very difficult to stop. it crates a catastrophe of magnificient proportions. however, if instead I just take things without any manifestations -- without any large energy spikes, then the whole thing is easy to manage and it never gets out of control. I enjoy the entire time along the way, and if for any reason, I'm not enjoying it, that's on me and my perception.
+
+I don't need magnificent amplitudes to feel good. instead, I prefer low magnitude, but very high frequency (ie. feeling really good). I like feeling in alignment with who I really am, rather than the social interactions, and conditions around me.
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
