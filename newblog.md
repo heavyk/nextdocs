@@ -12206,6 +12206,45 @@ the reason for this is simple: if you create a lot of energy and get it moving a
 
 I don't need magnificent amplitudes to feel good. instead, I prefer low magnitude, but very high frequency (ie. feeling really good). I like feeling in alignment with who I really am, rather than the social interactions, and conditions around me.
 
+### 2022-03-29 16:53 - more thoughts on 2nd ray and my motivations
+
+the thing I was explaining yesterday is kind of a round-about way to explain that I'm kinda forced into a 2nd ray position. normally, I would be all about real tangible things as a 3rd ray on the product team, while the sales team is out there whipping up a bunch of energy to motivate the product.
+
+the opposite case would be for me to be the desire 1st ray and then other people just implement my desires for me. I suppose I have this relationship with the US govt in the sense that they do implement my desires, but no one is supposed to know that; it's probably a secret.
+
+they want to retain superiority, so in order to do that they *don't* want me to be involved with the creation of anything -- not even programming even the simplest thing.
+
+so, with 1st ray and 3rd ray perception out, that leaves me the 2nd ray. well, my ideas of how the 2nd ray should go are very different than their description of the 2nd ray.
+
+so, as with everything, I reimplement it my own way (see previous entry for details on that). I've also adopted to go a very non-standard (wrong) way toward my goal. I will ultimately be the next "stone the builders rejected"[^1] because as I stated in @[newblog](2022-01-11 18:43), I have no intention of doing things "the right way".
+
+almost certainly many won't agree with my methods of doing things and want me to conform to the "right way" of doing things. one such example was an email that I wrote to russ (but did not send), in which I linked a lot of concepts together, ranging from breathing and likely the templars' consciously increasing of their vibration through the use of homosexual interactions in order to "raise the kundalini" to be able to perceive "God" (ie. astral's 4 dimensions: height width, breath, and depth). I also linked solomon's "wise" decision to send the firstborn sons of the jewish patriarchs with the ark to ethiopia, knowing that they were almost certainly "fallen angels" and it was in fact those same petty patriarchs that caused the destruction of the templars.
+
+as you can imagine, that email got quite a reaction. I also noticed some other giant flaws in it too -- well within my "wrong 90% of the time" quota, so maybe they expected me to get everything right -- not sure -- however, I think most of the reactions were centred around the homosexual aspect to it -- likely to distract them from the incredibly revealing part where I explained in astral form you can fly around anywhere on the globe (and probably the solar system too), which would explain quite a lot of anomlous maps and other things.
+
+this astral form of perception has been kept a very big secret, and I have not received more resistance on any single subject than this one. the fact that I'm so vocal about it must be the problem, as they cannot allow others to know that this world exists. the ones who see 4d are all in this big club that go around meddling in the affairs of the world and it's for this form of perception that is the "grail quest". that form of perception is acquired through the royal (female) bloodline and it's no surprise to me that everything in the world will conform to the king's perception -- so when the king is sick, the land is sick.
+
+---
+
+there's this weird thing to look at where because of the reflective nature of reality, you could say that it's the population's increasing desire for a king that is actually temperate in all things. that form of perception increases the speed at which reality is created, and the people suffer from the king's internal discord.
+
+so, to bring it back, in a sense the people are the 1st/7th ray, the dragon or whatever who implemented the form of perception in the first place and tuned the females to that perception is the 3rd ray, and finally there is the 2nd ray combiner and distributer of that energy down into the physical.
+
+as the sirians explain, the second ray has a constant battle between turning that mentation into physical and combining and distributing that energy out in a format which is compatible for others to understand (the sales team).
+
+I'm not the 2nd ray. the king and the royal bloodline is the 2nd ray. I'm 1st and 3rd ray in that I desire for a new form of perception and then I create it...
+
+---
+
+one of the reactions that I got to my proposed new form of perception that **I want to create for me** (though others can use it too), is that astral and physical are merged, meaning that there will be no more leaving one's body and snooping around from the astral; to fly, you fly around in physical. also since images are also projected into physical, those with that perception's imagination will visible for almost all to see; I can only see that which I resonate with, so unless I resonate with the emotion that created the image, I won't see it.
+
+I don't really care what they think or don't think about my ideas. I'm creating things for me, and that's the form of perception that ***I*** want to have. I really like the idea of having my imagination be the conceptual world and images in the physical world. I live in that world already and quite like it.
+
+I reserve the right to talk about taboo subjects, if that's what I desire. I'm not bound by any agreements with anyone, so if you're going to make me the 2nd ray, I'm going to motivate things my way.
+
+[1]: I just listened to snake-bros #017 about the grail being likened to a comet and (which wasn't clear if it was the cause or effect) of a change in royal blood. this stone that the builders rejected causes a lot of destruction, though it ultimately builds back and replenshes with many new forms. it's interesting that a new royal bloodline is associated with catastrophes and rearrangement of power structures.
+
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
