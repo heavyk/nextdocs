@@ -12244,6 +12244,52 @@ I reserve the right to talk about taboo subjects, if that's what I desire. I'm n
 
 [1]: I just listened to snake-bros #017 about the grail being likened to a comet and (which wasn't clear if it was the cause or effect) of a change in royal blood. this stone that the builders rejected causes a lot of destruction, though it ultimately builds back and replenshes with many new forms. it's interesting that a new royal bloodline is associated with catastrophes and rearrangement of power structures.
 
+### 2022-03-30 20:54 - thinking about today
+
+I had a difficult time going to sleep because solar activity was so high and every time I would relax enough I started to get strange psychedellic effects and for example, now instead of that bubbling feeling when the "kundalini" rises, now it's like a tingling sensation that starts in my knees, ankles, or feet. I overwhelmingly had the sensation that if I were to let it continue, that sensation would continue to expand further until it took over my whole body and I felt certain that I would die if I let it keep going. this is clearly an indicator of resistance still, so I'm still in the process of softening perceptions, though the difficult thing is, I don't really know what's causing the resistance, so it's difficult to know exactly what to do there[^1].
+
+this experience got me thinking a lot about different things because I definitely feel like it's waaaayyyy too early to go up. I'd really like to make it as seamless as possible. that's my goal anyway, and I figure if I can get to a point where I no longer have any more resistance, then that's possible to go up without "dying". the other side of that is the death angle. I don't believe that I'll actually really die. at most, I'll become a "fallen angel" in the sense that my psychic body will remain magnetically powered by others that still wonder what I'm doing, and then likely I'll be able move over to another body. so, what body will I move to? I dunno, right...
+
+that's one option, and it's quite possible that could also happen simultaeously to this second option. I've been thinking about how I'm reinvinting the 2nd ray perception a lot lately, and all of the stuff about merging the astral and the physical, moving the conceptual down to the imagination and allowing for the new form of perception that I haven't spoke at length about, but I've labeled it "essence".
+
+I believe that the last time the conceptual layer of perception was expanded, happened with jesus and the crucifixion (again, creating unwanted to then perceptually align with the wanted rather than directly creating wanted). so, if I do die, then that would give me the chance to expand it.
+
+I would imagine that I would seemingly "return back to life" from your point of view, but from mine, it'll be learing to perceive where I'm at in a meaningful way. like, one could realise they're "dead" or no longer connected to physical, but I don't have the limitations of saying that this body is "me" -- and so then, I have a lot more freedom to see myself otherwise. if astral and physical are merged, then I just reimplement the imagination (a reflection of the 2nd ray perception) as a product of the essence and the physical (if that makes sense).
+
+---
+
+so, I don't think I'll "die" in the perceptual sense, but I can't guarantee what'll happen to my body. this may also create a split, because I think the reason why the body would die in the first place is because there is resistance, and someone simply cannot allow me to get connected. they have to resist it at all costs.
+
+so, let's say it's that way; now we have a time loop, where every iteration I "die" from too much resistance, and all that's needed to exit the loop is to remove all of my resistance. I really don't find that to be all that hard, so maybe only a few iterations, but then again why not more iterations? I don't need to try and reduce my resistance as fast as possible in fact, I could probably just repeat this process effortlessly without gaining or losing too much resistance each iteration -- then, it'll be pretty obvious when it's time to exit the loop.
+
+on that end of things, I'm really not that worried about it all.
+
+---
+
+there was an x-flare while I was asleep and I woke up thinking about polarities and triads. I just don't have a good enough understanding of it (or data) to say one way or another what it is. I also don't really have a good way to present the ideas either because it's all perceptual anyway. I realise that a lot of the difficulties to this stuff is not labeling a person and saying, "they are this way" -- when it's all about where one starts to experience their perception. as you can see, I nearly alway start with a concept and then look to find data that supports it. on the other (non-physical) end of the spectrum, I typically start with a desire and then work out the logic for how it could become a reality. almost never do I start with how things relate (2) or the logic and structure (3) and then figure out the desire (1), for example -- though, I can easily do the other permutations.
+
+so, I'd like to present it more in that way, and then let the person decide their own polarity (forwards/backwards, wanted/unwanted direction), as that's very much an individual thing. no one is a single form of perception or polarity. I know it's possible -- and, I seem to be able to see things from all starting points and polarities, being only a matter of decision which way to look at it.
+
+---
+
+I woke up from a dream in which I was talking to an author -- dunno who, just that they appeared to me as an author -- and, I was explaining to them that I wanted to show them how to *programatically* create unlimited bad-guys to fight. this almost certainly means more to them than to me, but the sense that I had is that one could "fight" these bad-guys to kind of power up and become more attractive.
+
+after that the sense that I had was there were these (1,7) ray pairs that were in kind of like a competition (not the right word) to create the best story.
+
+an example of this, I was comparing my childhood friend chris to a prior aid of jaron's. they're both named chris and they're both left-handed. I believe they're probably about the same age as well, so not many physical differences. they both have similar feels to them but, for the most part I would say that (little) chris started his perception mostly with data (7). sometimes from there he went to his imagination (6) to then invoke a feeling (5) based on the data. other times, he tried to figure it out as a repeating sequence and put some logic (3) to it.
+
+(big) chris, is much harder to say, because I didn't know him very long, but he seemed to do something of the opposite. he started with the desire/fear (1), and then worked his way down to similar/related things (2) and then down to logic (3) to then figure out the next panel in the sequence -- or, he started out more intuitively like "this feels like" sort of concepts (5) and then went from there.
+
+what I noticed is that their thinking style is very similar (following a similar path), but they started from opposite directions, (little) chris starting mostly from more tangible stuff like data (hechos), where as (big) chris seemed to take a less tangible, more intuitive approach to it. so, what I mean is that in a lot of ways, they're doing the same thing but starting from opposite angles and so therefore would compliment each other quite well.
+
+I've noticed it's quite common for (different) relationships: if one usually starts with (5) then, their friend usually starts from (3) -- or, (1) and (7). for same relationships, if one usually starts with (1) then their friend will start with (5) -- or, (3) and (7) -- and I suppose it has to do with what kind of answer you want to get and how you perceive that person. I've noticed (different) tend to produce complimentary or conflicting interactions, while (same) relations usually prduce expanding/creative or contracting/destructive interactions.
+
+I still don't see the (2,6) relationships very well yet, but that's because it's the most foreign to me. I also don't have any real data on these "theories" either. I'm phrasing them with "I've noticed" and "it seems" prefixes because I just can't really say for sure what I'm seeing.
+
+honestly, I'm a bit concerned that I'm building up a bunch of vapourware in this process, having nothing tangible for a foundation -- but, such is often the case for the 2nd ray.
+
+[1]: I don't really have to worry about it because LOA works all of this out for me; as I expereince this resistance, it'll attract similar experiences, which then will be tangible enough to identify the source of the resistance and then adjust my perception accordingly.
+
 
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
