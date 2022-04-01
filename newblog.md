@@ -12290,6 +12290,43 @@ honestly, I'm a bit concerned that I'm building up a bunch of vapourware in this
 
 [1]: I don't really have to worry about it because LOA works all of this out for me; as I expereince this resistance, it'll attract similar experiences, which then will be tangible enough to identify the source of the resistance and then adjust my perception accordingly.
 
+### 2022-03-31 17:25 - more on rebirth and resistance
+
+I woke up this afternoon really noticing how much resistance I still have. the first thing I noticed is that my reality exists nearly completely in relationship to others' reactions to me. this is pretty much how a newborn is, but think about how that applies to me in the sense that for me, the stuff that's "real" is the stuff you guys react to, and I'm having less and less reactions all of the time. I don't know if this is simply being broadcasted less because I'm writing less reaction pieces and more things that are probably difficult for most people to relate to. so, without many reactions, it feels more and more like my reality is slipping by and I'm just not able to really dig in or grasp something stable to hold on to.
+
+all reality is in relation to everything else, so we choose things in our lives that are stable -- good or bad -- to hold on to, as an anchor to compare everything to. well, as I release resistance, that anchor goes away essentially, and everything can be relative to any other thing in some way.
+
+the closest thing I can relate it to is the ayahuasca experience -- where it seems that anything and all things are connected and can be related, and so it appears that the "all" or "whole" is perceived instead of the individuality.
+
+for most people this would be something of insanity, not having an anchor like that, because obviously it's resistance that keeps the anchor functioning properly or allows you to keep holding on to something. however, I see it as really awesome because it allows for tremendous agility in time and space.
+
+---
+
+I got to thinking about it just now outside and it's quite possible that *this* is the time when I actually make the seamless transition. the reason why I say it like that is because I'm kind of growing up backwards. my brain is beginning to process things more and more from the perspective of a newborn in that anything could be anything. a newborn, as it gets older, begins to solidify that perception into a more and more tangible experience, but I'm doing the opposite.
+
+---
+
+let me explain. I wrote an email to russ about breathing (I'll edit it and add it here sometime later) and it got me thinking a lot about this process of inhale, rest, exhale, rest (and 3 other variations with less rest), and it really has me thinking about what builds energy. "everything is a transformer" I wrote on my paper to remind me to write the email, buc the idea is that things like addictions, sex, drugs, emotion, etc. are all transformers of energy, and so therefore it's important to have "temperance in all things" on the grail quest.
+
+yesterday, I watched a "the tick" episode where a dolfin is angry and wants to build a device to cause it to rain fish (reminds me of the book of the gosh darn it). in that episode, tick is attracted to the gambling machines and he can't help himself from their suggestions to play them. I thought to myself, "I don't really like to gamble very much so that's not really that big of a deal for me" -- and then proceeded to play kingdom rush frontiers all night on my phone.
+
+I deleted all my games for lent on my computer but I still have the ones on my phone and it's weird how they still have this pull on my mind. I gave it some thought, and it's very similar to my feeling when I had to smoke cigarettes. I feel very dissatisfied with my present situation right now, and it feels like I'd rather my mind focus on the game. I don't feel any inspiration to read or write anything right now, but I could and I just don't want to release my dissatisfaction with the present, so it feels like I want to be playing games instead[^1].
+
+I also noticed that when I was playing the game that I was extremely stressed about it, and I even noticed myself grinding my teeth at times in stressful moments. I went online and watched some videos of other people playing it and it doesn't look at all like a stressful experience for them. they even seem to have considerable time left over each round, when I feel constantly running out of time. clearly, I still have a lot of resistance left over.
+
+---
+
+another example of resistance and a perfect conclusion to this is when I woke up I was thinking about the other resistance and I noticed that probably one of the reasons why I'm so excited about dying is that I'm quite dissatisfied with my body. it's fine, but I think about it like most think about their boyfriend/girlfriend in the sense that they don't like the current one and think that if they have the boyfriend/girlfriend of their imagination, then it'll be what they want -- ignoring the fact that their boyfriend/girlfriend is a reflection of their perception.
+
+what I'm saying is that I want to die so that I can reinvent my body as a reflection of my perception and start over -- but, there's literally nothing stopping me from doing that now. I could do it now, but I think, like so many others (btw, this is typical 2nd ray perception) that I need the brand new thing that has the qualities my imagination thinks is good in order to feel good -- rather than feel good and then watch my reality reflect how I feel. smoking cigarettes to escape from my resistance[^1] is kind of the same subject, just said backwards.
+
+---
+
+without the anchor of others perception to hold me down, I can be anything I want to be. so, instead of needing a big change to get what I want, why not just relate to the things I want for the time that I want them?
+
+I'll make a more comprehensive list later of all of the 2nd ray updates I'm doing, but this is one of them. I probably should also make an effort to explain my resistance releasing process, too. anyway, redesigning the 2nd ray's perception is fun :)
+
+[1]: another example of this is when I was programming, I would often feel dissatisfaction with my program or my situation and want to escape that feeling, so I would go smoke a cigarette. this was exacerbated by the fact that I used to also desire to smoke a cigarette when I felt good about what I had just written and wanted to take a break before starting on the next part -- and maybe think about it a bit before jumping right in to it. I used cigarettes for both positive and negative inspiration, so it worked well sometimes, but if I had of been smart, I would have only smoked when I felt good and released resistance when I felt bad before I smoked.
 
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
