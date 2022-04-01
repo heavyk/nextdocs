@@ -12328,6 +12328,59 @@ I'll make a more comprehensive list later of all of the 2nd ray updates I'm doin
 
 [1]: another example of this is when I was programming, I would often feel dissatisfaction with my program or my situation and want to escape that feeling, so I would go smoke a cigarette. this was exacerbated by the fact that I used to also desire to smoke a cigarette when I felt good about what I had just written and wanted to take a break before starting on the next part -- and maybe think about it a bit before jumping right in to it. I used cigarettes for both positive and negative inspiration, so it worked well sometimes, but if I had of been smart, I would have only smoked when I felt good and released resistance when I felt bad before I smoked.
 
+### 2022-04-01 02:00 - reward stimulus and energy economics
+
+I did a bad job in the previous entry of connecting some ideas together, so I think I'm just going to talk it through here instead. I'm really cold.
+
+I was explaining how it seems like my reward stimulus has been hijacked to some extent or something is not behaving as normal there. I have noticed a lot of tiredness, and tiredness is the opposite of the reward stimulus. when something is interesting, you want more, so you create desire for more. each time that desire is created for more, it seems that has an effect on one's energy.
+
+looking at it backwards, for example, if what I'm doing doesn't produce a reward, then I lose interest and get tired -- so, interest seems to depend on reward, and tiredness seems to be the opposite of reward.
+
+when the sun is very active, I notice that often times I can barely hold my eyes open because I feel so tired. tiredness creates in me a strong desire to be awake. I've always had a very serious aversion to sleep, and every time that I feel tired I always want to find a way to feel awake instead.
+
+```
+              awake
+  apathy        |    engagement
+disinterest +---+---+ interest
+  give up       |      reward
+              tired
+```
+
+maybe somethting like that...
+
+now, the next thing to contemplate is the idea that everything is a transformer. it takes in one type of energy and outputs another.
+
+so, after I wake up, I have some amount of awake energy and I convert this into action. this action produces reward or interest. if it produces interest, I feel awake. if it produces reward, I seem to get awake, but not for a long time, as it quickly turns to tiredness and disinterest.
+
+I can see a sort of cycle there but I don't know how to get it into words yet.
+
+personally, I experience the giving up part a lot. when it doesn't feel right, I like to just throw it all away and start over. this is kind of opposite of how I used to be where I had a difficult time even deleting comments in my code. I wanted to preserve everything cause I was sure that it would be usuful at a later time. that preservation of things in the mental vicinity is what creates for me tiredness. those thoughts are old and therefore contain a lot of reminders of the past and so I experience a lot of resistance.
+
+that's a very typical thing for a 2nd ray, to want to preserve something, while the 1st ray destroys it, and the 3rd ray tries to fix it.
+
+obviously I'm in the business of updating 2nd ray bahaviour, so now let's look at the economics of things. if everything is a transformer, then we can look at this economically. if I purchase some raw goods for $100 and then sell them for $200, then I've produced more money. so then, the buyer of my goods takes that and then produces something else with those goods and again resells them for double, the numbers get really big very quickly. obviously that doesn't happen because there is inefficiency, and there will inevitably be "waste" products -- things that are produced which cannot be sold (isn't desirable to anyone).
+
+clearly, the goal is to make a bunch of mutually beneficial transactions. I would say that all of reality is built upon this premise. let's say that 51% or more of all transactions were mutually beneficial (likely it's much higher than that), and so the result is creation of "reality". if everyone wanted and desired the same thing, there would be a severe defecit, but because opposite things are desired and can be produced efficiently there is a constant abundance.
+
+consider plants and animals for example. plants turn CO2 produced from fires, eruptions, outgassing from processes, and animal's breath into oxygen, using the carbon to build plants. humans take in carbon from many sources and output CO2. it seems that the sun enables both transformations of energy, and so therefore we must conclude that the earth and its plants (and probably animals too) produce something useful to the sun.
+
+it seems that all of these transformations are in theirselves are falling quite short of 100% effiency, but because of the diversity of operations, "overunity" can be achieved.
+
+---
+
+to illustrate this idea, imagine for a moment that every single person had their own "coin" -- their own currency -- and people could purchase parts of it in exchange for something. the currency itself isn't physical. for bitcoin and the like, it's just a big number somewhere (a token) with some information attached to it.
+
+this would maximise diversity in the market. let's consider this to be something like "energy". one could either produce real physical things that others will want to exchange their coin for, or one could simply try to find profitable exchanges. in the singular case, if I buy one stock and then sell it some days later when the price went up, I made a profit, -- and this is only a single exchange because we use a common corrency of USD, EUR, or YEN, etc. however, imagine if I have 100A, then sell it for 100B, which then I sell for 100C -- which I've done because I know that 10C sells for 15A, meaning that now I sell 100C for 150A. I've made a profit of 50C doing nothing other than moving energy around.
+
+---
+
+so, going back to the example of tiredness, if I have a type of energy (which is a product of my perception -- so difficult to put a currency label on it) and I use it in the form of action, it will generate a reward or it'll generate interest. a reward is something like a consumable or asset -- something that doesn't last. interest however is a reward of more energy.
+
+if "awake" = profit, and "tired" = loss, it's remarkable how accurate the words "interest" and "reward" are for mental energy exchages.
+
+the brain, is an energy conservation mechanism; it wants to make good investments, and its reward for a good investment of awakeness (time) is a physical reward of sorts or -- more awakeness.
+
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
