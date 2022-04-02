@@ -12524,8 +12524,49 @@ I should also mention that the more purely the concepts interact, the less resis
 
 [2]: you may notice the similarity to the conclusion to @[newblog](2022-04-02 00:43); it's kinda funny how timely that movie was for me.
 
+### 2022-04-02 14:53 - conceptual purity
 
+I used a term in the previous entry which I didn't know how to define very well, which is the "pure concept" (without resistance). everything physical is resistance, and so everything in the physical is subject to degredation and deterioration. the kuthumi says this was on purpose, to ensure that the INFECTED ONES don't live forever. as such, both time and space extend out of the conceptual world through the imagination/astral. a concept is something that exists forever -- eternal.
 
+as an example of this, I've seen enough tables in my life to know that a stool is not a table. however, if I've only seen one table and some stools, I would say, well there's one big table and a lot of little tables around it. so -- because, I've seen so many tables and stools being used, I know that you set things on one and sit on the other (sitting on the table is strictly prohibited said mom of my childhood).
+
+so, you can see that the more tables I've seen (diversity) and how their used (action), the concept begins to emerge.
+
+if I ask someone to define a parent, and up until then I'd only seen my parents and no other parents, then my definition is from the child's perspective of what it is to be a parent. I have one physical examle of parents. so, if I've seen other parents, then I have more diversity and therefore a less physical definition of parents. when I become a parent myself, I realise my concept of parenting is incomplete, missing a lot of things I had not previously considered.
+
+the "pure" concept is the least physical version of that concept, and so therefore "love" or "desire". those are good examples. if I say "love" and my only example has been parents and last girlfriend, then that is love. if I've never had a girlfriend or really love creating things, I may say love is the process of creating. however, what motivates a person to create something? why do I want to spend time to build something that I may never even use myself? I "love" to feel energy moving and creation is where lots on energy moves. that love motivates me to perform action.
+
+love itself is not motivation though, because fear can motivate a person pretty easily. so, I would then say that love is pure unresisted desire, making fear is the most resisted desire.
+
+---
+
+you can see that the higher up I go on the conceptual chain I go, the less physical it becomes and the more eternal and timeless (pure) the concept becomes.
+
+so, how do we recognise a concept and/or its purity? I grew up christian and paul in his letter to the corinthians defines love in reference to action. when these actions are performed, this is love, he said. in spain, concepts are defined too by their actions. so, in this sense, it's important to perform the correct rituals and actions to conjure the correct concept for one's outward image. this is also very apparent in the church as well, as we analyse a person "by their works" and "by their fruit" -- meaning that if the actions fit the definition, then it's the real deal.
+
+I'm not so sure I like this form of identifying concepts, because all aspects of civilised living have taken on this form of doing things "the right way" in order for them to be accepted.
+
+you can see this in the movie, as they were ensured that they need to just act as if everything is fine, the house isn't cracking and the miracle isn't fading. this was the accepted and enforced form of action. if anyone stepped outside of this action code (law), they would be reprimanded by excommunication from the family (see next entry).
+
+---
+
+so, in a general sense, the "purity" of a concept is how physicl the concept is. in one of the stake-bros episodes kyle related a story of this technique called "effortless power" -- and the idea is that the guy pulls a gun on the class and says, "what is this" -- and many people define the gun in physical terms, but he keeps saying, "those are physical attributes, but what is it really". the story gets interrupted there but I can imagine the rest of the discussion of what exactly "is" a firearm.
+
+after exhausing all physical definitions of the gun, I start to go general and say things like, it's a mechanism to propel a projectile at high speeds -- being the most general concept I can see it as. it's just a thing. then, all of the stuff about killing people or animals with it is just a biproduct of it it's action or utilisation.
+
+if I have to keep going, we start to go back into personal definitions again as I recognise that the gun is a symbol of power to the holder. the gun is an imposition to feel fear (negative desire) -- something like projectile desire. if I point the gun at someone, I can impose my will using physical motivation, and so the gun represents the ultimate 1/7 interaction where physical conditions (and the concepts which define those) as perceived by the person create desire (for someone else to do something if I'm holding the gun) or negative desire (fear) in the person its pointed at.
+
+---
+
+all concepts have an infinite set of more and more physical representations. all symbols have an infinite set of concepts which resonate with (represent) the symbol.
+
+as that effortless power class was showing is that once you strip away all of the definitions, they are just inert things interacting. personally, I perceive it similarly in that every "concept" is just a vibration of sorts, and as they interact with other vibrations, they produce more vibrations.
+
+it's only our definitions of those vibrations that make a thing good or bad (which are also concepts). a pure concept is a non-physical vibration. when it gets into our brain it interacts with electrical signals in the brain which are physical vibrations. in 7-layers-of-perception, I try to separate the physical concepts (stored in the brain) and the non-physical pure concepts exist as pure desire or symbols. the mixing (translation) of the non-physical concept into physical is what produces the physical manifestaion of emotion (the reaction). if the mixing produces positive feelings, then it's a good mix -- and, if it produces negative emotion like fear, frustration, anxiety -- that just means that you're perceiving the concept in a way which has resistance (ie. not "pure")
+
+to be continued...
+
+### family dynamics (individuality & charisma)
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
