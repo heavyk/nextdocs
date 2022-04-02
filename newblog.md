@@ -12443,6 +12443,35 @@ it's pretty easy to see the "problems" with this style of leadership, and it's i
 
 as for me, I'm going to go do something else; I have no intention of trying to create someone else's reality for them (or be responsible for it).
 
+### 2022-04-02 03:55 - encanto
+
+I just watched the movie, "encanto". there are a lot of symbols in it, and there is a very interesting storyline in it, which is definitely very *very* spanish in how it captures the social development. it's going to take me another watch or two to capture it better, but it very strongly reminded me of the atlantis story.
+
+in dtp, the beginning chapters, I had a very strong sense of the foundations of american culture relayed through a past civilisation. this movie however gave me something of the opposite impression -- as viewed from the social and symbolic standpoint.
+
+there is a very strong symbol relations which I'll enumerate really quickly:
+- mirabel is enkidu
+- the strong one is atlas
+- the pretty one aphrodite
+- bruno is time/saturn (chronos)
+- the beastmaster is mirabel's little roommate kid
+
+the abuela (and the loss of her husband) stood out to me because it reminded me of jeritau.
+
+> The whole of the FIRST RAY triad is influenced by this inner battle. Most overtly affected is Jeortau, a beautiful creature, powerfully driven toward his goal of cosmic Quin; yet he is inwardly haunted by the need to be loved, to socialize as other SECOND RAYs *and to be admired for his sacrificial role.* He is a dove of peace and beauty at war with his desires and purpose. *Actually, he was the most admired, appreciated and loved for the work he did cosmically by the whole of this galaxy; but was never able to accept it as being good enough.*
+
+before I get back to the abuela, let's the struggle of the 2nd ray is the context of a salesperson. they try so hard to sell their products by convincing others of the incredibleness of their product, when in reality, the product is just the focal point; in reality, they're selling theirself -- their image. the more moving the presentation and more well-received it is, the more likely they are to sell the product -- so, in reality, they're doing their best to relate the product to the buyer, but more importantly relate *theirselves* to the buyer.
+
+this creates a conflict where a missed sale fosters a belief in oneself that one isn't good enough. if the focal point isn't well received, then that means that *I* am not good enough.
+
+the abuela is similar in that her own belief in herself as not being good enough, manifested in her relations with others in the family. in the beginning, when the magic appeared, she could accept that she was good enough to receive a miracle, but as time went on, slowly her own "not goodenoughness" started to manifest itself more and more definitely first manifesting itself in a vision, and then further down into the physical form of a girl that didn't get a miracle (she wasn't good enough, the story said was the reason she didn't get a miracle).
+
+therefore, I believe that the abuela symbolically closely represents the sun -- even having the incal nose. it was the sun which powered atlantis and gave it all of its miracles, but it was also the sun who took all of those miracles away.
+
+that's all for now... there is a lot of protection, saving, and family dynamics that I have to sort out for further discussion.
+
+it's crazy how well the movie captures spanish social and family dynamics. very well done.
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
