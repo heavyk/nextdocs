@@ -12498,6 +12498,33 @@ you don't need to know pure number theory and addition in order to see 1 banana 
 
 personally, I think good story writers just conjure the concepts and then let them interact, then write down what they see/hear in a beautiful, impactful, and/or meaningful way.
 
+### 2022-04-02 05:21 - let the concepts interact
+
+one of the things that I did after raquel left was, following the suggestion of abraham saying that everything has a feeling was to go back to all of the "hurtful" or "painful" memories of the past and see that I attracted a reality based on how I felt, and the actions and words had little to do with it.
+
+so, I went back and conjured the situatons and let the concepts interact. I noticed that a lot of the concepts were my own definitions, like "mujeres son asi" or whatever of predefined expectations that I had depending on the elements of the situation, and I could see that nearly all of my expectations came to fruition. some didn't, and it's those "edge-cases" that I focused on.
+
+I noticed that my expections didn't 100% happen every time, so therefore my expectations must have not been 100% accurate. it's about that time that I started to notice that I would kind of "steer" the concepts interactions with my expectations. if I just let the concepts interact, I would often times get some very unexpected interactions. it's those interactions that interested me the most; how could my mind come up with something unexpected?
+
+up until then I had figured that my mind was a logical self-contained machine. however, if I were, like esther does with abraham, conjuring (tuning into) the concept, then I could easily receive an unexpected interaction[^1]. this is when I realised I was accessing some sort of code that existed outside of me.
+
+it's one thing to try and figure out someone else's code, but it's another entirely to write one's own code (programmers know what I'm talking about), and so I discovered that I could use that technique to try and figure out raquel's code -- or, I could just write my own. that's when I realised the futility of trying to figure out others' code and decided to become asexual, only worrying about my own code and how I wanted to interact with it.
+
+---
+
+in fact, you'll notice that interaction with these symbols always creates a lot of emotion. when I'm watching the movie, for example, I'm tuning into the symbols (just like a spanish-speaker is good at) and I can feel the enormous quantity of emotion connected to that symbol. some of it feels good and some does not. I suppress (prolly not the right word) the emotion so that I can perceive the symbols more purely, because I know that emotion is just a reaction to how my source sees the same thing. I don't want to get indulged in perception of the reaction (the physical manifestation), so I look to see the pure emotion or concept behind it.
+
+I did the same process with raquel, of perceiving the concept behind the physical manifestation of that concept (pain, suffering, etc.)  -- and learning to separate the concept from the manifestation was really helpful in learning to allow the concepts to interact purely *without* my pre-*conceived* expectations of what would happen.
+
+just let the concepts interact, and you may be surprised that they don't behave as expected[^2].
+
+I should also mention that the more purely the concepts interact, the less resistance you have -- and, it's often the case that one can allow a more pure interaction within the framework of a story, compared to memories.
+
+[1]: in fact, later on, after I got better at LOA and had listened for a while, my favourite game to play with abraham was to try and anticipate their answer. to my complete surprise, it was very difficult to anticipate their answer. they seemed to always have an unexpected way to deliver the information
+
+[2]: you may notice the similarity to the conclusion to @[newblog](2022-04-02 00:43); it's kinda funny how timely that movie was for me.
+
+
 
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
