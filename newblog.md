@@ -12380,6 +12380,25 @@ if "awake" = profit, and "tired" = loss, it's remarkable how accurate the words 
 
 the brain, is an energy conservation mechanism; it wants to make good investments, and its reward for a good investment of awakeness (time) is a physical reward of sorts or -- more awakeness.
 
+### 2022-04-01 23:10 - OK, I guess we're going long
+
+I don't know if it's an april fools joke from the authors or not, but I woke up with the sensation this evening, that because I'm constantly revamping my perspective of the 2nd ray, we're going to just go the full distance.
+
+before sleeping, I overwhelmingly had the senation that I really don't need to worry, as this will be a seamless transition/rebirth as I don't find it at all difficult to release resistance. so, you'll see me naturally start to like my body and release resistance the normal, "no big steps" way.
+
+---
+
+so, for me that means I'll just start to improve little by little as I go, which is what I'm already doing and it works fine for me. so, in the meantime, I'll just keep pontificating my ideas with zero data to support them. I'll inevitably get stuff wrong, so I'll correct as I go, which isn't a problem.
+
+I'm reminded of vere's quest to try and figure out what a "king" actually is. also, when I woke up, I had these flashes in my mind of a woman "king" -- and I use the word king, because in our vocabulary, the word "queen" doesn't just mean a king with female gender. I can't really tell what it all means, other than I'm totally down with the idea as it relieves me from such a duty.
+
+I don't mind reinventing the 2nd ray though as it seems pretty easy to do. I have a lot of ideas that I've given thought to because I thought they were pretty bad ones, and if I've thought they were bad ideas, I've come up with the way I would do the same thing, but in my (slightly cheeky) way of doing things.
+
+I don't want to turn it into a monty python deal, but I definitely don't want to make it too serious either.
+
+---
+
+so, I know there are a lot of questions and stuff to what I mean, but I think it basically means the same as I've meant it all along. I just keep going doing what I'm doing for as long as I can. I keep releasing resistance along the way and eventually, there's no more for them to push against -- that's it. it's the way I've been saying it this whole time, but this time I actually woke up and felt as if that was the future we're actually going toward; could be an april fools joke, though.
 
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
