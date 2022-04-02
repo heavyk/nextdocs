@@ -12400,6 +12400,49 @@ I don't want to turn it into a monty python deal, but I definitely don't want to
 
 so, I know there are a lot of questions and stuff to what I mean, but I think it basically means the same as I've meant it all along. I just keep going doing what I'm doing for as long as I can. I keep releasing resistance along the way and eventually, there's no more for them to push against -- that's it. it's the way I've been saying it this whole time, but this time I actually woke up and felt as if that was the future we're actually going toward; could be an april fools joke, though.
 
+
+### 2022-04-02 00:43 - why do I not want to be king?
+
+this is a really weird thing, but there were reactions wondering why I said that I didn't have to worry about being a king. I mean, if someone made me king, then I would just appoint someone else who wants to be king so I don't have to do it.
+
+back in tuenti, I had an agenda because I knew the direction I wanted to take the page -- so, when I was asked to become the boss, I rejected it, not because I didn't have an agenda (I did), but because I don't want to manage people or be managed to manage the others.
+
+all systems of power are an elaborate puppet-show, with no one actually having any power. a correlary of this would be to notice how everyone is going around "coaching" everyone else and telling others what to do, just like all the puppets with perceived power, all of these advice soliciters, are just perceived decisions makers. I don't want to be a part of that; it's a giant circle-jerk.
+
+---
+
+this subject is nearly the same as the one of girls, so I'll add it in here too. often times I notice a girl really wants a guy to make the right moves on her, but she's constantly faced with the frustration that the guys that make the moves are not the guys she's actually looking for. if he's making moves, he has an agenda. perhaps then, it's the guys that *don't* have an agenda for her that she's looking for -- but then, how will she get them if he's not making the moves? if she makes the moves, then now, she's the one with an agenda. see what I mean?
+
+a king or a boss or anything else like that is the same way. the ones that have an agenda *could* have good intentions in mind -- or, they might not. really, what all of these positions of authority and power are is excuses for not creating one's own reality. if their agenda works out you can reward them for their effort, but if it doesn't work out, then it's easy to say, "well, they dropped the ball creating my reality for me".
+
+---
+
+this responsibity of the king in the "grail quest" is exactly the thing that I'm not going to involve myself into. if the king is good, then the land is good, and if the king is bad, then the land is bad, so whatever happens, the king takes responsibility for the reality creation.
+
+in these atlantis stories, I've noticed that the king seems to be trying to hold everything together, but the people want to go their own way and do things how they want to. so, like the magnetic therapy, temporary holding someone away from their desire (to greed, steal, fraud, murder, etc), it just exacerbates the problem by strengthening their desire by holding them back from it.
+
+personally, I find myself to be a very strange terence mckenna style 2nd ray, in that I need a world enveloped in chaos to do what I do (a 2nd ray uses problems to promote their relatable solutions). if things were actually going well, no one would actually pay attention to me. so, from his (and also my) standpoint, a world filled with chaos (everyone just doing whatever they want) is actually desirable.
+
+---
+
+if I were made king, I would hold a panel advisors to determine the qualities of the king that people want, then a competition to see who could actually satisfy the peoples' desires the best. whomever wins the competition will get the job. the runners-up will be the advisors.
+
+a system something akin to an "issue tracker" will get setup where endless discussion can be had on all of the important subjects (so that the issues go stale), and a positive system of proposed solutions will be put into place as well, and once enough votes for a proposed solution is made, then it's the king's job to implement the public's desire.
+
+after that I would abolish all forms of law and get rid of penal section. do as thou wilt, will be the law.
+
+I would then take steps -- meaning it would be the first public desire for the king to implement when enough votes happens -- to,open up all data and records and reports of everything that has been recorded. the second would be to open up the nosebook system to allow for all experience to be public and available. I'm sure other system will be desired that allow people to query and see statistics of the human population as well -- and those too would be implemented when enough votes happens.
+
+when implementation is ready to get started, then the proposers of the solution will manage the project and ensure its implementation is satisfactory.
+
+obviously, if the system isn't implemented after some time, I call this an "evolution of desire", and the next desire will implement another (likely more expanded) solution -- and it just keeps going until it gets done. if there's desire, then eventually it'll happen.
+
+---
+
+it's pretty easy to see the "problems" with this style of leadership, and it's intentional. I say we should try it. it sounds like chaos, but it may not be as bad as one may think.
+
+as for me, I'm going to go do something else; I have no intention of trying to create someone else's reality for them (or be responsible for it).
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play

@@ -173,6 +173,8 @@ a 3rd ray wants an opposite polarity 1st ray to support them -- so, if she's a f
 
 so if you begin your perception from the 6th or 2nd layer, you will naturally have the 2nd ray conflict, and those beginning their perception from the 3rd, 4th, 5th, and 7th layers will experience this internal conflict of desiring a 1st ray of the opposite sex to power their creativity (the esoteric "grail quest" where the "ark" is the opposite sex 1st ray to empower the process).
 
+[TODO: polarity, not sex]
+
 ### jupiter and jeortau
 
 #### dream about jupiter's moons
