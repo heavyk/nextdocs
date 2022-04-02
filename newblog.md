@@ -12472,6 +12472,33 @@ that's all for now... there is a lot of protection, saving, and family dynamics 
 
 it's crazy how well the movie captures spanish social and family dynamics. very well done.
 
+### 2022-04-02 04:45 - you don't have to know symbols to use them
+
+the reaction that I had was that the writers weren't trying to integrate those symbols into the story -- and I would guess that the writers had to have been spanish or have that sort of latin influence to get it.
+
+I didn't really understand symbols myself until I went to spain. I see concepts really clearly; not symbols. it was very eye-opening to me when I went to spain and they had all sorts of "tipos" that people were defined as -- which are roughly archtypes, and then these archetypes interacted in predictable ways, and so the same drama could be seen in the government, family dynamics, work dynamics, and every aspect of society.
+
+the way that they understood these archetypes to interact created very predictable outcomes, and every single spanish person is out there trying to get better and better at identifying and predicting the outcomes of those symbols. I've been in countless bar conversations where the guy is making a point "es asi" and then to switch it up, "ahi esta" or "asi es" -- and it seems to be the national pastime to try and predict the symbols interactions with each other.
+
+as I found out with raquel, those symbolic predictions are very difficult to overcome -- so when someone influential, and the most influential is the abuela, says that something will happen, it's creates such a strong expectation of it happening, that it's very difficult for the children to "buck that current".
+
+so, in some sense, that extremely strong expectation *is* what creates that reality and makes it manifest just how they predicted, or these are basic symbolic operations similar to addition, subtraction, multiplication, and division.
+
+the reason why symbols work is because they have definitions, and definitions are concepts. if I say 1+1=2, am I referring to one atom (which is itself a concept), or the whole clump of atoms which we thing, but then in the adding process, we can't be sure that exactly the same amount atoms moved, so it could be 1+1=2.0000000000000000001 or 1+1=1.999999999999999999.
+
+to simplify this, we use pure concepts in the form of units represented as numbers rather than weight or atom count.
+
+so, in reality, the symbol is only as good as the concept used to define the units in the operation. 1 hotshot + 1 bimbo = a picture that can get on hotchickswithdouchbags.com
+
+---
+
+so, it has been my contention that symbolic operations in the context of stories is something that spanish-speaking people seem to do exceptionally well because of the way their language is structured.
+
+you don't need to know pure number theory and addition in order to see 1 banana + another bananna = two banana. likewise, you don't need to know about symbols to use them. by nature the definition of a symbol is a concept and so by conjuring that definition, the storyteller is tuning to the concept -- and those concepts, just like all people are more specific composite concepts, these definitions can interact with each other to create stories.
+
+personally, I think good story writers just conjure the concepts and then let them interact, then write down what they see/hear in a beautiful, impactful, and/or meaningful way.
+
+
 ### 2022-03-25 ??:?? - last night's vision experience
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
