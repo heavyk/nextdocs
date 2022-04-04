@@ -12567,7 +12567,7 @@ it's only our definitions of those vibrations that make a thing good or bad (whi
 to be continued...
 
 ### family dynamics (individuality & charisma)
-### 2022-03-25 ??:?? - last night's vision experience
+
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?
 ### mechanicals: play within a play
 ### walking away from the greatest conditions and still feeling good is the manifestation I'm wanting
