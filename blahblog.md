@@ -113,7 +113,7 @@ well, the mythologies talk about *vulcan* being married to aphrodite, and that h
 
 vulcan is paired with genxicat (aphrodite), which checks out, but genxicat isn't venus -- unessa is venus (which is the one that loved mars)... so, is unessa the same as genxicat?
 
-to further complicate the matter, there is a polarity swap between  saturn (+-4) and vulcan (-5+). for males, they input their opposite ray and output their opposite, so 2/6, 3/5 or 1/7. however females input their same ray type that they output, which leads me to believe that females' polarity swap is 3/7, 4/2&6, 1/5.
+to further complicate the matter, there is a polarity swap between  saturn (+-4) and vulcan (-5+). for males, they input their opposite ray and output their opposite, so 2/6, 3/5 or 1/7. however females input their same ray type that they output, which leads me to believe that females' polarity swap is 3/7, 4/?, 2/6, 1/5.
 
 so that's the problem... I haven't figured it out yet, but this movie got me thinking about it a lot because isabela is most like genxicat. she struggles with being "perfect" and has this realisation and breakthrough with mirabel that she doesn't have to be perfect -- she can be messy and crate asymmetrical, prickly things. genxicat, always being the image of men's desire had an identity crisis (who is she, if she's not the "perfect" image?)
 
@@ -163,6 +163,57 @@ most of the stuff I write in these are 5th ray concepts (and 5th ray more closel
 
 OK, that's enough for now. I really can't believe how inspiring the encanto movie has been for me; it's really cool, and I really like the animation and charactor design.
 
-P.S. I didn't even share my ideas on the triad of abuela, bruno and maribel, lol. next time...
+P.S. I didn't even share my ideas on the triad of abuela, bruno and mirabel, lol. next time...
+
+### 2022-04-04 11:39 - continuing...
+
+I left off last time with the part on the triad of the abuela, bruno and mirabel. they appear to me to be a 1st ray triad. however, it could be a 2nd ray triad too. what I mean by that is that abuela clearly is 2nd ray, though she's much less isis and more jeortau.
+
+there are serious flaws in both of these appearances. she's more jeortau in her belief that she has to preserve the miracle for everyone ("I was given a miracle -- a second chance, and I was so afraid to lose it") -- and another thing about sacrificing and saving which I can't remember where it is now. she's not very charismatic either like jerotau is said to have been.
+
+so in considering the other case where she's more like isis, again she doesn't fit entirely because isis doesn't feel to me like the type of person that would try and hide something that's falling apart and try to enforce it with secrets and appearance -- though I could be wrong on that; I wasn't there.
+
+the way that I see it, a 2nd ray is really good at seeing connections between things, good or bad, and 3rd rays seem to take things more from a sequential perspective. in this sense bruno fits perfectly -- where he's using people's past reactions to predict his own future, whereas a 2nd ray is much more enthusiastic about making connections to save something, solve a problem, or bring a apparently ideal relationship together.
+
+I suupose it's possible that a 2nd ray that feels everything is not good enough could go out of their way to try and hide things that are not good enough or fall short of their expectations. even luisa complains that no matter how heavy things get and pressure, there's continued measurement and expectations which feel impossible to fulfil... I'm just going to conclude that it's a 1st ray triad with mirabel as anatau, abuela as jeortau, and bruno as sanatau.
+
+---
+
+so the reason why I said it that way is that makes abuela the emitter (she runs the show afterall), and the others the supporting roles. now, if we just look at the generations, abuela produced bruno which is essentially the transition (opposite polarity) between abuela and mirabel. you can see that mirabel at the beginning of the movie adheres to a lot of abuela's same behaviours (abuela neither has a gift), and so therefore is essentially an exact replica.
+
+OK, now going back to patricia: in that other setup she would be abuela, I would be bruno and maribel would be the other various emitters. in reality, both patricia and the other girls are both emitters, so this creates a bit of a problem for me.
+
+the reason why I haven't wanted to get involved with this stuff until I'm fully connected is because I know that even in a fully connected state, I'll still be quite affected by all the different girls and all of their varying forms of perception. you see, I really like my form of perception, and I'm not really all that interested in other people's forms of perception, no matter how pretty or attractive they are. a lot of different girls would essentially make me go all over the place. even the tiny amount that I've been around girls (maybe only at becky's house), I found it miserable because there are so many misconceptions that I just don't care. I don't want to sit there and mansplain everything I think that they're thinking. the quantity of "not good enoughness" that I felt just in that short period of time was overwhelming to me. I just didn't feel good about anything.
+
+it seemed to me the way that sarah was presenting it, the teen years would only make that not good enoughness worse to the effect of actually believing that you're actually inconsequential -- and so therefore, you have to join a club of cool people in order to feel substantial.
+
+I have a note to write an entry in newblog called, "family dynamics (individuality & charisma)" -- and I wish I had of done so, cause for anyone listening in, this part will make a lot more sense: when looking at all interactions from a 3rd ray (A+B+C, then D is coming next) all interactions are perceived in the form of symbols or archetypes (or, if you're a statistician, groupings)... the problem with looking at yourself as interacting with your world in reference to a statistic or a norm, means that you need something to set you apart from the rest in order to have any charisma. generally speaking, from that point of view, if you're 50 percentile or lower (pick your metric) then, you're "not good enough" -- and if you believe otherwise "you have your head in the clouds" or "you need to get a grip on reality" -- that you're a no-impact cog in the machine.
+
+to aviod this no-impact cog in the machine dissonance, you have to join an association that is someting -- whether it's a futbol team, football team, basketball team, stonecutters, masons, businsess lounge -- whatever, and if they're winning, then you can finally accept that you could also be like the others in the association -- winning.
+
+---
+
+so as I was contemplating this idea about patricia, I noticed two things: first, there was a reaction that she didn't really want to be involved in relationships. almost certainly she sees them from the "aerial view" and knows how much of a sham the entire relationship debacle is -- probably lots of statistics to back up her suppositions as well. if I were in her position, I would definitely have done my research just the same. I came to the conclusion that relationships are larely a lot of low-self-esteem people trying to leverage someone else to justify their feeling better about theirselves. IMO, yuck. no thank you -- so, that makes two of us.
+
+the second reaction that I had was one of comparison to others in probably body shape, appearance, etc. cause it felt quite a bit like "not good enough"
+
+---
+
+if that setup were to go through, I think what would happen is that I would become the female, and she would be the ground: I would be allayandra+anatau and she would be vulcan.
+
+you can probably see the problems with that right off.
+
+so, what I'm trying to do is to figure out how to do the abuela, bruno, mirabel setup. it would be just as it sounds, and I would be bouncing between a lot of confused perspectives of "not good enough", essentially puting all of the responsibility on me, and I'm sorta like bruno in that I'd rather just hide out behind the kitchen and let them create their own reaities. when it all falls apart, mirabel will finally seek me out (I suppose).
+
+I suppose that another way to look at it is a two-way transmission where patricia is passing her implementation desires (she's vulcan the master craftsman now -- and this is in reference to constructing solutions to those voted desires) down to the girls to ultimately do a lot of the work, and I'm passing the girls perspective of "good enough" (hopefully) back up to her.
+
+at the moment, it sounds kinda shakey to me.
+
+---
+
+there's a reaction, "wow, kenny even more candid" -- kinda a feeling of disbelief... lol yeah, I guess.. jaja
+
+
+
 
 ### 2022-03-25 ??:?? - last night's vision experienc
