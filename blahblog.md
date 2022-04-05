@@ -213,6 +213,32 @@ at the moment, it sounds kinda shakey to me.
 
 there's a reaction, "wow, kenny even more candid" -- kinda a feeling of disbelief... lol yeah, I guess.. jaja
 
+### 2022-04-04 18:07 - not-good-enoughness
+
+I was laying there thinking about not-good-enoughness and I decided that I want to start getting into the habit of thinking out loud in here.
+
+the first recognition was that tesla had a lot of not-good-enoughness going. he did kind of mention it in a few places in regards to why he hasn't married, but, in a lot of cases, he was so far ahead of so many people perceptually, it's difficult to relate to them.
+
+I understand this quite well, as I find my perspective to be so different, I often saw myself as ahead or something like that (not really superior -- just they didn't really match my quality standards). this changed a lot when I got to spain as I had to actually hire and interact with people (alcohol helps a lot too).
+
+for most of the time I was in spain, I would compare myself to other dudes who were "picking up chicks" and notice how not-good-enough they were -- and really, most of the guys out there are complete boneheads.
+
+but, like I said -- it's counter-intuitive, but if I'm out there pointing the finger at all these other guys and saying, "wow he's definitiely not good enough for her" -- the thing is I'm only noticing my own not-good-enoughness in other people.
+
+what I'm saying is that "quality standards" were actually inhibiting me -- and I know this to be true because as I stopped noticing how not-good-enough other people were, the more people started to think I was good enough.
+
+when I stopped noticing how not-good-enough all people are, I also stopped noticing my own not-good-enoughness. I never said, "I'm not good enough for her (or whatever)" cause I'm too proud for that. instead, I would just notice how much better I am than they are.
+
+so, what I'm saying is I stopped noticing how much better I am to other people -- meaning, I no longer felt the need to compare myself to other people to feel good about myself.
+
+---
+
+in summary, my own not-good-enoughness came about because I was watching a lot of people in the discos, bars and such and noticing a lot of really not-good-enoughness in other people. that lead me to live a life of comparisons and, I bolstered my self-esteem by comparing myself to and noticing those others that never could measure up using my quality standards.
+
+as I stopped caring about others not-good-enoughness, they just became other people and I stopped caring about how well they measured up to my quality standards. as in the process of stripping the gun of all of it's physicality, leaving just an inert concept behind, people just became things that interact with each other in predictable ways... and who cares what they're doing anyway.
+
+by stripping these concepts of their physicality, they became pure illuminated orbs of brilliancy to me. just like when meditating, you stop thinking (physical) thoughts -- well, this is the conceptual version of that. take the physicality away from the concept so that it can be perceived, no matter the circumstances for its brilliancy underneith all of that physical crap on the exterior. as you do this for others, you do this for yourself and you, yourself become brilliant and radiant like a star.
+
 
 
 
