@@ -259,5 +259,9 @@ lol
 
 last thing, notice how I felt dissatisfaction to commit on such a profound note (about stripping away the physical from the concept to allow the brilliance to be seen)? well, it was too profound, so I returned back to write that reaction piece at the end. I just can't help it. it's what people want. they like to react to things. I've tried to hold profound conversations for extended periods of time and people can't handle it. I have to throw in some "shock jock" stuff to keep people distracted from what I'm really saying. I talk mostly for my own sake, so it's fun when I can get an audience and hold their attention for a while (for reals, sometimes I really have strong 2nd ray qualities)
 
+very last thing: I'm noticing that this blog is going in the direction of being even more hyperbolic than the previous ones. I'm going to write almost anything that comes to mind -- so, the extremes will be far more: more profund *AND* more reactionary.
+
+I think it's fun so don't take it too seriously :)
+
 
 ### 2022-03-25 ??:?? - last night's vision experienc
