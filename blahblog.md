@@ -245,11 +245,21 @@ this process of removing the physicality from the concept is kind of the antithe
 
 I try to understand these interactions so that I don't have a strong emotional reaction to them anymore. I learned that a strong emotional reactions create tremendous friction which are usually a waste of energy, but if one knows how to manipulate the concept perceptually, one can take all of that strong negative emotion and turn it into pure euphoria. I attempt to do this, and I even write (on purpose) reaction pieces, because I know that wanted-and-unwanted-are-same. I plow forward heading straight for disaster knowing that it's all a perceived disaster from one angle and from another it's wanted. so why not, like the latin romance crap (novelas, shows, etc.) pump up the not-good-enoughness?
 
-small confession: do a brief look back and notice how much I've milked the not-good-enoughness angle; it's quite significant. I've never worried too much about it though because it's all perceptual. we're programmed (mostly by the television -- hello aida, muchachada nui, etc.) how to react to them and we just repeat the reactions. if you can separate the reaction from the action (leaving just the concept), it feels like playing with (or watching) puppets.
+small confession: do a brief look back and notice how much the not-good-enoughness angle has come up; it's quite significant, and I would venture a guess that most of the people following this *also* resonate with not-good-enoughness. I used to really have this *a lot*, and it's only been somewhat recently when I've gotten really serious about stripping the concept from its physicality.
 
-I used to try and explain this to people in the bars that the television (most notably the news) is just a reaction programming service. I forgot when exactly I gave up, but by the time trump got into office I had given up completely on trying to explain this concept, deciding to pick my reaction type, so starting with colbert and meyers I went to just laugh at it all. the programming is everywhere and once you strip away the physicality from the concept, not only do you get effortless power and very fast manifestations, but you notice that the entire planet is just a bunch of barely conscious automatons reacting the way they're taught to react.
+I've never worried too much about all of the reactions to not-good-enoughness though because it's all perceptual and that mainly means that my auience mostly has high quality standards as well. there's nothing wrong with high quality standards -- it's just when they're put in comparison. a desire isn't a comparison. a desire is a desire, and my desire doesn't need to involve anyone else. it's just something that will happen naturally when my reality reflects it.
 
-for example (song excerpt):
+that means that the quality standards are just a distraction from what's really important which is my perception. as an example, try to sustain a feeling of bliss without meditating. if you can, then that means that you aren't thinking any thoughts in opposition to that bliss. the bliss is always there -- just the other crap makes the bliss hard to feel. likewise, the high quality stuff is always there, just the idea that you want to stay away from the low quality stuff keeps the low quality stuff in view.
+
+look at it in the negative now: we're programmed (mostly by the television -- hello cnn/fox news, aida, muchachada nui, etc.) how to react to things, and we just repeat the reactions like the actors do. is that really how you want to react, or would you rather understand what attracted the interaction and therefore the reaction?
+
+the reaction is the objective, for both hollywood and for LOA. if you want to react a certain way because you like how it feels, then you're seeking (attracting) the action to give you the reaction.
+
+I used to try and explain to people in the bars that the television (most notably the news) is just a reaction programming service. I don't remember when exactly I gave up (probably in augusto's bar), but by the time trump got into office I had completely given up on trying to explain this concept, deciding to instead pick my reaction type. so, starting with colbert and meyers I decided to just laugh at it all. people reacted to me laughing at trump, which at that time, most people in spain thought that spelled the end of USA being taken seriously. they were kinda right, and they hated me laughing so hard at it all falling apart (which is probably also a programmed reaction).
+
+anyway, the programming is everywhere and once you strip away the physicality from the concept, not only do you get effortless power and very fast manifestations, but you notice that the entire planet is just a bunch of barely conscious automatons reacting the way they're taught to react.
+
+for example (song I'm listening to):
 
 > do you want to stay? can't erase the pain; stay away ... stay away
 
