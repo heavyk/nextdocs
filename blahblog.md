@@ -235,11 +235,29 @@ so, what I'm saying is I stopped noticing how much better I am to other people -
 
 in summary, my own not-good-enoughness came about because I was watching a lot of people in the discos, bars and such and noticing a lot of really not-good-enoughness in other people. that lead me to live a life of comparisons and, I bolstered my self-esteem by comparing myself to and noticing those others that never could measure up using my quality standards.
 
-as I stopped caring about others not-good-enoughness, they just became other people and I stopped caring about how well they measured up to my quality standards. as in the process of stripping the gun of all of it's physicality, leaving just an inert concept behind, people just became things that interact with each other in predictable ways... and who cares what they're doing anyway.
+as I stopped caring about others not-good-enoughness, they just became other people and I stopped caring about how well they measured up to my quality standards. just the same as in "effortless power", the process of stripping the gun of all of it's physicality, leaving just an inert concept behind -- people just became concepts of their own creation which interact with each other in predictable ways (ie what they're attracting)... and who cares what they're doing anyway.
 
-by stripping these concepts of their physicality, they became pure illuminated orbs of brilliancy to me. just like when meditating, you stop thinking (physical) thoughts -- well, this is the conceptual version of that. take the physicality away from the concept so that it can be perceived, no matter the circumstances for its brilliancy underneith all of that physical crap on the exterior. as you do this for others, you do this for yourself and you, yourself become brilliant and radiant like a star.
+so, by stripping all of these concepts of their physicality[^1], they became pure illuminated orbs of brilliancy to me. just like when meditating, you stop thinking (physical) thoughts -- well, this is the conceptual version of that. take the physicality away from the concept so that it can be perceived, no matter the circumstances for its brilliancy underneith all of that physical crap on the exterior. as you do this for others, you do this for yourself and you, yourself become brilliant and radiant like a star.
 
+---
 
+this process of removing the physicality from the concept is kind of the antithesis to romance (latin, spanish, etc.) interactions. the reason why all of these songs and movies, telenovelas, etc. emit such a powerful emotion is because they have in them so much physicality wrapped up in the interactions. for example, in encanto, if the abuela hadn't have got so angry with mirabel for ruining the miracle, the movie wouldn't have been nearly as emotionally impactful. though, it's just a normal response when someone feels responsible for something falling apart and they feel helpless to save it.
+
+I try to understand these interactions so that I don't have a strong emotional reaction to them anymore. I learned that a strong emotional reactions create tremendous friction which are usually a waste of energy, but if one knows how to manipulate the concept perceptually, one can take all of that strong negative emotion and turn it into pure euphoria. I attempt to do this, and I even write (on purpose) reaction pieces, because I know that wanted-and-unwanted-are-same. I plow forward heading straight for disaster knowing that it's all a perceived disaster from one angle and from another it's wanted. so why not, like the latin romance crap (novelas, shows, etc.) pump up the not-good-enoughness?
+
+small confession: do a brief look back and notice how much I've milked the not-good-enoughness angle; it's quite significant. I've never worried too much about it though because it's all perceptual. we're programmed (mostly by the television -- hello aida, muchachada nui, etc.) how to react to them and we just repeat the reactions. if you can separate the reaction from the action (leaving just the concept), it feels like playing with (or watching) puppets.
+
+I used to try and explain this to people in the bars that the television (most notably the news) is just a reaction programming service. I forgot when exactly I gave up, but by the time trump got into office I had given up completely on trying to explain this concept, deciding to pick my reaction type, so starting with colbert and meyers I went to just laugh at it all. the programming is everywhere and once you strip away the physicality from the concept, not only do you get effortless power and very fast manifestations, but you notice that the entire planet is just a bunch of barely conscious automatons reacting the way they're taught to react.
+
+for example (song excerpt):
+
+> do you want to stay? can't erase the pain; stay away ... stay away
+
+lol
+
+---
+
+last thing, notice how I felt dissatisfaction to commit on such a profound note (about stripping away the physical from the concept to allow the brilliance to be seen)? well, it was too profound, so I returned back to write that reaction piece at the end. I just can't help it. it's what people want. they like to react to things. I've tried to hold profound conversations for extended periods of time and people can't handle it. I have to throw in some "shock jock" stuff to keep people distracted from what I'm really saying. I talk mostly for my own sake, so it's fun when I can get an audience and hold their attention for a while (for reals, sometimes I really have strong 2nd ray qualities)
 
 
 ### 2022-03-25 ??:?? - last night's vision experienc
