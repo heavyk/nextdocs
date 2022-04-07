@@ -449,3 +449,35 @@ I really like my own world.
 ---
 
 there is a bit of irony to this stacks of assumptions though, because we've sorta been programmed that the more inertia something has, the more "real" it is. these ideas aren't any more real than the standard model; they're just my best model for how the universe works, and it feels like it's starting to become a reality. I wonder how much our stacks of assumptions, like a child's assumptions about their parent actually modify the "rules" the universe runs by. is this new blog working to program you all to believe my assumptions?
+
+### 2022-04-07 16:14 - the real reason for the discord?
+
+I was not going to sleep until after the heater repair guy had left, but I was so tired I decided to sleep anyway. he came and the experience was strange. he was working, making noise and stuff, but it wasn't that much more noise than mom emptying the dishwasher, so I can easily think while he's working. I wanted to think about the previous entries I wrote. he seemed to be highly aware of what I was thinking. I would just tune him out though and get back to thinking about this.
+
+one cool thing that happened while he was around is that my brain started to think in a circular motion. I hadn't experienced that type of feeling of thought for a long time. it used to happen as a child, and thoughts would go around in my head kinda like a whirlwind -- can't remember which direction, but I know I've also experienced it rotating the opposite direction. I noticed that in spain I could also control this feeling with a similar feeling that would come in through my ears (and I could reverse the direction too).
+
+anyway, I started to think and every time this circular motion began to happen, he reacted to it and then it would stop abruptly. I felt extreme confusion trying to think around him when that circular motion wasn't present.
+
+he started up the fire in the heater and I noticed that the efforts to remove the circular motion weren't working, so he stopped the fire and then went upstairs to tell mom a very unplausible story about a resistor spreading to the rest of the circuit (lol).
+
+anyway, he definitely wasn't a heater repair guy, and the heater was just a coverup to perform some sort of maintenance on my room.
+
+---
+
+the other weird thing that happened is that I was thinking about these things I wrote above and I got a reaction that felt like another reaction to some comments I made about iron man. he was waving his arms around wildly in the movie greg was watching and I thought it was silly, because that seemed like a tremendous amount of calories to move a cube around (or whatever it was) and I asked greg why he isn't just moving all of this stuff around with his mind.
+
+iron man has to do all of those movements because they are symbols of him using some super high tech to create things. since it's just a symbol and hollywood doesn't make money on showing someone laying in their bed with their eyes closed[^1] so it was a reaction to the *symbol* of super technological capability. jaron showed me a meme on facebook that confirms this where it said, "mom asks me to fix something on her phone and she sees this" -- and it's a picture of stark holding a cube in his hand in a very affectionate way.
+
+the reaction is in relationship to the symbol of techo-capability, but I still don't know what that has to do with the heater guy and circular thought (not A means B means C means A, but thought that travels in a circular motion around the brain).
+
+---
+
+I then went outside to finally start to think about my previous entry and the discord associated with it. I don't know that patricia is actually the source of the discord, but that it's likely that she lives in a bit of an illusion and if she were to talk to me, I would quickly feel the discord in some of the statistics -- meaning that she's being fed numbers which are not actually representative of what's really happening. like, think about it -- if she does a statistic on something, but you know the number is 4 times more, just multiply the statistics by 4, right? wrong! that's not how statistics work, lol -- but they probably think something ridiculous like that.
+
+anyway, it's more likely that my presence would ignite a bit of discord in her, because my capability is to see through illusions.
+
+so, it's not the illusion created for me they're trying to protect, but probably the illusion they've created for her, instead.
+
+anyway, I have more thoughts soon... still haven't fully figured out the stark thing either. also, I'm beginning to contemplate the idea that it may be the same for the snake-bros as well. like what if I get in there and some illusion is obvious to me, but it isn't to them?
+
+[1]: though they could -- just superimpose the mental image on the screen, obvious that it's a mental image because the eyes are closed)
