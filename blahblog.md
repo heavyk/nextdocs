@@ -273,5 +273,129 @@ very last thing: I'm noticing that this blog is going in the direction of being 
 
 I think it's fun so don't take it too seriously :)
 
+### 2022-04-06 21:52 - not sure (rename)
+
+the last few days I've been going over that one idea with patricia that I put a few entries back. some hours(?) after I wrote it, I had the idea, "I should just send her an email" (cause I know her email by memory). every time I thought about it, I got a pretty negative reaction from mr. motor on it, and then today because I kept thinking about it, his reaction got even more detailed. it feels like she has some high level security clearance, and I'm kinda like the opposite of security -- so it creates a bit of a problem.
+
+---
+
+yesterday, the plan I was concocting in my head -- and it's hard to say where exactly the idea was coming from but I went with it anyway -- was to just email her and say something simple, then if she wanted to reply to me that's cool. then, if we should meet, I suppose I didn't really know what would happen -- but, as I mentioned in a previous entry, I'm sticking to the derek plan, so I would just hang out with her and stuff. I imagined that we could talk about quite a lot of things -- though, I'm not so sure about that now. I'm fairly certain that I'll do most of the talking and she probably wouldn't be able to say a whole lot -- sorta like how it was when I was with chris in LA.
+
+in combination with other things like that dream I had with nassim, I would imagine that through some way or another, I'll make it out to california -- and like I don't know how necessary it is to be in a single location for her either so it's possible she may end up there as well. I clearly don't know...
+
+anyway, the "vision" (it's not visual) sequence played out something like going to california and working with derek and nassim, and probably a few others on ... stuff, I suppose.
+
+there was another element to it which a long time ago I said that if anyone wanted some sort of performance out of me, then I simply had to practise for it because there's no way that I'm ever good at anything the first few many tries. so then, in california, I would practise with the other girls for a while, and then later on, maybe it could be her birthday or something, eventually, I'll be ready to go with patricia.
+
+there were other elements to the sequence but I simply can't remember them now. those are the essential parts though.
+
+---
+
+yesterday, I wrote [a bunch of crazy ideas down](/random-notes/1024y-offset) and then went to bed. I can only imagine how my thoughts on time slicing, the paper's acknowledgement that there are *gravity anomalies* around the planet and an erratic polar position (ie. precession isn't happening as expected). I chalk all of these things up as support for my hair-brained idea that we're 1000/1024y earlier in time than we thought -- but for someone involved in that stuff you can imagine how paradigm shattering it is to have *gravity anomalies*. this is a pretty big problem and it looks like the top guys in the US military know and are likely covering up a lot of "unexpected" and "baffling" results.
+
+almost certainly this really did a lot to strengthen their fears of me interacting with someone with security clearance... I say that because I woke up this afternoon thinking about how I think that whole vision sequence is a really great idea, but I think I'd rather just go for ultimate disaster. let me see if I can explain it.
+
+to understand this next part, I have to involve the conversation I had this morning with mom and jaron about my thoughts on genetic engineering, hybridisation, and the "origin of species"... I'll reexplain the idea and reiterate parts that had reactions to it. 
+
+---
+
+after exploring the document ["et guide to creation" by kuthumi](/sirian-guide/orig/docs/840515pc.htm) of which [I wrote many notes](/sirian-guide/et-view-of-creation.md), I came to the conclusion that that version of reality might have, and possibly did, happen. however, I believe that would have been a very long time ago iteration to it. the way that creation is told has inspired in me the fallen-angels being the catalyst to creation. the basic idea is that I (I'll say it from first-person) take my entire personality and I essentially separate it into two distinct parts.. the wanted (desirable) parts about myself and the unwanted (undesirable) parts about myself. I then take my present genetics and build suitable bodies for the "gods" from those genetics -- however, I animate the "gods" with concepts with all of the unwanted aspects about myself and a number of others that I don't like... I think it would be actually quite the challenge to balance good genetics with destructive concepts and not make a disaster. these are the jefes.
+
+the story is well-planned in the sense that the jefes will attract worstening conditons for their planet and will have to exert constant effort to keep the whole thing from falling apart. they don't want to work though, because they'd rather utilise inferior beings to do their jobs for them, so they first try and get the citizens of that planet (just normal gods, not the jefes) to do the work, but they don't want to do it, so now the technical ones will design a subordinate race. they look to the planet nearby and use the ingredients left on the planet to create the "subordinate" race of beings.
+
+various catastrophes are attracted by the jefes own attraction, and they destroy their own world and end up having to move to the other planet (earth) where they are locked into a reincarnation cycle with only entites on the earth.
+
+that's the et-view-of-creation in a nutshell -- and it probably happened something like that. my idea picks up from basically this point because now we have earth filled with humans which have a flexible genetic code that is responsive to their thoughts and feelings, meaning that further improvements to the genetics can be done physically, but most are done mentally and perceptually. given that capacity, we're now capable of creating any biological form which is a reflection of the person's perception -- and I think that's exactly what I did.
+
+I postulate that I went back, probably even further back than to pre-atlantian times (to make a civilisation conceptually compatible with the fallen-angels I'll introduce into the story). that complicates the story a bit, so let's just start from the hight of atlantis and assume that the reason why the "laws" were put into place like how they were was to create an environment of wanting to do things their own way (even rai ernon looks to be in on it), and then essentially force people to do the wanted aspect, so they rebel against the wanted aspect. introduce some fallen-angels, which, considering my ideas on box-consciousness are artificially maintained entities with a strong desire to control the world and influence it from the top down.
+
+the whole plan is to allow this hatred for the wanted aspect to be founded on a lot of bad ideas (like laws requiring one to honour, and respect all of these poorly defined concepts with no real substance to them -- just a lot of good sounding words -- "religiosity"). as an example, listen to this crap (from "unveiled mysteries" chapter 2, the king is explaining why atlantis will crash and burn):
+
+    "Love is not an activity of the mind, but is the—'Pure and Luminous Essence'—which creates mind. This—Essence—from the—Great God Flame—streams into substance, and constantly pours itself out, as Perfection in form and action. Love is Perfection manifest. It can only express peace, joy, and an outpouring of those feelings to all creation—unconditionally. It asks—nothing—for Itself because It is—Eternally Self-Creating—being the Heartbeat—of the 'Supreme.' Love owns—All—and is only concerned with setting the Plan of Perfection into action in all. Thus, It is a constant pouring out of Itself. It takes no cognizance of what has been given in the past, but receives Its joy and maintains Its balance by the continual—Out-streaming of Itself. Because this Perfection is within Love—forever flowing forth—it is incapable of recording anything but Itself.
+
+    "'Love' alone is the basis of harmony and the right use of all Life energy. In human experience, this grows into a desire to give, and give, and give of all the individual's peace and harmony unto the rest of creation.
+
+    "People! O People! forever throughout the ages! only enough Love can bring you back to the Heaven you once knew and abided in. Here, you will once again embrace the fulness of the 'Great Light' that gives all through Love.
+
+    "A visiting prince approaches your borders. He will enter this city—seeking the daughter of your king. You will come under the rule of this prince but the recognition of your mistake will be futile. Nothing can avail, for the royal family will be drawn into the protection and care of those—whose power and authority are of God—and against whom—no human desire can ever prevail. These are the Great Ascended Masters of Light—from the Golden Etheric City—over this land. Here your ruler and his beloved children will abide for a cycle of time." Turning to the king he addressed him, saying:
+
+    "I bless you my noble, patient Brother! Loving and selfless has been the service to your people. Deep and eternal is your devotion to the Supreme One—the Source of All Creation. The Golden Etheric City awaits and joyously welcomes you and your children.
+
+    "Within Its radiance you shall live serving through the Rays of Light which are forever streaming out from those who dwell therein, until these your people shall redeem themselves by—obedience—to the 'Law of Love.'
+
+    "This 'Empire of Light' exists over the land you have loved so well. It is composed of self-luminous, etheric substance and rests above the physical city which is your capital. It is Real, very Real and much more permanent than any earthly city, for—'Light'—is indestructible and the Golden City is made of—'Light.' Into It, no inharmonious thought or disturbing condition of any kind can ever enter.
+
+    "I will return in seven days to take you and your children into the—'City of Light'—where we shall watch the progress of humanity, and draw into the—'Light'—all who will discipline and make themselves ready. Encircling the City is—an invincible belt of electronic force—through which it is impossible for anything uninvited to pass."
+
+it's that kind of crap that is an obvious mechanism designed to make people hate all of that spirituality stuff -- and, sure enough the destruction of atlantis ushered in a whole lot of some people trying to preserve the atlantian traditions in effort to try and hold on to the wanted aspect, while others wanted to install a dominance power structure with all of the unwanted aspects.
+
+I think it was all planned and designed from the beginning. from the creator's perspective, the first phase is to install all of the power structures that contain all of the unwanted aspects, and then from there it basically follows the leapfrogging-time-pickles format where the difficulty is pushed to the maximum.
+
+from my perspective, I think it could be possible to create this whole thing with a team, but consider the idea that "I" am designing a "species" (and I use that word in plato's conceptual/ideal sense rather than the modern sense), in which I would enjoy to inhabit the species.
+
+I take myself and I split the concept of myself into 4 shapes:
+- wanted
+- unwanted
+- unwanted (reverse polarity)
+- wanted (reverse polarity)
+
+and then I use these four concepts to create archtypes and transformations for the species, and then I jump into the species and become it. I definitely don't want to try and micromanage the thing from the top, as that's the unwanted aspect.
+
+the whole system is based on the ideas of "law of attraction" in that I'm only really fighting myself. so, you may say, well, what about me? am I also fighting myself? yes, because you can only experience what you resonate with. so imagine for a moment only the physical aspect to it -- like a hybrid. here you have 4 different "species" that you're going to make hybrids of, and let's say that the reason for this hybridisation is because some environmental condition has changed making it difficult for the secies to live. consider the unwanted ones to be kind of like weeds in that they're more hardy cause they're more used to surviving under difficult conditions, so you have to find a way to mix these to breed out the unwanted aspects and maintain the wanted aspects.
+
+I put the four concepts in that way because "unwanted (reverse polarity)" looks kinda like wanted, however in a sexual reproduction context, it's more like "unwanted (opposite sex)". so, now we have our groups:
+
+- wanted (male)
+- unwanted (male)
+- unwanted (female)
+- wanted (female)
+
+you'll notice that the mythologies are full of unwanted males and unwanted females. in fact, vulcan is said to have created for zeus exactly that -- an unwanted female (pandora). soloman has the paiman concept/demon, etc.
+
+it appears to me that hybrids of these concepts have been present all over the place, so it's no special thing for me to see creation happening as a result of mixing of these concepts.
+
+---
+
+so, it's my estimation that this whole setup has been created artificially as a concept of my own mind. the way I have it planned is that over the next era (1024y), humankind will go through rapid increase in capacity, and there will be quite a lot of us alive at the end of that time. I'm pretty sure the guys running the show are unwanted concept variations of my own creation, and essentially reflect all of the things that I'd rather not be a part of myself.
+
+at the end of that time, many of us will be alive and we'll gain the capacity to go back and alter our own timeline in the format described in leapfrogging-time-pickles, and we'll iterate on this timeline for a while. I can't say how many iterations will happen as I don't think there's a limit. everyone makes their own reality, so I imagine that quite a few will go back and design their own "fall".
+
+---
+
+wow, I went a little longer on responding to some of the reactions than I imagined -- no worries. I woke up this afternoon and had a realisation that the vision sequence that I had was the *wanted* aspect, and if I'm true to my own concept, I should actually just not worry about it because the wanted aspect will happen -- though perhaps not in that exact way.
+
+I think it's fine to keep trying to delay.
+
+the other thing I'd like to mention is that leapfrogging-time-pickles doesn't necessarily imply a linear progression through the timeline. as an example, in the future, I'll likely jump back into this timeline with a whole lot of others, which means that my future self is probably alive today.
+
+in fact, the other day (03-24), I had such an experience. it happened a few times but I had these very real seeming experiences (memories?) with amber (jp's wife), and it was as if I was the kid. I don't know what to think about it, but I remember when jaron read me jp's facebook post about him going to have a boy and I said something really weird like "I'm sure jp is going to be a very good father" -- which caught me as really weird because I don't usually say things like that -- ever. I don't really know what to make of it. there was also another instance (@[noseblog](2021-07-28 16:49)) where I was writing about how I was as a kid in relation to jaxson (whom I called "ted") and he represented for me the future of children -- I remember when I was writing about how I used to cry because of the way mom felt, I had a strong sensation that what I was saying was meaningful to amber, so I wrote "sorry amber?" right there to acknowledge that. I do have a lot of strange reactions to a lot of things, so I don't really discount the experience -- rather that I don't fully understand it.
+
+I realise that the above paragraph could be taken to mean that I think future me reincarnated into jp's kid -- which upon reflection does kind of give that impression. I mean you'll have to ask her about her ideas on that, but I wrote that originally because I had another weird experience before that (I think I was out on the field) when I had this strong sensation that amber's kid would be a girl and the idea felt good to me. the same thing happened with jessica's kid too, but it turns out that both were revealed to be boys.
+
+I supposed that the reason for this was that those children being girls was considered undesirable, and so then an alteration to the timeline was made where someone (dunno who) went back and changed the event on the timeline so that an x3 that looked like jp or like andrew had sex instead to ensure that the output was a boy (an x3), and so therefore they would be the first non-secret examples of x3 children on the planet.
+
+I also wrote this to give the idea that once we get to the "end of days", then we just start over, and jump into new bodies. this is going to sound weird, but it feels like many from the future have been and continue to join me in the body I have now. I personally don't mind or care, really.
+
+also, I'm pretty sure that many others are making their own timeline the way they want to do it as well. that's totally the point of it all, as I'm sure that each iteration they'll get bigger and bigger ideas of what to create. just imagine tens to hundreds of iterations from now, how the entire "species" will all be super awesome.
+
+the key to all of this is that unwanted also creates wanted.
+
+---
+
+so, in conclusion, I'll probably just let it keep going. one of the key things that I was thinking about in that vision was the idea of the birthday. you see, in "encanto", I found patricia similar to dolores in that she hears everything. it also felt this afternoon when I was thinking about the birthday bit of the connection to the name dolores (many pains), because it may have happened that she suffered "many pains" in self-flagellation and that in some ways, that could "make it up" or something like that (not exactly that feeling), to kind of undo the previous suffering. I mean I don't think that she went through *that* much suffering -- but it was an idea on my mind so it's worth noticing, even if it later doesn't amount to anything.
+
+I said all of that because I wanted to remove the time constraint. the other idea that popped into my mind is that I have this suspicion that some sort of changes place when girls interact with me. I don't have data to say for sure what kind of changes a girl goes through when sexually interacting with a guy, but I had this weird image of transfiguration appear in my mind -- OK, so lemme back up. the original concept was the idea that *if* I were made king, I would pass it on to someone else, preferrably a girl. well, I'm not a king, and know of no efforts to make me one, so for me it was a hypothetical situation.
+
+anyway that image of "transfiguration" was the opposite: patricia transfigured, and it felt as if it were because of the discomfort (described previously as "many pains") being realised in the opposite direction of perspective -- and that caused her to glow and levitate and become radiant and beautiful.
+
+the idea that this should happen on her birthday was that she'll be turning 37, so she'll have completed her 36th year. well, vere writes about the number 36 in job 41. [I made some notes](/random-notes/job-41.md), but this leviathan is the king of the proud children and has the number 36, which I estimate is also the same as the 666 triangle number which is the sum 1...36.
+
+anyway that sounds a bit like trying too hard to me, so why not just let that whole thing fall through and just let all of the normal LOA stuff work out something better than that?
+
+I really had a strong sense that timeline was already created, and that's actually how we got to this one. this one is even "worse" than this one -- a disaster of much more epic proportions. it's hard to explain the feeling, but the basic sense is that I felt very at ease to everything. so, for example -- if the whole stress to try and get me entangled with a bunch of girls to ensure that I don't go around in a connected state feels to be a large fear, and that fear was gone. I don't know what it was that made that no longer a fear, but it didn't exist. also the fear that I had to constantly be weary of my computer and these documents also seemed to disappear too. it felt like I was on an unavoidable course toward wanted and couldn't really miss it if I tried, and so therefore there's nothing to worry about.
+
+there are a number of reactions right now to the contrary with even bigger fears, but I just don't think it's a problem. I think it's fine to just keep going, actually. we'll see how things go.
+
+anyway, I'm really enjoying this process of learning and writing more. I can imagine a potential situation where I keep discovering more and more than I am now, and it becomes undesirable to let me continue to write -- as in, they need me doing other things. gravity anomalies... lol
 
 ### 2022-03-25 ??:?? - last night's vision experienc
