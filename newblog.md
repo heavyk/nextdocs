@@ -11474,7 +11474,7 @@ once again, another apocalyptic prophecy made in 1984 that didn't even come clos
 
 so, as I'm reading that I'm thinking about 1984 -- the year of the dystopian nightmare. tesla was born in 1856, and my second "me" was born 144y later in 2000, so I'll use that as a reference point subtracting multples of 2^x, I noticed a few dates...
 
-- 2112 (+256y)
+- 2112 (+128y)
 - 2048 (remember that game? probably also the peak of the gleisburg cycle)
 - 2036 (I think some planetary alignment)
 - 2024 (I turn 40)
@@ -11486,7 +11486,7 @@ so, as I'm reading that I'm thinking about 1984 -- the year of the dystopian nig
 - 1920 (-192y)
 - 1904
 - 1888
-- 1856 (-256y)
+- 1856 (-128y)
 
 so then, I was thinking about this, and I notice that 144 is divisible by 12, and 12 seems to show up. I don't have a spreadsheet app to do further calculations, but I feel like something is here but I'm going to go full alex jones on this... it's illuminati, OK?
 
