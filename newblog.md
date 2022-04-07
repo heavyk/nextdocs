@@ -12566,6 +12566,49 @@ it's only our definitions of those vibrations that make a thing good or bad (whi
 
 to be continued...
 
+### 2022-04-07 09:21 - stacks of assumptions
+
+I started a new blog the other day because I wanted to take a break from writing so much "serious stuff" that I write here. I mean, it's not really that I write tons of serious stuff here, but I realised today a lot of things when I listened to stake-bros #201. one of the sections, kyle is totally misunderstanding russ about the keystone "eye" cuts, and it was pretty funny to me. I realised that they didn't edit that part out or anything, and that's really cool, because he's cool with allowing such a mistake and can laugh at it -- right. so it got me thinking about this one versus the blahblog.
+
+I really only write stuff here that I'm OK with being wrong about, and I kinda withhold a lot of ideas here because of that. however, on the blahblog, I've really gone the distance and decided that I'm just going to vocalise the inevitable quanitity of "stacks of assumptions" that my mind constructs all the time. we all do it, and I've been quite aware that humans are especially prone to this. in fact, most people have described me as "pretty naive" because I often just believe someone -- but most importantly, I believe my own brain.
+
+I know more than anyone that the stuff that shows up in my head does not necessarily have its origin from my brain. I receive a lot of thoughts from a lot of different sources, and for a long time I just believed them all. these received ideas were mostly reactions from other people so being intuitive, I would just make lots of assumptions about a lot of things and people. over time though, I began to trust my brain less and less. it became OK for me to be wrong, sure -- but I definitely did not want to express ideas that I had doubt about or that I was certain would have a negative reaction to them[^1].
+
+---
+
+the blahblog has totally changed the way I look at things because I'm willing to openly consider those stacks of assumptions that my brain automatically makes out in the open rather than wait until the assumptions destroy theirselves.
+
+as I was eating breakfast I was thinking about the reactions to @[blahblog](2022-04-06 21:52) -- cause like I totally went all out there. there were quite a few reactions to my idiocy for expressing such far-out ideas out loud -- and I would have agreed previously, but it was in that moment that in that entry I was basically doing like science does with their thories and models.
+
+a few entries back I contemplated the idea of "what if I were king" -- and then I just assumed that thing were correct and began to make a bunch of models based on the outcomes of that assumption.
+
+I then realised that what I was doing was also the same thing that science does in the sense that I don't roll my assumptions back -- no, I keep building more and more up until it has enough inertia to become a fact.
+
+it's sort of insideous -- kinda, but in reality, it's no different than what science does with their models: they externalise their desires for how the universe works in their theories and laws and then iterates on those models until they match. what results, is a bunch of models which essentially represent their desire/perception of how the universe works in a mathematical language.
+
+well, I'm doing the same thing. I hadn't realised it but in a sense, I'm kind of externalising my desire/perception of how the universe works in a very similar way.
+
+it's sorta crazy to think about how much inertia a stack of assumptions can gain, honestly.
+
+---
+
+OK, so the next thing I want to talk about is that the snake-bros #201 also affected me a lot in a different way as well, because one of the writers talked about how organised religion offers something very compelling which is community and fellowship, which person after person was expressing their appreciation of kyle and russ for building a community where open exchange of ideas and the ability to be wrong is totally cool.
+
+I don't have any real conclusions on that yet, but it really hit me because I see things so much that same way and also quite the opposite. I don't know if it's my circumstances or what, but I still retain the hermit mindset, because honestly I haven't really ever had anyone that actually was interested in anything I wanted to talk about. I've joked a few entries ago about roping daniel, dani, or alfon into deep discussions (usually pretty unsuccessfully), and so most of my life I've kept my ideas to myself.
+
+so I don't really know how I feel about community, honestly. when listening to that, I flashed back many times to my church days and was reminded of that feeling of community.
+
+it almost had the negative effect on me because before I listened to the episode, I was thinking "man I really want to find a neutral but still profound subject that I can email russ about" -- and then afterward, I was thinking ... "dang, I dunno. I really don't know if I want to try and be a part of their community".
+
+I have this intensity that is quite off-putting to people and it's because of the ease in which I will believe myself and other people. I come off as too agreeable or a know it all and that's annoying.
+
+oh, just had an idea... @[blahblog](2022-04-07 09:57)
+
+
+
+[1]: unless I wanted the "shock jock" effect, which I use often.
+
+### conceptual purity (part two)
 ### family dynamics (individuality & charisma)
 
 ### so, how do you get a big and meaningful manifestation to feel smoothe and natural?

@@ -418,4 +418,34 @@ there are a number of reactions right now to the contrary with even bigger fears
 
 anyway, I'm really enjoying this process of learning and writing more. I can imagine a potential situation where I keep discovering more and more than I am now, and it becomes undesirable to let me continue to write -- as in, they need me doing other things. gravity anomalies... lol
 
-### 2022-03-25 ??:?? - last night's vision experienc
+### 2022-04-07 09:57 - why do I like writing here so much
+
+I wanted to write a serious subject again so I wrote @[newblog](2022-04-07 09:21), so that's the context for this one. I was talking about how I like community I guess, but at the same time I realised that I think one of the main reasons why I have been playing around with the patricia idea is because I *don't* like the idea of a large community. I've always shyed away from people as it's a bit intense for me. I like large groups in music festivals or when I'm on drugs (sometimes), but mainly music helps a lot because it gives my brain something to focus on. I really enjoy singular focus, and I don't really like my attention being spread so widely.
+
+I've mentioned it before but one of the the reasons why I dislike celebrations and parties and stuff (where I'm the centre of attention) is because I don't feel like I can think. I really enjoy small groups much more than big events. I don't ever really remember too many events where I've been on a stage with a lot of people looking at me, but the few times that I've been in the centre of attention it feels like my heart is going to explode from beating too fast. I don't suppose that it bothers me that people are looking at me, cause that doesn't matter.
+
+I think it's the expectations that make my heart feel like it's going to explode. I like being in my own world so much that I don't really let people in to my world (as ironic as that sounds). in fact, if I go upstairs to try and talk about this subject with jaron (and he's pretty easy to talk to), it wouldn't feel very good at all, largely because of his perception of me -- which isn't bad, but it's that intensity of being too agreeable or a know it all that I mentioned.
+
+here, sure I can feel people's reactions to what I'm writing but I don't really care that much because I don't have to see them or talk to them. I just write and let the stacks of assumptions build up till a completely unwanted reality eventually manifests itself for me.
+
+I know that a lot of people want me to come out and start interacting with others, but honestly the idea of trying to figure science stuff or talking about my ideas is what I want to do. like, for example there are so many questions that I want to ask patricia about statistics of the human race. it's really hard for me to just keep making stacks of assumptions without any data. by nature, I'm very data-oriented and I find the building of stacks of assumptions to be a very risky process. in my own life stacks of assumptions have lead to complete disaster -- but I'm sorta hooked on writing in this way.
+
+---
+
+now, I'm going to contradict myself: the other reason why I don't like the idea of community and prefer to write here is because when I'm talking to people there are all sorts of taboos that I don't have to worry about. if I were to talk to patricia about statistics and stuff, almost certainly the data will either be a fabrication (to obfuscate the real numbers) in which case I'll feel discord, or it'll be a subject where she doesn't want to talk about it.
+
+there's another problem with it too because I can negatively affect her. for example, I quizzed raquel all the time about her past boyfriends, not because I was jealous but because I was genuinely interested in trying to figure out how she processed reality. problem is, by asking her those questions, I caused her to focus on relationships that didn't work out. I tuned her to relationship problems, and then that's what we had. sure now, I'm quite a bit more adept at navigating around other people's tuning so even if she tunes to some unwanted aspect, I don't think it would affect me too much. it may affect her and also the audience though -- thankfully though, they already discourage people from encountering a lot of what I think and do. I'm likely to be a bigger problem for others now, rather than myself.
+
+on the subject of snake-bros, I'm pretty certain that if I were to join their discord, it would create a lot of discord, as I would be wide open about a lot of subjects, not waiting the various hours for my desire to send the email to vanish before ultimately deciding not to do it.
+
+I really think that for a lot of reasons, community is a terrible idea for me. instead, what'll likely happen is I'll wait this stack of assumptions grows to such a size that reality manifests and then pull out all the taboo subjects (just like I'm doing here).
+
+the way that I talk here is the way that I'll talk to people in real-life, cause it's kinda training me to think and reason like this -- and also, it'll be attracted because it's what people expect.
+
+the contradiction? it was the part about how I really enjoy the idea of talking to patricia about a lot of statistics, but at the same time I know it'll cause so much discord that I either probably won't enjoy it or it'll be fake numbers, also not making me want to enjoy it. so as much as I want to, I kinda don't really want to.
+
+I really like my own world.
+
+---
+
+there is a bit of irony to this stacks of assumptions though, because we've sorta been programmed that the more inertia something has, the more "real" it is. these ideas aren't any more real than the standard model; they're just my best model for how the universe works, and it feels like it's starting to become a reality. I wonder how much our stacks of assumptions, like a child's assumptions about their parent actually modify the "rules" the universe runs by. is this new blog working to program you all to believe my assumptions?
