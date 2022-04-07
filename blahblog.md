@@ -481,3 +481,7 @@ so, it's not the illusion created for me they're trying to protect, but probably
 anyway, I have more thoughts soon... still haven't fully figured out the stark thing either. also, I'm beginning to contemplate the idea that it may be the same for the snake-bros as well. like what if I get in there and some illusion is obvious to me, but it isn't to them?
 
 [1]: though they could -- just superimpose the mental image on the screen, obvious that it's a mental image because the eyes are closed)
+
+### 2022-04-07 16:42 - excavating thoughts
+
+btw, for anyone out there that wants to begin decoding their illusion, I *HIGHLY* recommend this process that I do. I simply make the desire to know the answer to something, then I take my mind away from it by going to sit in the sun or walking or whatever and usually when my mind is away from the question, I feel the answer start to come. instead of translating it into thought or words then, I capture the feeling, run inside and start writing. never fails. I always expand my perception of that idea and get more questions ... rinse and repeat. don't be scared to write something that feels personal or sensitive. that's actually the indicator that you're approaching something deep. happy excavating!
