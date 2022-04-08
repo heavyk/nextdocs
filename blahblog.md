@@ -485,3 +485,52 @@ anyway, I have more thoughts soon... still haven't fully figured out the stark t
 ### 2022-04-07 16:42 - excavating thoughts
 
 btw, for anyone out there that wants to begin decoding their illusion, I *HIGHLY* recommend this process that I do. I simply make the desire to know the answer to something, then I take my mind away from it by going to sit in the sun or walking or whatever and usually when my mind is away from the question, I feel the answer start to come. instead of translating it into thought or words then, I capture the feeling, run inside and start writing. never fails. I always expand my perception of that idea and get more questions ... rinse and repeat. don't be scared to write something that feels personal or sensitive. that's actually the indicator that you're approaching something deep. happy excavating!
+
+### 2022-04-07 23:55 - what type of community do I want?
+
+I woke up this evening with a strong sense that my previous -- so, in the previous entry, I talked about how stacks of assumptions would just pile up bigger and bigger until a manifestation is no longer avoidable. I considered that manifestation to be largely unwanted because I like my own world so much. I talked about community and used the conversations around the SnakeFam(?) community in snake-bros #201 as the basis for that. the general conclusion that I had is that I like community, but I don't really want to be a part of a community because I like my own perspective so much.
+
+later on in the day I mentioned @[blahblog](2022-04-07 16:42) is the way that I discover things, which is kind of opposite to the way the snake-pit does it where they utilise the wide array of knowledge that everyone in the discord has to discuss the topics they're trying to gain insight on. I don't want to say that talking to other people is a bad thing, because it totally isn't -- and I really enjoy bouncing ideas off of other people which is why I rope people into conversations all the time (and why I write here) -- so it has a lot of value for evaluating the hypothesis, but I don't think it has much value for discovering the underlying principle to a thing, which is what most scientific inquiry is about.
+
+personally, I've found that discussion with other people before I've made the working hypothesis tends to be detrimental[^1] and so therefore I tend to do my discovery internally and then I subject those ideas to the physical world and then see how well they perform. the bad performers (ie. I'm "wrong") get culled and updated and start again.
+
+the snake-pit I think would be a pretty valuable place to do that, but I'm not really having internet so that would mean I would have to chat on my phone which is really annoying. I looked at the idea of running a proxy server on my phone to share the 4G connection to my computer over wifi, but it takes a bit to setup and I'm sorta liking the non-internet still. like, if I get internet again, would I go back to watching youtube? prolly not. in fact, most of my time would actually be spent in the snake-pit, actually.
+
+---
+
+however, is the snake-pit where I want to tune myself to? I know there are a lot of unsolved mysteries and stuff which are all really interesting and stuff -- so, what kind of community *am I* looking for?
+
+I think for me the most valuable thing for me as a kid was talking to chris, because we had really open discussions. I don't know if he had any secrets or not, but I remember being pretty open about everything -- like I think we even discussed our masturbation regularity without much embarrassment.
+
+I honestly can't remember if it was chris or someone else cause for some reason my childhood memories are very foggy now, but it seems like I had a friend[^2] where I relayed to them everything and updated my progress. I also feel like there was another friend where I would tell them when I fell into sin (so during the church, probably woody, phil, daniel, or chris), and other stuff like that. all these memories are so foggy for some reason, and I don't know if I'm actually making stuff up there.
+
+anyway, that would be like the template for me, and I was thinking that what I really want actually is someone that is sensitive to feeling (probably around my level or higher -- so probably a kid) and they can simply tell me, "you feel bad when you do/think that" -- and maybe if they are more adults, we can talk(? recognise? feel?) about what sort of things that that we're attracting based on the way we feel.
+
+---
+
+you see, for me, I live in a world that's composed almost entirely of feeling. this is probably difficult to tell from the outside looking in, because I interact with the physical world just like anyone else does, but for me, what's "real" is all of the interactions that are ever present in my experience. they have feeling, and sometimes I miss these feelings because I'm distracted by stuff -- hence the reason for me liking to be alone.
+
+so really, I guess what I'm trying to say is that I'd enjoy a sort of feeling-based community.
+
+the nice thing about feelings is they exist outside of time and space. I know this because I will receive the reaction from the person, even though I know they're asleep and it's weird because I know that later they got the message because I'll get the second reaction later (it's a bit stronger and more tangible) when they wake up. I don't really know how feelings can travel forward or backward in time, but once I realised I'm broadcasted a lot of very strange reactions that I felt as a kid make a lot more sense if I consider that people are viewing and reacting to that past experience either now or sometime in the future.
+
+so, what that means is that this community is sort of special in the sense that it can exist outside of time and space, and there's really no effort to join it -- just tune to it and I'll get your messages. I may not respond to them all because I have a lot going on all the time, but I do get them, and as desire increases, they'll float to the top.
+
+I don't really know how to structure this idea, and I don't really know how to implement it either. everything I described already kinda exists, I believe, so it's more for me to begin to figure out how to interact with it better.
+
+---
+
+so, as usual, I'll probably take the path of least resistance, which is the motor-way and just keep pushing back the manifestation until the stack of assumptions (beliefs) grows to such a magnitude that manifestation is no longer avoidable. when that happens, it can't be stopped, and definitely nobody, not even me will be in control of it, because it's all attraction.
+
+to describe this visually, imagine a pinball machine that shoots the ball up to the top of the pinball machine, and because of the tilt (attraction), the ball rolls down to the bottom and along the way it can be bumped around by the bumpers, but eventually the ball is *going* to end up in the hole at the bottom. to ensure this, you can imagine that as time continues, the ball (me) is being attracted even harder toward the hole, so it appears as if the machine is tilting more and more vertical all the time -- then gravity strengthening, etc. -- as in, the longer I wait the faster the intial hit will propel the ball, and then the longer time passes the harder of a time (the stronger impacts will be needed) it will be to keep the ball from going in the hole.
+
+I figure, if I really try my best, I can probably keep this going for at least a year or two more. in that time, I'm going to start to begin to see how to organise the community so to make it easier to recognise when something feels bad and I can get a reaction to adjust trajectory more and more easily. it's big impacts that make manifestations, so the less impacts, the longer I can go.
+
+[1]: the obvious irony here is that I have recently started to abort my ideas earlier in their development by writing them here. you will soon see that this document will have the highest turnover rate in that it'll contain the most revisions to the ideas presented here because in newblog, I used it to force an evolution of the concept because like a morphic field, when others put their mental attention to the concept, it morphs and changes, so when I go back to the concept, it's unrecognisable to me. now unrecognisable, I have to rediscover it and output it again. this all happens inatantly (or nearly so) in the conceptual world, so to you guys it looks like I'm just endlessly repeating myself. this blog will be far worse, and it's because I'm using that early abort to force an evolution of the concept
+
+[2]: now that I think about it, it could have been an imaginary friend based on a real person I called "jenny"
+
+
+### people looking at me (needs more ideas)
+### origin-of-species (take two) (concept)
+### human-view-of-evolution (concept)
