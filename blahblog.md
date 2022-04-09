@@ -572,6 +572,44 @@ it seems like the allowing me to get connected is the obvious answer, and I woul
 
 well, I didn't get to the topic I wanted to talk about which was the redefinition of saviour, lol.
 
+### 2022-04-08 21:23 - perception and the fracal universe
+
+it seems that once again I'm careless with the words that I use. I said that the "sun is the 'Father'" -- and by this I wan't trying to say that the sun is "God" -- but rather, I was saying it in the sense that it is the parent concept.
+
+the solar system is a concept, the planet is a concept, the galaxy a concept, and the universe also is a concept. in we can imagine that in the centre of the "universe" we would find a very luminous object have a similar appearance to a star, yet more like sirius b than our sun -- likely emitting nothing in the visible spectrum, and only in very high frequencies (x-ray, gamma and upwards), being itself extrely dense.
+
+so, looking at the sun as the "Father" is not that big of a deal because all things should reproduce after its own kind, so we should see all sorts of things which are similar to each other but at different scales (scale invariance), and so we should see the same pattern of reproduction repeating itself in similar ways, no matter how big or small we get.
+
+the sun will be a reflection of "God" (or "source") and reproduce similarly, so this "prodigal sun" idea is, I believe the way that cells reproduce, as once a conceptual part of the cell passes some energetic threshold, it begins it's return back to its source (ie. prodigal sun), and in the process of return, the parent "Father" cell resists it's return, and the result is the creation of a new cell.
+
+to put this into science words, imagine for a moment an extremely high energy proton being attracted to the sun. that proton is trapped in matter and the sun wants that proton so badly, that when it's finally released from matter, it goes toward the sun at a very high speed vibrating very intensely. it hits the sun, and vibrating like the sun, but not quite exactly like the sun, it's this high energy proton is attracting a body that is very similar to the sun (but not quite the same). it traverses the solar interior attracting the components for its new birth out the other side as a tiny sun. those can be thought of as CMEs.
+
+once out in the solar atmosphere, still having a slightly different vibration than the sun but not quite the same, they will attract each other, but their difference will also cause them to repel eachother a bit (they need their own space, you know). the new one, just like every other new child will attract the physical components necessary for its continued growth.
+
+---
+
+now, if someone wants to call those spheres and that style of creation "God", that's fine with me, but I don't think it's any more "God" (or source) than the sun is. it seems that perhaps that style of creation is "God", or maybe all of creation is extended out of "God" in this manner.
+
+so, because all of these things will extend out of it's parent ("Father") in a similar way, we should see all aspects of creation a pattern where something extends out of itself becomes a tangible (created) reflection of itself, things happen to it with others in the environment that it's in, then it "dies", only to return to its source and transform into a new and improved version of itself.
+
+---
+
+this style of creation is perceptual in that it can be "seen" as happening infinitely in bigger direction and infintely in the smaller direction. our collective perception of the "bigger" and the "smalller" from whatever vantage point we have is "the whole of creation" and it's a composite of all of our perception combined. so is "all of creation" itself, "God" -- or, is the concept of "all of creation", "God"?
+
+I believe that everything is perceptual, so there are infinite layers above and below as far as one is capable of looking. in that sense, we are all universes of our own looking outward. from your perspective, because it's all perceptual, you are "God" and you are looking out into your creation.
+
+to explain this idea, consider what you can see with your eyes. the distance that you can see is reflective of our capacity to peer outward. same with microscopes and particle colliders in that they give us a glimpse of the fractally smaller. now, when I look out at the world, the things that I see are a reflection of my own concept of myself. I can only really see things that I resonate with, so in the end, I am translating vibration into a reality which is a reflection of myself. I'm just seeing a reflection of myself outside of myself. likewise, if I look inwardly, I'm also only a reflection of my concept of myself, but inwardly. my concept of myself contains "God" and resonates with "God", because if I didn't I wouldn't be a part of "His" creation.
+
+hopefully that clears it up... these topics are difficult to explain in text. in the end, it all comes from a deep knowing, cause that's good enough. you don't need to be able to explain the universe in words to be able to know that we are all "God's creation".
+
+---
+
+I put quotes around the word God because my point is not to alienate, but to show that all systems are all saying nearly the same thing, and so fill in "God" with whatever you want, and it'll work. it's impossible for something to be a theory of reality that doesn't contain these ideas in some way and that all creation "proclaims the glory of its creator" -- or reflects the creative principle of its creator.
+
+even if someone were to try and deliberately remove God from these ideas, turning what I wrote into a purely mechanistic and material representation, it would still contain the creative principle. therefore, no matter how much corruption or different versions of "God" there could be, the "God essence" can always be found in the creative princple.
+
+it's just as impossible to take "God" out of creation as it is to take the proton out of an atom and still have an atom. likewise, it's also just as impossible take light out of adam and still have adam.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-evolution (concept)
