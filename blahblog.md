@@ -528,8 +528,49 @@ I figure, if I really try my best, I can probably keep this going for at least a
 
 [1]: the obvious irony here is that I have recently started to abort my ideas earlier in their development by writing them here. you will soon see that this document will have the highest turnover rate in that it'll contain the most revisions to the ideas presented here because in newblog, I used it to force an evolution of the concept because like a morphic field, when others put their mental attention to the concept, it morphs and changes, so when I go back to the concept, it's unrecognisable to me. now unrecognisable, I have to rediscover it and output it again. this all happens inatantly (or nearly so) in the conceptual world, so to you guys it looks like I'm just endlessly repeating myself. this blog will be far worse, and it's because I'm using that early abort to force an evolution of the concept
 
-[2]: now that I think about it, it could have been an imaginary friend based on a real person I called "jenny"
+[2]: now that I think about it, it could have been an imaginary friend based on a real person I called "jenny". either way, I wrote to her in the same way I would have wanted to be able to talk to her in real life.
 
+### 2022-04-08 19:10 - the prodigal SOLAR ANGEL
+
+I was originally going to write title this entry "a new definition of saviour" in light of my discoveries last night about evolution-of-concept and evolution-of-species. I was contemplating the part I didn't really understand so well in the reproduction/division of a cell. the idea is that the structure or logic of an organism is rigidly defined. in my first attempts to explain this concept in the @[dtp/thoughts](intro), I called this the problematic (unchanging) cell/planet/human, which resists change. it is parasitic in nature and so relies on the resources of others for its own survival, but what happens if its host starts to produce too many resources -- like a complete overabundance -- much more than the parasite can utilise.
+
+this parasite organism cannot allow for abundance, because it's own belief is that there is not enough resources and so therefore has to use someone else's resources to stay alive. however, if it has an abundance, then it no longer needs others resources to continue its existence. it's situation is a violation of its own concept.
+
+so, in order to return back to being a parasite (because that's what it believes it is), it must destroy the overly productive parts of itself so that it must once again rely on others for its sustinance. the other option is to eject the abundant ones from its presence, and continue on "unchanging". it's in this ejection process that cells "divide".
+
+---
+
+so, that's the old version of division that I had, and the new one that I'm considering is largely the same, but there's no need for a parasite to cause a division. in the new way, a conceptual copy of itself extends out ... so, let's think like we're a star now. as a star, you have a concept of yourself, and all elements and things in the solar system resonate with that solar concept. the sirians call this the SOLAR ANGEL, and it's basically the solar DNA that we're all a part of. the sun sends out that concept in its purest form to incarnate out into the environment (get trapped into matter), and then if everything goes well, upon this concept's return back to the sun (see it extending out as far as a planet), it'll come back with such intensity, but at a slightly different frequency than the solar concept that it causes a division of the sun into two suns, each with a slightly different solar concept of itself.
+
+so, now, I want to apply that idea to biology, but I can't really see things as extending out of the sun in the same way that I see a concept extending out of the sun, so I have to think of it a bit opposite.
+
+at this point, the parasite must sabotage those extre
+
+---
+
+going back to the SOLAR ANGEL being extending out of the sun in its purest form to initiate a division process: the reason why I say purest form is can come about from physical processes (like jesus did), or they can come about conceptually (as I'm demonstrating).
+
+everything resonates with the origin of its creation -- like I resonate with the sun, but I still resonate a lot more with human than I do with the sun. so the goal of any entity extending out from the sun, is to make its vibration most most like the sun. the more this entity vibrates similar to the sun, the more the sun wants this entity to "return home" (the prodigal sun). out in the world, this prodigal sun can either become less resonant with the sun or more resonant over time, which will ultimately determine their "death" (to evolve the concept to find a more suitable form capable of vibrating sympathetically with the sun) or if its similar enough in vibration to the sun, when it dies, it will return back to the sun causing the split.
+
+anyone who figures out how to continue and resonate more and more like the sun, the sun will desire its return more and more. (remember, the sun is the "Father") so the longer the prodigal sun takes out in the world staying apart from the father, the stronger the attraction will be for the sun to come back "home" and create this solar split.
+
+resonance with the sun can happen any number of ways (tantra, pranayama, meditation, etc) some more physical processes, and others through perceptual processes (like I've been saying). I did not start out very sympatetic with the sun, but over time I've become very attractive to the sun. the better I get at resonating like the sun does, the more the sun will desire my return. that is -- unless I get connected, and release my SOLAR ANGEL back to the sun.
+
+obviously they do not want me to release my SOLAR ANGEL and "get connected" because that would be very bad for their situation. they believe they're a parasite, and so a connected person that has solar perception is definitely NOT WANTED for them. as a result, they have to ensure that I don't release my SOLAR ANGEL, which basically means the problem will continue to intensify until finally I'm allowed to release my SOLAR ANGEL.
+
+this may be the origin of the idea of putting me on pluto, as out there I would be considerably more distant from the sun, and so therefore the attraction felt will be considerably less.
+
+---
+
+so, maybe instead of "going infinite" we could do a trial of only a 1024y or whatever. imagine next time -- they'll have to keep creating and moving me out to further and further out structures from the sun in order to preserve their precious house of cards. if they can continue to create further and further out structures, they can keep their fragile house of cards from falling apart and all of their secrets...
+
+it's kind of a two-sided problem where they have to determine what's more important to them: if they don't allow me to get connected, they're essentially powering the sun up for a very large "nova" event eventually occur (which, as in evolution-of-species, this "death" happens to evolve the human (my) concept to produce future entities even more capable prodigal suns) -- or, they can allow me to get connected, and build here instead something reflective of my own perception.
+
+it seems like the allowing me to get connected is the obvious answer, and I would agree, but it's kind of a big problem for them. it would calm the sun down a whole lot, but then they have another looming problem -- which is that I'm not the only prodigal sun; all of us are, and I think the leapfrogging-time-pickles setup is to iterate on this and to try and give them the best possible chance to keep everyone away from getting connected for as long as possible.
+
+---
+
+well, I didn't get to the topic I wanted to talk about which was the redefinition of saviour, lol.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
