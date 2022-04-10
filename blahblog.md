@@ -675,8 +675,27 @@ OK, rant done. maybe one day I'll be able to actually be able to accurately know
 [1]: I realised in the discussion of alchemy that I'd totally lost him, so I switched over to talking about the news in a very simplistic way, just showing how it's all a pretty big con-game to make more money and even though they're terrible people, it's still not a good enough reason to feel bad about it.
 
 
+### 2022-04-10 03:36 - the promethian dilemma and dream
+
+I woke up just now from a dream where I was showing how the conceptual world works. I can't remember what all of the elements were now, but the main theme is that all things reflect the concept of their creation. it had something to do with sex as well, as that too will reflect the concept of the people involved mixed with environmental conditions and their present emotional state.
+
 ---
 
+so, I was explaining that I could just have sex and it would reflect the concepts, but that's probably not very helpful because if anyone is going to figure it out, the elements are already there -- one just has to look at them and put the pieces together.
+
+I just do stuff and in the end, the best sort of way that I can demonstrate it is with example. it's probably for this reason that I don't have (nor intend to have) all the super great conditions, and I worked my way out of many of my limiting perceptions by my own effort. like I was explaining to jonny, when someone is miserable, the last thing anyone wants, is "help". I neither want to tell anyone what or how to do things either.
+
+the way I figure it'll happen is something like what I've said in the leapfrogging-time-pickles, where everyone is the salt and they'll iterate on theirselves in their own alchemical process. it's likely that control over their own alchemical process will be acquired in some way, and I think there are two main paths toward gaining temporal perception and talking control of one's alchemical journey: the using technology and using perception.
+
+time is just the transformation of interactions between vibrations. in the beginning there were many less vibrations interacting so time was much slower. however, now there are many more vibrations interacting so it appears as if time is speeding up, but really it's just more interactions.
+
+so, when time is just a sequence of interactions which are necessary to go from one vibration to another vibration, each of those interactions produce higher frequency harmonics from the interaction, so it's normal that the manifestation will always be more (wanted or unwanted) than what was originally imagined.
+
+so, no matter how one gets from point A to point B is irrelevant, as all paths are equally valid. so, if the destination can always be reached, it then becomes a task of optimising for desired qualities of the path (ie. the intermediate opposite polarity transforming vibrations).
+
+this whole selection process is really all a matter of preference. there's no wrong way and none of the intermediate vibrations are "wrong" or "bad".
+
+well, once again, I didn't get to the subject I originally wanted to talk about...
 
 
 ### people looking at me (needs more ideas)
