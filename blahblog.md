@@ -610,6 +610,75 @@ even if someone were to try and deliberately remove God from these ideas, turnin
 
 it's just as impossible to take "God" out of creation as it is to take the proton out of an atom and still have an atom. likewise, it's also just as impossible take light out of adam and still have adam.
 
+### 2022-04-09 15:02 - starbucks again
+
+I feel preetythe differemce btween walking here and not walking. I feel signicantly worse, as I think I really like the walk. next time I go to jonny's I'm pretty sure I will want to walk there simply for how much better it makes me feel.
+
+I feel especially deaw today. something crazy happened last night and I haven't felt very good since... enough about that though. I've been trying to fell people too, and I have to say, I'm really out of practise or I am significantly more dull than usual. it's really weird because I look around and I don't knw what to think. that may be a reflection though as it's quite possiple that's what others are feeling when they look at me: "I dunno what to think about this guy."
+
+---
+
+ok, so in other news, when I was talking with jonny about good conditions and how some people are just giong to be miserable no matter what, I realised that I've released a lot of resistance. feels good I suppose. I think mainly, I had the contrast between the more common viewpoint that jonny conveyed to me, and my own from deep inside isolation -- like, it helped me to see that I just don't worry about stuff too much anymore.
+
+I don't really know what else to talk about now, so I guess I'll end it here.
+
+---
+
+so I did think about that one thing I said about people looking at me, because when I walked into mcalisters, because I forgot what it was like to have people looking at me. sometimes I have a lot of sensation (a strong effect) when someone looks at me, and other times it feels difficult to concentrate.
+
+I had an idea though from the heater guy -- cause if he can make my head spin, then what if, instead of others perception of me affecting me, I caused them to tune to me instead. when I look at someone, I tune to them, so what if I just reversed the polarities and caused them to tune to me? it's worth a shot. I'mm definitely begin to experiment with it.
+
+it feels like all I have to do is to just do the same thing that I already can do with my heart but instead of inputting my energy, I input *their* energy... I realisee this will probably improve my posture as well, because it's harder to do slouched over (whick is normally how I sit).
+
+needs more experimentation... I want to walk now...
+
+---
+
+oh, another thing... my thoughts are a lot quieter now. sometimes I would feel like I'm interacting with a person and things which may feel like questions or desire for a reaction, I would feel the response bubbling up, and then I would hear a reaction. sometimes this process would feel kind of obvious to me, but somewhere since the last time I went to B&N and now, this has changed quite a bit. I noticed that later on I could feel reactions from GMA but then when I went back to try and figure out what it was, the reaction bubbling was so insignificant that I wasn't even aware that I've reacted.
+
+what I mean is, it seems that I'm reacting to people but I'm not even aware of it now.
+
+### 2022-03-06 20:25 - thinking about latest stuff
+
+I feel very strange after going to starbucks. I can't really figure out what the main reaction is. to some extent, it feels a bit like people are disappointed in me -- not all though, obviously. I'm not sure what it's all about really. I'll keep trying to figure out what it is, but perhaps it has to do with my idea that I can figure anything out...
+
+I mean, anyone can. it's a documented thing with a considerable amount of evidence that remote viewing is a thing. channeling is also a thing, and both of them are tuning processes. I suppose the main difference is that I'm willing to try it out for myself and develop the skill. it's not like I'm expecting to get it all right or anything.
+
+also, I have given a lot of thought to the idea of figuring things out -- and you all know that I'll see it the way I see things, which is obviously going to be different than how others see things. in fact, I don't really expect many people to get the way I see it. I've tried to explain my perspective throughout the years and never actually had any success at it. I disagree with a lot of people on a lot of different things, and it's because I see things differently. an obvious one is how jonny and I see the environment and the world. he thinks there's only one planet and we're not treating it well, and I believe that all reality is a reflection of my perception. if nosebook would let go, the entire planet would transform into a reflection of my perception, so everything would be radiant, vibrant, self-luminous and full of life. obviously that's not desirable for them. they lose control of everything if that were to happen, so they have to ensure that my reality is never created.
+
+that's fine with me. I don't really mind because they can't actually hold it back forever, so I'm willing to play their game for as long as they can keep it up. if things go well, they'll figure out how the universe works, and have their final edition printed before I head out. it sounds great to me. I say let them try as hard as they want to. I'm not going to tell anyone what to do or say and all of my ideas are free, so I hope them the best.
+
+the earth will be a reflection of the collective perception, and so if the theory of how the universe works (final edition) is based on destructive processes, their creation will reflect that. you can know them by their works/fruit, and their models will reflect their perception the same way. so, do you suppose they're modeling the improvement of the climate, or modeling the collapse of habitable living conditions? I suppose it's the latter, and so they're attempting to create that reality. if that's the reality they want, then I just don't see a problem, because that's *their* reality; mine will be different.
+
+nobody is forcing any reality on anyone. people watch the news and say, "oh wow, everything on the news is reality" -- and that's fine if that's what you want your reality to be. some people are still optimistic thinking to theirselves, "you know, if I shout and protest loud enough, perhaps they'll decide to do something different" -- and to that I say: you can't expect a person to deviate from their perception of reality. if they think they need to manipulate things and fight over stuff to assert their dominance, then that's what they'll attempt to do -- so like, let them think that.
+
+---
+
+what I don't understand is why people spend so much time complaining about everything. just do it! don't wait for them to do that. as an example, there have been countless people waiting for these boneheads to create an open forum where people can discuss archeological ideas without having to maintain the mainstream narrative, and it exists now. imagine if kyle and russ just sat around waiting for the archeologists to make such a forum. it won't ever happen because their perception is about keeping information withheld. an open forum with free interchange of ideas can never ever ever ever exist in their form of perception, ever.
+
+just start making all of the stuff that you want instead of waiting for these guys to fix stuff.
+
+one of the things that I was explaining to jonny is that no quantity of good conditions will ever cause people to stop being miserable. so, let's just ignore the conditions of the planet at the moment and focus on social and emotional conditions instead of the physical. I guarantee 10000% (if that's possible) that if 1000 people in the same general area improve the way they feel by improving their perception, this will completely change the planet from top to bottom.
+
+I'm one person and it's clear how much effect I have on the planet just when I feel good. the better I feel consistently, the more dramatic that effect is. I'm pretty certain that if 100 people (a very small amount) of people actually felt good (perceptually instead of conditionally) about to the same capacity that I had in 2018, the planet turning into a veritable paradise is completely unstoppable.
+
+that's really not that hard to do. back then, I was in "it's all attraction", "perferring to feel good over being right" and "not needing the manifestation" (ie. not needing good conditons to feel good). those are all so simple to do and pretty easy to master. I've been talking about a lot of advanced topics because that's where *I'm* at, but maybe I'll consider the idea of perhaps trying to convey more of the simple ideas to jonny rather than the complicated ones[^1] next time I see him and hopefully that'll help. it's common that I get so far out into the discussion that I alienate people, and then they don't want to ask wth I'm talking about because they don't want to feel stupid, or something.
+
+I have no idea what isn't obvious to others. I spend nearly all of my time thinking about these things so I've made a lot more realisations and jumped to a lot more conclusions (and been wrong about them also) more than most people. I really have a difficult time seeing things from other people's perspective, and so that's why I ask so many problematic questions.
+
+it has been the most difficult thing for me all of my life to actually figure out what other people are actually thinking and feeling about what I'm saying, and I've developed a lot of my ESP capacities because I was so bad at even the basic stuff like reading body language and facial expressions (I've improved a lot, but I've found that most people's body language and facial expressions are not what they really feel, but they way they want to appear to feel, like actors or something).
+
+so, I continue to try and develop my sensitivity further and further to actually be able to figure out how people are *really* reacting to what I'm saying. I honestly don't know what's not obvious to others[^1].
+
+OK, rant done. maybe one day I'll be able to actually be able to accurately know what others are thinking and feeling about what I'm saying -- and, hopefully this illuminated at least a little bit why I like me and my world so much.
+
+[1]: I realised in the discussion of alchemy that I'd totally lost him, so I switched over to talking about the news in a very simplistic way, just showing how it's all a pretty big con-game to make more money and even though they're terrible people, it's still not a good enough reason to feel bad about it.
+
+
+---
+
+
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-evolution (concept)
