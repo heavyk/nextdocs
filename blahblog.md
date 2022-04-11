@@ -739,13 +739,59 @@ this creates a huge problem (and another reason to prefer to stick to myself) be
 
 if I'm a consumer, I want to actually understand the content I'm consuming, and so therefore I want to make inquiries into every aspect of the content presented to get a fuller picture (where is the person coming from, what's the objective of the data, etc.). if I consume without any inquiry into what I'm consuming it's a bit of a waste of time, and that's why I haven't really been very excited to go back to youtube since not having internet.
 
-if I'm a creator, I want to actually present the data in a way that the audience can hear it, and so in order to do so, I have to make inqueries into the person -- so, like I want to know if the person knows alchemy, I say, "this person knows alchemy" and then feel the resonance which then motivates the direction of the conversation. I try to do this in the positive because the negative is disastrous. if I want to know if a person doesn't know something, I say, "this person doesn't know anything about programming" and then feel the resonance. in the positive case I get false-positives, because people wantc to pretend they know things they don't and/or are unwilling to admit they don't know something. in the negative case, I usually get a negative response. sometimes I get negative-negative responses, which are hard to explain so the best example I have is one time I was talking to remi and I felt like she would know what I was talking about so I used a spanish word to explain a concept, and she responded very negatively to that -- like, "how dare you speak spanish to me" (she probably does know spanish but doesn't want to get sucked into speaking spanish). so, I tend to try and not use spanish words to explain ideas since -- even though often times they are the way I relate to the concept.
+if I'm a creator, I want to actually present the data in a way that the audience can hear it, and so in order to do so, I have to make inqueries into the person -- so, like I want to know if the person knows alchemy, I say, "this person knows alchemy" and then feel the resonance which then motivates the direction of the conversation. I try to do this in the positive because the negative is disastrous.
 
-all in all, the process of trying to figure out what is obvious to other people so that effective communication is possible a very treacherous process. I don't have any solutions, so I figure a lot of feelings will get hurt and a lot of misunderstandings will happen. I don't really have any intention of trying to adhere to the lowest common denominator anymore. you have to make the effort to keep up. I want to continue to expand my understanding, not explain the same thing.
+for example, if I want to know if a person doesn't know something, I say, "this person doesn't know anything about programming" and then feel the resonance (truthiness). in the positive case I get false-positives, because people want to pretend they know things they don't, and/or are unwilling to admit they don't know something. in the negative case, I usually get a negative response ("he thinks I don't know ...") -- and, sometimes I get negative-negative responses, which are hard to explain so the best I have is an example:
+
+one time I was talking to remi and I felt like she would know what I was talking about so I used a spanish word to explain a concept, and she responded very negatively to that -- like, "how dare you speak spanish to me" (she probably does know spanish but doesn't want to get sucked into speaking spanish). so, I tend to try and not use spanish words to explain ideas since -- even though often times they are the way I relate to the concept.
+
+all in all, the process of trying to figure out what is obvious to other people so that effective communication is possible a very treacherous process. I don't have any solutions, the obvious thing to do is to *not* try and figure out what is obvious to the other person and stick to my own point of view.
+
+I figure a lot of feelings will get hurt and a lot of misunderstandings will happen but none of those are my problems. I don't really have any intention of trying to adhere to the lowest common denominator anymore. anyone listening has to make the effort to keep up[^2]. I want to continue to expand my understanding, not explain the same thing.
 
 in the end, this is all about me and it's my own discovery process. I don't really have any obligation to try and present this in a way that's easy for others to understand -- and unfortunately, the way things have developed, it's been detrimental for me to try and find common ground of what is obvious.
 
 [1]: this comes as a re-reaction to yesterday's comment about CO2 being used by shamans all over the world to change the vibration of the environment to be that of the shaman in order to increase likelyhood of a shared visual experience and increase likelyhood of a stable experience. when I was in spain before they removed the ability to smoke indoors, whenever in a public space with lots of smoke, there was a much stronger sense of the vibration (feel) of all of the people in that venue. it seems to be connected to smoke, because with dani, daniel, and alfon, we've all had experiences where in a smokey room we all seem to join in the same mental plane, sometimes sharing thoughts and visuals. CO2 seems to activate this, and it's plant food. CO2 seems to be sympathetic to its producer (human, fire, volcano, etc) and O2 seems to be charged by the sun.
+
+[2]: so, like ask questions, I guess -- but that's not really a great solution because then I end up in a conversation like I had with buzzword-bingo spiritual guy at friendly harbor. I'm explaining and answering a lot of questions, but none of them are heard. again, another reason to just stick to myself.
+
+### 2022-03-01 01:57 - disorder and depth
+
+one of the things that I noticed about the previous conversation is how quickly it is to alienate people. it is true that I purposefully present a concept here to force an abortion and subsequent evolution-of-concept, so I do try (in some sense) to present ideas at a low comprehension level, but not for others' understanding but so that those low comprehension level ideas can go to die, allowing the bigger concept an easier time to emerge.
+
+because I'm trying to get bigger concepts all of the time, by nature my concepts will alienate people because it's just impossible that others can follow it. I think that's the point, actually.
+
+---
+
+a few entries back, I talked about how if 100 people were like the 2018 version of me, that would have a much more dramatic effect on the environment than any amount of "green" products.
+
+there were two main reactions, I think both from nosebook (different divisions though). the first was that 100 2018-me's would be disastrous (proving my point), and the other was 100 2018-me's would be pretty easy to keep under control, proving the point above that the whole objective of this is to alienate people.
+
+it's fine that nosebook is my main audience because the whole point is for them to get it. they'll treat my answer as "the right answer" and then work their hardest to ensure that nobody ever comes to the same conclusions as me, to preserve the inevitably further disabled version of "science" that will be fourthcoming. I say disabled not in the sense of it being able to produce more iPhones, but in the sense that it'll probably obfuscate the night-side (time, attraction) by focusing mainly on space and repulsion/barriers. I think it'll neglect the conceptual nature entirely because they need people to believe in (and be scared of) death, eliminating the importance of the rebirthing process of the concept actually driving evolution of species and ideas.
+
+it'll create a lot of products and be able to build really big things though, but investigating how things really work will be a big taboo (you don't need to do any experiments because we've already figured it out for you, and this is how it works -- or, if you do the experiment, your conclusion should be the same as ours, obviously).
+
+this will work for quite a while, as nosebook is getting better and better at steering people and oppressing things that don't fit the narrative, but it won't work forever. eventually, it'll produce such a wide diversity of ideas that are all different than my "right answer".
+
+that's the point, I think -- for me to come up with "the right way" so that nosebook can steer everyone away from it -- having a multitude of alternative ways instead of just one right way.
+
+remember @[newblog](2022-01-11 18:43), and my thoughts on why having a single right way is kind of a bad idea? the directors of ideology will always tell you what "the right way" is, and for most, the "right way" is the path of least resistance because it's the wide path that many travel.
+
+so, if you were enki and you realised that all efforts to communicate "the right way" (perceived by him at the time), are just going to be corrupted and turned into a giant money-making scheme, what then would you do?
+
+I propose that because the-problem-is-the-solution, the solution *is* to just lean into the problem and go for the biggest money making, product-oriented approach to spirituality.
+
+it's kind of a bit of a return to the mixing of science and religion, but in the negative form. on one side you have science and religion so deeply intertwined they are the same thing. then, you go a full 360(degrees) around the circle and you have nearly the same thing: science so divorced from religion that it is a religion.
+
+obviously neither of these are desired, so how about any of the infinite other angles on that circle? what we want to do is to optimise for diversity rather than for one right way -- so you make sure the guys running the show ensure that nobody ever figures out "the right way".
+
+> the natural order is disorder (song excerpt)
+
+and so it makes me think about the symbol of earth (cross with circle around it), and this is the time to explore all of the angles that are *not* the four cardinal directions (the white instead of the red, blue instead of yellow, etc)
+
+---
+
+I wanted to talk about cliques and their relation to elitism and "the right way", but that'll wait I guess. sorry that my conclusions are increasingly becoming more and more chatic in nature rather than ordered, and so hopefully I illuminated the bigger picture a bit. at least for me, this entry was very enlightening. I have more thoughts on "enki and the right way" but they're not ready yet (and probably soon to be aborted.. lol)
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
