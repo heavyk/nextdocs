@@ -697,7 +697,56 @@ this whole selection process is really all a matter of preference. there's no wr
 
 well, once again, I didn't get to the subject I originally wanted to talk about...
 
+### 2022-03-00 16:58 - obviousness
+
+yesterday, I was contemplating the idea of there being an incompatibility in what I think is obvious and what others don't think is obvious. multiple times I've tried to explain the obvious bits in order to get to the point, but the problem is, I either forget the point (my problem), or I feel from the person that I'm reexplaining something that I already explained or is obvious.
+
+I really have a hard time trying to figure out what is obvious to other people. as such, lately, I've tried to just get to the point anyway because the people actually listening are not actually normal people, but nosebook -- so, while I'm explaining the idea to mom (for example), it's nosebook that's listening, not mom. so, I just try to get to the point.
+
+---
+
+as an example, I've been wanting to call david back, but I feel resistance because I hate to constantly reexplain everything and I don't know what I can actually talk about. I want to just get to the point, but at the same time I want to explore new ideas too -- so I end up writing here instead of calling him.
+
+this whole problem of what is obvious and what is not is solved in part by a community like the snake-pit. it's just assumed that you know what "skerptard" means, and that's fine. the reason why I've shyed away from that is because whenever you have your own lingo, you obviously alienate a lot of other people that aren't in the club. this is very corporate business in nature to make up terms and then look at you like a retard if you don't know what "synergy" means -- like, duh, everyone knows what it means, and you should too.
+
+so, inevitably, I'm forced to continually communicate in the lowest common denominator, which is (I think) the main problem youtubers face and why it's rare for videos to ever go really in-depth -- as, all videos have to be targetted to the lowest common denominator of viewership -- and if you want hits, you have to target the mainstream audience, which usually means nothing in-depth.
+
+therefore, as a result, I'm totally fine with the fact that my largest most interested audience is nosebook -- simply for the fact that I don't have to just keep going back to reexplain the obvious parts. they probably try and figure out the obvious parts communicating with my psychic body while asleep.
+
+my mention of the psychic body is too an assumption that you've been following dtp and my realisation that the psychic body contains memories in astral format and is programmed to be able to actuate in reality without any guidance. it's a purely reactionary body, and the sort of base programming for the "automaton" -- and it's this body that nosebook is interested in programming during dreams and other visual experiences, to try and guide one's default reactions to be the reaction practised in the dream (visual sequence). that body can also react to questions to reveal the obvious.
+
+so, for me, I kind of enjoy that nosebook is my biggest audience and they feel the information that I relate to be good enough to want to try and keep out of reach of the peasants. in the end, they are the biggest believers in me. if I go out and try to explain this sort of stuff to others, I'm met with the normal backlash from the mainstream narrative -- as in, "how could CO2 be a good thing that charges the environment with a specific vibration?!" sort of thing[^1]. I don't have to explain all of that, and I want to continue to move forward with my expansion of understanding.
+
+---
+
+there's another subtopic going on here and that is that I want to continue to advance my understanding. abraham was always bewildering to me because they would answer the same questions over and over again. I figured out what they were saying (admittedly, it was harder to implement than understand), and desired to go to deeper topics. I found out that they were going to just keep iterating on the basics forever, and if I wanted to know more, I was going to have to figure it out myself.
+
+there's a big jump between "you get what you think about" to how DNA and the evolution-of-species works. I worked my way up to figuring it out realising that the problem is the word "species" -- and that the modern scientific definition of the word doesn't encompass the conceptual nature of a "species", but tries to make the definition with physical attributes when there is considerable overlap, and hybridisation (the mixing of concepts) should be a regular occurance rather than the exception. inotherwords, my own perception of what a "species" is, was the limitation that I had to overcome to expand my understanding. abraham works on helping people to overcome those limitations, and leaves the discovery to us -- which is nice and it makes sense.
+
+---
+
+finally, the remaining barrier to effective communication I noticed was in questioning process I do inside of my head to know what's obvious.
+
+when I was younger I learned of an idea called "testing the spirits" where you say something as if it's true, and then listen for the response to it. if it's not true, then it'll feel bad and if it is true, then it'll have a positive feel to it often motivating further inquiry.
+
+that was very helpful for figuring a lot of things out and you see evidence that I still use the same technique, treating everything as if it were true. however, it's really terrible for conversations. if I notice something about someone, I say in my head, "this thing is true" -- like for example, yesteday, I noticed one of the starbucks barrista's earring and I wondered if it had significance. I later had reactions to this inquiry in my head, as I think it probably got taken the wrong way because the way I "test the spirits" is to say it in the positive manner, so it would have gotten translated perhaps as "that earring means this".
+
+I've tried to do this less verbally in my head and just do this conceptually in my head because it's faster and I can go back to look at the answer later and don't have to be inundated with data. so, the fact that I got the reaction means that nosebook is trying to translate these concepts into physical form in effort to understand my interaction with the conceptual world.
+
+that's the present problem, but in the past, all my efforts to try and figure out my conceptual relationship to another person in conversation has been badly translated or something, such that there are soo many misunderstandings, that it tends to make me want to *not* want to try and figure out my relationship to another person, as it causes problems.
+
+this creates a huge problem (and another reason to prefer to stick to myself) because from my perspective, am I a consumer or a creator?
+
+if I'm a consumer, I want to actually understand the content I'm consuming, and so therefore I want to make inquiries into every aspect of the content presented to get a fuller picture (where is the person coming from, what's the objective of the data, etc.). if I consume without any inquiry into what I'm consuming it's a bit of a waste of time, and that's why I haven't really been very excited to go back to youtube since not having internet.
+
+if I'm a creator, I want to actually present the data in a way that the audience can hear it, and so in order to do so, I have to make inqueries into the person -- so, like I want to know if the person knows alchemy, I say, "this person knows alchemy" and then feel the resonance which then motivates the direction of the conversation. I try to do this in the positive because the negative is disastrous. if I want to know if a person doesn't know something, I say, "this person doesn't know anything about programming" and then feel the resonance. in the positive case I get false-positives, because people wantc to pretend they know things they don't and/or are unwilling to admit they don't know something. in the negative case, I usually get a negative response. sometimes I get negative-negative responses, which are hard to explain so the best example I have is one time I was talking to remi and I felt like she would know what I was talking about so I used a spanish word to explain a concept, and she responded very negatively to that -- like, "how dare you speak spanish to me" (she probably does know spanish but doesn't want to get sucked into speaking spanish). so, I tend to try and not use spanish words to explain ideas since -- even though often times they are the way I relate to the concept.
+
+all in all, the process of trying to figure out what is obvious to other people so that effective communication is possible a very treacherous process. I don't have any solutions, so I figure a lot of feelings will get hurt and a lot of misunderstandings will happen. I don't really have any intention of trying to adhere to the lowest common denominator anymore. you have to make the effort to keep up. I want to continue to expand my understanding, not explain the same thing.
+
+in the end, this is all about me and it's my own discovery process. I don't really have any obligation to try and present this in a way that's easy for others to understand -- and unfortunately, the way things have developed, it's been detrimental for me to try and find common ground of what is obvious.
+
+[1]: this comes as a re-reaction to yesterday's comment about CO2 being used by shamans all over the world to change the vibration of the environment to be that of the shaman in order to increase likelyhood of a shared visual experience and increase likelyhood of a stable experience. when I was in spain before they removed the ability to smoke indoors, whenever in a public space with lots of smoke, there was a much stronger sense of the vibration (feel) of all of the people in that venue. it seems to be connected to smoke, because with dani, daniel, and alfon, we've all had experiences where in a smokey room we all seem to join in the same mental plane, sometimes sharing thoughts and visuals. CO2 seems to activate this, and it's plant food. CO2 seems to be sympathetic to its producer (human, fire, volcano, etc) and O2 seems to be charged by the sun.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
-### human-view-of-evolution (concept)
+### human-view-of-creation (concept)
