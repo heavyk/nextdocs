@@ -1,4 +1,4 @@
-# bob (the tomato)'s blah blog
+# bob's blah blog
 
 I'm gonna try a new thing where I type out some things that I normally wouldn't type out -- mostly because they involve other people and I don't really want to put them too much on the spot. what I mean is, I don't have any problem with my life being public, but I definitely occlude the identity of various people and related ideas in noseblog/newblog.
 
