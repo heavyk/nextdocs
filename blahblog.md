@@ -638,7 +638,7 @@ oh, another thing... my thoughts are a lot quieter now. sometimes I would feel l
 
 what I mean is, it seems that I'm reacting to people but I'm not even aware of it now.
 
-### 2022-03-06 20:25 - thinking about latest stuff
+### 2022-0-06 20:25 - thinking about latest stuff
 
 I feel very strange after going to starbucks. I can't really figure out what the main reaction is. to some extent, it feels a bit like people are disappointed in me -- not all though, obviously. I'm not sure what it's all about really. I'll keep trying to figure out what it is, but perhaps it has to do with my idea that I can figure anything out...
 
@@ -697,7 +697,7 @@ this whole selection process is really all a matter of preference. there's no wr
 
 well, once again, I didn't get to the subject I originally wanted to talk about...
 
-### 2022-03-00 16:58 - obviousness
+### 2022-0-00 16:58 - obviousness
 
 yesterday, I was contemplating the idea of there being an incompatibility in what I think is obvious and what others don't think is obvious. multiple times I've tried to explain the obvious bits in order to get to the point, but the problem is, I either forget the point (my problem), or I feel from the person that I'm reexplaining something that I already explained or is obvious.
 
@@ -755,7 +755,7 @@ in the end, this is all about me and it's my own discovery process. I don't real
 
 [2]: so, like ask questions, I guess -- but that's not really a great solution because then I end up in a conversation like I had with buzzword-bingo spiritual guy at friendly harbor. I'm explaining and answering a lot of questions, but none of them are heard. again, another reason to just stick to myself.
 
-### 2022-03-01 01:57 - disorder and depth
+### 2022-0-01 01:57 - disorder and depth
 
 one of the things that I noticed about the previous conversation is how quickly it is to alienate people. it is true that I purposefully present a concept here to force an abortion and subsequent evolution-of-concept, so I do try (in some sense) to present ideas at a low comprehension level, but not for others' understanding but so that those low comprehension level ideas can go to die, allowing the bigger concept an easier time to emerge.
 
@@ -793,7 +793,7 @@ and so it makes me think about the symbol of earth (cross with circle around it)
 
 I wanted to talk about cliques and their relation to elitism and "the right way", but that'll wait I guess. sorry that my conclusions are increasingly becoming more and more chatic in nature rather than ordered, and so hopefully I illuminated the bigger picture a bit. at least for me, this entry was very enlightening. I have more thoughts on "enki and the right way" but they're not ready yet (and probably soon to be aborted.. lol)
 
-### 2022-03-02 00:01 - random thinking about language, vocabulary, and elitism
+### 2022-0-02 00:01 - random thinking about language, vocabulary, and elitism
 
 I mentioned this in a previous entry and the reality is, I just don't have a solution to this. one side of me really wants more words to describe more specific concepts -- and it really is nice to have new words that are funny and pertinent -- however, I grew up in california, and during the 90's ever little clique of kids had their own vocabulary.
 
@@ -830,6 +830,22 @@ I then was talking to jonny at starbucks about artists, and I told him that I li
 maybe not for everyone, but I want it for me, and it would be interesting to try and have the same conversations I had with jonny with such a device. I wouldn't need to explain so much, as he would see it in his own way and our conversation would essentially be him "learning" to make sense of what I'm transmitting. because of the wide diversity that inevitably will occur between different people, each person would be nearly a language or at least a dialect unto theirselves and in order to communicate, you would have to "learn" how to communicate with eachother and develop a compatible language.
 
 no need to make custom vocabualry a thing of elitism, business jargon, or cliques. everyone learns a compatibility with those they want to communicate and communicates the way they choose to.
+
+### 2022-04-12 17:07 - thinking a bit more about languages
+
+after writing the last entry, I watched "beauty and the beast (1991)" and I noticed that a lot of those things would be kind of hard to do in that language. the songs would be easy, but a lot of the dialoge was commands and imperatives. this made me think of a few of languages functions:
+
+- descriptive (dsls)
+- imperative (c++)
+- transformative (functional)
+
+there may be another that I can't think of right now, so it gave me the idea to apply the memristor idea to things. if I say that descriptive is resistance, transformative is inductive, and imperative is capacitance, then a memristor programming language would be something like a programmable dsl.
+
+the reason why I bring that up is because memristors are quite effective at making logic, memory, and if you add a coil, they can be used to create large arrays of resonating oscillators -- which is kinda one thing I'm looking for.
+
+so what I'm saying is, if I combine two basic elements making one of them programmable, then I get a whole new thing. I'm looking for some kind of mix between a programmable transformative and descriptive language. in electricity, this would be many RLC circuits that have some sort of logic which defines their state (which can then alternate at high speeds, like DNA does).
+
+that's all for now...
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
