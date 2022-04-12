@@ -793,6 +793,44 @@ and so it makes me think about the symbol of earth (cross with circle around it)
 
 I wanted to talk about cliques and their relation to elitism and "the right way", but that'll wait I guess. sorry that my conclusions are increasingly becoming more and more chatic in nature rather than ordered, and so hopefully I illuminated the bigger picture a bit. at least for me, this entry was very enlightening. I have more thoughts on "enki and the right way" but they're not ready yet (and probably soon to be aborted.. lol)
 
+### 2022-03-02 00:01 - random thinking about language, vocabulary, and elitism
+
+I mentioned this in a previous entry and the reality is, I just don't have a solution to this. one side of me really wants more words to describe more specific concepts -- and it really is nice to have new words that are funny and pertinent -- however, I grew up in california, and during the 90's ever little clique of kids had their own vocabulary.
+
+I also learned spanish with dani, and to my dismay, I found out that a lot of the words he used he must have made up. problem is I really liked those concepts and still use "parras" to this day, but when I used those words around other people they often looked at me like I had a mental difficulty or something.
+
+it's kinda for this reason that I've come to the idea of going the german way and just sticking a bunch of words together to make a new thing. to foreigners it looks like a really long jumble of letters for a word, but for a native speaker, it seems to make sense. I try to make mine more clear so I use the (I dunno what to call it, but css property definition format of - separating), as when I used to use "LiveScript", I could hyphenate entire things together in a long variable name, and it would make sense. it was almost like writing english in a structured format. I'll demonstrate:
+
+```
+with evolution-of-concept do
+  property something to another thing
+end
+```
+
+and that would produce code that would take the properties of `evolutionOfConcept.property(something(to(another(thing))))`. the thing it didn't have is the ability to define syntax and expressions so it would force those things to be calls. this is why when later I converted to elixir, now I can specify using macros the order in which the calls are made by defining rhs/id/lhs expressions.
+
+the idea was that I wanted to make essentially a programmable version of english where some keywords were syntax (do, end, for, while, if, etc), but could have custom behaviours attached to them, and then basic concepts could be created by simply stringing ideas together, and then any expression of speech could be looked up and parsed to find its meaning.
+
+anyway, the idea was to find a way to structure english in such a way that it could be extended to fit any set of circumstances -- and as long as it could be meta-programmable and extended to fit the desired ...
+
+you can see the problem right away though -- which is the basic problems all languages suffer. how loose do you make it? is it typesafe? is it compiled? is it functional or imperative? etc.
+
+no single language will ever satisfy all of those, and inevitably someone will want to do some aspect of the language differently. this is the inherent difficulty with rigid languages.
+
+since I haven't been programming for so long (today I prgrammed my first extension to vscode), I've really lost sight of the rigid mechanical language idea. I'm not saying it's bad, just I want something now that is more wave-like than rigid. I want variables that resonate with eachother and generic transformations that can be applied to the underlying wave, thereby transforming the output of the wave. like, how can I mix sound and text together? how can I mix colour and rhythm together? how do I take an idea and it'll build me a diagram of itself in an abstract (but fractally more defined kind of way, where the higher the frequency the more detail the fractal becomes, and higher frequencies are achieved by transforming the wave with other waves)
+
+I don't know how to do this idea yet, but it would be super cool to start to think about. what I don't know is how to make this accessible to other people, as I don't really know much about that. the obvious solution would be to program this for gpus but I'm sorta out of the loop on that too. I dunno right -- but it's a cool idea, anyway.
+
+I like to think of this as an "intermediatist's programming language" but it's also a communication language where the vocabulary is individually discovered. the main problem is the interface to other people as you end up with the problem I have already: how do I communicate a colour, a movement, a rhythm, or a feeling? I simply can't so I want to communicate the *source* of that colour or movement -- meaning that if this system could be created, we'll need a system of input/outputs for compatibility between people so that when I present a colour, they see a shape or sound (or whatever way that wave would be rendered to them). then, media needs to be created which can transmit these waves in both lossless and lossy formats, etc.
+
+I was talking to jaron a few days ago about how I don't see my imagination, and it's totally fine. knowing what I know now, I would *choose* to live at least some lengthy period of time without an imagination as it's really not necessary.
+
+I then was talking to jonny at starbucks about artists, and I told him that I like art, but it doesn't really capture me the way that moving colours and shapes do. one of the things that I want to create (and have wanted to for a while) is RGBV displays with the extra ultracviolet pixel to add movement and meaning to the pixel, and that's one idea, but the other one would be to create some sort of signal transmitter that essentially hooks into the eye or something that puts these waves into the eye, meaning that I would only "see" these waves. while it's going I would be essentially blind, but I could interact with this abstract "wave universe".
+
+maybe not for everyone, but I want it for me, and it would be interesting to try and have the same conversations I had with jonny with such a device. I wouldn't need to explain so much, as he would see it in his own way and our conversation would essentially be him "learning" to make sense of what I'm transmitting. because of the wide diversity that inevitably will occur between different people, each person would be nearly a language or at least a dialect unto theirselves and in order to communicate, you would have to "learn" how to communicate with eachother and develop a compatible language.
+
+no need to make custom vocabualry a thing of elitism, business jargon, or cliques. everyone learns a compatibility with those they want to communicate and communicates the way they choose to.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
