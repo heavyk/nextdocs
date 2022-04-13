@@ -847,6 +847,52 @@ so what I'm saying is, if I combine two basic elements making one of them progra
 
 that's all for now...
 
+### 2022-04-12 20:54 - venus
+
+before dinner I listened to UFOs (part 9) and the main theme present in that one (as well as "dee-constructing demons") was the ever-present character of this hathor/venus entity which seems to influence secret societies and things.
+
+I sit down to eat dinner and watch "the tick s02e03 armless but not harmless" where the main character is venus and her sidekick "milo" (remindes me of one of the parsons) convince tick through persuasion to commit crimes for her.
+
+in my head, venus is the right-hand side (the girl), and milo is the stressed out dude on the left. or, seen from the opposite angle, tick is the little girl, desireous and has to do things dispite arthur's suggestions that it's a bad idea, making the left-side stressed out dude, arthur.
+
+this duality between characters is important because milo represents the wanted male aspect, and arthur the unwanted aspect. venus represents the unwanted female aspect, while the tick represents the wanted female aspect.
+
+venus is trying to convince people (seduce, influence) to do her bidding for her. tick is the opposite, fearlessly wanting to accomplish things in the name of justice.
+
+milo is constantly telling venus how great her ideas even though she does not let him act on his own ideas. arthur is constantly telling tick that he thinks things won't work and usually has to do the thinking for the both of them.
+
+this episode is slightly different in that now that tick has lost his strength, he does all of the thinking for the both of them, meanwhile now that arthur has lost his capacity to use his arms, he just walks around complaining the entire time. the tick figures out the way into the enemy awards, and the idea to find villians in "the evil eye"
+
+---
+
+I notice symbols a lot, so that's why I took out the time to write that out, becasuse I have a feeling it'll be resonant to later topics.
+
+my goal in this entry is to just kind of talk out the venus/hathor effect.
+
+the first thing I want to relate is my own experience with this sort of "venus" (my right hemisphere), and say that she wants things, and they can be perceived as either good or bad, and they'll manifest in refelction of *my* perception of the thing.
+
+I'll come back to perception in a second, but I'd like to have a look at venus not in the traditional way of hathor/aphrodite and think of her more like this well-lotioned goddess on one side and the tick on the other. from now on, when I'm referring to the well-lotioned goddess, I'll say venus and when talking about marty's pattern, I'll say hathor.
+
+it's funny that venus' prime motivator is recognition in the from of an "enemy award" and her award is in the form of "most improved criminal".
+
+it's weird because I would describe the right-hemisphere as being desireous to make a scene, get people to acknowledge and recognise "me" (kenny, the composite of us both), but most importantly she's a super hard driver for improvement. she doesn't care what gets destroyed or what stands in the way, but the improvement *will* be accomplished, and it's basically my (me, kenny) job to essentially find a way to perceive the path toward it in a way that is positive and uplifting.
+
+the reason for this is quite obvious. we communicate conceptually. I receive a concept, and that concept will always be a representation of things that are relatable to me.
+
+the conceptal world is a feeling, concept, or knowing that then produces a visual picture in the imagination, a voice, etc. which is my translation of that idea into physical sensation (sight, sound, etc) that I relate to the best. old manuscripts call this "perfection" because everything always manifests itself in your most perfect representation of it. so, like if you believe she's a wise woman, you may associate "the empress" tarot with her (which has venusian symbolism on the card), and if you believe in some form of love, she could appear as a dazzling naked or barely-clothed seductress.
+
+the concepts that she transmits are the same way. I do believe that the receivers of those things *did* receive what they received, and so it was the translation of the idea that gave the impression it would be a flying saucer, not the idea itself. then later, on the road, they met the "flying saucer" but again, the concept manifested itself as something entirely different -- a dude with electric eyes. it's hard to say what the difference is there but the earlier encounter could have been a saviour in the from of a flying saucer spaceship, and then later, it manifested itself as a saviour in the for of a man that had no concern or want of anything (as in, everything is going to be fine).
+
+I'm also convinced that the stuff that took place had the objective of moving the timeline. for example, in some of the cases, the person translating the information believed the information as if it were real (it always feels that way), but then that person then attracted others around them which caused a tremendous shift. the reason why I say moved the timeline, is because wanted-and-unwanted-are-same, meaning that what was transmitted *was* wanted (desired) but, as has been the case many times in my own life, the outward appearances of the events look to be lies, theft, etc., when now when looking at it from hindsight, I can say that they *were* in the direction of what is desired, and it was only my perception of them being "bad" (or of them as being unwanted) is what made them "bad".
+
+this includes all of the people that died or seemingly got abandoned venusian intelligence. they were given prophecies of destruction (earthquakes, wars, etc.) which did come to pass (which are all unwanted), and so then why not beleive that the next even bigger unwanted thing will come to pass? they did all have something unwanted come to pass, so in that sense they were getting what they were tuning to, but consider for a moment how desire works: if wanted-and-unwanted-are-same, then a prophecy of unwanted is also wanted (when perceived from the opposite perspective). the unwanted aspect is often times the destruction of some socio-political system that has a grip on humankind, but the wanted aspect (usually unseen by the perceiver) is the new *improvement* that will replace it. the transmitter of this desire (anatau, for example) only sees the improvement, when those that are a part of the structure (and fear its destruction) perceive the unwanted/destructive aspect.
+
+I understand hathor's perspective perfectly, as I too am now pretty similar to her. I frequently "use" people's fear (negative desire) to tune further toward wanted.
+
+I put quotes around "use" because I want to explain that this is a perfect example of expecting a flying saucer when looking for a saviour. I talk about things in a most desireous format and there are countless reactions to how awful said thing would be to the established (and rigid) structure they're a part of. that desire gets translated by them as *destruction*, and so therefore produces fear (negative desire), and that doesn't bother me in the least, because they can certainly attract their destruction all they want to. I only see the improvement.
+
+I had a few more things to say, but I think I'm going to end it here... you're doin great marty!!
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
