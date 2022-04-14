@@ -1,0 +1,12 @@
+
+considering the end of UFOs (part 8?) where brett and marty are talking about the part of the brain that is affected by these UFO encounters, being somewhere related to the brain stem (reptile brain), which is connected to the kundalini (serpent rising), and I experience this as the pre-motor cortex, this is the precursor to imagination in the brain. because it's what happens before the imagination, this is basically our direct link to the conceptual world. in it, reality gets created really quickly.
+
+when the serpent rises and you enter into this state I'm calling "devachan-on-earth" (because if I were doing it in devachan, it would just be "normal" vision). in that state, your concepts manifest into your reality and you interact with them and they interact with you just like anything physical would. your imagination becomes your primary visual capacity and you see 4 dimensions (hight, width, breadth, and depth).
+
+---
+
+there is a second level to this "eden" story, as I believe that there are different levels of its experience and all concepts experienced get translated through the brain. I believe that one "tree" or hemisphere of the brain is concerned more with the definition of what is "good" and "bad", and that's one form of perception, but the other form of perception is one of "life". to put this in snakey terms, you have on one side the tree of positivist and negativist perception -- and opposite to that is the tree of intermediatist perception.
+
+there is a repeating theme with these guys and that is that your right and left hand/brain should be fully autonomous. in the-holy-trinosophia, st. germain is said to be able to completely operate both of his hemispheres completely independently of each other or together. the idea here is that when one is able to see both the positivist/negativist *AND* intermediatist perspective at the same time, this will grant eternal life.
+
+the other theme that seems to come up is this subject of "eternal life" -- and what it seems to me is that these texts are talking to the *angels*, not to the humans. humans have eternal life, however are not aware of it. however, the sense that I get from oahspe, dtp, and other sources is that angels are beings created by "God" and so therefore must be obedient and subserviant to "Him". meanwhile "man" has a spirit and eternal life already and it's actually the objective of the angels to guard man from entering into this devachan-on-earth state and destroying theirselves.
