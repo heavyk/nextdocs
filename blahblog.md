@@ -893,6 +893,57 @@ I put quotes around "use" because I want to explain that this is a perfect examp
 
 I had a few more things to say, but I think I'm going to end it here... you're doin great marty!!
 
+### 2022-04-14 15:45 - what's the point of non-physical? (and desire)
+
+last time, we left off talking about venus and desire. I wanted to explain and dnfine desire a bit better than I have but I left it. I then wrote a section on [seeing is believing](./oahspe/thoughts.md#seeing-is-believing) and I had some desire to explain why I think "non-physical" is an important concept.
+
+let's say that you are perceiving a few concepts. you see a guy that has inherited an empire, but he doesn't *appear* very wise to you. so that's two concepts: guy and kingdom/empire. that's the physical part. now, let's reverse directions and look at the interactions that those concepts can have. if you *believe* that the boy will run the empire into the ground, this is the non-physical (symbolical) operation on the concepts.
+
+one is a symbol and also a concept. there is no place in the universe, except for your brain where anything is only one unit of anything. science keeps looking for the smallest unit of a thing, but everything is composed of tinier things, so in this sense "one" is a symbol, as all numbers are. there are infinite physical examples of "one" existing (defined by the perceiver), each containing many smaller parts, and each of those physical examples containing smaller parts is a concept.
+
+addition and subtraction are purely non-physical. you take one concept and another concept and "add" them together to get two concepts, but why wouldn't you have one composite concept instead? the nature of the operation is determined by the concepts involved (ie. your perception of the units being "added").
+
+that's conceptual (5) and logic/symbolical (3) in a nutshell.
+
+---
+
+now let's look at desire (1). desire is the opposite of physical (7), and so therefore will be the "non-physical" version of the physical.
+
+when you experience anything, that experience becomes/is a feeling (concept), and that's how you retrieve the "memory" of that event -- by tuning into it with that feeling. all points in time and space have a "feeling" associated with them which you can tune to.
+
+in fact, that's how the passage of time works. we see events playing out in linear fashion, but in reality, we can think of the main "events" as the desire and the secondry events as time. desire is the physical reality that you're tuning to, and that physical reality has a feeling associated to it, and so therefore that's how it is tuned to.
+
+so just like how "one" is itself a symbol but there are infinite representations of "one" in reality (the concept), so too are there infinite physical representations the same for desire.
+
+physical reality "creates" desire based on your concepts, just like units of things "creates" addition and subtraction. you see something and say, man I like this (and so therefore I want more), so I tune to that feeling that the physical reality is producing, so I can have more of it. it works the same with unwanted as well. if I see something I don't like, when I pay attention to it, I tune to it and attract more physical experience that feels like that.
+
+desire is automatic. you cannot help but to like certain things and dislike other things, and so therefore attracting more situations that feel similar to what you're perceiving will happen automatically.
+
+I call this *automatic* attraction the office of the christ and it's located in the pineal, and it's the physical implementation of the relational (2), because it ensures that the reality you experience (7) is sympathetic (vibrates in accordingly) to the way you believe (3) and how you conceptualise those beliefs (5). you literally will see your reality like you feel it to be.
+
+I call it the office of the christ, because it's a feedback mechanism that tells you that you need to either control the conditons that you're experiencing (physically or temporally) so that you control what you desire more of, *or* you alter your *perception* -- that is your beliefs about how the concepts interact, and the operations that are to be performed on them.
+
+a good example of this is calculus. we had numbers all along, but along comes calculus and now a new operation can be performed on those numbers to reveal more information. the logical interaction in your brain isn't so rigid though, because an equally valid "reaction" to the boy and the empire could be, "he's gonna grow up real quick" rather than, "he's gonna run it into the ground". these alternate operations are just different ways to look at the same data. actually, maybe a better example might have been statistics. my point is, you are the one processing the data, and you can pick the standard procedure of repeated addition, or you can use multiplication (for example). it's entirely up to you.
+
+likewise, you will notice that the way you feel about the interaction between concepts can be felt in the stomach (solar plexus) and opposite this is the throat. this is largely where you "define" your concepts and this is where society "tells" you how to operate on these concepts (you should do, he's no good, that's gonna fail, etc.) those words are logical operations that tell your physical brain how to operate on those concepts.
+
+---
+
+I don't really know how to approach this part so easily, but in the previous section, you can begin to see how the relational (2) and the imagination (6) are used to enable these operations to be performed. (depending if the starting point is physical or non-physical).
+
+let's take the physical case first as it's easier to see (you see kids do this all the time). when you conjure the concepts in your brain, the most "perfect" image representation of those concepts will appear in your imagination. it's often times so "perfect" (conceptual) that it neglects many physical details. at other times it's so physical, it neglects many conceptual details.
+
+you then perform operations on these images (symbols) in your imagination and results happen according to your perception/belief about how those symbols/concepts will interact.
+
+you will notice that something motivates those images to make an interaction. you *desired* that operation, and so for example, if your desire is for these two symbols/concepts to fall in love (notice this is a feeling), then some set of operations will be performed inside of your brain to get the concepts from one state to the desired state, and the events will play out in your brain as a reflection of your brain's beliefs about that.
+
+I want to make a distinction between the concept in your brain and the non-physical[^1] (source-version) of the concept. the "concept" your brain uses has a lot of resistance to it and is *not* the pure (resistance free) concept. likewise, there is a pure resistance free version of all physical manifestions being experienced. the opposite of this is what creates desire. you look at something and you can feel the resistance of it (it doesn't feel good), and so you know there is a pure "source-version" of that reality without any resistance. the difference between those two signals is what creates emotion and also desire.
+
+I need better terminology for the difference between the resistant and unresisted versoin. for now I'll say resistance-free or source-version, as I don't really want to try and explain every time that there is always a version of reality that is more harmonious with what you desire (the way you want to feel), and it's our physical concepts which tune us to the less-harmonious (more resistant) version. when I say "perception" I'm referring to the brain's version of these concepts and symbols, not the resistance-free perfectly harmonious (ideal) versions that can exist, but are ever ellusive as increasing fine tuning precision is like dividing by a number to get to zero.
+
+anyway, the symbolic operations happen very similarly in real life, but you have to take into account that real life contains the other people's desires, concepts, etc. and so these mix into the equation and you'll notice that your imagination is always wrong. likewise, it'll never be the ideal (source-version) relational (2) perspective of interaction of the symbols either. so, also will this one be always wrong, too. one is wrong for not having enough data and being tainted by your perception and the other is wrong because those ideals are basically impossible to tune into perfectly.
+
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
