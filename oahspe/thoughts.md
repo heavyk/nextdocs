@@ -153,3 +153,107 @@ as such, whether someone is actually going back and putting diffrent ideas into 
 I do believe that these texts and any other channeling sort of thing can be dramatically steered away from some desired perception. this book feels heavily temporally influenced and edited, but like I said, it's impossible for them to get anything but the obvious stuff -- so concepts still shine though.
 
 for ideas on a large-scale implementation of this influencing of events and things, see leapfrogging-time-pickles. I think that the "guardian angels" have been "gifted" (see UFOs part 7?) this leapfrogging-time-pickles technology.
+
+### my serpent
+
+in addition to saying "serpent of the woman", when jehova is talking about the 3ky periods where the earth will travel "my serpent" (04/7.2-4), it conjured the image of the spine in my mind. we know that the "rising of the serpent" is the kundalini rising up the spinal column.
+
+there is also an image in the document of the solar system's "serpent" which shows the planets starting with neptune, uranus, saturn, jupiter, isis/vesta, ceres/astrea, heve(?)/juno, pallas/mars, earth, venus, mercury, sun.
+
+so what that got me thinking is that if the spinal column is the "serpent", then for a solar system, the vertebrae are the planets and their moons.
+
+the interesting thing about this idea is that the sun is the inner-most and most luminous -- which corresponds pretty well to my idea that the sun is a (-2), which is nice because I consider the pineal to be the physical location of the 2nd ray energy transmitter and receiver.
+
+the other weird thing about it is that I essentially have only 5 major "chakras" that I consider necessary to think about earth (root chakra) (7) is the environmental conditions and I claim that it's best not to try and control condidions, instead controlling perception (2), so I leave that one out. I also leave out the top (crown chakra) (1), as that's all stuff that can't really be affected too much as it's your connection to the air, and so therefore again, conditions that can be controlled, but it's best not to.
+
+so, let's map this out then:
+
+- ~~(crown)~~
+- sun (pineal)
+- mercury (throat)
+- venus (heart)
+- earth (solar plexus)
+- mars (regenetive)
+- ~~(root)~~
+
+then there are the outer planets are all on orbits around us, (the p-orbit planets for the tychos model).
+
+also, the unaccessible root and crown chakras correspond to the division of osiris. very intresting...
+
+---
+
+so then when jehova says that he has earth to pass through etherean lights every 3ky as we travel "my serpent", the image that I get is that our trajectory through the galaxy, we pass through these nodes of etheric condensation.
+
+so, that would make the galactic serpent considerably bigger, with the "supermassive black hole" in the centre, the "heart" of the galaxy, just as our own heart pulses energy up and down the spine (ie up and down the spiral arms in the galaxy).
+
+---
+
+so this gets me thinking.. if the north pole is like the pineal for the earth, and the south pole the regenetive, then they will be sympathetic, just like your imagination (sex organs) and pineal are sympathetic to one another.
+
+therefore, at some time in the past, mars must have been the sympathetic opposite of the sun.
+
+anyway, further evidence that jehova is the galaxy (but probably with aspirations of becoming bigger than or the next universe).
+
+### forbidden trees and the division of osiris
+
+in the first story, the angels partake of the forbidden "tree of *life*" and then jehova sets "God" and the various angels up on the contient of "Pan". eating of the tree of life makes the angels the progenitors to "man" (see 04/7.5-8) (btw a similar version of the "woman" took from the tree of life and caused a cataclysm was relayed in dtp).
+
+he then gives the angels the "lower heaven" (ie. the astral) and the angels will be part of the earth and travel with it.
+
+anway, later on (haven't read that far yet, but presumably around the time of atlantis), there emerges "Lord God Osiris" and again another forbidden tree. this time it's the tree of the knowledge of good and evil. man and woman partake of the tree of the knowledge of good and evil rising the serpent up, so "Lord God" osiris assigns "guardian angels" to prevent man from rising the serpent back up and getting back into eden (ie. devachan-on-earth).
+
+here's the interesting part: now, that man perceives good and evil, osiris decides to divide himself into two: the "Lord of the Earth" and "God of the Air" (ie. enki and enlil). these also correspond to the two unaccessable (because they're not located in the human body) chakras: the crown (air) and the root (earth).
+
+### angelic ascension
+
+the wierdest thing about this book is the brides and bridegrooms thing:
+
+> 04/7.16. At the termination of the dominion of My God and his Lords, they shall in these, My bound heavens, gather together all those angels who have been prepared in wisdom and strength for resurrection to My etherean kingdoms. And these angels shall be called Brides and Bridegrooms to Jehovih, for they are Mine and in My service.
+
+the wierd thing is that marriage sounds a lot like ownership, and indeed jehova is telling is claiming ownership of the wise and worthy angels there at the end of each 3ky period.
+
+it really gives me a bad vibe. this jehova guy is really strange because some things it feels like he's right on about, but then other things like the obediance and ownership things are really weird. it could be on purpose, considering that he designed it so that the angels would be rebellious to his commands, it seems like the bifrication is between those who want to be owned and obediant to his commands (which he gives eternal life) and those who want to rebel (the false Gods).
+
+### the great pyramid and fallen-angels
+
+there was a thing that the sirians said which stuck with me (lesson 6), which basically states that 50kya, a decision was made for a number of volunteers to incarnate into human bodies to work a "trojan horse". a trojan horse was a bad thing disguised as a gift, so in this sense, it's probably a good thing disguised as a bad thing to trick the INFECTED ONES that are dominating the astral plane (remember, they staked out the 7th plane as their dominion, which at that time was the astral plane, "lower heaven"[^1]).
+
+the sirians continue:
+
+    When the [trojan horse] volunteers arrived, they developed a method for consciousness expansion that took into consideration the lack of a functioning concrete mind and the ray that was in power which was the SEVENTH RAY. MAGIC was their psychology, teaching aid, and science.
+
+    SEVENTH RAY causes substance to conform to the needs of the life that is to inhabit it. Whether it is a ceremonial form or a body. If an entity wishes to acquire enlightenment and he is following the SEVENTH RAY path, he will carefully construct a plan of living conforming all his actions, using devotion to this purpose, and culminating it in a ceremony to invoke conscious conversation with his soul. His life becomes a living, holy ceremony to celebrate his divinity. You may be assured that the Cheops pyramid is a ceremonial law of order in stone.
+
+notice the reference to the great pyramid? it says that the great pyramid (ie. temple of osiris) is ceremonial law of order in stone. these 7th ray magics in ceremonial form and order reflects well in this book's "degrees of Anubi".
+
+---
+
+anyway, after spelling out the degrees of anubi, this book explains how the false osiris ("saviour of humankind") commissioned thoth to build the pyramid exactly according to the dimensions instructed by osiris, *so that his angels can incarnate into corporeal bodies*:
+
+    25/48.28. And you shall provide such thickness of walls that no sound, heat, or cold can enter it; and yet, you shall provide chambers within, suitable for yourself, your chiefs, and your friends, who are also adepts. For I have also provided the earth for heaven, and heaven for the earth; **and my angels shall come and dwell for a season on the earth, and my earth-born shall go and dwell for a season in heaven**; yes, they shall come to me on my throne and see the glories I have prepared for them.
+
+    25/48.29. Nor shall my temple be exclusive, but open to all who will pursue the philosophies of earth and heaven. For which reason you shall build it with the sun, moon and stars; and it shall be a testimony to the nations of the earth that you are the highest of all mortals, and first founder of everlasting life in the flesh. **For as the angels of heaven can return to the earth and take upon themselves corporeal bodies for a season, so shall you master your own flesh to keep it as you will. For this is the end and glory for which I created man on earth.**
+
+so notice how osiris promises thoth the ability to gain mastery over his flesh and to essentially live forever (kinda like the elixir of life from alchemy). all he has to do is to build this pyramid enabling his angels to take on corporeal bodies.
+
+so, what it looks like is you have the rites and degrees of anubi (probably ra in the sirian text) paving the way for the brotherhood network of ceremony, rites, and rituals as initiations into this angelic order. then, thoth builds the pyramid according to osiris' dimensions that makes all of this possible.
+
+I think that osiris was being only a little bit deceptive in the function of the pyramid, and it did a lot more than energise their cermonial magic.
+
+[1]: this process of getting the angels into an incarnation cycle with "man" probably corresponds to what is relayed in (04/7.*).
+
+### galactic strawman
+
+this section builds on the last one (the one about the trojan horse of ritual and ceremonial magic, the great pyramid and the brotherhood network). keep in mind, that if it's a "trojan horse", then it's probably a "good thing" disguised as something bad (probably depends on who you ask).
+
+the sense that I'm starting to get when I read this book is that the "trojan horse" for the INFECTED ONES goes a lot further back than the great pyramid and ceremonial magic.
+
+kuthumi explains how the INFECTED ONES were collected and rehabilitated, but some didn't respond to the rehabilitation, so a galaxy was designed so that it had a physical plane. the whole point of the physical plane was to introduce a death and rebirth cycle, because in all of the other galaxies, astral is the lowest plane and everything lasts forever.
+
+so, this galaxy was created and a number of volunteers created civilisations in the physical plane in this galaxy. the INFECTED ONES flocked to this galaxy and incarnated into the tech civilisations. wars started out and everyone blew each other up. apparently earth is at one end of the galaxy and somewhere else on the other end is the opposite faction of tech civs[^1].
+
+therefore, I'm guessing that the galaxy itself (I postulate that this is "Jehovih" in this book) essentially embodies all of the unwanted qualities of the INFECTED ONES, and this is why ascending angels who have "learned their lesson" to be obedient to jehovih get to become brides and bridgrooms, owned by jehovih.
+
+I think the whole point is to make a ridiculous power structure that nobody wants to be a part of. I think it's a strawman, designed to be defeated and overthrown.
+
+[1]: if I had to guess, I would say it's probably something to do with the taurus constellation (aldebaron?), as "tau" stuff seems to be the attracting keyword. the great pyramid is also located on tau-ros (ros-tau) mountain.
