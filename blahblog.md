@@ -943,6 +943,42 @@ I need better terminology for the difference between the resistant and unresiste
 
 anyway, the symbolic operations happen very similarly in real life, but you have to take into account that real life contains the other people's desires, concepts, etc. and so these mix into the equation and you'll notice that your imagination is always wrong. likewise, it'll never be the ideal (source-version) relational (2) perspective of interaction of the symbols either. so, also will this one be always wrong, too. one is wrong for not having enough data and being tainted by your perception and the other is wrong because those ideals are basically impossible to tune into perfectly.
 
+### 2022-04-15 17:59 - trouble sleeping again
+
+today I had a really hard time sleeping as I keep starting to leave my body, or I feel a lightness and tingling sensation all over my body. it basically happens every time that I relax.
+
+what I've been doing lately is going to sleep when I'm really tired, and so I pass through that intermediate zone really rapidly and it doesn't affect me much. the trouble is, for example like today *I just don't feel tired*. it's really annoying because to sleep I basically have to relax a lot and even though I don't get even to a meditative state, it's still enough to start producing really crazy effects.
+
+---
+
+there was another thing. I put down my initial ideas on oahspe, starting with [my serpent](/oahspe/thoughts.md#my-serpent) and ending with [galactic stawman](/oahspe/thoughts.md#galactic-strawman). apparently, I see things a lot differently than most people do, and my perspective is engaging -- so, that's cool I guess. I'm totally down to keep going on this one. I also felt some desire to look into another tome, called something like urantia[^1].
+
+I think that's cool to have a look at those things, but there is a major problem with this whole sleeping thing. the sun is barely even active compared to solar maximum. we only had a m-flare today, and that was blowing my mind, so I can only imagine what it'll be like when we get back to solar maximum. I remember watching it in 2012 (which wasn't maximum either) and it was like ambient "C" x-ray flux and lots of m and x-flares, so it could ramp up even higher than that.
+
+that would make it next to impossible for me to sleep. I think I can keep going, for a while -- like another year or two, but after that, unless there are some major changes, I don't expect I'll be able to make it through solar maximum.
+
+---
+
+as I was laying down to sleep, my mind started to drift off, and I entered into a weird state (kinda like half-dream state) where I lose control over what I'm thinking as in that state I'm at a very low resistance so thoughts are just passing through my head. if I want the state to continue (I think it's called "contiuity of consciousness"), I can't react to the thoughts, or else they see me as "conscious" and I "wake up"...
+
+anyway, there was a stream of thoughts that were passing through my head which ... hang on, let me give background: at the end of marty's UFOs (part 9) they announced that a get-together at some river camping site and when I heard it, I initially rejected the thought thinking, well, there's no way I can go because I don't have money or a way to get there -- but then I started thinking, "if there's a will, there's a way" and so I began to think about how I could figure out how to get down there (I think it's in texas). anyway, the idea felt good to me and I think I took a shower, then the idea made me feel sick to my stomach, did some other things, and then went to sleep.
+
+when I woke up I noticed that the idea no longer felt good to me. this is very often the case, even with simple things like going to jonny's house (*sigh*), and so especially in the case of star-watching, I just forced myself to go out, knowing that I'll feel much better doing it, and then I do. I could do that here too, but I haven't decided yet if I want to even try to figure it out, and additionally I'm so close to "getting conected" that I have this feeling that being around a bunch of good-feeling people will almost certainly push me over the edge...
+
+anyway, a little more info there than was necessary for the background, but there was an underlying feeling (which seemed connected to my stomach feeling sick[^2]) like the whole derek thing wasn't going to work out because I'm going to go with the snake-fam instead.
+
+back to the vision sequence: in the sequence my mind started to think thoughts like, "well it was too far-out (in the distance sense) of an idea and so .. man it's really hard to get back to that idea, so I'll talk it out: it was like there isn't enough time, because I'm too close, and so because I'm so close, I think nosebook wants to rush something through to make sure something is setup, meaning that they'll have to just settle with what they can get because the time pressure is what is forcing a less than optimal thing. the obvious implication here is that I was conscious for part of their dream reaction practising sessions. I can't really say much about how realistic the dream was, as I'm only relaying the experience (so take it with some grains of salt).
+
+well, obviously I reacted to that thought sequence and "woke up".
+
+---
+
+it's kind of a funny conversation to have right after the one about desire. you see, you tune to a feeling that you want to have (usually it's an improvement) and then just let let it attract you there. it's effortless, and that whole vision/thought sequence felt like compromise, time constraints, conflicts of interest, and stuff like that.
+
+
+[1]: of which, I know nothing about, only heard about it from terence along with one about jesus is a mushroom and so looked it up, but I didn't have any desire to read it then (I prefered to program instead), so I skipped it. I don't think I even skimmed it.
+
+[2]: though I'm pretty sure that the sick to my stomach feeling was mr. motor, as it was nearly identical to the sick feeling I felt when melissa, amorina, and patrick came down the last time and I was going to stay the night with amorina. it felt like "the end has come" and "something needs to be done to get rid of this helpless feeling of inablity affect the situation to be the way I want it" -- and mr. motor has gotten a lot better at manipulating and not feeling that dispair so hard, cause he has a lot more capacity to actually influence what he wants, even if he's doing it from a perspective of unwanted.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
