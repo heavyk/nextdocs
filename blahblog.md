@@ -855,7 +855,7 @@ I sit down to eat dinner and watch "the tick s02e03 armless but not harmless" wh
 
 in my head, venus is the right-hand side (the girl), and milo is the stressed out dude on the left. or, seen from the opposite angle, tick is the little girl, desireous and has to do things dispite arthur's suggestions that it's a bad idea, making the left-side stressed out dude, arthur.
 
-this duality between characters is important because milo represents the wanted male aspect, and arthur the unwanted aspect. venus represents the unwanted female aspect, while the tick represents the wanted female aspect.
+this duality between characters is important because milo represents the wanted male aspect, and arthur the unwanted aspect. venus represents the unwanted female aspect, while the tick represents the wanted female aspect[^1].
 
 venus is trying to convince people (seduce, influence) to do her bidding for her. tick is the opposite, fearlessly wanting to accomplish things in the name of justice.
 
@@ -892,6 +892,8 @@ I understand hathor's perspective perfectly, as I too am now pretty similar to h
 I put quotes around "use" because I want to explain that this is a perfect example of expecting a flying saucer when looking for a saviour. I talk about things in a most desireous format and there are countless reactions to how awful said thing would be to the established (and rigid) structure they're a part of. that desire gets translated by them as *destruction*, and so therefore produces fear (negative desire), and that doesn't bother me in the least, because they can certainly attract their destruction all they want to. I only see the improvement.
 
 I had a few more things to say, but I think I'm going to end it here... you're doin great marty!!
+
+[1]: this is revealed in s02e01 see: @[blahblog](2022-04-16 03:42)
 
 ### 2022-04-14 15:45 - what's the point of non-physical? (and desire)
 
@@ -1038,6 +1040,32 @@ so, now I'm going to put the speculation goggles on a little bit, as I think tha
 
 [1]: dtp has an interesting take on atlantis, essentially saying that the hight of atlantis (when zailm was alive) was about 11-12kya, and the sinking actually only occurred 5-6kya ... the sirians said that greed started to show itself known around 30kya, and dtp has the height of atlantis around 24kya. I haven't got far enough into oahspe to say much about its take in it but 24kya is a full cycle back (so at least 8 changes of Gods and Lords).
 
+### 2022-04-16 03:42 - the answer
+
+from the tick s02e01:
+
+    from the outside, on the surface,
+    oh sure, we were *pursued* by swiss industrial espionage
+
+    *trapped* in the belly of a whale
+
+    what really *pursued* us?
+    where were we really *trapped*?
+    come on arthur, get meta with me
+
+    what *pursued* us were our own obsessions
+
+    I'm good, you're evil
+    I'm a superhero, you're a sidekick
+    I'm a woman, you're a man
+
+    what does it all mean? nothing
+    and where we all *trapped*? in the belly of love
+
+(inside the "belly of love" was carmelita's father, the inventor of arthur's flying suit)
+
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
+
