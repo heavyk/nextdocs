@@ -967,7 +967,7 @@ when I woke up I noticed that the idea no longer felt good to me. this is very o
 
 anyway, a little more info there than was necessary for the background, but there was an underlying feeling (which seemed connected to my stomach feeling sick[^2]) like the whole derek thing wasn't going to work out because I'm going to go with the snake-fam instead.
 
-back to the vision sequence: in the sequence my mind started to think thoughts like, "well it was too far-out (in the distance sense) of an idea and so .. man it's really hard to get back to that idea, so I'll talk it out: it was like there isn't enough time, because I'm too close, and so because I'm so close, I think nosebook wants to rush something through to make sure something is setup, meaning that they'll have to just settle with what they can get because the time pressure is what is forcing a less than optimal thing. the obvious implication here is that I was conscious for part of their dream reaction practising sessions. I can't really say much about how realistic the dream was, as I'm only relaying the experience (so take it with some grains of salt).
+back to the vision sequence: in the sequence my mind started to think thoughts like, "well it was too far-out (in the distance sense) of an idea and so .. man it's really hard to get back to that idea, so I'll talk it out: it was like there isn't enough time, because I'm too close, and so because I'm so close, I think nosebook wants to rush something through to make sure something is setup, meaning that they'll have to just settle with what they can get because the time pressure is what is forcing a less than optimal thing. the obvious implication here is that I was conscious for part of their dream reaction practising sessions. I can't really say much about how realistic the dream was, as I'm only relaying the dream-state as I experenced it (so take it with some grains of salt).
 
 well, obviously I reacted to that thought sequence and "woke up".
 
@@ -979,6 +979,64 @@ it's kind of a funny conversation to have right after the one about desire. you 
 [1]: of which, I know nothing about, only heard about it from terence along with one about jesus is a mushroom and so looked it up, but I didn't have any desire to read it then (I prefered to program instead), so I skipped it. I don't think I even skimmed it.
 
 [2]: though I'm pretty sure that the sick to my stomach feeling was mr. motor, as it was nearly identical to the sick feeling I felt when melissa, amorina, and patrick came down the last time and I was going to stay the night with amorina. it felt like "the end has come" and "something needs to be done to get rid of this helpless feeling of inablity affect the situation to be the way I want it" -- and mr. motor has gotten a lot better at manipulating and not feeling that dispair so hard, cause he has a lot more capacity to actually influence what he wants, even if he's doing it from a perspective of unwanted.
+
+### 2022-04-16 00:57 - 7th rays and stuff
+
+I woke up thinking this morning about the "trojan horse" that I mentioned yesterday. I think I can shed some light on it.
+
+there are two main 7th ray males that show up in the sirian-guide, thoth and allayandra. they define 7th rays as creating the material form which will then hold life.
+
+they do this with magic, ceremony, law, and order. I'm not much on ceremony, I don't really enjoy illusion, I'm not much for law or order either. this puts me much more into the category of 1st ray male, rather than a 7th ray.
+
+as such, I identify much more with allayandra than I do with thoth. I'm pretty destructive and you could consider me more of a ceremonial destroyer than a ceremonial creator.
+
+---
+
+I could have contacted marty and stuff and I could have given him my ideas and stuff, but his last installment pointing out the pattern of this "venus" character really got me thinking, because I noticed the same thing a whole bunch too.
+
+his last installment actually was more valuable to me than anything because it got me on the track of seeing "aliens" and "angels" as very similar.
+
+when I woke up this morning, the last dream I had, we were on an alien spacecraft and we were in the process of "crashing" on earth. there was no risk for our lives, as it was certain we would survive the crash, but the whole thing was that we (and I think I looked pretty much like I do now) all looked pretty human, and so it was sorta the thing like, "surprise we're aliens and you look like we do". the other thing that was weird is I think the "aliens" were created beings, exactly like we would think of as "angels".
+
+---
+
+in yesterday's thoughts on oahspe, I was contemplating the book's claim that osiris had thoth create the great according to exact dimensions, so that osiris' angels' corporeal bodies could be sustained... which is exactly the same conclusion that I came up with a few weeks earlier when writing box-consciousness -- and these giant "power stations" that egypt had were to sustain and stabilise the mental faculties of a number of fallen-angels (which, if you read that are the key part of negative creation).
+
+you can also look at the difference between allyandra and thoth and see that while thoth is creation by illusion (you have to see them to believe in them), allayandra is creation by destruction. in hindu, he's more like shiva the destroyer.
+
+OH, very interesting! I just noticed that it said that the sirian guide says that the 3rd ray is shiva. there are three 3rd rays in sirian guide: sanatau, ra, and venus. (and, if you consider that vulcan in opposite polarity could be considered as a 3rd ray, that means that vulcan could possibly as well). however, in other places it says that the "destroyer" is the 1st ray *not* the 3rd ray, the 3rd ray having a much more physically creative role.
+
+---
+
+in oahspe, it looks like the initiator of ceremonial activity was anubis creating ceremonial rites and stuff. his job was to weigh (measure) a person's soul to see how worthy they are. he also created all of these degrees where one could attain perfection through processes and tests.
+
+in the sirian guide, it says of osiris',
+
+> He is the great example and motivator in action of the people. His vehicle had evolved from a canine like race. His color is red and white
+
+the motivator in action fits the description, but in all pictures of anubis, he's clearly black, not red and white. additionally, osiris is often shown with green skin (and the white bowling-pin hat rather than the red one). however, red and white is the combination of upper and lower egypt, so that's probably what it means there. 
+
+I don't really see anything else fitting into the description of osiris other than just the loose reference to the canine format. that's not what I wanted to talk about though.
+
+---
+
+one more piece: the sirian-guide says in various places that all four of the triads were present on earth at the same time, however the 1st ray was withdrawn first (50kya, the same time as the trojan horse), and then genxicat was withdrawn near to the end of atlantis[^1] when grosser material was starting to take on form. it's unclear to me how all of it fits together because in another place, DK (850201) talks about these ray cycles being 2100y long, going 1 -> 7, then starting over again, making that this cycle 14700y long, meaning that genxicat was retracted from atlantis roughly the last time 7th ray 
+
+[quick break... can't think correctly]
+
+the other major thing that the sirian-guide talks about is how the 7th ray can conjure 3d matter and image illusions that people can interact with, and that the atlantians later on didn't have much of a "concrete mind" (so kinda like dream-state), and so therefore with a lack of a concrete mind, the illusion could move around and behave according to the will of the creator of the illusion.
+
+*however*, if one wanted that illusion to become alive and begin to operate all by itself, the 7th ray would need a 1st ray to animate and "breath life" into the illusion. khnum is such an egyptian god that does just that, taking clay, making into the desired form and then giving it life.
+
+this is the capacity that allayandra + anatau have when working together.
+
+---
+
+so, now I'm going to put the speculation goggles on a little bit, as I think that that the "trojan horse" was actually a 7th ray male destroyer.
+
+
+
+[1]: dtp has an interesting take on atlantis, essentially saying that the hight of atlantis (when zailm was alive) was about 11-12kya, and the sinking actually only occurred 5-6kya ... the sirians said that greed started to show itself known around 30kya, and dtp has the height of atlantis around 24kya. I haven't got far enough into oahspe to say much about its take in it but 24kya is a full cycle back (so at least 8 changes of Gods and Lords).
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
