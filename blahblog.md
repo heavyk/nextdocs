@@ -969,7 +969,7 @@ when I woke up I noticed that the idea no longer felt good to me. this is very o
 
 anyway, a little more info there than was necessary for the background, but there was an underlying feeling (which seemed connected to my stomach feeling sick[^2]) like the whole derek thing wasn't going to work out because I'm going to go with the snake-fam instead.
 
-back to the vision sequence: in the sequence my mind started to think thoughts like, "well it was too far-out (in the distance sense) of an idea and so .. man it's really hard to get back to that idea, so I'll talk it out: it was like there isn't enough time, because I'm too close, and so because I'm so close, I think nosebook wants to rush something through to make sure something is setup, meaning that they'll have to just settle with what they can get because the time pressure is what is forcing a less than optimal thing. the obvious implication here is that I was conscious for part of their dream reaction practising sessions. I can't really say much about how realistic the dream was, as I'm only relaying the dream-state as I experenced it (so take it with some grains of salt).
+back to the vision sequence: in the sequence my mind started to think thoughts like, "well it was too far-out (in the distance sense) of an idea and so .. man it's really hard to get back to that idea, so I'll talk it out: it was like there isn't enough time, because I'm too close, and so because I'm so close, I think nosebook wants to rush something through to make sure something is setup, meaning that they'll have to just settle with what they can get because the time pressure is what is forcing a less than optimal thing. the obvious implication here is that I was conscious for part of their dream-state reaction practising sessions. I can't really say much about how realistic the dream was, as I'm only relaying the dream-state as I experenced it (so take it with some grains of salt).
 
 well, obviously I reacted to that thought sequence and "woke up".
 
@@ -1064,6 +1064,56 @@ from the tick s02e01:
 
 (inside the "belly of love" was carmelita's father, the inventor of arthur's flying suit)
 
+### 2022-04-16 04:12 - ritual destruction
+
+I don't feel like trying to go back and edit @[blahblog](2022-04-16 00:57), so I'll just leave it a mess. the first major reaction was to me saying that ... man, I'm really having a hard time thinking!! .. saying that the 7th ray creates illusions and by nature, the illusion is subject to the control of the creator of that illusion (when I say illusion, I mean of physical or astral "material"), but if the 7th ray creator of the illusion wants something other than a puppet,somethting that is actually alive, the 7th ray needs a 1st ray to "animate" or "breathe life into" that illusion.
+
+this I believe is the origin of a lot of these "angels" and aliens, and if my theory is correct, osiris had the great pyramid and the whole egyptian layout constructed to make box consciousness a reality. osiris would have partnered with allayandra and anatau to create a bunch of angels that would be sustained by box-consciousness.
+
+why? well, everything is opposite polarity, so instead of ritual/ceremonial creation/perfection, these entites are designed to embody ritual/ceremonial destruction/deterioration, and so because of their constantly deteriorating state, they desire for genetic improvements, which I believe various people like jesus and others have done with their perception.
+
+this whole thing is creating an artificial alpha and omega setup. the fallen-angels are constantly deteriorating so they have to gain control all of the best conditions to survive (alpha), and so therefore they attract the omega which ends the old way and rebirths into a new upgraded things (which is what the fallen-angels need for continued survival).
+
+the important thing is the "rebirth" principle, as each of these reborn (baptised) deities, when they return back, they come with an upgrade. therefore, what this whole "trojan horse" setup is creation through ritual destruction.
+
+---
+
+I think this ritual destruction was taught and encouraged to ... well, I'll just quote DK (850301) on this:
+
+    The history of man as you know him today only begins with the destruction of Atlantis. [...] humanity at the time of Atlantis existed as much on the astral plane as on the physical. It was difficult for them to distinguish when something was physical or when it was astral. They could quite easily slip from their physical into what you refer as an astral projection.
+    
+    [...]
+    
+    ***With the destruction of the land known as Atlantis, the downward spiral of humanity into gross matter was completed.*** Millions upon millions of people, or physical vehicles, ceased to exist when Atlantis was destroyed. They were forced to begin incarnating into other vehicles that existed and were acclimated to different parts of the globe. These vehicles did not have the unique conditions that caused the separation of spirit and matter. However, the incarnating Atlantean entities retained the instinct for the continued existence of spirit. They continued to have the instinct for the realm that you call the Astral plane.
+
+what he's saying is that there were a lot of entites during the time of atlantis that used the electromagnetic conditons of the island to sustain their ability to perceive and interact with the astral.
+
+however, since ritual destruction (blood sacrifice, etc) became the new 7th ray norm, it was normal for them to attract the destruction of atlantis, and so they attracted the destruction of their own physical conditions that allowed them to perceivce the astral. this appears to be intentional as an alpha/omega project, because now these 7th ray individuals now desire to have the conditions that can sustain their astral perception, which is perfect time for the omega to show up and perform his own ritual destruction and rebirth. let's continue...
+
+    Not all of the entities were destroyed with the sinking of Atlantis. Those that survived carried their knowledge with them to other parts of the world. They introduced into other cultures conceptions of the Astral world. And they were introduced to the conception of death as other consciousnesses perceived them.
+
+    Many of them began to record their experiences as they encountered different cultures. They discovered that their environment that they had was rather unique. Other cultures did not have the same loosening of the energies that resulted in the loose connection between spirit and matter.
+
+diversity. the monoculture had to be destroyed so that it could diffuse into the less-sophisticated populations nearby. robert sepehr does a great job showing how the cro magnon is a genetically modern human and this diffused out to all portions of the earth after the destruction of atlantis (thank the phonecians). anyway, the same thing happened with latin culture with the destruction of the roman empire.
+
+in the next lecture, he adds something saying that the physical plane is quite recent: "The physical plane as it exists and has existed for thirteen thousand five hundred years is indeed a miserable place."
+
+which means that the whole point of atlantis was to get these fallen-angel entities trapped[^1] into physical matter along with the rest of humankind and to set into motion the alpha/omega ritual/ceremonial destruction/rebirth (baptism) cycles.
+
+---
+
+so here's where I'm going to potentially cause problems. the reason why I say as a "trojan horse", it's probably a good thing disguised as a bad thing is because all of this just the precursor to the "day of rest" -- the 7th day/ray of effortless power and manifestation. it's all built on the concepts of ritual destruction and rebirth.
+
+    we make ritual noise
+    we weave the fabric of dreams
+    we build cities of sound
+    we feel the rhythm of time
+    we live dangerous lives
+    we have the power of will
+    we twist logic around
+    we feed the engines of change
+
+[1]: trapped, huh? it sounds like @[blahblog](2022-04-16 03:42) to me; trapped in the belly *of love*.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
