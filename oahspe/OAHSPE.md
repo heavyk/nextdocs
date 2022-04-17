@@ -1711,9 +1711,10 @@ END OF BOOK OF SETHANTES, SON OF JEHOVIH
 06/4.19. And the Lord bewailed the earth and the generations of man: I made man upright and walked by his side, but he slipped aside and fell, said the Lord. I admonished[^207] him, but he would not heed. I showed him that every living creature brought forth its own kind; but he did not understand, did not believe; and he dwelt with beasts; falling lower than all the rest.
 
 END OF THE FIRST BOOK OF THE FIRST LORDS
-Book of Ah’shong, Son of Jehovih
 
-God of the second cycle after man’s creation.
+## Book of Ah’shong, Son of Jehovih
+
+***God of the second cycle after man’s creation.***
 
 ### CHAPTER 1 Ah’shong
 
@@ -2057,7 +2058,9 @@ God of the second cycle after man’s creation.
 
 07/9.33. Thus again, the kingdoms of God and his Lords were reduced to impotence; the harvests of Brides and Bridegrooms had long since ceased to be.
 
-07/9.34. At the end of the second cycle there were six billion angels in atmospherea, who, for the most part, were in darkness; not knowing who they were, or where they dwelt; neither knowing nor caring whether or not there were other heavens.
+07/9.34. At the 
+
+end of the second cycle there were six billion angels in atmospherea, who, for the most part, were in darkness; not knowing who they were, or where they dwelt; neither knowing nor caring whether or not there were other heavens.
 
 END OF BOOK OF AH’SHONG, SON OF JEHOVIH
 
@@ -2148,7 +2151,8 @@ END OF BOOK OF AH’SHONG, SON OF JEHOVIH
 END OF THE SECOND BOOK OF LORDS
 
 ## Synopsis of Sixteen Cycles
-Being forty‑eight thousand years (i.e., two gadols);[^245] covering a period from the creation of man down to the submersion of the continent of Pan, called by the ancients, the flood, or deluge, which was twenty‑four thousand years B.K. (i.e., one gadol Before Kosmon[^246]), selected from the records in the libraries of heaven.
+
+***Being forty‑eight thousand years (i.e., two gadols);[^245] covering a period from the creation of man down to the submersion of the continent of Pan, called by the ancients, the flood, or deluge, which was twenty‑four thousand years B.K. (i.e., one gadol Before Kosmon[^246]), selected from the records in the libraries of heaven.***
 
 ### CHAPTER 1 Synopsis
 
@@ -2333,8 +2337,10 @@ Being forty‑eight thousand years (i.e., two gadols);[^245] covering a period f
 09/3.31. In all these ways, then, I have provided labor for My high-raised angels in the places I created, says Jehovih.
 
 END OF THE SYNOPSIS OF HEAVENLY RECORDS FOR THE FIRST 16 CYCLES
-Book of Aph, Son of Jehovih
-Being the heavenly records of Aph, son of Nin’ya, Most Holy Daughter of Jehovih, and of his companion, Fiatisi, pertaining to the submersion of the continent of Whaga (afterward called Pan, signifying earth). And this period was commonly called the deluge, or flood of waters.
+
+## Book of Aph, Son of Jehovih
+
+***Being the heavenly records of Aph, son of Nin’ya, Most Holy Daughter of Jehovih, and of his companion, Fiatisi, pertaining to the submersion of the continent of Whaga (afterward called Pan, signifying earth). And this period was commonly called the deluge, or flood of waters.***
 
 ### CHAPTER 1 Aph
 
@@ -2950,7 +2956,7 @@ END OF BOOK OF APH, SON OF JEHOVIH
 
 ### CHAPTER 1 Lords’ First
 
-The History of the Flood
+***The History of the Flood***
 
 11/1.1. Hear me, O man, I am the Lord, the God of earth, Son of Jehovih! I am one of your elder brothers. I, your Lord, with my brother Lords and Gods, in the name of Jehovih, speak, saying:
 
@@ -3154,7 +3160,7 @@ The History of the Flood
 
 ### CHAPTER 3 Lords’ First
 
-The Scriptures of that day
+***The Scriptures of that day***
 
 11/3.1. God said: So that my people may remain upright, behold, I give to them and their successors forever, certain sacred words which shall be to them the bond of my covenant.
 
@@ -3287,8 +3293,10 @@ The Scriptures of that day
 11/3.65. In all, there were two hundred and eighty signs, emblems, symbols, and implements given by the Lord to his people; and when they were all completed the Lord taught the prophets the meaning; and these became the sacred language of mortals in all the divisions of the earth.
 
 END OF THE LORDS’ FIRST BOOK
-Book of Sue, Son of Jehovih
-Being the second cycle after the Flood.
+
+## Book of Sue, Son of Jehovih
+
+***Being the second cycle after the Flood.***
 
 ### CHAPTER 1 Sue
 
@@ -3785,8 +3793,10 @@ END OF BOOK OF SUE, SON OF JEHOVIH
 13/3.10. And they no longer obeyed the commandments of God, but mingled with the ground people, bringing forth heirs of darkness.
 
 END OF THE LORDS’ SECOND BOOK
-Book of Apollo, Son of Jehovih
-Being the heavenly administration of Apollo, an etherean God.
+
+## Book of Apollo, Son of Jehovih
+
+***Being the heavenly administration of Apollo, an etherean God.***
 
 ### CHAPTER 1 Apollo
 
@@ -4359,8 +4369,10 @@ END OF BOOK OF APOLLO
 15/3.23. And the Ghans began to wear clothes, like the I’hins; and the latter gave them rites and ceremonies, and taught them how to pray and dance before Jehovih.
 
 END OF THE LORDS’ THIRD BOOK
-Book of Thor, Son of Jehovih
-Being the records of Thor, Apollo’s successor, on the earth and in her heavens, from the arc of Mos to the arc of Dae, in the etherean heavens, and of three thousand two hundred years.
+
+## Book of Thor, Son of Jehovih
+
+***Being the records of Thor, Apollo’s successor, on the earth and in her heavens, from the arc of Mos to the arc of Dae, in the etherean heavens, and of three thousand two hundred years.***
 
 ### CHAPTER 1 Thor
 
@@ -4831,8 +4843,10 @@ END OF BOOK OF THOR
 17/4.24. And Jehovih cast a veil over the face of the sun, and it did not shine brightly for many years.
 
 END OF THE LORDS’ FOURTH BOOK
-Book of Osiris, Son of Jehovih
-God of Lowtsin, an etherean world in the arc of Se’ing, known in the high heavens as Osire, Son of Jehovih.
+
+## Book of Osiris, Son of Jehovih
+
+***God of Lowtsin, an etherean world in the arc of Se’ing, known in the high heavens as Osire, Son of Jehovih.***
 
 ### CHAPTER 1 Osiris
 
@@ -5392,7 +5406,7 @@ END OF THE BOOK OF OSIRIS
 
 ### CHAPTER 1 Lords’ Fifth
 
-Of Vind’yu (Hindu) Scriptures
+***Of Vind’yu (Hindu) Scriptures***
 
 19/1.1. God apportioned certain parts of the earth for the tribes of Shem of the arc of Noe’chi, a heavenly place, seat of mountains, and Lords, All Wise; and from his Wisdom directed Hirto into his pastures.
 
@@ -5712,7 +5726,8 @@ Of Vind’yu (Hindu) Scriptures
 19/7.14. Thus again, after three thousand years, man went down in darkness; again fell under the obsession of drujas, and again became a barbarian.
 
 END OF THE LORDS’ FIFTH BOOK
-Book of Fragapatti, Son of Jehovih
+
+## Book of Fragapatti, Son of Jehovih
 
 ### CHAPTER 1 Fragapatti
 
@@ -7551,7 +7566,8 @@ Book of Fragapatti, Son of Jehovih
 END OF BOOK OF FRAGAPATTI
 
 ## Book of God’s Word
-Being contemporaneous with the cycle of Fragapatti, Son of Jehovih. As the upper book [Book of Fragapatti] is of heavenly things, so is this lower book of the earthly administration of God for the same period of time. And it is called the Book of God’s Word, because it is about the first descent of God to the earth to establish his word with man. Through Zarathustra, a man of Par’si’e, God came for that purpose, eight thousand nine hundred years before the Kosmon era.[^622]
+
+***Being contemporaneous with the cycle of Fragapatti, Son of Jehovih. As the upper book [Book of Fragapatti] is of heavenly things, so is this lower book of the earthly administration of God for the same period of time. And it is called the Book of God’s Word, because it is about the first descent of God to the earth to establish his word with man. Through Zarathustra, a man of Par’si’e, God came for that purpose, eight thousand nine hundred years before the Kosmon era.[^622]***
 
 ### CHAPTER 1 God’s Word
 
@@ -8717,7 +8733,7 @@ Being contemporaneous with the cycle of Fragapatti, Son of Jehovih. As the upper
 
 END OF BOOK OF GOD’S WORD
 
-Book of Divinity
+## Book of Divinity
 Which descended to the earth and became known by the names, Div, and Diva, and Divan laws [Divinity and Divine Laws –ed.]. Being God’s labors in atmospherea, for a period of three thousand and one hundred years, during the passage of the earth from the arc of Loo to the arc of Spe-ta, in etherea; and on the earth, from the time of Zarathustra to the time of Abraham, Brahma, Po and Ea-wah-tah.
 
 ### CHAPTER 1 Divinity
@@ -8922,9 +8938,7 @@ Which descended to the earth and became known by the names, Div, and Diva, and D
 
 22/4.8. Div decreed: His examination being complete, he shall now receive emancipation from all preceding departments and decrees; and he shall have his choice in all places he has passed, unless otherwise specially detailed by his Lord or God of his division. This was the thirty‑second Divan law.
 
-22/4.9. Div decreed: He shall now be entitled to enter the 
-### chapter of the primary soul. His first lessons shall be in colors 
-and sounds, both of corpor and es. First, beginning with gray of not more than three combinations; and when he has mastered these, he shall have four, then five, then ten, then a hundred, and so on, until, when any combination of colors is placed before him, he can instantly perceive every color, shade, and tint, and the apparent velocity of light, and its force (actinic) emanating. And he shall pursue this study until he can create in es the counterpart of anything in corpor, or create in corpor the counterpart of anything in es. And of sounds he shall proceed in the same way; first, learning a combination of three, so that when his teacher produces any three sounds (notes) together, he can hear them and determine the exact velocity of each wave. Then he shall begin with four sounds, then five, then ten, then a hundred, and even a thousand, which, even though made in the same instant, he shall detect every one, and the velocity and force of each. This was the thirty‑third Divan law.
+22/4.9. Div decreed: He shall now be entitled to enter the chapter of the primary soul. His first lessons shall be in colors and sounds, both of corpor and es. First, beginning with gray of not more than three combinations; and when he has mastered these, he shall have four, then five, then ten, then a hundred, and so on, until, when any combination of colors is placed before him, he can instantly perceive every color, shade, and tint, and the apparent velocity of light, and its force (actinic) emanating. And he shall pursue this study until he can create in es the counterpart of anything in corpor, or create in corpor the counterpart of anything in es. And of sounds he shall proceed in the same way; first, learning a combination of three, so that when his teacher produces any three sounds (notes) together, he can hear them and determine the exact velocity of each wave. Then he shall begin with four sounds, then five, then ten, then a hundred, and even a thousand, which, even though made in the same instant, he shall detect every one, and the velocity and force of each. This was the thirty‑third Divan law.
 
 22/4.10. Div decreed: He shall now begin the practice of combining and creating color by sounds, and sounds by colors, both in corpor and es. His teachers shall make explosions with light, and explosions without light, and by using only his eye and ear he shall be able to determine the elements by which the explosions were made. This was the thirty‑fourth Divan law.
 
@@ -9272,7 +9286,7 @@ and sounds, both of corpor and es. First, beginning with gray of not more than t
 
 ### CHAPTER 13 Divinity
 
-Jehovih prepares a way for the birth of Abram, Po, Brahma and Ea‑wah‑tah[^721]
+***Jehovih prepares a way for the birth of Abram, Po, Brahma and Ea‑wah‑tah[^721]***
 
 22/13.1. In the one hundred and eightieth year preceding the dawn of dan; that is to say, two thousand nine hundred and twenty years after Fragapatti and Zarathustra, Jehovih sent swift messengers with six thousand etherean loo’is from the Nirvanian fields of Chen-gotha [Jen‑go‑ha –Ed.] in etherea.
 
@@ -9573,8 +9587,10 @@ Jehovih prepares a way for the birth of Abram, Po, Brahma and Ea‑wah‑tah[^72
 22/18.25. Now, through the entire cycle till dawn of dan’ha, God and his Lords maintained the Diva; and mortals understood the matter somewhat, that there were certain Divine laws in heaven that ruled over mortal kingdoms and empires. So that, the words Div, Diva, and Divine rights, began to be realized as a concerted power in heaven greater than man’s power.
 
 END OF BOOK OF DIVINITY
-Book of Cpenta‑armij, Daughter of Jehovih
-Being of the first deliverance of God’s chosen people.
+
+## Book of Cpenta‑armij, Daughter of Jehovih
+
+***Being of the first deliverance of God’s chosen people.***
 
 ### CHAPTER 1 Cpenta-armij
 
@@ -9718,7 +9734,7 @@ Being of the first deliverance of God’s chosen people.
 
 ### CHAPTER 4 Cpenta-armij
 
-Of the birth of Po, Abram, Brahma and Eawahtah
+***Of the birth of Po, Abram, Brahma and Eawahtah***
 
 23/4.1. For two whole days Cpenta‑armij left the people in recreation, but on the third she ascended the throne; and lo and behold, even in that same moment of time, a light spread abroad over the entire place, so that the people comprehended indeed what was meant by Jehovih’s hand being upon them. And they all resumed their places; at which point Jehovih spoke through Cpenta‑armij, saying:
 
@@ -10173,7 +10189,8 @@ Of the birth of Po, Abram, Brahma and Eawahtah
 END OF BOOK OF CPENTA‑ARMIJ, DAUGHTER OF JEHOVIH
 
 ## First Book of God
-Being contemporaneous with the Book of Cpenta‑armij, Daughter of Jehovih. As the latter book relates to the higher heavens, so the First Book of God deals with the lower heavens and with the earth, for the same period of time. This book treats fully of the four great persons chosen by God, namely: Po, of Jaffeth, inspired by the God Yima; Brahma of Vind’yu, inspired by the God Div; Abram, of Par’si’e, and afterward of Arabin’ya, inspired by the God Vishnu; and Ea‑wah‑tah, of North Guatama, inspired by the God Os. And their inspirations were for the same period of time, known in the kingdoms of heaven as the time of the arc of Spe‑ta. These four Gods were the chief Divan Gods of that day, Ha’chue being Div in Chief.
+
+***Being contemporaneous with the Book of Cpenta‑armij, Daughter of Jehovih. As the latter book relates to the higher heavens, so the First Book of God deals with the lower heavens and with the earth, for the same period of time. This book treats fully of the four great persons chosen by God, namely: Po, of Jaffeth, inspired by the God Yima; Brahma of Vind’yu, inspired by the God Div; Abram, of Par’si’e, and afterward of Arabin’ya, inspired by the God Vishnu; and Ea‑wah‑tah, of North Guatama, inspired by the God Os. And their inspirations were for the same period of time, known in the kingdoms of heaven as the time of the arc of Spe‑ta. These four Gods were the chief Divan Gods of that day, Ha’chue being Div in Chief.***
 
 ### CHAPTER 1 First Book God
 
@@ -10417,7 +10434,7 @@ The first Chinese Bible—being of Po, an Iesu,[^760] chosen by God for the chil
 
 ### CHAPTER 6 First Book God
 
-Of cities and government
+***Of cities and government***
 
 24/6.1. To reinstate the Zarathustrian law, the largest city shall not exceed two thousand souls; and the smallest shall be ten families. Unless they are celibates, in which case a city may be as small as eight souls, having one rab’bah or priest.
 
@@ -11510,8 +11527,9 @@ END OF EAWAHTAH’S HISTORY
 
 END OF FIRST BOOK OF GOD
 
-Book of Wars Against Jehovih
-Or, God’s labors in atmospherea. Containing an account of the establishing on the earth the names: Lord God, De’yus,[^844] Dyaus, Deity, Te‑in, Sudga, Osiris, Baal, and Ashtaroth. Covering a period of two thousand four hundred years, that is, from the time of Abraham, Brahma, Po, and Eawahtah, to the time of Moses, Chine, and Capilya. This book of God pertains to both the earth and lower heavens, and contains an exposition of the labors of the above false Gods; and their fall and environment in hells, all except Baal and Ashtaroth.[^845]
+## Book of Wars Against Jehovih
+
+***Or, God’s labors in atmospherea. Containing an account of the establishing on the earth the names: Lord God, De’yus,[^844] Dyaus, Deity, Te‑in, Sudga, Osiris, Baal, and Ashtaroth. Covering a period of two thousand four hundred years, that is, from the time of Abraham, Brahma, Po, and Eawahtah, to the time of Moses, Chine, and Capilya. This book of God pertains to both the earth and lower heavens, and contains an exposition of the labors of the above false Gods; and their fall and environment in hells, all except Baal and Ashtaroth.[^845]***
 
 ### CHAPTER 1 Wars
 
@@ -11671,7 +11689,7 @@ Or, God’s labors in atmospherea. Containing an account of the establishing on 
 
 ### CHAPTER 8 Wars
 
-Of Anuhasaj; who, by treachery, becomes Lord God, second in rank to God, Son of Jehovih
+***Of Anuhasaj; who, by treachery, becomes Lord God, second in rank to God, Son of Jehovih***
 
 25/8.1. Jehovih spoke to God in Craoshivi, his heavenly place, saying: Behold, I have given great light to the earth and her heavens for hundreds of years; and My Gods and Lords are becoming conceited in their own power and wisdom to rule in heavenly places.
 
@@ -11827,7 +11845,7 @@ Of Anuhasaj; who, by treachery, becomes Lord God, second in rank to God, Son of 
 
 ### CHAPTER 11 Wars
 
-Of the Deity, alias Dyaus, alias De’yus, alias Deus; origin and power in the heavens and on earth
+***Of the Deity, alias Dyaus, alias De’yus, alias Deus; origin and power in the heavens and on earth***
 
 25/11.1. Anuhasaj said: I, the Lord, your God, being the All Highest, through your choice, decree, for the sake of harmony and concert in our labors, the establishment of a De’yus [Congress –Ed.].
 
@@ -11883,7 +11901,7 @@ Of the Deity, alias Dyaus, alias De’yus, alias Deus; origin and power in the h
 
 ### CHAPTER 12 Wars
 
-Anuhasaj, the false God, declares himself against Jehovih
+***Anuhasaj, the false God, declares himself against Jehovih***
 
 25/12.1. Anuhasaj never established the De’yus as projected at first, but took the name De’yus upon himself, and became known in the heavens by that name. When he had thus established Hored in its entirety, he gave a feast to the Gods and Goddesses; and after it had ended, he spoke before them prior to their departure, saying:
 
@@ -12191,7 +12209,7 @@ Anuhasaj, the false God, declares himself against Jehovih
 
 ### CHAPTER 18 Wars
 
-Of the battles of the Gods for the dominion of the earth and the lowest heavens; and these were called battles of a thousand years
+***Of the battles of the Gods for the dominion of the earth and the lowest heavens; and these were called battles of a thousand years***
 
 25/18.1. De’yus was no slow hand; not a dull God. He had two thousand seven hundred years’ experience, and his soul was quick and strong in mighty works. He did not rush in without first measuring the way, most deliberately and with great wisdom.
 
@@ -12229,7 +12247,7 @@ Of the battles of the Gods for the dominion of the earth and the lowest heavens;
 
 ### CHAPTER 19 Wars
 
-Of the hosts of Osiris, the false
+***Of the hosts of Osiris, the false***
 
 25/19.1. Now sallied forth the captains, generals, and well‑disciplined hosts of hada, the angels of De’yus, bent on independence for the earth and heaven from all other rulers except the Lord God, and to establish him forever. Foremost of the three mighty divisions was Osiris’ army, of more than a billion angels, going forth boldly to cover the great lands of the earth: Arabin’ya, Par’si’e and Heleste.
 
@@ -12403,7 +12421,7 @@ Of the hosts of Osiris, the false
 
 ### CHAPTER 24 Wars
 
-Of the Jaffethan assault
+***Of the Jaffethan assault***
 
 25/24.1. Anuhasaj, alias the Lord God, had said to Te‑in, the false, into whose charge he gave Jaffeth and her heavenly places: At the same time that Osiris and his hosts fall upon his divisions of the earth, even in that day and hour you and your hosts shall fall upon Jaffeth (China), possessing the temples, altars, and places of oracles, where they serve the Great Spirit under the name Ormazd, and you shall subdue them to me under the name Joss, who is and ever shall be Ho‑Joss[^930] of heaven and earth.
 
@@ -12459,7 +12477,7 @@ Of the Jaffethan assault
 
 ### CHAPTER 25 Wars
 
-Of the Vind’yuan assault
+***Of the Vind’yuan assault***
 
 25/25.1. Sudga, the false, sent by De’yus to overturn the Great Spirit’s dominion in Vind’yu, and to establish the highest heavenly place, Urvatooz [Hored –Ed.], was wiser than Osiris or Te‑in in his wicked work. For he did not permit his army of one billion to immediately rush for the places of worship and for the oracle‑houses. But most deliberately he halted his forces in Haroyu, the lowest heavenly place over the mountains of Vivrat, in Vind’yu. Situated three miles high, and broad as the earth, it offered a commanding situation.
 
@@ -12597,7 +12615,7 @@ Of the Vind’yuan assault
 
 ### CHAPTER 29 Wars
 
-The Osirian Bible of Arabin’ya, Vind’yu, and Jaffeth
+***The Osirian Bible of Arabin’ya, Vind’yu, and Jaffeth***
 
 25/29.1. On the following day the three false Gods, Osiris, Te‑in and Sudga, wrote their account, each one in his own way. And when they were read, Osiris’ stood clearer than either of the others’; but nevertheless, Te‑in’s and Sudga’s had much of merit. So it came to pass that Osiris’ account was adopted, with interpolations from the others’.
 
@@ -12809,7 +12827,7 @@ The Osirian Bible of Arabin’ya, Vind’yu, and Jaffeth
 
 ### CHAPTER 32 Wars
 
-Of Te-in and his heavenly kingdoms
+***Of Te-in and his heavenly kingdoms***
 
 25/32.1. When Te‑in, whose heavenly kingdom contained three billion angels, was informed when Osiris and Sudga were gone to Hored, satan said to him: Now is your time, call your Council together; proclaim yourself God of heaven and earth, mighty in all regions, the Central Kingdom of the Eternal Heavens! Choose from among your Council those of the highest grades, and make them Lords under you. After which you shall renew the battles in Jaffeth, on the earth.
 
@@ -12933,7 +12951,7 @@ Of Te-in and his heavenly kingdoms
 
 ### CHAPTER 35 Wars
 
-Of Sudga and his heavenly kingdoms
+***Of Sudga and his heavenly kingdoms***
 
 25/35.1. Sudga, the false God of Vind’yu and her heavens, whose heavenly kingdom contained more than three billion angels, said to himself on his way home from Hored: Two things I am resolved upon: to proclaim myself Creator and Ruler of Heaven and Earth; and to change the name of my heavenly place and call it Ahl‑burj, the Mountain of the Clouds.
 
@@ -12979,7 +12997,7 @@ Of Sudga and his heavenly kingdoms
 
 ### CHAPTER 36 Wars
 
-Of Osiris and his heavenly kingdoms
+***Of Osiris and his heavenly kingdoms***
 
 25/36.1. When Osiris, the false God of Arabin’ya and her heavens, left De’yus, in Hored, the self (satan) that was in him, spoke to him, saying: Osiris, you are a fool! You deserve to be ground to dust! Behold your wisdom and power, and yet you cringe to your inferiors on every side. Were you not made as well; and too, as masterly in making others bow to your will and decrees? What more is required for Gods or men, than to make slaves of others, to do him honor and reverence? Then Osiris said:
 
@@ -13830,8 +13848,10 @@ Of Osiris and his heavenly kingdoms
 25/55.16. And now the earth and her heavens crossed the boundaries of the ji’ay’an forests, and rolled slowly towards the homes and dominions of other etherean Gods.
 
 END OF BOOK OF WARS AGAINST JEHOVIH
-Book of Lika, Son of Jehovih
-Known in heaven as the Dawn of Bon, and on earth as the cycle of Moses, Capilya and Chine. Jehovih said: I gave to the earth a time of full earthhood; and, so that the generations of men might know the period, behold, I caused man to build a pyramid in the middle of the world. For it was my mark, that, from that time forward, man would turn from stone temples, and the hope of everlasting flesh‑life, to rejoice in spiritual abodes in my etherean heavens. And I brought the earth out of darkness and encompassed it with the dawn of Bon.
+
+## Book of Lika, Son of Jehovih
+
+***Known in heaven as the Dawn of Bon, and on earth as the cycle of Moses, Capilya and Chine. Jehovih said: I gave to the earth a time of full earthhood; and, so that the generations of men might know the period, behold, I caused man to build a pyramid in the middle of the world. For it was my mark, that, from that time forward, man would turn from stone temples, and the hope of everlasting flesh‑life, to rejoice in spiritual abodes in my etherean heavens. And I brought the earth out of darkness and encompassed it with the dawn of Bon.***
 
 ### CHAPTER 1 Lika
 
@@ -14914,11 +14934,12 @@ Known in heaven as the Dawn of Bon, and on earth as the cycle of Moses, Capilya 
 END OF BOOK OF LIKA, SON OF JEHOVIH
 
 ## Book of the Arc of Bon
-Being a history of Capilya, Moses and Chine, the three great leaders‑forth of the Faithists in the time of Lika, Son of Jehovih. As Lika’s book is of the heavens, so is this book chiefly of earthly affairs in the administration of God.
+
+***Being a history of Capilya, Moses and Chine, the three great leaders‑forth of the Faithists in the time of Lika, Son of Jehovih. As Lika’s book is of the heavens, so is this book chiefly of earthly affairs in the administration of God.***
 
 ### CHAPTER 1 Arc Bon
 
-History of Capilya
+***History of Capilya***
 
 27/1.1. In the mountains of Dharma, in the high country of Yatinghadatta, in Vind’yu, God, Son of Jehovih, chose the family of Capilya for gathering together the scattered Faithists, and establishing them in safety and prosperity.
 
@@ -15464,7 +15485,7 @@ History of Capilya
 
 ### CHAPTER 13 Arc Bon
 
-History of Moses of Egupt
+***History of Moses of Egupt***
 
 27/13.1. God commanded his loo’is, in the high heavens, saying: Descend to the earth, to the land of Egupt, and raise me up a son capable of my voice.
 
@@ -15862,7 +15883,7 @@ History of Moses of Egupt
 
 ### CHAPTER 21 Arc Bon
 
-History of Chine (Tschin’e), of Jaffeth, Founder of China
+***History of Chine (Tschin’e), of Jaffeth, Founder of China***
 
 27/21.1. These are the generations of the seven antecedents of Chine, the chosen of the Great Spirit, Ormazd, otherwise, in Fonecean, Eloih; that is to say:
 
@@ -16868,7 +16889,7 @@ END OF BOOK OF THE ARC OF BON
 
 ### CHAPTER 14 Eskra
 
-God provides for the birth of Ka’yu[^1123]
+***God provides for the birth of Ka’yu[^1123]***
 
 28/14.1. God said: Behold, three conditions are now within the heavens of the earth: Anarchy by the false Gods and their slaves; the confederacy of the Holy Ghost; and the Faithists in Jehovih and His resurrections.
 
@@ -16894,7 +16915,7 @@ God provides for the birth of Ka’yu[^1123]
 
 ### CHAPTER 15 Eskra
 
-God provides for the birth of Sakaya[^1124]
+***God provides for the birth of Sakaya[^1124]***
 
 28/15.1. Again God called before his throne a million loo’is, and appointed Etchessa chief over them, saying:
 
@@ -17178,7 +17199,8 @@ The meaning and origin of the term, Holy Ghost!
 
 ### CHAPTER 20 Eskra
 
-Of the Confederacy of the Holy Ghost, called, the Trinity:
+***Of the Confederacy of the Holy Ghost, called, the Trinity:***
+
 First, of the Triune God Looeamong; and of Baal and Ashtaroth
 
 28/20.1. The Lord said: The three heavenly kingdoms, Haractu, Eta‑shong and Hapsendi, of the Triunes, were independent, but allianced for offense and defense against the evil Gods, Baal, Dagon, Shulleth, Ashtaroth and others, whose angel subjects were kept in slavery, and for evil purposes.
@@ -17283,7 +17305,7 @@ First, of the Triune God Looeamong; and of Baal and Ashtaroth
 
 ### CHAPTER 22 Eskra
 
-Of Kabalactes, Triune God of Vind’yu, and her heavens
+***Of Kabalactes, Triune God of Vind’yu, and her heavens***
 
 28/22.1. Kabalactes said: Since Vind’yu and her heavens are to be mine forever, I will take my own time, and make a sure foundation. First, then, I will build me a heavenly city, Haractu, twelve miles high above the mountains of Yammalaga, and the wings of it shall spread out, broad as the land of Vind’yu.
 
@@ -17379,7 +17401,7 @@ Of Kabalactes, Triune God of Vind’yu, and her heavens
 
 ### CHAPTER 23 Eskra
 
-Of Ennochissa, Triune God over Chine’ya
+***Of Ennochissa, Triune God over Chine’ya***
 
 28/23.1. Ennochissa spoke before his Lords, saying: According to the splendor of a kingdom, so is its ruler glorified; this I have learned. Therefore Eta‑shong shall surpass all other heavenly places.
 
@@ -17423,7 +17445,7 @@ Of Ennochissa, Triune God over Chine’ya
 
 ### CHAPTER 24 Eskra
 
-Birth of Sakaya
+***Birth of Sakaya***
 
 28/24.1. Sakaya was born in Hagotha, province of Nao’wan, on the borders of Nepal; but because his birth had been foretold by the Faithist prophets, and that he would re-establish the doctrines of Capilya, the place of birth was afterward called Capilya’wahtu.
 
@@ -17519,7 +17541,7 @@ Birth of Sakaya
 
 ### CHAPTER 26 Eskra
 
-Sakaya’s doctrines
+***Sakaya’s doctrines***
 
 28/26.1. Sakaya said: You cannot associate with all men, for many are of diverse tastes and habits.
 
@@ -17761,7 +17783,7 @@ END OF THE HISTORY OF SAKAYA
 
 ### CHAPTER 31 Eskra
 
-Birth of Ka’yu, otherwise Confucius
+***Birth of Ka’yu, otherwise Confucius***
 
 28/31.1. Thoanactus, Chief of the million loo’is sent by God down to the earth, to Chine’ya, to raise up an heir capable of the voice of God, sent word to God in Paradise, saying:
 
@@ -17889,7 +17911,7 @@ Birth of Ka’yu, otherwise Confucius
 
 ### CHAPTER 34 Eskra
 
-Doctrines of the base
+***Doctrines of the base***
 
 28/34.1. What were the old foundations?
 
@@ -18225,7 +18247,7 @@ END OF THE HISTORY OF KA’YU
 
 ### CHAPTER 38 Eskra
 
-Again of the Triunes
+***Again of the Triunes***
 
 28/38.1. When the Triune Gods perceived the great work accomplished by God, Jehovih’s Son, in Vind’yu and Chine’ya, thus going to the foot of the resurrection, they were sorely troubled over the ultimate prospect of their own heavenly kingdoms.
 
@@ -18485,7 +18507,7 @@ Again of the Triunes
 
 ### CHAPTER 42 Eskra
 
-Birth of Joshu
+***Birth of Joshu***
 
 28/42.1. God, Jehovih’s Son, was wise above all these trials, for he had the light of Jehovih’s kingdoms with him.
 
@@ -18555,7 +18577,7 @@ Birth of Joshu
 
 ### CHAPTER 44 Eskra
 
-Doctrines of Joshu and his death
+***Doctrines of Joshu and his death***
 
 28/44.1. God said: These were my doctrines, as I taught through Joshu:[^1172]
 
@@ -18681,7 +18703,7 @@ Doctrines of Joshu and his death
 
 ### CHAPTER 46 Eskra
 
-Satan enters the Holy Council of Hapsendi, and speaks to Looeamong, the Triune
+***Satan enters the Holy Council of Hapsendi, and speaks to Looeamong, the Triune***
 
 28/46.1. Satan said: Hear me, O most upright of Gods. Mine is a tale of pity and of horrors for your people.
 
@@ -18703,7 +18725,7 @@ Satan enters the Holy Council of Hapsendi, and speaks to Looeamong, the Triune
 
 ### CHAPTER 47 Eskra
 
-Looeamong falsely announces himself the Kriste (Christ)
+***Looeamong falsely announces himself the Kriste (Christ)***
 
 28/47.1. The Lord said: Behold, it came to pass as had been foretold by God, Jehovih’s Son: The Triunes will all become false Gods, because they have denied the Almighty.
 
@@ -18909,7 +18931,7 @@ Looeamong falsely announces himself the Kriste (Christ)
 
 ### CHAPTER 49 Eskra
 
-Origin of Mohammedanism (Islam)
+***Origin of Mohammedanism (Islam)***
 
 28/49.1. The Lord said: After Looeamong had cast out all other false Gods in his earth dominions, he set to work enriching his heavenly home, employing no less than seven billion angel slaves for that purpose.
 
@@ -19105,7 +19127,7 @@ Origin of Mohammedanism (Islam)
 
 ### CHAPTER 52 Eskra
 
-God judges the four false Gods
+***God judges the four false Gods***
 
 28/52.1. The Lord said: Hear, O you of earth, and you of its heavens; hear of the labor of God, Son of Jehovih. ||
 
@@ -19155,7 +19177,7 @@ God judges the four false Gods
 
 ### CHAPTER 53 Eskra
 
-God continues to judge the four false Gods
+***God continues to judge the four false Gods***
 
 28/53.1. In the name of the Almighty, greeting to you.
 
@@ -19221,7 +19243,7 @@ God continues to judge the four false Gods
 
 ### CHAPTER 54 Eskra
 
-God chastises the four false Gods separately
+***God chastises the four false Gods separately***
 
 28/54.1. In Jehovih’s name, greeting to you, Looeamong.
 
@@ -19309,7 +19331,7 @@ God chastises the four false Gods separately
 
 ### CHAPTER 55 Eskra
 
-God continues his chastisement against the four false Gods
+***God continues his chastisement against the four false Gods***
 
 28/55.1. God said: In the name of Jehovih, how can I find an excuse for your behavior?
 
@@ -19341,7 +19363,7 @@ God continues his chastisement against the four false Gods
 
 ### CHAPTER 56 Eskra
 
-God continues his chastisement of the four false Gods
+***God continues his chastisement of the four false Gods***
 
 28/56.1. In the name of the Almighty, my brothers, look at the glory you boast of!
 
@@ -19369,7 +19391,7 @@ God continues his chastisement of the four false Gods
 
 ### CHAPTER 57 Eskra
 
-God prophesies to the four false Gods, Looeamong, Ennochissa, Kabalactes and Gabriel
+***God prophesies to the four false Gods, Looeamong, Ennochissa, Kabalactes and Gabriel***
 
 28/57.1. God said: In the name of the All Highest, greeting, my brothers.
 
@@ -19411,7 +19433,7 @@ God prophesies to the four false Gods, Looeamong, Ennochissa, Kabalactes and Gab
 
 ### CHAPTER 58 Eskra
 
-God pleads with the four false Gods
+***God pleads with the four false Gods***
 
 28/58.1. God said: In the name of Jehovih, greeting to you.
 
@@ -19459,7 +19481,7 @@ God pleads with the four false Gods
 
 ### CHAPTER 59 Eskra
 
-The four false Gods’ reply to God, Jehovih’s Son
+***The four false Gods’ reply to God, Jehovih’s Son***
 
 28/59.1. In the names of the Son, the Father and the Holy Ghost, greeting to you, God, Jehovih’s Son.
 
@@ -19592,8 +19614,10 @@ The four false Gods’ reply to God, Jehovih’s Son
 28/60.43. The Voice ceased, and now God declared a day of recreation, so that the ethereans and atmosphereans could mingle together, and rejoice before Jehovih. And so, the next day Hyaponitissa departed, leaving the requisite etherean laborers with God.
 
 END OF GOD’S BOOK OF ESKRA
-Book of Es, Daughter of Jehovih
-[^1196]Being a heavenly history of the earth and her heavens, and of etherea, from four hundred years before kosmon, to the dawn of the Kosmon era.
+
+## Book of Es, Daughter of Jehovih
+
+***[^1196]Being a heavenly history of the earth and her heavens, and of etherea, from four hundred years before kosmon, to the dawn of the Kosmon era.***
 
 ### CHAPTER 1 Es
 
@@ -19785,7 +19809,7 @@ Book of Es, Daughter of Jehovih
 
 ### CHAPTER 4 Es
 
-The alarm in Haractu, heavenly place of Kabalactes, the false, but reigning Buddha
+***The alarm in Haractu, heavenly place of Kabalactes, the false, but reigning Buddha***
 
 29/4.1. Kabalactes said: My most high Holy Council, Lords of heaven and earth, listen. Today, my scouts on the borders of Vridat, my suburban kingdom in Tua, saw a light descending, like a world on fire. Consternation came upon my dutiful subjects, fearing some foreign God menaced their liberties. To appease them, Hathav, my Lord in command, dispatched messengers here, to know my will.
 
@@ -19817,7 +19841,7 @@ The alarm in Haractu, heavenly place of Kabalactes, the false, but reigning Budd
 
 ### CHAPTER 5 Es
 
-The alarm in Eta-shong, heavenly kingdom of Ennochissa, the false but reigning God, Brahma
+***The alarm in Eta-shong, heavenly kingdom of Ennochissa, the false but reigning God, Brahma***
 
 29/5.1. While Ennochissa and his Holy Council were assembled in the palace of Eta-shong, messengers came there from no less than thirty-six of Ennochissa’s sub-kingdoms, alarmed, and with magnified accounts of the fire-ship seen descending to Paradise.
 
@@ -19837,7 +19861,7 @@ The alarm in Eta-shong, heavenly kingdom of Ennochissa, the false but reigning G
 
 ### CHAPTER 6 Es
 
-The alarm in Kalla-Hored, the heavenly kingdom of God-Gabriel, alias Thoth; the Mohammedan heaven
+***The alarm in Kalla-Hored, the heavenly kingdom of God-Gabriel, alias Thoth; the Mohammedan heaven***
 
 29/6.1. When the Lords of the Holy Council of Kalla-Hored, the heaven of the false Mohammed, had expressed their hopes and fears regarding the fire-ship descending to Paradise, Thoth, alias Gabriel, said:
 
@@ -19865,7 +19889,7 @@ The alarm in Kalla-Hored, the heavenly kingdom of God-Gabriel, alias Thoth; the 
 
 ### CHAPTER 7 Es
 
-The alarm in Hapsendi, heavenly kingdom of Looeamong, the false Kriste
+***The alarm in Hapsendi, heavenly kingdom of Looeamong, the false Kriste***
 
 29/7.1. Even as at the heavenly kingdoms of the other three false Gods, so was the alarm in Hapsendi, capital of the heavenly kingdom of Looeamong, who had falsely assumed to be Kriste.
 
@@ -19891,7 +19915,7 @@ The alarm in Hapsendi, heavenly kingdom of Looeamong, the false Kriste
 
 ### CHAPTER 8 Es
 
-Of God in Paradise
+***Of God in Paradise***
 
 29/8.1. Es said: After the Light of Jehovih came to God, saying: Go, provide mortals to cross the ocean, to build up the western continent, || God ceased striving to redeem the four heavenly kingdoms of the four false Gods, but directed his energies toward regaining a broader earth-anchorage, for the sake of Jehovih’s kingdom.
 
@@ -20183,7 +20207,7 @@ Cotton Mather.” [^1209]
 
 ### CHAPTER 13 Es
 
-The Republic established
+***The Republic established***
 
 29/13.1. Es said: For three hundred years, God’s loo’is had been providing the generations of men for the coming work of God.
 
@@ -20313,7 +20337,7 @@ The Republic established
 
 ### CHAPTER 15 Es
 
-God, Jehovih’s Son, casts out the four false Gods
+***God, Jehovih’s Son, casts out the four false Gods***
 
 29/15.1. When the right time came, Jehovih spoke to God, Saying: My Son, behold, the Kosmon era is near, and the light of the arc of su’is enters the fields of Paradise. Stretch forth your hand over the nations of the earth and over the heavens of them, and sweep your kingdoms clean for My everlasting light.
 
@@ -20369,7 +20393,7 @@ God, Jehovih’s Son, casts out the four false Gods
 
 ### CHAPTER 16 Es
 
-God delivers the four false Gods out of the four hells
+***God delivers the four false Gods out of the four hells***
 
 29/16.1. Es said: Now God, Jehovih’s Son, was master of the whole earth and her heavens.
 
@@ -20407,7 +20431,7 @@ God delivers the four false Gods out of the four hells
 
 ### CHAPTER 17 Es
 
-Jehovih judges the false Gods and Goddesses
+***Jehovih judges the false Gods and Goddesses***
 
 29/17.1. Es said: The Voice spoke out of the light over the throne of God, saying:
 
@@ -20541,7 +20565,7 @@ Jehovih judges the false Gods and Goddesses
 
 ### CHAPTER 19 Es
 
-The Dawn of Kosmon
+***The Dawn of Kosmon***
 
 29/19.1. Es said: Now, while the Holy Council were still sitting in Paradise, a light, like a star, came and stood above the throne of God. And the Voice came out of the light, saying:
 
@@ -20581,7 +20605,7 @@ The Dawn of Kosmon
 
 ### CHAPTER 20 Es
 
-Jehovih overthrows slavery in Guatama
+***Jehovih overthrows slavery in Guatama***
 
 29/20.1. Es said: In the ancient times, and in the eastern countries, Jehovih began His revelations. The western continent He left for the finishing of that.
 
@@ -20675,7 +20699,7 @@ Jehovih overthrows slavery in Guatama
 
 ### CHAPTER 21 Es
 
-Ascent of the etherean hosts
+***Ascent of the etherean hosts***
 
 29/21.1. Es said: God, Jehovih’s Son, was relieved of his arduous toils over the earth and her heavens; and his successor and the Lords were duly crowned.
 
@@ -21814,7 +21838,7 @@ END OF BOOK OF OURANOTHEN
 
 ### CHAPTER 3 Judgment
 
-The Judgment upon the Brahmins, the Buddhists, the Kriste’yans, the Mohammedans, the Confucians, the Jews and all other peoples on earth, in the words of God
+***The Judgment upon the Brahmins, the Buddhists, the Kriste’yans, the Mohammedans, the Confucians, the Jews and all other peoples on earth, in the words of God***
 
 32/3.1. Do not think, O man, that I am insufficient to the times and seasons. Or say that God spoke in the dark days of the earth, but latterly holds his tongue.
 
@@ -21912,7 +21936,7 @@ The Judgment upon the Brahmins, the Buddhists, the Kriste’yans, the Mohammedan
 
 ### CHAPTER 4 Judgment
 
-The numbers of the Judgment, in the words of God
+***The numbers of the Judgment, in the words of God***
 
 32/4.1. Hear the words of your God, O man; I am your elder brother, the captain of heaven and earth.
 
@@ -21976,7 +22000,7 @@ The numbers of the Judgment, in the words of God
 
 ### CHAPTER 5 Judgment
 
-Of the Jews
+***Of the Jews***
 
 32/5.1. Hear the words of your God, O Israel. Do not shut yourself up against the wisdom of your elder brother, God of heaven and earth.
 
@@ -22042,7 +22066,7 @@ Of the Jews
 
 ### CHAPTER 6 Judgment
 
-Of resurrection. In the words of God
+***Of resurrection. In the words of God***
 
 32/6.1. Whether on earth or in heaven, the same rules apply to both:
 
@@ -22716,7 +22740,7 @@ Of resurrection. In the words of God
 
 ### CHAPTER 18 Judgment
 
-God judges religions of the world’s people
+***God judges religions of the world’s people***
 
 32/18.1. Hear the words of your God, you who are priests and preachers and rab’bahs, and all you who have set yourselves up before men, professing to hold the key to salvation and the places of my resurrections in heaven.
 
@@ -22762,7 +22786,7 @@ God judges religions of the world’s people
 
 ### CHAPTER 19 Judgment
 
-God gives a new religion
+***God gives a new religion***
 
 32/19.1. God said: Hear the words of your God, all you preachers, priests and rab’bahs; and do not seek to gainsay my words.[^1272]
 
@@ -22816,7 +22840,7 @@ God gives a new religion
 
 ### CHAPTER 20 Judgment
 
-God declares a day of Judgment, and he also bequeaths liberty to all men
+***God declares a day of Judgment, and he also bequeaths liberty to all men***
 
 32/20.1. God said: There shall be a day of judgment to you, O man. Sooner or later, you shall take the matter into your own hand; and you shall look into your own soul to judge yourself. This comes to all men; none can escape it.
 
@@ -22890,7 +22914,7 @@ God declares a day of Judgment, and he also bequeaths liberty to all men
 
 ### CHAPTER 21 Judgment
 
-God decrees against infidelity
+***God decrees against infidelity***
 
 32/21.1. God said: Hear the words of your God, O man. In the ancient times, I came as a father to a child, dictating to man.
 
@@ -22970,7 +22994,7 @@ God decrees against infidelity
 
 ### CHAPTER 22 Judgment
 
-The Father’s kingdom on earth
+***The Father’s kingdom on earth***
 
 32/22.1. God said: I have heard your prayer, O man: Your kingdom come on earth, as it is in heaven.
 
@@ -23014,7 +23038,7 @@ The Father’s kingdom on earth
 
 ### CHAPTER 23 Judgment
 
-God judges Uz, commonly called the world’s people
+***God judges Uz, commonly called the world’s people***
 
 32/23.1. God said: I have not come in this era to judge the drunkard, harlot, thieves and murderers; these are known to you, O man.
 
@@ -23066,7 +23090,7 @@ God judges Uz, commonly called the world’s people
 
 ### CHAPTER 24 Judgment
 
-God shows how to know the kind of angels that minister to mortals
+***God shows how to know the kind of angels that minister to mortals***
 
 32/24.1. God said: I have given one rule to all men, by which it may be known what kind of angels minister to them; that rule is a mortal’s own manifestations and behavior.
 
@@ -23104,7 +23128,7 @@ God shows how to know the kind of angels that minister to mortals
 
 ### CHAPTER 25 Judgment
 
-God shows how and when the second resurrection manifests to mortals
+***God shows how and when the second resurrection manifests to mortals***
 
 32/25.1. God said: In the cities and country places, I have innumerable Lords, apportioned to districts and to the mortals and angels within them.
 
@@ -23142,7 +23166,7 @@ God shows how and when the second resurrection manifests to mortals
 
 ### CHAPTER 26 Judgment
 
-God judges the ascetic
+***God judges the ascetic***
 
 32/26.1. God said: There are those who shut themselves up in colleges (cloisters) and others who retire to the forests,[^1288] devoting their lives to prayers, confessions, rites and ceremonies, being most systematic in routine, and in being shut away from the Uzians [world’s people –Ed.].
 
@@ -23182,7 +23206,7 @@ God judges the ascetic
 
 ### CHAPTER 27 Judgment
 
-God judges charities
+***God judges charities***
 
 32/27.1. God said: A certain man built a dam across a river, using only stones, but no cement. And the water ran through the crevices, rendering the dam worthless.
 
@@ -23224,7 +23248,7 @@ God judges charities
 
 ### CHAPTER 28 Judgment
 
-God shows how to do charity
+***God shows how to do charity***
 
 32/28.1. God said: O man, consider the folly of individual effort! One will say: I help my family and my neighbors; let others do likewise, and all will be well.
 
@@ -23258,7 +23282,7 @@ God shows how to do charity
 
 ### CHAPTER 29 Judgment
 
-God judges the missionaries
+***God judges the missionaries***
 
 32/29.1. God said: In past times, I commanded you, saying: Go forth into all the world, preaching my doctrines, chief of which was: There is only One, even the I Am; Him you shall love with all your heart, mind and soul, and love your neighbor as yourself, having faith in Jehovih through righteousness and good works.
 
@@ -23306,7 +23330,7 @@ God judges the missionaries
 
 ### CHAPTER 30 Judgment
 
-God judges dominions
+***God judges dominions***
 
 32/30.1. God said: Now, behold, a certain rich man coveted his neighbors’ children, and he went and captured many of them. And because he was mighty above his neighbors, none of them could regain their offspring.
 
@@ -23368,7 +23392,7 @@ God judges dominions
 
 ### CHAPTER 31 Judgment
 
-God judges the man of promise
+***God judges the man of promise***
 
 32/31.1. God said: Consider the judgments of God, O man of many promises.
 
@@ -23398,7 +23422,7 @@ God judges the man of promise
 
 ### CHAPTER 32 Judgment
 
-God judges against war
+***God judges against war***
 
 32/32.1. God said: Now behold, O man, I have declared my first and second resurrections to you. And in like manner is the third resurrection, but still higher. And so on, are all the heavens of Jehovih, higher and higher, until the inhabitants of them become very Lords and Gods.
 
@@ -23466,7 +23490,7 @@ God judges against war
 
 ### CHAPTER 33 Judgment
 
-God judges against exclusiveness
+***God judges against exclusiveness***
 
 32/33.1. God said: Hear the judgments of your God, O man; look upon the whole world with the eye of a God.
 
@@ -23520,7 +23544,7 @@ God judges against exclusiveness
 
 ### CHAPTER 34 Judgment
 
-God judges the governments of man
+***God judges the governments of man***
 
 32/34.1. God said: When a man has young children, he makes just laws, in order to teach them discretion, justice, harmony and consideration, in regard to one another.
 
@@ -23580,7 +23604,7 @@ God judges the governments of man
 
 ### CHAPTER 35 Judgment
 
-God declares against the governments of man
+***God declares against the governments of man***
 
 32/35.1. God said: Whoever lives with Jehovih is free from Jehovih. These need no man’s government; for they practice righteousness, peace, love, industry and wisdom, with due regard to one another.
 
@@ -23650,7 +23674,7 @@ God declares against the governments of man
 
 ### CHAPTER 36 Judgment
 
-God shows how he has wrought
+***God shows how he has wrought***
 
 32/36.1. God says: Behold the work of my hand, O man: As you find an old house, no longer habitable, you send workmen to pull it down, and then you send laborers to clear away the rubbish.
 
@@ -23714,7 +23738,7 @@ God shows how he has wrought
 
 ### CHAPTER 37 Judgment
 
-God reveals his method of work
+***God reveals his method of work***
 
 32/37.1. God said: Do not think, O man, that your God goes about accomplishing a work without system and order.
 
@@ -23780,7 +23804,7 @@ God reveals his method of work
 
 ### CHAPTER 38 Judgment
 
-God shows the mistakes of man’s judgment
+***God shows the mistakes of man’s judgment***
 
 32/38.1. God said: I said to you, O man, pursue your wisdom after the manner of your God.[^1310]
 
@@ -23826,7 +23850,7 @@ God shows the mistakes of man’s judgment
 
 ### CHAPTER 39 Judgment
 
-God provides for increase
+***God provides for increase***
 
 32/39.1. God said: When your educational colony of infants have grown to manhood and womanhood, they shall understand that, as they were once homeless and fatherless, and were gathered up and provided for, so shall they go and do likewise, gathering from the Uzians other orphans and castaways, raising them in other colonies, as they themselves were once raised.
 
@@ -23882,7 +23906,7 @@ END OF THE BOOK OF JUDGMENT
 
 ### CHAPTER 1 Discipline
 
-God reveals who he is
+***God reveals who he is***
 
 33/1.1. This is the word from the organic heaven:
 
@@ -23926,7 +23950,7 @@ God reveals who he is
 
 ### CHAPTER 2 Discipline
 
-God explains the first and second resurrection, and the difference in manifestations from them[^1316]
+***God explains the first and second resurrection, and the difference in manifestations from them[^1316]***
 
 33/2.1. Hear me, O man, and consider the weight of the arguments of your God. You have communed with the spirits of the dead; your father, mother, sister and brother, who are no longer mortal, have spoken to you in spirit, and you are convinced.
 
@@ -23990,7 +24014,7 @@ God explains the first and second resurrection, and the difference in manifestat
 
 ### CHAPTER 3 Discipline
 
-God illustrates the difference of method between the first and second resurrections
+***God illustrates the difference of method between the first and second resurrections***
 
 33/3.1. Open your understanding, O man, so that you may discern the beauty and glory of heavenly places prepared by your God, Lords and guardian angels.
 
@@ -24058,7 +24082,7 @@ God illustrates the difference of method between the first and second resurrecti
 
 ### CHAPTER 4 Discipline
 
-God illustrates the characteristics of mortals accordingly as they are under the influence of the first or second resurrection
+***God illustrates the characteristics of mortals accordingly as they are under the influence of the first or second resurrection***
 
 33/4.1. Consider the words of your God, O man, and profit in the application of your judgment for the everlasting growth of your soul.
 
@@ -24108,7 +24132,7 @@ God illustrates the characteristics of mortals accordingly as they are under the
 
 ### CHAPTER 5 Discipline
 
-God shows how mortals may attain inspiration from Jehovih and from the angels of the second resurrection
+***God shows how mortals may attain inspiration from Jehovih and from the angels of the second resurrection***
 
 33/5.1. Whoever rules over his own earthly desires, passions, actions, words and thoughts, being constantly watchful for the highest light and greatest good, is on the right road.
 
@@ -24144,7 +24168,7 @@ God shows how mortals may attain inspiration from Jehovih and from the angels of
 
 ### CHAPTER 6 Discipline
 
-Of Jehovih and His kingdom on earth
+***Of Jehovih and His kingdom on earth***
 
 33/6.1. O man, apply yourself to understand the spirit of my discourse, for in this you shall find the key to the Father’s kingdom.
 
@@ -24178,7 +24202,7 @@ Of Jehovih and His kingdom on earth
 
 ### CHAPTER 7 Discipline
 
-God shows the difference between the religion of the past and that of the present
+***God shows the difference between the religion of the past and that of the present***
 
 33/7.1. To the All One, Jehovih, now as in ancient times, and for all time to come, all honor and glory, worlds beyond number.
 
@@ -24254,7 +24278,7 @@ God shows the difference between the religion of the past and that of the presen
 
 ### CHAPTER 8
 
-God shows what is meant by following the highest light
+***God shows what is meant by following the highest light***
 
 33/8.1. Be considerate of your fellow man, and weigh his standing place in the sight of your God.
 
@@ -24284,7 +24308,7 @@ God shows what is meant by following the highest light
 
 ### CHAPTER 9 Discipline
 
-God shows who is and who is not prepared to enter Jehovih’s kingdom on earth
+***God shows who is and who is not prepared to enter Jehovih’s kingdom on earth***
 
 33/9.1. Whoever has said: I have searched my heart and mind, and now before Jehovih, I desire to live a higher life.
 
@@ -24338,7 +24362,7 @@ God shows who is and who is not prepared to enter Jehovih’s kingdom on earth
 
 ### CHAPTER 10 Discipline
 
-God reveals the cure for remorse
+***God reveals the cure for remorse***
 
 33/10.1. Be patient, O man, with your neighbor and your brother.
 
@@ -24374,7 +24398,7 @@ God reveals the cure for remorse
 
 ### CHAPTER 11
 
-God shows that the renunciation of the uzians is necessary
+***God shows that the renunciation of the uzians is necessary***
 
 33/11.1. Attend, O man, to the discourse of your God upon the second resurrection in heaven, and apply these principles to founding Jehovih’s kingdom on earth.
 
@@ -24414,7 +24438,7 @@ God shows that the renunciation of the uzians is necessary
 
 ### CHAPTER 12 Discipline
 
-God discourses on love
+***God discourses on love***
 
 33/12.1. Many will come to you, inquiring: What do you say about those who are married, having children of their own? Shall they so love the fraternity and the kingdom of Jehovih that they shall set aside their filial love, assigning their children wholly to the teachers, day and night?
 
@@ -24424,7 +24448,7 @@ God discourses on love
 
 ### CHAPTER 13 Discipline
 
-Of destroyers and of builders
+***Of destroyers and of builders***
 
 33/13.1. One goes about preaching against heavenly revelations, and against the wisdom of Jehovih; and his daring speeches and good logic fall upon errors and blunders in the written words, and he draws the populace along, in the style of a gladiator.[^1321]
 
@@ -24452,7 +24476,7 @@ Of destroyers and of builders
 
 ### CHAPTER 14 Discipline
 
-God discourses on the authority of his own words
+***God discourses on the authority of his own words***
 
 33/14.1. First, freedom to all people on earth, and to the angels of heaven, to think and to speak whatever they will.
 
@@ -25214,7 +25238,7 @@ END OF BOOK OF DISCIPLINE
 
 ### CHAPTER 15 Inspiration
 
-Holy Compact Day
+***Holy Compact Day***
 
 34/15.1. As Jehovih, through His God, bequeathed to the children of Guatama a government unfettered by the name of God, Lord or Savior, so Jehovih sanctified the day of the ratification and the signing and sealing of His compact (American Constitution), as the Day of the Holy Seal.[^1337]
 
@@ -25226,11 +25250,13 @@ Holy Compact Day
 
 34/15.5. Therefore it was said: The master saluted on the sign, Day of the Holy Seal, and the lodge answered in the sign, Constitution.
 
-34/15.6. And Jehovih said: Remember this day, and keep it holy, to the end of the world, for this was the beginning of the liberty of man!
+34/15.6. And Jehovih said: Remember this day, and keep it holy, to the 
+
+end of the world, for this was the beginning of the liberty of man!
 
 ### CHAPTER 16 Inspiration
 
-Holy Veil Day[^1338]
+***Holy Veil Day[^1338]***
 
 34/16.1. As Jehovih, through His God, pulled aside the veil of heaven, saying:
 
@@ -25242,11 +25268,13 @@ Holy Veil Day[^1338]
 
 34/16.5. And Jehovih gave to the members of the lodge to answer in the sign, Three Clappings, signifying, Endless Joy!
 
-34/16.6. And Jehovih said: Remember this day, and keep it holy, to the end of the world. For, without books and without arguments, behold, I have proven to you the continued life of the soul of man!
+34/16.6. And Jehovih said: Remember this day, and keep it holy, to the 
+
+end of the world. For, without books and without arguments, behold, I have proven to you the continued life of the soul of man!
 
 ### CHAPTER 17 Inspiration
 
-The Fallen Sword’s Day[^1340]
+***The Fallen Sword’s Day[^1340]***
 
 34/17.1. As Jehovih, through His God, delivered Guatama’s slaves into freedom, and so, dealt the final blow to general slavery, so Jehovih blessed that day, and sanctified it.[^1341]
 
@@ -25254,11 +25282,13 @@ The Fallen Sword’s Day[^1340]
 
 34/17.3. And Jehovih gave to the members in the lodge to answer in the sign, Clasped hands, and looking upward, signifying, In Your Praise, Jehovih!
 
-34/17.4. Jehovih said Remember the day of proclamation of freedom, for it is My day, which I bequeath to you as a day of freedom in all righteous jollification, which you shall keep every year, and commemorate, to the end of the world.
+34/17.4. Jehovih said Remember the day of proclamation of freedom, for it is My day, which I bequeath to you as a day of freedom in all righteous jollification, which you shall keep every year, and commemorate, to the 
+
+end of the world.
 
 ### CHAPTER 18 Inspiration
 
-Holy Kosmon Day
+***Holy Kosmon Day***
 
 34/18.1. Besides the above, Jehovih gave one more holy day, Kosmon Day, which He also commanded to be kept in commemoration of another matter, which Jehovih commanded to be secret with the Faithists for a certain period of time, which time has not expired to this day. Therefore, the day of Kosmon is still a secret with the Faithists. ||
 
@@ -28156,7 +28186,7 @@ THE NINE ENTITIES[^1465]
 
 ### CHAPTER 8 Ben
 
-The Battle with the Beast of the Arc of Bon
+***The Battle with the Beast of the Arc of Bon***
 
 36/8.1. Es said: The light of Jehovih touched on the earth, and the heavens about were stirred to the foundation. Things past were moved forward. His voice was from the depth of darkness to the summit of All Light.
 
@@ -29263,8 +29293,9 @@ Battle of the Beast at the Time of Kosmon
 
 END OF THE BOOK OF KNOWLEDGE
 
-Book of Cosmogony and Prophecy
-Cosmogony Section
+## Book of Cosmogony and Prophecy
+
+***Cosmogony Section***
 
 ### CHAPTER 1 Cosmogony
 
@@ -29907,7 +29938,7 @@ YA‑LA‑PESTA[^1688]
 
 ### CHAPTER 11 Cosmogony
 
-Rules in College of Prophecy (Primary)
+***Rules in College of Prophecy (Primary)***
 
 38/11.1. The following signs are given in words, namely: Flag, rising sun. Salute the East! Children of dawn. The signs are, first, the folded hands; second, the soothe, and third, the supplication. || O you setting sun! Response: In Jehovih’s name! || How many chiefs dwell in dawn? Response: Three or more. || How stationed, O You High Noon? Response: The three lights are east, west and south. The smoke and fire rise from the altar!
 
@@ -29940,7 +29971,7 @@ End Prophecy Section
 
 END OF BOOK OF COSMOGONY AND PROPHECY[^1698]
 
-REMARKS ON THE BOOK OF COSMOGONY AND PROPHECY[^1699]
+## REMARKS ON THE BOOK OF COSMOGONY AND PROPHECY[^1699]
 
 38/12.1. In the literature of India and China, mention of cycles of three thousand years each is frequently made. And it is further stated that the ancients computed the dark periods and light periods of a cycle, and used them as an index of prophecy. Alex. Von Humboldt seemed also to place value on the dark periods in a cosmological sense. Though he attributed them not to a’ji, but to some obstruction of sunlight. The Book of Cosmogony, however, shows how such an error might easily occur. –Ed.
 
@@ -30324,7 +30355,7 @@ History of Shalam, formerly called “Book of Shalam”
 
 ### CHAPTER 5 Jehovih’s Kingdom
 
-The Holy Covenant
+***The Holy Covenant***
 
 39/5.1. Then Tae and his hosts went into the center of the Place of the Holy Covenant; and the hosts formed in a crescent, and Tae stood between its horns.
 
@@ -30420,7 +30451,7 @@ The Holy Covenant
 
 ### CHAPTER 6 Jehovih’s Kingdom
 
-The Covenant of Brotherhood
+***The Covenant of Brotherhood***
 
 39/6.1. Now, when Tae and his hosts had made the covenant with Jehovih, behold, the Voice descended upon Tae by entrancement, with the holy angels of the God of heaven and earth, and he said:
 
@@ -30526,7 +30557,7 @@ The Covenant of Brotherhood
 
 ### CHAPTER 7 Jehovih’s Kingdom
 
-Founding the groups
+***Founding the groups***
 
 39/7.1. The Light of Jehovih being upon Tae, he said: Let the examples of Uz not be lost upon you. But whatever you have learned and acquired, you shall appropriate wisely in Shalam.
 
@@ -31276,7 +31307,7 @@ Founding the groups
 
 ### CHAPTER 21 Jehovih’s Kingdom
 
-Of the Voice of Jehovih
+***Of the Voice of Jehovih***
 
 39/21.1. This is the sermon of the Voice, as delivered in Shalam to those who were admitted on trial:
 
