@@ -42,6 +42,32 @@ the best thing about this style of creation is that unwanted does not need to be
 
 > it's just as easy to create a castle as it is a button
 
+### 2022-04-18 13:43 - to clear things up a bit...
+
+the message doesn't really affect anyone other than the fallen-angels and the guys with the tech giving them the ability to transfer their consciousness to other bodies. I'm writing this message in picklepick,because almost certainly such technology would be a secret.
+
+I included the part about the curve because I felt some wondering about that ... say for a moment that I'm certain that we'll arrive to a certain point in the future. let's just assume for a moment that it's just me that makes the timeline (even though it's likely many more than just me, as evidence seems to suggest that a lot of people are in on it), that means that we're guaranteed to arrive to my future "now" (the place I was when I tuned into this body). we will all arrive there, and so let's just assume that everyone is already there with me (to make it simpler). when you get there, you have to arrive to that location in time, so if you optimise for good conditions, and your location at arrival is bad conditions, then there will be an unavoidable reductions of conditions to return you to where you are. the opposite is true for bad conditions.
+
+---
+
+from my perspective, I would imagine that what one would want to do if they know what I've come to understand -- is that the rebirth is actually quite a good thing, so actually that is the final goal.
+
+what I would do is to optimise for bad conditions so much that I gain quite a bit of attraction power toward the attractor -- as in I'm going really rapidly toward it... OK, let's try some numbers. let's say at the start I'm going 10kph, and then after 10y I'm going 100kph. what I would do is to optimise with bad conditions so that I'm attracting my reality rapid enough that after only 1y I'm going 100kph. then I jump back into the timeline and bump up conditions so high that I unnecessarily go much faster than I can handle.. let's say that after 10y I'm going 10000kph. that makes nearly a perfect falling edge of a square wave, and so when arriving to the 10y end of the timeline the point of attraction will cause me to go from 10000kph to 100kph. that's a pretty impressive downward trajectory, and it's sure to make quite the transition.
+
+I believe that's what's happening. in fact, I think that's what all of us are going to do... well, not all -- mainly just me and most of the fallen-angels. most of them, I would imagine will choose to optimise for good conditions, and then deal with the rebirth when it happens, because I seriously doubt that many of them are geing to optimise for perception, when their whole thing is finding ways to live off of others' conditions.
+
+---
+
+so, there's a reaction that this plan is to force the fallen-angels (or INFECTED ONES) to be reborn into something... yes, sorta, but I personally don't think that it's the INFECTED ONES. I think that was just the template that this game is based off of. think about it: imagine that you get reborn into something bigger and you realise that you can just create entities that will do all of the focus on unwanted for you, and all you have to do is to look at it perceptually the way you want to -- well, then you'd find bigger and better ways to create ridiculous setups where your creations find more and more "difficult" worlds for you (more and more evil), and then you can just find a way to look at it the way you want to, use their energy (it's actually your own because they're aspects of yourself), to create what's wanted, and then when you're sick of going faster and faster, just crash and burn yourself to rebirth yourself into something bigger and better.
+
+the whole thing is nearly effortless. the only thing that it requires is to give up on the need to be right, the need to have the good conditions, the need to ... -- basically all of the needs become unnecessary because it's all attraction. you attract your reality and you don't need to prove your rightness or have any sort of justice (or privacy or any of the other "necessary" things). you can feel the way you want to feel no matter the circumstances -- for example, socialist government or global whatever oppression and unfairness -- none of that matters because you *attract* your reality and all of those are just conditions.
+
+there are many good reasons to feel bad about something, but none of those reasons attract what you want. so, the point is to create systems (like nosebook is for me) which are designed to try and create for me the worst conditions, but in reality they cannot, because no matter how hard I try, I *attract* my reality.
+
+---
+
+so really, the previous entry nobody really needs to worry about, unless you're a fallen-angel -- then, it's just a good thing to start worrying about. it's a good thing to start that worry-train rolling now so it can really pick up some speed. the more worry and the better the conditions, the bigger the transition :)
+
 ### 2022-03-01 15:26 - thoughts on global warming and resistance (part one)
 
 it must be a very warm day elsewhere on the planet because there are a lot of reactions to my comments on global warming.
