@@ -6,6 +6,42 @@ it's called pickle because all of these are presented as cucumbers, but they cov
 
 if you leave a cucumber for enough time, it'll turn into a pickle.
 
+### 2022-04-18 06:06 - the 1000y pickle
+
+after I wrote yesterday's entry, @[blahblog](2022-04-17 20:54) I've had a few interesting reactions to it. I made a very bold claim that we actually *do* have a considerable amount of time to prepare for a cataclysm, and provided no evidence to support my theory ... lol, well, consequently nobody can falsify it either, so there :)
+
+I still need to redo my notes in et-view-of-creation, because I definitely wrote them, and they're definitely not there anymore. they would contain the text, "original universe" or "previous universe" and they would list out the layers: monad, atmic, buddhic, etc. exactly like they're listed in ([840529pc](/sirian-guide/orig/docs/840529pc.htm)) but in comparison to the other levels. I also made notes on the INFECTED ONES system to convert a society from a peace-loveing tech civ into a warring through adjustment of tradition, nationalism and factioning (ie. tree of good and evil).
+
+anyway, I really should redo the notes anyway because I see it even more clearly how you could see that "man" lived in a state similar to the one outlined in et-view-of-creation, and how the "fall" of man was repeated in this galaxy as it was here on earth in the symbolic eden story. I say symbolic, because I believe the symbols used describe interactions between concepts that is scale invariant -- meaning, it happened the same inside of our brain as it did in the "garden" of eden/atlantis, etc.
+
+I'd really like to expand further on a lot of those ideas.
+
+---
+
+anyway, back to the pickle at hand. I made some pretty serious claims and the people with any knowledge of what I'm talking about almost certainly consider all of that a pretty big secret. that's no problem for me, because I think it'll remain a secret, and they'll remain in power the whole time and they'll be forced to keep the business-as-usual charade going the whole time. this gives us a perfect opportunity to do whatever it is that we want to do the entire time, and they get to worry more and more about what is going to happen (ie. fear, negative desire) if we find out.
+
+I don't really think any solution will ever come to this problem and we'll likely leave this in a complete stalemate forever.
+
+---
+
+that's one side of it. the other side of it is that they *need* a cataclysm to happen, for a far greater fear for them is not the cataclysm, but for a continually expanding population of humans on earth. at the current rate of population growth, it's probably perceived that things will steadily become more and more unmanageable.
+
+so, from their perspective, they'll need to find ways to get us to kill eachother to thin out the population count. I would imagine that all sorts of efforts to trick us into attracting our own destruction will be employed by building illusions of bad things happening and so therefore people wanting to tune to that will attract those sorts of things into their lives. I'm sure they'll get better and better at it all the time.
+
+however, simultaneous to that, we (the time-pickles) will also be adding more and more of our own creations into the mix to cause them to increase their capabilities to hold us back (because remember, from our perspective, it's better to optimise for worse conditions prior to "now" than better). and at the same time, we'll be assuredly increasing the amount of desirable childbirths to happen to incarnate into -- like, you pick your parents.
+
+the best part about it, is that all of this definitely has to be kept a secret and nobody will ever be able to say anything. why? to optimise for the people who want to just do things their own way, regardless of what the circumstances suggest they should do.
+
+---
+
+what I mean is, on one side of things I think it would be really great if we lived in a world where everything was open, privacy did not exist and stuff like that -- but that's me, and that's how I see things because that's how I presently live. others do not see things that way, and so I'm totally cool with that. I'm definitely not going to push anything on anyone else or anything like that, so instead I think it's actually best to just let everything play out naturally.
+
+I'm really starting to begin to see the brilliance in the creativity of the corrupted 7th ray. I'm not being sarcastic either. I really believe that once I am (we are) able to see unwanted, no longer as unwanted, but as wanted, everything changes. some people will want to optimise for wanted, like I said, and that's perfectly fine, but others will optimise for unwanted knowing that in reality it's not really unwanted, as that's only perceptual, and unwanted only exists for as long as I perceive it that way (likewise, wanted only exists for as long as I perceive it that way).
+
+the best thing about this style of creation is that unwanted does not need to be directly experienced as soon as one gains perceptive capacity. literally, all you have to do is create a bunch of entites that do all of the focusing on unwanted for you, and then perceptually see the wanted aspect. they do literally all of the work for you creating all of that unwanted, and then you just see the wanted in it all.
+
+> it's just as easy to create a castle as it is a button
+
 ### 2022-03-01 15:26 - thoughts on global warming and resistance (part one)
 
 it must be a very warm day elsewhere on the planet because there are a lot of reactions to my comments on global warming.
