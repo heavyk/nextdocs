@@ -1102,7 +1102,7 @@ which means that the whole point of atlantis was to get these fallen-angel entit
 
 ---
 
-so here's where I'm going to potentially cause problems. the reason why I say as a "trojan horse", it's probably a good thing disguised as a bad thing is because all of this just the precursor to the "day of rest" -- the 7th day/ray of effortless power and manifestation. it's all built on the concepts of ritual destruction and rebirth.
+so here's where I'm going to potentially cause problems. the reason why I say as a "trojan horse" is probably a good thing disguised as a bad thing, is because all of this just the precursor to the "day of rest" -- the 7th day/ray of effortless power and manifestation. it's all built on the concepts of ritual destruction and rebirth.
 
     we make ritual noise
     we weave the fabric of dreams
@@ -1114,6 +1114,89 @@ so here's where I'm going to potentially cause problems. the reason why I say as
     we feed the engines of change
 
 [1]: trapped, huh? it sounds like @[blahblog](2022-04-16 03:42) to me; trapped in the belly *of love*.
+
+### 2022-04-17 20:54 - osiris and aherance to tradition
+
+tonight, while eating dinner I was talking about how britan in the time of mom's "call the midwives" show was really archic still. I compared them to the USA and then mom brought up china and japan saying that japan is quite technologically advanced. I agreed but I could immediately feel the connection between the last conversation and this one, so I felt like they were a bit held back and it was aherance to tradition that was holding them back. the implication is that the USA has a lot of really anti-progress politcians running the show but because the USA has such a mix of cultures, we don't have any limiting tradition to hold on to, and so here progress is quite rapid even if pointed in disempowering directions.
+
+I also brought up the "quantsuf" thing from the ensnaklopedia which is that a civilisation that does not have the capacity to retain the scientific advancements of the previous generation will inevitably convert the science into tradition and ritual. I think this works well because the underlying idea of science is still being invoked conceptually, rather than physically -- so, even if they're reciting a recipe for a chemical compound and ending their prayer with "quantsuf", they're still invoking to some extent the original concept of the chemical compound. so, in essence, the ritual is a conceptual link back to a former time when something was understood.
+
+---
+
+now, another thing that I was thinking in @[blahblog](2022-04-16 00:57) was the idea that all of the triads, cept for the first existed on the planet at the same time (in one form or another). elsewhere it says that when one of these rays ran out, they just made another body -- so, in our perception, they persisted through many "reincarnations".
+
+the way that I saw it, osiris served as the midpoint between vulcan (-5+) and thoth (+7). thoth (+7) used the ritual and ceremony constructed by ra (+3), and so therefore saturn would serve as the midpoint between ra (+3) and vulcan (-5+) and osiris (+-6-+) the midpoint between vulcan (-5+) and thoth (+7). the females venus/unessa (-3) and genxicat (-7) are the opposite polarities of the emitters (ra and thoth), while isis is a reversal[^1] and so theerfore also opposite polarity of osiris, meaning that she also fits.
+
+jeortau is opposite polarity to isis (and this is said to create conflict), and sanatau is opposite polarity to unessa. I don't really know yet what that means, but the only ones I haven't mentioned in this setup are allayandra and anatau. 
+
+the way this looks to me is that allayandra and anatau are empowering the entites that are created by the 7th rays. what I mean is that when the "infected" people would do these rituals and cermony to conjure various gods, angels and demons, these two would bring these illusions to life for them, allowing them to interact with their own creation. I believe that this capacity was then given to all humankind, and we all have this capability. this capability is locked behind certain safeguards (the guardian angels) and that capability to bring illusions to life is the devachan-on-earth state of mind, and what many of the missing 411 cases experienced.
+
+---
+
+OK, now I need to connect this to the bigger picture. after "seeing" the connection between osiris and vulcan to make the pyramids, I realised that the designer of the pyramid must have known that after its original purpose (to empower angels to have nondeteriorating corporeal bodies in the physical), it would then be used for religious and ceremonial purposes. like "quantsuf", it would conjure the original concept that the science performed in the physical.
+
+as I noticed this, I was reminded of kuthumi's et-guide-to-creation, where a galaxy is created that would contain a physical plane. it was designed to attract the INFECTED ONES, and so therefore the galaxy should probably have a personality similar to the INFECTED ONES... I'm going to just assume this is the reason for jehovih's personality type.
+
+it's mentioned that when the INFECTED ONES came to the galaxy, they wanted to take over the power structures in the tech civilisations, but they couldn't influence the civs easily because they had strong adherance to ritual. turns out that they found their way into the tech civs be being born into bodies of people capable of influencing the ritual of these civs. they eventually caused war to break out between the civs and they destroyed each other pretty well.
+
+I noticed that adherance to ritual and traditition is what prevented the INFECTED ONES from allowing change. I noticed this evening that adherance to tradition *prevents* change -- so, if you want change and the-problem-is-the-solution, then what you want to do is to make ritual and adherance to tradition unwanted rather than wanted. you have to use their own strat to infect the INFECTED ONES and utilise their own machinery to build what you want (like a virus).
+
+---
+
+speaking of viruses, right after writing the previous entry, I listened to snake-bros #070 "a species with amnesia". they talked about a number of things resonant with this entry and the previous, but one of them was contemplating whether viruses have consciousness. like, how does a virus the size of a VW bus in an ocean the size of saturn find the exact cell to infect with the right machinery to spread itself -- and how did a cell that has the machinery capable of reproducing evolve to lose its reproductive capabilities and decide to rely on others for reproduction? it's a good question. kyle kept saying that he thinks it was resonance that attracts, but he got interrupted a few times. I think kyle is right, and I think it may even be the case that the virus is a reflection of the consciousness that was present in the body when it was created. as in, we humans are literally creating these viruses as a reflection of our own thoughts.
+
+what's interesting is that a lot of these magics that the egyptians were invoking were to fight off and prevent a lot of viral-like diseases and stuff. it may have been possible that may have been a time of great tragedy when people started invoking and creating viruses and other malignant things for theirselves and others with this ritual and ceremonial magic.
+
+that theory is unprovable and unfalsifiable though, so it should be discarded. there was another funny thing resonance to that episode and @[blahblog](2022-04-16 00:57) because in one section I mentioned that the zenith of atlantis was probably something like 18-24kya, and by zailm's time around 12kya, things were about to start heading downhill rapidly. the book kinda infers as well that the sinking of atlantis happened about 5-7kya.
+
+so then, russ is going on about the parallel universes[^3] theory saying that time travel relies on the parallel universes, and the problem with time travel is that one of the parallel universes, "God" could be real, could have created everything we see in 6 days, and we are actually living in that universe now -- so the multiple worlds doesn't really do away with religion and "God", but actually supports it by making it possible for "God" to actually exist.
+
+so, then combine that with what DK said, about the physical plane coming into place 13500y ago, and the sinking of atlantis was the thing that essentially forced a bunch of astral entites (these ritual creations) into the physical by destroying their main power source. if this happened 6kya, the irony is kind of funny.
+
+anyway, he said that multiple universes couldn't be proven or something like that, and I realised that there is a way.. if you could tune into other universes, and notice their difference, it would be possible for other universes to exist siultaneously.
+
+in addition to that, multiple universes, timelines and parallel (but very different) experiences is kind of like a natural side-effect of the conceptual being a percursor to the physical: there are infinite manifestations of a concept in both time and space. so, if you and your soul[^2] is a concept, then that is what what naturally occurs. you can tune into any experince that you wish to.
+
+the other part about the trojan horse, is the said they exploited the lack of our development of the "concrete mind" (the lower 3 subplanes of the conceptual). we would have lived in a dream-like state at the time, and so therefore objects don't really have much permanence to them and they can come and go pretty easily without causing too much of a collapse of our concept of reality.
+
+---
+
+I said all of that to kind of show that there is a reflection and/or reversal going on to kuthumi's relation of the creation of this universe. the original universe kuthumi relates did not have at all a concreteness to it. umm, I can't remember exactly so I'm just going to wing it[^4] but the original universe basically didn't have very much of a "concrete mind" and so that was the way that so many of the entites could be corrupted so easily, believing the illusions of the corrupted 7th ray.
+
+if we consider that the dream-state (see @[blahblog](2022-04-15 17:59)) is akin to not having a concrete mind, and so therefore in this lack of resistance, anything can be believed -- even an illusion -- so therefore, what osiris is creating with these pyramids and empowering the fallen-angels with them is *many* corrupted 7th rays, just like the one that managed to deceive the INFECTED ONES, and so then later on if we consider that the "master craftsman" (vulcan) was the designer of the pyramids, we can see the same pattern emerging again, and this time the "master craftsman" is tesla and nosebook is the pyramids, allowing them (nosebook), to take advantage of our lack of a concrete mind (full-blown creators in dream-state) to create whatever it is that they want and to tune into the multiple universe that they want.
+
+---
+
+the last resonance to snake-bros #070 was the ending part where they're talking about "a species with amnesia" and they were saying, "what if we had 300 years" to prepare for something like that, knowing that a huge cataclysm is coming... they speculated that technology would advance very rapidly and that we would come up with many new ways to transmit knowledge forward to future generations, which almost certainly would be "quantsuf" for them at first, but eventually, the resonance with the original concept would eventually shine through.
+
+well, I believe that such a thing has actually happened. I believe that ritual/ceremonial destruction has been the method (and the resulting amnesia produced from the trauma -- the sinking of atlantis ~6kya) allowed for a series of compressions of time, to essentially move the clock back ~1000y, giving us exactly that window of opportunity to create things which will survive a cataclysm and can traverse large spans of time to transmit that information.
+
+it's bigger than that though. because of the conceptual nature of our reality, we'll be able to actually infinitely optimise ourselves and the "bad-guys", creating more and more fallen-angels (as opposite polarities/reversals of) ourselves to actually perfect ourselves to be infinitely as good as we want to be.
+
+the cool thing about this is, that's kind of like the final rebirth... if it's guaranteed that all of us will skip over the devachan-on-earth mental state (by own own doing) and reach the ability to alter time rather than space, we'll all have the ability to infinitely iterate on ourselves until we are "perfect". I'm sure that once anyone gets the ability, they'll immediately rework the past so that it optimises something... let's say that every day after someone gets the ability to modify their timeline, they jump back in to a body of another new child and be "born again", each time guaranteed to return to "now" when they left, there are two ways to look at it...
+
+on one hand, you could see that there is nothing more you would optimise about yourself. or, knowing that when you jump into your timeline again (either with technology or mentally), you know that in that moment, you are not exactly "perfect" and so you could see your "future self" from the point of your optimised self as less than what you are now, and so therefore, it would appear as falling from optimised hights.
+
+this will create a lot of different very energetic outcomes. the time limit to do all of this optimisation will be when the sun finally goes off, and your own perception when that happens (ie. are you "now" a lot worse than you were a little bit ago, or a lot better).
+
+you can see that if you optimise for good conditions, unless you're living great conditions "now", now will almost always be worse conditions than the optimised conditions (so it'll seem like falling). however, if you optimise for worse conditions, wherever you are "now" will most likely be better conditions.
+
+you can see how at the very least, this will produce temporal consciousness where one realises theirself as any of the implementations of the concept they have of yourself. it's kinda like the beginning of trancendance. in that sense, there's no wrong way to it, and we can just create any difficulty we want to inflict on ourseleves, as that difficulty is our own vibration, perceived from the opposite direction (hard to explain this).
+
+unwanted-and-wanted-are-same
+the-problem-is-the-solution
+
+
+
+
+
+[1]: I don't know the right word to use here. here I'm using "opposite polarity" to mean +3/-3. for "midpoint", I'm meaning 6 is midpoint between 5 and 7, and 4 is midpoint between the "reflection" 1/7 or 3/5, so then if I want to show the relationship between 1 and 5, for now I'm just going to use the word "reversal" (though it may not be what I want to say). the problem here is that 2 to 6 is both a reversal and an reflection. let's just say that 2 to the bottom half of 4 is reflection, meaning that 2 to the top half of 4 is the reversal. therefore, the difference between 2 and 6 is both reflection and reversal. I updated the [triads document](/sirian-guide/triads.md) to show these.
+
+[2]: the sirians say that the SOUL (5th ray) is to the MONAD (1st ray), as the physical vehicle (7th ray) is to the SOUL (5th). elsewhere, they call they say that soul energy is 2nd/5th ray, but in another place it's said "The ASTRAL to us is the plane responding to the radiation of the SECOND RAY. Its lowest manifestation is that of the emotions. This radiation or wave is produced on the MONADIC plane and activates the BUDDHIC and ASTRAL. In other words the waves cycle is 2, 4, and 6." the sense that I get is that 1st ray energy goes down to second ray to make the "soul", but in the same way conceptual energy flows down into the astral to also make a "soul". it seems that the 3rd is to the 1st/2nd ray "soul" as the 7th ray is to the 5th/6th ray "soul".
+
+[3]: I keep wanting to call it "multiple worlds" theory -- but I think russ said "parallel universes". I first contemplated this idea with the writings of "john titor" in the 90's, and I think he may have called them "multiple worlds" and "worldlines"...
+
+[4]: I tried to look up my notes on this, to remind myself what the layers of the original universe were, but my notes have vanished. I'll have to redo them. I think somebody didn't like my notes on all of the elements that the INFECTED ONES used to infiltrate the tech civs. I searched for a number of words I definitely wrote and they're all gone.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)

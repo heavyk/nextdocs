@@ -48,7 +48,7 @@ ra (+3) takes in a concept or an abstract idea (5) and then produces a form, str
 - (+2) jeortau / teonackaeeon / teonakaeean
 - (+-3-+) sanatau / prahakatah / ptah
 
-anatau and jeortau are twins. allayandra was also created with them, which gives me the impression that allayandra is going to be the reverse polarity of anatau. they are both mentioned as loving to war.
+anatau and jeortau are twins. allayandra was also created with them, which gives me the impression that allayandra is going to be the reversal and opposite polarity of anatau. they are both mentioned as loving to war.
 
 ### second ray triad
 
@@ -140,6 +140,39 @@ the idea here is that just like the other hidden triad is to make stability so t
 - sun (-2)
 - mars (-7,+1)
 - unessa as male (+3) ???? - needs more thinking...
+
+### pairing and sets
+
+#### opposite polarity
+
+- (-1) anatau
+- (+2) jeortau and (-2) isis
+- (-3) unessa, (+-3-+) sanatau, and (+3) ra
+- (+-4) saturn
+- (-5+) vulcan
+- (+-6-+) osiris
+- (-7) genxicat, (+7) thoth, and (+7) allayandra
+
+#### reversals
+
+- (-1) anatau, (+1) allayandra -> (-5+) vulcan
+- (+2) jeortau, (-2) isis -> (+-6-+) osiris
+- (-3) unessa, (+3) ra, (+-3-+) sanatau -> (-7) genxicat, (+7) thoth, and (+7) allayandra
+- (-2) isis -> (+-4) saturn
+- (+-4) saturn -> (+-6-+) osiris
+
+#### reflections
+
+- (-1) anatau, (+1) allayandra -> (-7) genxicat, (+7) thoth
+- (-2) isis -> (+-4) saturn
+- (-3) unessa, (+3) ra, (+-3-+) sanatau -> (-5+) vulcan
+- (+-4) saturn -> (+-6-+) osiris
+
+#### midpoints
+
+- (+2) jeortau, (-2) isis
+- (+-6-+) osiris
+- (+-4) saturn
 
 ### polarity changes
 
