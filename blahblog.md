@@ -1187,9 +1187,6 @@ unwanted-and-wanted-are-same
 the-problem-is-the-solution
 
 
-
-
-
 [1]: I don't know the right word to use here. here I'm using "opposite polarity" to mean +3/-3. for "midpoint", I'm meaning 6 is midpoint between 5 and 7, and 4 is midpoint between the "reflection" 1/7 or 3/5, so then if I want to show the relationship between 1 and 5, for now I'm just going to use the word "reversal" (though it may not be what I want to say). the problem here is that 2 to 6 is both a reversal and an reflection. let's just say that 2 to the bottom half of 4 is reflection, meaning that 2 to the top half of 4 is the reversal. therefore, the difference between 2 and 6 is both reflection and reversal. I updated the [triads document](/sirian-guide/triads.md) to show these.
 
 [2]: the sirians say that the SOUL (5th ray) is to the MONAD (1st ray), as the physical vehicle (7th ray) is to the SOUL (5th). elsewhere, they call they say that soul energy is 2nd/5th ray, but in another place it's said "The ASTRAL to us is the plane responding to the radiation of the SECOND RAY. Its lowest manifestation is that of the emotions. This radiation or wave is produced on the MONADIC plane and activates the BUDDHIC and ASTRAL. In other words the waves cycle is 2, 4, and 6." the sense that I get is that 1st ray energy goes down to second ray to make the "soul", but in the same way conceptual energy flows down into the astral to also make a "soul". it seems that the 3rd is to the 1st/2nd ray "soul" as the 7th ray is to the 5th/6th ray "soul".
@@ -1197,6 +1194,47 @@ the-problem-is-the-solution
 [3]: I keep wanting to call it "multiple worlds" theory -- but I think russ said "parallel universes". I first contemplated this idea with the writings of "john titor" in the 90's, and I think he may have called them "multiple worlds" and "worldlines"...
 
 [4]: I tried to look up my notes on this, to remind myself what the layers of the original universe were, but my notes have vanished. I'll have to redo them. I think somebody didn't like my notes on all of the elements that the INFECTED ONES used to infiltrate the tech civs. I searched for a number of words I definitely wrote and they're all gone.
+
+### 2022-04-20 09:54 - I should perhaps be a little clearer
+
+so the thing is I don't really know what it all means. I'm aware of all of the stuff around it and but it feels real-enough to me to be able to say it. I don't really have any objective as I don't want any power or anything like that. also, perhaps I wasn't clear enough in @[picklepick](2022-04-18 13:43) when I said that the whole ... I'll just do another take on it...
+
+I probably said something like the goal is to optimise one's timeline to such an extent that finding one's connection is not only certain but happens at a very very much faster rate than previously. I think I mentioned that the goal is to get to 100kph faster each iteration (or increase the difficulty), then when finally it's either boring or no other more meaningful optimisation can be made, I put myself into the experience and instead of optimising for feeling good in difficult conditions, I optimise for velocity -- to try and achieve as much velocity as possible, knowing full well, that at the end of the timeline, the attractor has to slow me down to where I was when I left, and so it would be pretty close to running into a brick wall going from such a fast speed to such a slow one. that kind of inertia/momentum will surely cause an immediate crash and burn scenario -- and this'll hopefully happen at roughly the same time the sun is exploding. the goal being to cause a massive rebirth.
+
+so, that basically means for me that I just continue on doing what I'm doing -- because, perhaps hard to explain easily but each evolution of desire adds more energy into the equation, so the longer one goes without a manifestation, the more energy builds up. that's precisely what I'm aiming to do. I'm just looking to keep this going for as long as I can at this point.
+
+like I said, I'm not looking for power, want nothing to do with money. interestingly enough in that last snake-bros #055 ep, when they were talking about the retrocausality thing, I *really* felt like I wanted to maybe try out a new technique on that "meaningful-chaos" project from a while back. if I think about myself as the neural network I'm training, instead of the computer, retrocausality can be used to "train" my neural network to identify the patterns more effectively (russ said that men especially felt they were going to get the answer right seconds before the answer was going to be revealed to them, and even before the computer even decided what the next photo was going to be -- so this is fully possible). so, if I'm going to *do* anything while passing the time, I'll probably *do* that.
+
+---
+
+as for the system of government -- why I said decentralised socialism is because right now kids are being born into the nosebook system, so that means that nosebook ultimately decides who will get perceptive capabilities and who will not. almost certainly any future reincarnations of mine (and there may be more than just a couple present on the earth now[^1]) will not likely be allowed any capablities. so, because they have to ensure that their system remains functioning, which is essentially their lifeblood (I'm pretty certain, especially as solar activity increases, we'll be fine, but they'll have an increasingly more difficult time with mental well-being[^2]). therefore, I think it'll be socialism because in order for them to retain some form of power, they have to become benevolent.. you know how all of those sales gimmicks offer something for "free" (if you buy now?) -- that kind of benevolent. you know, like how socialised countries have "free healthcare" -- stuff like that. it'll probably extend to transportation and the energy sector as well.
+
+if anyone doesn't like that, just do things your own way. duh, it's no big deal. speaking of deals, the more self-sufficient you are, the better of a deal you can negotiate. investors need you to need them so they can get a good deal. if you don't need them, then you're not a good investment. the last thing they want you to do is to turn a profit without needing them.
+
+I'm not going to tell anyone what to do, but I strongly recommend everyone to find their own way, and do whatever you want to do the way you want to do it. it'll be impossible to get everyone on the same page, so communities and organisations are likely the way of the future.
+
+---
+
+final thing: I've been trying to figure out how to explain "evidence" for my crazy idea, and I don't have any good ways yet -- cause they would all require certain agencies to reveal things they almost certainly wouldn't want to reveal... like, do you really think that they would release the speed of light measurements they almost certainly have or any crazy large gaps in artifact datings or things being more recent than are said? I find all of that unlikely to happen
+
+so I can't really prove it, and I don't know of any other falsification other than we'll see. I should find my connection in the next few years and that'll clear some things up, I'm sure. other than that, I'd say we'll just have to wait and see. if I don't get connected, I think you've probably split off to another timeline entirely, but this idea is definitely falsified in that case. if I do, things will be much clearer.
+
+---
+
+finally, I was sitting in the sun, and I had an interesting idea pop into my head. a long time ago I was thinking about how there was about a 3.5y period from when I got put into the iron gate hospital in spain and my entire left side was completely shut off til this saturn/jupiter conjunction that happened on 12-21-2020 (pretty sure). for me that signified the time that I came back alive in the "two witnesses" sense of things. after then, my vision upgrades increased dramatically and I had a very strong new ability to see things perceptially. ever since then, my progress has been incredible.
+
+I felt like I wanted to look up the conjuction online but instead I searched noseblog-archive and found it...
+
+pausing to read @[noseblog](2020-12-20 10:59), @[noseblog](2020-12-21 13:11), and @[noseblog](2020-12-21 22:08)...
+
+wow. very interesting looking at that now... I'm a broken record. I don't know if I've been carrying on about this the entire time now, but it definitely seems like this is just more evolved versions of those ideas.
+
+one of the interesting things I noted was this idea of "celestial identities" -- which are essentially resonating chestahedrons out in space designed to do the attracting of the solar material out and away from the sun. the other weird thing about especially that first entry (on the 20th) was that I thought we would be just making the galaxy here instead, but the concept of peacing out at the end to nosedive was the ending for me. weird how I still think that's what I want to do. making that kind of a transition must be pretty crazy cool.
+
+
+[1]: you definitely can have multiple versions of yourself in time. you would experience each one of them one at a time (ie. after jumping into the body) and if you met yourself, you would just feel like you know that guy really well. almost certainly this is how the universe or the sun feels when meeting herself. you definitely can create your own demons (which are also alternate "incarnations" of yourself) to interact with you -- and it doesn't matter what any of the other versions of you are doing -- but from what vantage point you are experiencing "now". as an example, imagine you are the planet. there could be 100k people tuned to the planet and perceiving reality from the perspective of the planet, and from the planet's perspective, it could be perceiving any of those perspectives. any, some, or all of those perspectives may be necessary for the planet to see things differently enough to transcend that perspective to see things another way. you are "stuck" in the time loop of your own perception (of human, planet, whatever) for as long as you want to remain in the environment that "time" has to offer. reality is just a reflection of the way you conceptualise yourself, and time is just the passage (transformation) from one concept of yourself to another.
+
+[2]: in fact, this period of time is kind of like a survival of the fittest, and some will look to conditions and technology to feel good, while others will look to optimise their perception. both ways are valid, and ultimately neither is better. personally though, I prefer to rely on my capacity to attract what I want, rather than rely on a well-functioning society and technology to feel the way I want. I get that good conditions are great and peace and love and everything, but I really like being the creator of my own reality. personally, I want to optimise away all of that dependence on conditions for how I feel, which is really good, because for nosebook, it all works out great for them because that gives them a free ride. they'll get better at creating conditions with tech and I'll get good at being awesome without their super duper AI technology or whatever. "adaptation is happens quickly; if you don't adapt, you die"
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)

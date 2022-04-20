@@ -218,4 +218,3 @@ what I mean is, on the surface it looks real bad and stuff, but it looks to be a
 
 
 ### surgery and dissatisfaction
-### 2022-04-20 01:39 - I should be a little clearer
