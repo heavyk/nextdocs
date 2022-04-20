@@ -138,5 +138,84 @@ what I believe this is doing is giving me/us a great opportunity to actually low
 
 [3]: jump back to conspiracy: at that point, their efforts to cancel any signal will no longer have any effect, and so therefore the manifestations will happen. if I get connected, my effect on the environment will be much more than the sun or a geomagnetic storm, so that means that for others, my effect will produce A LOT of heat if the person has resistance (and/or feels resistance seeing someone else with a manifestation), so when I finally get connected, it'll probably be perceived/experienced by the majority as a pretty horendous experience. for those without much resistance, my presence will continue to accelerate their desire to release resistance further.
 
+### 2022-04-20 01:38 - CO2 and acient artifacts coverup
+
+I just got done listening to snake-bros #055 and the beginning part on retrocausality totally blew my mind (more on that later), but at the end they were talking about an article by randall called "reclaiming the beast" which talks about how CO2 is in *every way* beneficial to us and our environment -- and if there is ever a surplus, it just means more plants and limestone -- and it's not like we're actually contributing that much considering that we only contribute some very tiny fraction (less thsn 1% -- the most being in the ocean).
+
+they then continue on, linking it with the coverup of ancient artifacts and why some artifacts get covered up while others don't. it occurred to me when they were talking about it that there is my theory is correct about essentially removing ~1000y of time, it would mean that when the timeline changed, there would be all of these anomalies present where some artfacts would show extremely anomalous dating to it.
+
+to dig into this (because almost certainly someone will have more information about it than me), I want to discuss my theory on how it was done...
+
+what I believe happened is in a prior timeline, we made it to 2012 and as various sources say, that was 12-21-2012 was the date when the "zero point" was reached and from there begins the manifestation of the 7th ray... based on the descriptions given, all accounts seem to suggest that it means the beginning of instant manifestation of thoughts and feelings into reality -- very much similar to the "zenith of atlantis" 12kya. apparently astral and physical mesh so well, that it means instant manifestation.
+
+that is the "day of rest" in which no longer any more effort is needed to create what is wanted (or unwanted). if looked at in this way, the various prophets that talk about the "tribulations" of the "end (of) times" basically all can be attributed not to some abful menace punishing someone for sin or iniquity, but instead -- people manifesting the way that they feel into reality.
+
+if we look at the missing 411 cases (which is I believe a small slice of this effect I'm calling devachan-on-earth), a lot of the more resistant ones never make it back, meanwhile others seem to turn out just fine living with bears and eating berries (stuff like that). if you feel like things are out to get you in a strong way (because that's earth new environment), then *you* will manifest demons that will destroy you; nobody else is punishing you.
+
+---
+
+in the previous version of this timeline, I believe a lot of people created a lot of very unwanted realities. there is no doubt to this, as it's unavoidable, since I cannot attract for someone else or force them to attract what they want. this likely concluded with a large solar outburst.
+
+I probably figured out that at some point this could be optimised if we were to *artificially* keep earth in good conditions (ie. not instant manifestation) and create up "a bigger vortex", so I can't quite be totally sure how we arrived to this situation, but I imagine that through a series of edits to the timeline the 2012y got pushed back further and further in time.
+
+what I mean is, 2012 and the dawn of the 7th ray manifestation at the "zero point" is still ~1000y away.
+
+another part to this is that I believe that the solar acitivity is essentially a reflection of the planetary energy -- that is to say, emotional vibration which I define as vibrating magnetic fields that our body emits. this affects chi, vril, orgone (solar) energy and it's this interaction that causes solar acitivity (sunspots, etc) because I look at the perspective of the sun as doing essentially whatever I'm doing.
+
+I take in energy from a number of different people all over the globe that have a lot of different emotions going on and when this first started, I would feel their emotion very strongly, but after a while I learned how to perceive something that felt bad perceptually different, so that it feels good. the sun must be doing that with us, and the earth's magnetic field is kind of like the composite of all of our emotional vibration to which the sun is responding to -- exactly like I'm doing to all of those using my perception. the earth (and all other planets in this solar system) are using the sun's perception, and so because the sun doesn't want to feel like the earth (neither do I want to feel like my subscribers), I find a way to transform that energy. like the sun, each new form of perception I come to realise, my vibration rises and to you guys, it probably looks like that increases my perceptive capacity and attraction speed.
+
+just like the earth affects the sun and the sun affects the earth, we all affect eachother's vibrations, and influence each other's perception. I don't know if others see better when they're around me (I know jaron doesn't but I think he's in the same predicament as I am), but I do know that I have a dramatic effect on others. just have a look at how much more rapidly things manifest when people interact with me in public. this effect will only continue to increase.
+
+therefore, I imagine that the 2038 deadline[^1] is to get off of the planet, because I think the whole point is to optimise for the extremes, and 1000y gives many people sufficient time to make the decision of what it is that they want to do.
+
+---
+
+I've mentioned this previously, but I think it's only really allowed for people who don't actually feel very good to purchase expanded perception because that's mainly offesetting their negative attraction.
+
+these will be the "cool kids" running the show. like osiris' pyramid, I'm essentially providing the conditions (transformation) to their vibration which is causing me to continually find new improvements and increase my vibration (like the sun). they need those conditions to survive, and they need a nearly perfect compliance (obediance) world to keep everything from falling apart for the time that they're running the show.
+
+it's almost certain that they're in the process of completely taking over all positions of power and dividing the resources amongst theirselves into their agreed upon domains of power.
+
+I believe that just like 9/11 give them the opportunity to begin justifying the utilisation of force to accomplish what is wanted, the CO2 and "green energy" is exactly the same. I would almost certainly expect a complete conversion to very heavy-handed social systems which keep them deciding what people can and cannot do. what I mean is, everyone who wants to feel good will become like me and everyone who does not will have to "eat or be eaten".
+
+when factoring in the effects of leapfrogging-time-pickles, you can imagine that we will be actively creating more and more effiecient and heavy-handed power structures to keep us away from our connection for longer and longer periods of time. the extremes will continue to become more and more extreme as I believe most of us will optimise for perception, and so to offset how good we feel, we'll need to either get off of the planet or create more and more bad-feeling people.
+
+---
+
+I think I mentioned this in the previous entry, but I believe the whole point is to ramp up the difficulty such that they are going to be putting all of their effort to keep someone away from their connection. when someone finds their connection, they'll get temporal capacity and can alter their timeline to optimise it, but until then, every person will have to find a way to feel good no matter the conditions.
+
+then, like I said, I believe that once you've gotten to a position where they can no longer hold you away from your connection, you will find your connection. I think when that happens, attraction power is going to dramatically increase, and so I imagine that those who do find their connection will either optimise their timeline for more difficulty or leave the planet (or both).
+
+what I'm saying is, the only way "out" will be to find a way to feel (and therefore attract) a reality no matter the conditions. few people will do this, I imagine. each time, we optimise our timeline, we'll (at least I will) create more and more bad-guys, to optimise them even further and to provide increased challenges. the first guy through (me) will have it the easiest cause the bad-guys will have the least experience holding away the manifestation, and the last one through will have it the most difficult time cause the bad-guys will have the most experience and best tech. I don't know if that'll be me, but I intend for it to be. I say last because whenever he/she makes it through his/her attraction power will be so much, the sun will rapidly accelerate its output (many orders of magnitude faster than the sun is now with me) and it'll be the "point of no return" for the sun. I suspect we'll be a quasar at that time.
+
+---
+
+it won't all be bad conditions though. in fact, I imagine it'll just be that way for those that actually feel good (because their system will need to "normalise" them and their attraction power) so that they don't cause too much of an influence on others (like me now).
+
+almost certainly there will be a lot of good conditions available, but something similar to porn, they're not actually all that good for you if you want to actually be a master of feeling the way you want to feel.
+
+I forsee a lot of new economic and tech advances which will greatly increase a person's ability to artificiall feel good or distract them from how bad they feel.
+
+---
+
+from my perspective, I consider that I either built this system or am the marketing team for it (tesla is the creator) -- and even if I were the only creator, don't imagine that I would try and micromanage the "world leaders" decisions. I figure most of them are artificial creations (demons, golems, fallen-angels, etc.) and I'm sure that they'll many meetings to figure out how to "survive" and keep everything a secret.
+
+I also don't really have any difficulty to think about this failing, as this clearly is being done from a position "outiside" of time (retrocausuality), and so from my perspective, we are definitely going to make it to 2012, and -- if anything goes wrong, it's not a problem because I would just create better suited world leaders to not fumble it and jump back into the timeline. it's guaranteed to succeed.
+
+as such, I don't actually think there will be all that much conflict at all. I think it'll be pretty peaceful, and the rapid advances in tech will keep people quite busy. we'll probably colonise the entire solar system.
+
+I think this solar system and all the alterations of time has created essentially a replay of the et-guide-to-creation where in this newly forming "galaxy" there will be those (like me) that are the s/t (spiritual-technological civilisations) and the tech civs. the tech civs will rely on their technology and creations to feel good, meanwhile the s/t will have a different perspective on needing conditions to feel good.
+
+there are also many similarities also to (dtp's description of) atlantis as well, and the emerging "world government" will be much more like a "decentralised atlantis" or maybe "decentralised socialism" -- and I imagine there will be many processes (rituals) of equalisation to facilitate (properly earned) "just distribution" of resources. I'm fairly certain that it'll work out really well, too -- maybe "too well". we'll see...
+
+---
+
+this went differently than I thought it would. in conclusion, I think that the paleo-coverup was to be able to erase 1000y of time, and the CO2/energy stuff is just a giant power grab, but for us it means we'll just make our own way instead of relying on their "green" power. they can make a whole bunch of rules, but if nobody wants to play their game, their rules mean nothing. it would be really funny if they're just elaborately shooting theirselves in the foot, and instead there's a mass migration to asia, africa, and south america.
+
+what I mean is, on the surface it looks real bad and stuff, but it looks to be an enormous opportunity rather than a problem. (the-problem-is-the-solution)
+
+[1]: the thing where my "future self" told me I have til 2038 is something I still haven't figured out yet. my best guess so far is it's the time I have until I must leave the planet, cause if I stay things are getting too energetic (ie. my presence is causing too many other people to attract their reailities too quickly), and so therefore I need to find a way out before then. I've postulated death and transferrence into another body, etc. I've concocted ideas like the pluto idea to try and see what I can do about that. my current idea is that I'll establish a place on another planet and my target right now is pluto to minimise effects on this one. I'll stay out there for the duration of the time, and that'll allow for a kind of "staging point" where we can go back and edit this timeline as much as we want to and do anything necessary before the transition, where I get pulled toward my "2012 self". the other idea is that if we're exactly 1000y less, it's 1022 now, and I 2038 is when that transition will take place. anyway there's no real telling what that means, now but I'm *certain* that it'll become apparent to me eventually.
+
 
 ### surgery and dissatisfaction
+### 2022-04-20 01:39 - I should be a little clearer
