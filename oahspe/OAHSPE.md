@@ -606,7 +606,7 @@ END OF BOOK OF JEHOVIH
 
 ### CHAPTER 2 Sethantes
 
- 05/2.1. When the hour ended, God again ascended the throne, and the marshals raised the signals of order, and the archangels went and stood in a crescent in front of the throne. Etisyai sat at the feet of God, and the splendor of her glory, unadorned, except with white and yellow drapery, shone through all the talents Jehovih had given her—the perfection of purity, wisdom, and love; the like of which only Gods had looked upon!
+05/2.1. When the hour ended, God again ascended the throne, and the marshals raised the signals of order, and the archangels went and stood in a crescent in front of the throne. Etisyai sat at the feet of God, and the splendor of her glory, unadorned, except with white and yellow drapery, shone through all the talents Jehovih had given her—the perfection of purity, wisdom, and love; the like of which only Gods had looked upon!
 
 05/2.2. God said: In Your name, O Jehovih, I now found the session of Your kingdom in the lower heaven. As long as man and woman shall bring forth heirs to You, this kingdom shall not cease to glorify You. Let the Lords approach the throne.
 
@@ -766,49 +766,28 @@ END OF BOOK OF JEHOVIH
 
 05/4.7. This, then, is representative of their lamentations:
 
-05/4.8. Where is my home, O Jehovih? When I was happy and my feet wandered.
-
-05/4.9. I dwelt with Your hosts, far above! Far above! Your glory shining.
-
-05/4.10. O the songs in Your upraised kingdoms! When shall I rejoice in the music of my own house?
-
-05/4.11. O those sparkling, running waters! O the pastimes and feasts of love!
-
-05/4.12. Where is it, O Jehovih? It was my home in high heaven!
-
-05/4.13. I fell, I fell in darkness! Wandering soul within me, that led me forth.
-
-05/4.14. The gardens of Jehovih stood on every hand. O senseless feet to take me onward!
-
-05/4.15. Into the darkness I was lured; sweet perfumes arose amid the darkness.
-
-05/4.16. Intricate in Your glory, O Jehovih! I lost the way. I was lost!
-
-05/4.17. The music of Your spheres was shut out. I was enveloped in darkness!
-
-05/4.18. Where is my home, O Jehovih? Why have I forsaken[^133] it?
-
-05/4.19. Crystals, and high arches on every side. Full, standing out, shining.
-
-05/4.20. And the songs of my sweet loves! Such was my home and place of revelry!
-
-05/4.21. I bartered them all away, wandering forth. Buried myself in the opaque, in the dark!
-
-05/4.22. O for my home in high heaven! Mirth, song, rest, and love, clear shining.
-
-05/4.23. You, O Jehovih, have given me sons and daughters. Out of this darkness my gems were born!
-
-05/4.24. O I will polish them up. Kin of my kin, I will raise them up!
-
-05/4.25. Your Goddesses in heaven above will come. In ships of fire descending!
-
-05/4.26. My jewels shall enter and rise with me. We shall search for my home; the haven of rest!
-
-05/4.27. I see You, O Jehovih, in the distance. Higher than the highest of heavens!
-
-05/4.28. O hasten,[^134] my home, and my rest! O ripen these, my precious diadems!
-
-05/4.29. O take us to ethereal worlds.
+    05/4.8. Where is my home, O Jehovih? When I was happy and my feet wandered.
+    05/4.9. I dwelt with Your hosts, far above! Far above! Your glory shining.
+    05/4.10. O the songs in Your upraised kingdoms! When shall I rejoice in the music of my own house?
+    05/4.11. O those sparkling, running waters! O the pastimes and feasts of love!
+    05/4.12. Where is it, O Jehovih? It was my home in high heaven!
+    05/4.13. I fell, I fell in darkness! Wandering soul within me, that led me forth.
+    05/4.14. The gardens of Jehovih stood on every hand. O senseless feet to take me onward!
+    05/4.15. Into the darkness I was lured; sweet perfumes arose amid the darkness.
+    05/4.16. Intricate in Your glory, O Jehovih! I lost the way. I was lost!
+    05/4.17. The music of Your spheres was shut out. I was enveloped in darkness!
+    05/4.18. Where is my home, O Jehovih? Why have I forsaken[^133] it?
+    05/4.19. Crystals, and high arches on every side. Full, standing out, shining.
+    05/4.20. And the songs of my sweet loves! Such was my home and place of revelry!
+    05/4.21. I bartered them all away, wandering forth. Buried myself in the opaque, in the dark!
+    05/4.22. O for my home in high heaven! Mirth, song, rest, and love, clear shining.
+    05/4.23. You, O Jehovih, have given me sons and daughters. Out of this darkness my gems were born!
+    05/4.24. O I will polish them up. Kin of my kin, I will raise them up!
+    05/4.25. Your Goddesses in heaven above will come. In ships of fire descending!
+    05/4.26. My jewels shall enter and rise with me. We shall search for my home; the haven of rest!
+    05/4.27. I see You, O Jehovih, in the distance. Higher than the highest of heavens!
+    05/4.28. O hasten,[^134] my home, and my rest! O ripen these, my precious diadems!
+    05/4.29. O take us to ethereal worlds.
 
 05/4.30. But no one could repeat their numerous lamentations, for there were hundreds of thousands of them. And as the ethereans sang them, the es’yans, the newborn, the atmosphereans, listened, longing listened, and looked upward.
 
@@ -31712,32 +31691,21 @@ The meaning of the word in the ancient tongue is: Ab: Something is, as the earth
 I cannot exist separate from thinking, nor can my life move even my hand without thinking. Therefore thinking is before life itself. I could not think if I had not inherited it from the I AM. Therefore He is the Knowledge pervading all life and all corporeal things. This thinking is ka. D’ab is the fourth proposition in the problem, signifying a creation coming out of the first and second. For as ab stands for general creation, life and coming together, motion, etc., so d’ab signifies that which creates out of the evil creation, or lesser creation. As man sins against creation if he kills. Thus he becomes a creator himself, but of death. This is d’ab.
 Ra: the fifth part of the problem, which is evil in crossing conditions of earth. I may plan war, but of my own self kill not; but my soldiers do the killing. My thoughts, my life and my powers are directed to evil creation. I am the d’ab ra, or evil creator. Ra alone is sin, evil, destruction, death; but he who stands behind as the inventive mind is the creator of sin, the d’ab ra.
 At least such was the doctrine of the ancients. They held that the word was the digest of all things into five simple problems. Moreover, they taught that to repeat the word over and over put man in conjunc­tion with the I AM in all holiness. [See 20/32.7; but there is also a tablet called Abracadabra, see 20/34.16; 37/5.30-31.]
-A’du: Death. [see
-
-04/4.17]
+A’du: Death. [see 04/4.17]
 Agni: Fire or light, especially without combustion, as spirit lights, a pillar of fire by day, as with the Israelites going out of Egypt. [See e.g., 05/13.4; 35/D.17, 72, 74.]
 A’ji: Semi-dark. A dense region in etherea which sometimes descends to the earth. Less than nebula. [see 35/D.56]
 Algonquin: The United States of the North American Indians before their destruction by the Christians. See O‑pah‑Egoquim. [See 24/27.48-49; also, Saphah is filled with cited Algonquin words and ceremonies.]
 Anash: A wicked tongue; one of the Hebrew seven tetracts (evil dispositions within man). [see 10/13.9-11; 11/1.68]
-Angel: A spirit man or woman. (The word, spirit, does not define whether man or animal, but is sometimes used instead of angel.); see Spirit. [see e.g.,
-
-04/2.1]
+Angel: A spirit man or woman. (The word, spirit, does not define whether man or animal, but is sometimes used instead of angel.); see Spirit. [see e.g., 04/2.1]
 Anubi: God of the scales. Sometimes called, God of Justice. See plate of Anubi i051, with ceremonies, Saphah 35/V. [also see, e.g., 25/4.4-6; 25/7.1-3]
 Aph: The God who submerged the continent of Pan. See Aph 10/ and account of the flood.
 Apollo: The God to whom was assigned the duty of beautifying mortals in form and figure. See Book of Apollo 14/. He had many names, as Soodhga, So Gow, Choo-­Choo, Sudghda, and so on; but the meaning is the same, whether in Chinese, Hindu, Greek, Latin or English. [also see, e.g., 15/3.10]
-Apostrophe: Something omitted, but which in this history is of no importance. [There are Innumerable examples throughout Oahspe. For example, with the name Ah’shong, there are sounds between the Ah and the shong, but perhaps unpronounceable and unrepresentable in mortal language. For instance, in the English language, there is no symbol for the sound of a staccato clicking of the tip of the tongue sucking against the gum line of the upper front teeth, sometimes referred to by writers as tsk, tsk, tsk. || Therefore, in the place where such a sound occurred in a word, an apostrophe would be placed there instead.
-Hence, as we have been taught, an apostrophe is used for contraction of a word.]
+Apostrophe: Something omitted, but which in this history is of no importance. [There are Innumerable examples throughout Oahspe. For example, with the name Ah’shong, there are sounds between the Ah and the shong, but perhaps unpronounceable and unrepresentable in mortal language. For instance, in the English language, there is no symbol for the sound of a staccato clicking of the tip of the tongue sucking against the gum line of the upper front teeth, sometimes referred to by writers as tsk, tsk, tsk. || Therefore, in the place where such a sound occurred in a word, an apostrophe would be placed there instead. Hence, as we have been taught, an apostrophe is used for contraction of a word.]
 Archangels: Angels next in rank to Gods, who dwell in certain arcs in etherea. They generally come in the dawn of a cycle to give new inspiration to mortals.
 Asaphs: Angels in heaven whose office it is to receive the spirit when a mortal dies, and bear it to the place prepared for it. They are in organic associations. Their rank is next below ashars.
 Ashars: Guardian angels who are appointed over mortals, to be with them during life. They deliver the spirit in time of death into the hands of the asaphs. They also keep the record of the mortal, which is also given to the asaphs in heaven, along with the newborn spirit. Ashars are next in rank to loo’is. See word loo’is.
-Asu, or Adam: The first race of man. Did not walk upright. [see
-
-04/6.11; also image i013]
-Atmospherea: Substances or worlds that are intermediate in condition between etherea and corporea. [see
-
-04/2.1-10, especially
-
-04/2.8-10; also see 35/D.121]
+Asu, or Adam: The first race of man. Did not walk upright. [see 04/6.11; also image i013]
+Atmospherea: Substances or worlds that are intermediate in condition between etherea and corporea. [see 04/2.1-10, especially 04/2.8-10; also see 35/D.121]
 Aven: Evil actions. One of the seven Hebrew tetracts (evil dispositions within man). [see 10/13.9-11; 11/1.68; 21/11.4]
 Avom lights: Such as are adapted to the company. [At 20/9.9, avom would mean a decrease of light, to suit the company; being a soft pleasant light, in no way threatening, but more like an attractively warm light that perhaps doesn’t unduly call attention to itself, yet in whose presence one feels safe and secure.]
 Babel: Confounded by compounding too many things together, as the Yi-haic language.
@@ -31754,7 +31722,6 @@ Chinvat: The boundary between the rotating atmosphere of the earth and the ether
 Christ, or Kriste: Wisdom, knowledge, education. After the false God, Looeamong, falsely took this name, it became synonymous with warrior.
 Christians, or Kriste’yans: A brotherhood of warriors. One who rushes into a multitude of rioters, and, with a sword, enforces peace, is a true Christian. A people whose faith is in arms and standing armies. (The following words are synonymous; Brahma, budha, christ, kriste, baal ashtaroth, dagon, vishnu, ashdod, knowledge, wisdom, chreshna, light, po, te’in, wah, manito, and, in fact, a score of others.)
 Corpor: Whatever has length, breadth and thick­ness, and is perceptible to corporeal sight, hearing and feeling; the extreme opposite condition from ether, or solution, or rarefaction. Corporea signifies all corpor anywhere, or the corporeal realm.
-
 Corporean: A man of the earth; any man, all men. In contradistinction from an angel who is a man of es, a spirit.
 Crucify: To melt; to test by fire; to test by binding. The original form of testing a su’is or sar’gis (medium), was by binding him on a wheel. [see image i022]
 C’Vorkum: The roadway of the Solar Phalanx. Also spelled C’vork’um, Cevorkum, C’warkum. Literally meaning the place and direction of the chief vortex. In practical terms it means the orbit of the sun with its family of planets, or its place in that orbit. The etherean roadway is shown in various images in Oahspe including Cevorkum and Anoad.
@@ -31802,9 +31769,7 @@ Hidan Sun: North Star. [see 26/2.1]
 Hidan Vortex: The vortex of the North Star. [see 25/48.26]
 Hirom: A Zarathustrian hat; a hat red with blood; a rimless hat. Made famous by Hab-bak, a Faithist, who was cast into a den of lions. The hat was afterward recovered. The master in the lodge wears the hat, during which time he is saluted as cardinal, or Hi-rom, which is the Ahamic word for red hat. A skull cap. Hi-rom was also an atmospherean heavenly kingdom over Africa, E’chad being Lord God over it. [see 20/38.8-12; 20/37.1; 20/37.15-27]
 Homa: Refreshing perfume, more delicate than Haoma. [see 23/3.15]
-Ho’tu: Barrenness. [see
-
-04/4.17]
+Ho’tu: Barrenness. [see 04/4.17]
 Iesu: A sexless person; one without the possibility of sexual passion. Some men, as Brahma, attain to iesu. Improperly called iesus. The Hebraic word Ieue was made from Iesu; one who can hear the voice of the Great Spirit. Ieue has been improperly confounded with Jehovih. Men who attain iesu are said to have attained the state of woman, i.e., to have changed sex. –Ed.
 I’hins: The race born of a’su and angels; the half-breeds, from whom we are the descendants.
 I’hua’Mazda: God of Zarathustra. See God’s Word 21/.
@@ -31812,9 +31777,7 @@ I’huan: Half breed between I’hins and druks. See image i014. The copper-colo
 Imbrele: Poison worms materialized. [See 20/39.10.] Also spelled Imbrael.
 Isaah: I’s’ah, a Chinese prophet. The word “Isaiah” is of modern Hebrew. Most likely the ancient Phoenicians disguised the Chinese name purposely. Is, faith, A’, knowledge, AH, above the earth; a prophet. Is’aac is Faithist in something above the earth; Is’ra’al, Faith in Jehovih. A password in the fourth degree of a lodge of prophets. RA, however, in Hebrew, is evil. [Also spelled in Oahspe as I-sa-ah. Isaah was also the name of a Captain and later one of the 14 Chief Generals under Te-in the false God of China who himself was under the chief false God De’yus; general Isaah was assigned to earth duty, and subsequently, on earth, he was known as a God of China. [see 35/K.45; 25/45.2; 25/16.33]
 Iz‑Zerlites: Isaerites. Israelites. The beginnings of the Israelites was the combining of two peoples, the Iz and the Zerl tribes. Organized by Abraham, the Faithists moved into what would become Egypt, and were called Israelites. Moses led them out of Egypt, and they settled in North Arabinya [Middle East] and they called their new land Israel. Also spelled Iz’Zerlites in Oahspe. [see 25/48.12; 27/13.9; 25/12.12; 35/J.2; 35/I.5.1]
-Jehovih: See Jehovih
-
-04/. One who can hear Jehovih’s voice is Ieue or Iesu. Some scholars have (erroneously?) used the words Jehovih, Elohim and Ieue as synonymous.
+Jehovih: See Jehovih 04/. One who can hear Jehovih’s voice is Ieue or Iesu. Some scholars have (erroneously?) used the words Jehovih, Elohim and Ieue as synonymous.
 Ji’ay: Semi-light substance in etherea. Less dense than a’ji. [see 35/D.57]
 Judas: From the Persian name Zhoo’da, or Zhoo’das. Betrayer of Zarathustra. [see 21/27.11-14]
 Kingdom: Synonymous with jov, or an organic association with a head. The head on earth is king, in heaven, jovs, or God, or Jove, or Joss.
@@ -31825,11 +31788,8 @@ Lord: A God of the earth, or a part of the earth; next lower in rank than the Go
 Lord God: An angel that fulfills both offices.
 Lord-self, or false Lords: As the name implies. (Any angel that announces himself to mortals as an officer in heaven, is false.)
 Lusters: Angels who maintain sex in the es world by proximity to mortals. Nocturnal visitors for secret vice. (The cause of the evil habit in men, and also the producers of harlots [prostitutes, whores] among women.)
-
 Moses: A basket baby; a “come by chance.” See full history of Moses in this work, Arc of Bon 27/13. See 28/16 and 17, Moses in heaven.
-Nebulae: A dense atmosphere of corporeal substance. [see
-
-04/2.8]
+Nebulae: A dense atmosphere of corporeal substance. [see 04/2.8]
 Nirvania: [sometimes called Nirvana] Emancipated; etherean heavens; beyond the earth’s heavens; the higher heavens.
 Nirvanian: One of a council who appoint the Orians their places and duties.
 Oahspe: Sky, earth (corpor) and spirit. The all; the sum of corporeal and spiritual knowledge as at present.
@@ -31842,15 +31802,11 @@ Sacrifice: Worship; to give one’s time, or property, or money, without an equi
 Sar’gis: Both a materialized angel, or a person in whose presence the angels can take on the semblance of mortal forms. [see 09/3.22<fn-su’is>]
 Satan: The desire to be a leader; the philosophy of placing self above and before all others; the animal self or beast self within man; a leader of selfs; the Chief of and over the seven tetracts (evil dispositions within man); the evil voice within man; the voice of one’s surroundings and inherited tendencies toward darkness, in contradistinction from the voice of Jehovih within the soul; Satan, the captain of evil; the supposed opposite of Jehovih; the captain of the selfish passions; selfishness per se; self; those who love evil and its practice. [see 27/24.24-27; 28/4.5-8; 28/28.3-4; 34/8.16-28; 10/13.10; 11/1.68; 35/D.89]
 Schood of Hein: A negative place, comparable with a calm on earth or a calm at sea. [see 10/3.13]
-Se’mu: Commingled earth, air, water, heat and thick atmospherea; protoplasm-like; colloidal-like substance; the preceding substance of the living. [see
-
-04/5.4]
-Se’muan Age: Before the creation of animal life, or at the beginning of that time. See Jehovih
-
-04/.
+Se’mu: Commingled earth, air, water, heat and thick atmospherea; protoplasm-like; colloidal-like substance; the preceding substance of the living. [see 04/5.4]
+Se’muan Age: Before the creation of animal life, or at the beginning of that time. See Jehovih 04/.
 Shem: One of the ancient names of India.
 Shepherd Kings: A nickname to a wandering tribe who kept flocks of goats, in the southwest of Persia. They also migrated into Egypt, and became powerful. At first, they were mild and non-resistant, but afterward, they became savage warriors. Those who did not apostatize, but kept themselves holy, separated from the others and became the founders of Ebra, which afterward became Hebrew, which afterward became Jew. These were, therefore, of the cream of the ancient Zarathustrians of three thousand years before.
- Shrevars: also Shrevarhs or Shrievers (or singular: Shrevar, Shrevarh or Shriever): are to a new earth what guardian angels are to mortals. [see 05/16.2-4; 23/1.6; 23/11.2-3]
+Shrevars: also Shrevarhs or Shrievers (or singular: Shrevar, Shrevarh or Shriever): are to a new earth what guardian angels are to mortals. [see 05/16.2-4; 23/1.6; 23/11.2-3]
 Shri: Spirit, a breath; and sometimes angel.
 S’pe’oke or Spe‑oke: Spirit house; that is, prior to this time the angels from the earth had not grown sufficiently to desire homesteads, neither had the heavens of the earth been prepared with plateaus sufficient for such spirits. Prior to this period angels of low grade were kept with mortals, and taught subjectively. [see 20/33.10<fn-S’pe-oke>]
 Spirit: Synonymous (but not correctly) with angel. (When we say, water, we may not mean the ocean, but when we say, ocean, we mean water.) When we say angel, we do mean a spirit; but when we say spirit, we may not mean an angel. See Angel. Also, spirit means the expression of an entity. For example, how one expresses, and what is expressed, are the result of the state of the spirit.

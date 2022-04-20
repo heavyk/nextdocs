@@ -13,31 +13,33 @@ it neglects the midpoint and the other *non-physical* planes (desire, logic, and
 
 ### seeing is believing
 
-as mentioned above, jehova is *only* concerned with the seen and the unseen worlds.
+as mentioned above, jehovih is *only* concerned with the seen and the unseen worlds.
 
 > 04/1.2. He said, I AM! And He comprehended all things, the seen and the unseen. Nor is there anything in all the universe that is not part of Him.
 
-in my 7-layers-of-perception, jehova is essentially saying he only exists in 5-7. this is perfectly fine for me. the other really important thing to note is that *seeing* is what makes something physical or spiritual, and so that means that dogs and animals have a different corporeal world than we do because they *see* things we do not.
+in my 7-layers-of-perception, jehovih is essentially saying he only exists in 5-7. this is perfectly fine for me. the other really important thing to note is that *seeing* is what makes something physical or spiritual, and so that means that dogs and animals have a different corporeal world than we do because they *see* things we do not.
 
 I use the terms "physical" and "non-physical" because for me, the conceptual world is not visible but it *is* physical. this idea of reality only being composed of seen and unseen things is a very oppressive topic in the christian bible, where seeing is believing. if I can see it, then I believe it -- and so therefore anyone who can create a convincing enough image can get believers (power-displays).
 
-this seeing is believing thing has a long history all the way back to moses, with the commandment to make no images and aaron's of golden calf. seems that for the hebrew peoples, if they can see it, they can believe it. put this into context of where hollywood is today, the 9/11 attacks, FOX/CNN news, and anyone else who can create an image is the one that is creating reality that people will believe in. jehova seems to be driving this point home a bit.
+this seeing is believing thing has a long history all the way back to moses, with the commandment to make no images and aaron's of golden calf. seems that for the hebrew peoples, if they can see it, they can believe it. put this into context of where hollywood is today, the 9/11 attacks, FOX/CNN news, and anyone else who can create an image is the one that is creating reality that people will believe in. jehovih seems to be driving this point home a bit.
 
 you could say that my distinction between physical and non-physical, is unnecessary, but consider that physical things can be both seen and unseen. however, non-physical things cannot be seen. they can be translated into a physical representation or referred to with a symbol or an operation, but no amount of divinity will every make addition or subtraction a physical thing that someone can see or hold.
 
-### jehova as universe (but probably galaxy)
+### jehovih as universe (but probably galaxy)
 
-in the beginning of the book, it defines the word "Jehovih" (jehova) as being synonymous with the universe. later on jehova makes "God" as chief over the angels.
+in the beginning of the book, it defines the word "Jehovih" (jehovih) as being synonymous with the universe. later on jehovih makes "God" as chief over the angels.
 
-in later places, it appears that jehova is not the universe though. I haven't read enough of the book yet to say for sure but it seems to me that jehova could possibly be thought of, not as the universe, but as the galaxy. jehova is a ethereal (conceptual) construct that desires for creation to reach up to his ethereal (conceptual) level.
+in later places, it appears that jehovih is not the universe though. I haven't read enough of the book yet to say for sure but it seems to me that jehovih could possibly be thought of, not as the universe, but as the galaxy. jehovih is a ethereal (conceptual) construct that desires for creation to reach up to his ethereal (conceptual) level.
 
-the very interesting thing about it is that jehova seems to have two sides to him in that one side he has a lot of commandments and obedience, and *LOVES* power structures, at the same time he says that you really only can find it out for yourself [TODO: find reference]
+the very interesting thing about it is that jehovih seems to have two sides to him in that one side he has a lot of commandments and obedience, and *LOVES* power structures, at the same time he says that you really only can find it out for yourself (your own knowledge):
+
+> 01/2.19. The time of preaching and believing is at an end. Man shall know by his own knowledge, and practice that which he knows. In this, My light is being manifested in this day.
 
 the reason why I say galaxy is because kuthumi states that other galaxies do not have physical planes. we can see other galaxies with our radio telescopes, and we can say that something is there, but whether they have hydrogen and the other physical elements exactly like we do, we can't be sure. they probably have a system of elements which are sustained by galactic vibrations, but if this galaxy is special in that we're the only ones (so far) with a physical plane, their "elements" are likely quite different representations of those vibrations than we think they are (ie. the redshift problem) -- and so they may have a whole different concept of what the "physical" world is composed of, even though they likely share very generic concepts like schools, living places, landscapes, environments, etc.
 
 ### the harvest
 
-it appears that somehow jehova inherited a bunch of atmospherian (astral) spirits (angels) that reside in the lower heavans. the angels that have gained enough maturity and capability will ascend up to the ethereal plane to be with jehova. this supposedly happens every 3000y, and every 3ky a new set of Gods and Lords are given dominion over the earth and its heavans.
+it appears that somehow jehovih inherited a bunch of atmospherian (astral) spirits (angels) that reside in the lower heavans. the angels that have gained enough maturity and capability will ascend up to the ethereal plane to be with jehovih. this supposedly happens every 3000y, and every 3ky a new set of Gods and Lords are given dominion over the earth and its heavans.
 
 the book lists a ridiculous amount of iterations on the harvests, who was the "God" and how many angels did they cause to ascend up to the ethereal realms. at some point, there are no more angels that wish to ascend anymore (this reminds me of kuthumi's mention of the INFECTED ONES no longer responding to rehabilitation). what strikes me is how many numbers there are. talk about a cosmic measuring contest.
 
@@ -59,13 +61,13 @@ so, again all of this is opposite.
 
 ### creation of man and the tree of life
 
-there are many angels that have not corporeal bodies, jehova makes adam, out of the plant vegetation of the planet (it's like a gree pond scum) -- the same precursor to trees, plants, and animals (DNA?), and calls adam the tree and gives the tree life (and spirit).
+there are many angels that have not corporeal bodies, jehovih makes adam, out of the plant vegetation of the planet (it's like a gree pond scum) -- the same precursor to trees, plants, and animals (DNA?), and calls adam the tree and gives the tree life (and spirit).
 
 the angels could freely put on bodies and take them off at the time, but if the angels procreated with the tree of life (adam), then the angels would lose their angelic qualities, become procrators and become dead to the heaven from which they come (ie. fall).
 
 the angels intermingled with the race of adam (asu) and became the a mix of angels and asu called "man"
 
-after that, jehova takes the earth out of the vegetative stage, causing the angels to lose their "corporeal" bodies again (so like they're back to being astral?). the next line says:
+after that, jehovih takes the earth out of the vegetative stage, causing the angels to lose their "corporeal" bodies again (so like they're back to being astral?). the next line says:
 
 > 04/6.19. Jehovih said: Because you have raised up those who shall be joint heirs in heaven, you shall tread the earth with your feet, and walk by the sides of the new born, being guardian angels over them, for they are of your own flesh and kin.
 
@@ -75,7 +77,7 @@ man is special though, because of the angels' interaction with them in the creat
 
 ---
 
-after that, corporeal earth passes away, and the first race of man (asu) goes away, but the spirits remain intact inside of jehova and will come to incarnate the next generation of humans (i'hins)
+after that, corporeal earth passes away, and the first race of man (asu) goes away, but the spirits remain intact inside of jehovih and will come to incarnate the next generation of humans (i'hins)
 
 ### everything has a unique spirit (source)
 
@@ -85,7 +87,7 @@ a while back, I was contemplating what a "spirit", "soul", or "source" is (@[new
 
 keep in mind that your "spirit" or "source" (probably what this book is calling etheric) does not have any resistance associated with it and is eternal (ie. no resistance). the psychic body (sometimes called the source), is the location from where these "angels" are coming from.. they're called "atmospheric" (astral) entities that could take on physical bodies, but after procreating with the tree of life are now earth-bound.
 
-### jehova creates "God" as "Chief" over the earth
+### jehovih creates "God" as "Chief" over the earth
 
     04/7.6. Behold the work you have taken in hand! It was commanded to you all, to partake of all the fruits of the earth except of the fruit of the tree of life, which is of the knowledge of the earth and heaven, lest you lose your inheritance in etherea.
 
@@ -156,7 +158,7 @@ for ideas on a large-scale implementation of this influencing of events and thin
 
 ### my serpent
 
-in addition to saying "serpent of the woman", when jehova is talking about the 3ky periods where the earth will travel "my serpent" (04/7.2-4), it conjured the image of the spine in my mind. we know that the "rising of the serpent" is the kundalini rising up the spinal column.
+in addition to saying "serpent of the woman", when jehovih is talking about the 3ky periods where the earth will travel "my serpent" (04/7.2-4), it conjured the image of the spine in my mind. we know that the "rising of the serpent" is the kundalini rising up the spinal column.
 
 there is also an image in the document of the solar system's "serpent" which shows the planets starting with neptune, uranus, saturn, jupiter, isis/vesta, ceres/astrea, heve(?)/juno, pallas/mars, earth, venus, mercury, sun.
 
@@ -182,7 +184,7 @@ also, the unaccessible root and crown chakras correspond to the division of osir
 
 ---
 
-so then when jehova says that he has earth to pass through etherean lights every 3ky as we travel "my serpent", the image that I get is that our trajectory through the galaxy, we pass through these nodes of etheric condensation.
+so then when jehovih says that he has earth to pass through etherean lights every 3ky as we travel "my serpent", the image that I get is that our trajectory through the galaxy, we pass through these nodes of etheric condensation.
 
 so, that would make the galactic serpent considerably bigger, with the "supermassive black hole" in the centre, the "heart" of the galaxy, just as our own heart pulses energy up and down the spine (ie up and down the spiral arms in the galaxy).
 
@@ -192,11 +194,11 @@ so this gets me thinking.. if the north pole is like the pineal for the earth, a
 
 therefore, at some time in the past, mars must have been the sympathetic opposite of the sun.
 
-anyway, further evidence that jehova is the galaxy (but probably with aspirations of becoming bigger than or the next universe).
+anyway, further evidence that jehovih is the galaxy (but probably with aspirations of becoming bigger than or the next universe).
 
 ### forbidden trees and the division of osiris
 
-in the first story, the angels partake of the forbidden "tree of *life*" and then jehova sets "God" and the various angels up on the contient of "Pan". eating of the tree of life makes the angels the progenitors to "man" (see 04/7.5-8) (btw a similar version of the "woman" took from the tree of life and caused a cataclysm was relayed in dtp).
+in the first story, the angels partake of the forbidden "tree of *life*" and then jehovih sets "God" and the various angels up on the contient of "Pan". eating of the tree of life makes the angels the progenitors to "man" (see 04/7.5-8) (btw a similar version of the "woman" took from the tree of life and caused a cataclysm was relayed in dtp).
 
 he then gives the angels the "lower heaven" (ie. the astral) and the angels will be part of the earth and travel with it.
 
@@ -210,9 +212,9 @@ the wierdest thing about this book is the brides and bridegrooms thing:
 
 > 04/7.16. At the termination of the dominion of My God and his Lords, they shall in these, My bound heavens, gather together all those angels who have been prepared in wisdom and strength for resurrection to My etherean kingdoms. And these angels shall be called Brides and Bridegrooms to Jehovih, for they are Mine and in My service.
 
-the wierd thing is that marriage sounds a lot like ownership, and indeed jehova is telling is claiming ownership of the wise and worthy angels there at the end of each 3ky period.
+the wierd thing is that marriage sounds a lot like ownership, and indeed jehovih is telling is claiming ownership of the wise and worthy angels there at the end of each 3ky period.
 
-it really gives me a bad vibe. this jehova guy is really strange because some things it feels like he's right on about, but then other things like the obediance and ownership things are really weird. it could be on purpose, considering that he designed it so that the angels would be rebellious to his commands, it seems like the bifrication is between those who want to be owned and obediant to his commands (which he gives eternal life) and those who want to rebel (the false Gods).
+it really gives me a bad vibe. this jehovih guy is really strange because some things it feels like he's right on about, but then other things like the obediance and ownership things are really weird. it could be on purpose, considering that he designed it so that the angels would be rebellious to his commands, it seems like the bifrication is between those who want to be owned and obediant to his commands (which he gives eternal life) and those who want to rebel (the false Gods).
 
 ### the great pyramid and fallen-angels
 
@@ -257,3 +259,43 @@ therefore, I'm guessing that the galaxy itself (I postulate that this is "Jehovi
 I think the whole point is to make a ridiculous power structure that nobody wants to be a part of. I think it's a strawman, designed to be defeated and overthrown.
 
 [1]: if I had to guess, I would say it's probably something to do with the taurus constellation (aldebaron?), as "tau" stuff seems to be the attracting keyword. the great pyramid is also located on tau-ros (ros-tau) mountain.
+
+### jehovih installs power structures based on performance
+
+this perfectly exemplifies the kind of power structures he puts into place. jehova commands "God" go take a rest for a year and do a tour to set things in order:
+
+> 05/5.10. The voice of Jehovih came to God, saying: It is well, My Son, to take a rest. Behold, you have toiled a hundred years, day and night, without ceasing. You shall, therefore, appoint other officers, and spread out the kingdom of Hored to cover all the land of Whaga (the continent of Pan). And you shall appoint in My name your most efficient officer to sit on the throne for a short space of time, for you shall travel and visit the five Lords of the earth and their kingdoms.
+> 05/5.11. And you shall take with you a thousand heralds, a thousand messengers, and five thousand musicians. And you shall have a ship sufficient to carry your host, and to be your house wherever you go. See to it, and set all things in order, and depart on a journey of one year.
+
+so then "God", after a bunch of deliberation gets 50 groups of guys together to go out and establish more colonies in the same manner that the archangel established this one -- which is kinda weird because the archangel established the city (in the name of jehovih) and then put sethantes ("God") on the throne there. howevere here is it telling them to establish the new colonies in the same way (in the name of "God") and then put theirselves on the throne -- which is a bit different, I must say.
+
+finally, the one who measures up the highest in resurrections will get to sit in for "God" while he's gone...
+
+> 05/5.18. God said: While I am absent, the one who stands highest in the grades shall sit on my throne, being God in my place; your God and my God shall be chosen according to the transcendence of the one who has done the most for the resurrection of the es’yans.
+
+I thought for sure this was going to a dramatic failure, but I looked ahead, and apparently Ha’jah the chosen, did really well. there was much rejoicing, tears and glory for jehovih:
+
+> 05/21.16. God (Ha’jah) and the Lords returned, in tears, to the throne, and now the plateau of everlasting light began to ascend. Music sprang from every side, glorifying Jehovih and the magnificence of His bountiful worlds.
+
+I'm honestly surprised it worked out... I have a feeling this was just getting the "low-hanging fruit" and the future attempts will not be quite as successful.
+
+### causing wars to create bigger resurrections
+
+05/3.36. You are one of the cornerstones of Seffas, and his house shall embrace atmospherea and the whole earth. Words are already taking root in the mouths of mortals; and for tens of thousands of years, war will reign; might against might, darkness against darkness. Hundreds of millions will be slain in wars on the earth, and their souls be thrown into chaos. Even as you saw these spirits fastening onto mortals for food, so will spirits in chaos, millions of them, fasten themselves on the battlefields, still battling; or fasten themselves on mortals, obsessing them to madness and death.
+
+
+### the two resurrections
+
+05/14.2. Now is the beginning of the second resurrection. Even as the corporean puts off the corporeal body, and is born a spirit, becoming the first resurrection, so are you, in putting away individual self and becoming an organic community, the beginning of the second resurrection.
+
+so, the first is when you lose your physical body and become a spirit. the second is creating a heavanly parliment:
+
+05/13.1. So God enlarged the place of Hored, and built one thousand more pillars of fire, enlarging the circle and otherwise making it a place of splendor. And God called together the recorders from the libraries of heaven, and caused them to select one hundred thousand new members for the house of Moeb (Parliament), choosing them from the highest on the lists.
+
+05/23.14. The Kingdom of Hored was broken up and dissolved. The spirits did not love to labor or learn according to Jehovih’s plan, but returned to the earth‑attractions; and they were called drujas,[^191] because they did not desire resurrection.
+
+### trolling jehovih
+
+
+
+05/23.4. Jehovih had said: Those who come out of the earth shall be sufficient to themselves. As a mother provides for her child, so do I provide for the spirit generations of a corporeal world; but when they are mature in wisdom, strength and love, I command them to take the offices of Lords and God in the management of My kingdoms.

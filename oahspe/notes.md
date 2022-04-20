@@ -21,3 +21,17 @@ weird coincidence.
 69" (the average height of man) * 1000 / 144 = units of 39.930' (nearly 40 feet). I've often wondered the whole emphasis on 40. perhaps it's because it captures the first 3 prime numbers: 2^3 * 5.
 
 5 (and 6) are also interesting because 5 is the only prime which is the sum of the first two primes (cause odd + odd = even, and 2 is the only even prime). also if you add (2+3)+(2*3) you get 11, (and I don't know if any other primes do that).
+
+---
+
+Pan: Original name of the earth, from Ah; as I see what I see; and, only what I see, is (exists). Also the name of a continent in the Pacific Ocean, submerged about 25,000 years ago. See Aph 10/, the flood.
+
+only what is seen, exists -- as opposed to only what can be measured, is knowledge?:
+
+Osire, Osiris: Philosophy of measurement. One who maintains that only what can be measured or weighed is real knowledge. The sun is the largest, therefore, the Sun is the Almightiest. Also a God; see Book of Osiris (18/). There was also a false God Osiris of later date who inspired the building of pyramids. [see 25/49.8-20]
+
+---
+
+05/16.17. And on the third day, ninety million angels assembled in Moeb (place of Parliment) and Hored (platau with Kingdom of God), to witness the descending and ascending of Jehovih’s chosen.
+
+that's some pretty serious recognition. it reminds me of the one tick episode where it takes them (the guys that look like arthur) months to go through all of the ceremony in order to destroy the earth with a black hole -- or a business meeting with so many chosen ones to thank.
