@@ -1236,6 +1236,76 @@ one of the interesting things I noted was this idea of "celestial identities" --
 
 [2]: in fact, this period of time is kind of like a survival of the fittest, and some will look to conditions and technology to feel good, while others will look to optimise their perception. both ways are valid, and ultimately neither is better. personally though, I prefer to rely on my capacity to attract what I want, rather than rely on a well-functioning society and technology to feel the way I want. I get that good conditions are great and peace and love and everything, but I really like being the creator of my own reality. personally, I want to optimise away all of that dependence on conditions for how I feel, which is really good, because for nosebook, it all works out great for them because that gives them a free ride. they'll get better at creating conditions with tech and I'll get good at being awesome without their super duper AI technology or whatever. "adaptation is happens quickly; if you don't adapt, you die"
 
+### 2022-04-21 06:49 - what in the world is this bridegroom thing?
+
+so, I'm reading the [epic of gilgamesh](/eog/epic-of-gilgamesh.md) and in snake-bros #067, kyle notices that there is a lot of symbolism between enkidu taking communion, and being the protector of the shepherd's flock, etc. there are other parallels as well, but the one that caught my eye is that there is this pivotal moment in the story at the end of the first chapter where:
+
+> Gilgamesh the king is about to celebrate marriage with the Queen of Love, and he still demands to be first with the bride, the king to be first and the husband to follow.
+
+the way I read that is that there is a coming event where the "queen of love" ie. ishtar is about to marry gilgamesh, but he decides he still wants to be the first to experience the brides for those getting married in the city (supposedly this is a "right" for the "gods" to decide who gets to be first).
+
+people are pretty pissed about this, cause the brides want to choose who they want to experience first -- and so enkidu decides he's going to roll into town and change how things were done (ie. change the "right" of the "gods").
+
+> At these words Enkidu turned white in the face, ‘I will go to the place where Gilgamesh lords it over the people, I will challenge him boldly, and I will cry aloud in Uruk, "I have come to change the old order, for I am the strongest here."
+
+> In Uruk the bridal bed was made, fit for the goddess of love. The bride waited for the bridegroom, but in the night Gilgamesh got up and came to the house. Then Enkidu stepped out, he stood in the street and blocked the way.
+
+they wrestle, and instead of changing the order, they become friends and enkidu is made king with a proper wife and everything. the compiled version there doesn't expound on it but in other tablets enkidu is given girls and a proper wife of his own and nobility (upper-class) status in the city. so no actual change was made.
+
+---
+
+it doesn't really say it so well in that version of the text, but in other translations, it really gives the sense that gilgamesh is about to get married, and the contention is that he's about to get married (seemingly to the "queen of love" -- ishtar) which is supposed to be like the most beautiful goddess, but even still he wants to be the first for the brides getting married, and this is a problem.
+
+gilgamesh has a dream that an axe (enkidu) lands at the gate of gilgamesh's marital chamber and he decides to instead love the axe (enkidu) and love it/him as if it were his wife.
+
+enkidu is tamed/weakened (civilised) by a harlot and then afterward goes out to hang out with the animal shepherds (gilgamesh is described earlier in the text as the "shepherd [to the people] of uruk").
+
+while with the shepherds, someone comes to tell enkidu that gilgamesh is still trying to be first on the brides (it's his right) even though he's getting married to the queen of love (ishtar).
+
+enkidu decides to tell gilgamesh that he needs to change his ways. he steps in to change the order of things and they wrestle and become friends.
+
+later on, after the death of his friend enkidu he totally rejects ishtar and she gets pissed off and causes a change of the world age (it's kind unclear because it says that enlil did it but she also laments doing it).
+
+> Then Ishtar the sweet-voiced Queen of Heaven cried out like a woman in travail: "Alas the days of old are turned to dust because I commanded evil; why did I command thus evil in the council of all the gods? I commanded wars to destroy the people, but are they not my people, for I brought them forth? Now like the spawn of fish they float in the ocean."
+
+---
+
+anyway it seems that there is something to do with the changing of the world era and this "brides and bridegrooms" thing. I've been reading oahspe a lot lately and the brides and bridegrooms in that are angels that want to ascend to get married to jehovih so that he can own them and they can ascend to his etheric worlds. in that book, the brides and bridegrooms feels to me like a performance metric like sales, revenue, user acquisition, or market penetration.
+
+even the bible mentions this brides and bridegrooms. it's a bit different but there are still connections, like the 10 virgins waiting for the bridegroom to come sometime during the night. 5 of which didn't have oil for their lamps (oil and lamps always refers to the CSF and the illumination of the mind), so it's talking about some sort of mental preparedness or capacity for perception.
+
+the interesting part is that for the bible the bridegroom is coming sometime during the *night*. gilgamesh here is the bridegroom and he is going to sleep 6 days and 7 nights. I'm fairly certain that "day" is higher solar output and night is lesser solar output -- and I don't mean the 11y solar cycles -- I'm meaning the bigger ones, like the one that I believe exists as a 1024y cycle, but I'm not sure if it's that one.
+
+I say solar cycles because they seem to correspond to times of more or less enlightenment. the renaissance would be day, for example, and we would just be coming out of a night cycle, so probably another day would also be say 1880-1920 and anther night would be 1930-1960 or so (can't say for sure).
+
+I just noticed that I have there dates of around 30y or so, and a weird thing about oahspe is it divides these cycles into 33y periods -- thought that was weird.
+
+anyway, the thing that caught my eye was the bridegroom coming at *night* which is what I consider to be low solar activity -- which may be the reason for the consideration of the lamps with oil in them -- as in, if the sun is active, then people will be more "ready" for the "christ coming" -- which just to be clear, I associate the "christ" with the pineal gland, and so therefore the two olive trees are the two hemipheres and the oil lamp is the pineal gland. for a more graphic description of this read [the holy trinosophia](/mht/most-holy-trinosophia.md) and the same imagery is used.
+
+in my opinion, the "coming of the christ" is basically worldwide enlightenment (ie. the oil rising up to the lamp). it says that some will be ready and some won't. but remember, this is the antichrist timeline, so that means that this is a "christless" (ie. no enlightenment or pineal activation unless you meet the meet the minimum bad-feeling requirements)
+
+---
+
+OK, back to epic of gilgamesh... the other thing that I noticed too in when kyle was relaying the story is that gilgamesh (the bridegroom) has to resist sleep for 6 days and 7 nights. the 6 days thing is really important too as it's the same length of time that enkidu was with the harlot.
+
+this whole story reminds me so much of the "hero twins" trope. the hero twins in this story are enkidu and gilgamesh. the hero twins are also the alpha and omega (gilgamesh identifies himself as this in the beginning of the epic) and it's where I got the inspiration for the name "leapfrogging-time-pickles" as it's the same formula.
+
+another connection to that is that in oahspe osiris divides himself into the god of the earth (enki) and lord of the heavan (enlil). anubis is also there too. it's really weird and I haven't put it all together yet (still haven't read all of the translations yet either), but the major conclusion that I have here is that if enkidu (who has many of jesus' symbols) appears to be the hero twin that dies in this story, and gilgamesh is the bridegroom -- then I suppose enkidu is then the bridegroom and gilgamesh is the one that dies.
+
+it's one of those weird hollywood-style stories where the gilgamesh is a total a-hole for the first part of the story but by the end I'm rooting for him and I want him to succeed. it's quite bizarre.
+
+---
+
+in conclusion, I think what I learned from writing about this one is that the bridegroom is one of the "hero twins" (enkidu after putting on clothes looks like a bridegroom) and these two seem to correspond to the changing of the ages.
+
+I totally see the "bride" not as like physical girls or something like that but actually the part of the brain which lights up and can see (the eye). in this story (and others), it seems that there is a huge problem with the rejection of ishtar as the bride for the bridegroom.
+
+in the jesus story, jesus (the bridgroom) is the stone which the builders rejected. in this story, although it appears that enlil (the bad-guy) is the cause for the world age change because he hates the humans (which gilgamesh is supposed to be a shepherd to), but in reality it appears to me instead that the flood and the change of age happened because gilgamesh rejected ishtar and she got pissed off
+
+two hero twins, a good-guy (ea) and a bad-guy (enlil), and a psycho woman (ishtar).
+
+I'll keep working on it. I keep seeing the idea and then it goes away, but the bride and bridegroom bit seems important to me. ugh. quitting for now.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
