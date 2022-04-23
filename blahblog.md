@@ -1306,6 +1306,47 @@ two hero twins, a good-guy (ea) and a bad-guy (enlil), and a psycho woman (ishta
 
 I'll keep working on it. I keep seeing the idea and then it goes away, but the bride and bridegroom bit seems important to me. ugh. quitting for now.
 
+### 2022-04-23 11:20 - feeling kinda dead
+
+it's hard to explain how I feel, but it all started after I wrote @[picklepick](2022-04-18 13:43). because I don't have much external influnce, most of my reality is based on others' reactions, and I think that entry really deflated a lot of expectations or something.
+
+I think that there was perhaps a really positive or optimistic outlook for my future (referring to nosebook), and it looks like that ruined it. there are two major things that I think could be happening:
+
+1. everybody has been so fixed on cataclysm and crash, that nobody actually has any long-term plans. if I've planned only 10-20y ahead, thinking that is all that there is, then it's kind of a problem if the company or organisation doesn't actually plan to exist that long. this could be a good reason for a pretty good deflation. it could even be perceived by some that no cataclysm actually is a worse disaster.
+2. there is a realisation that things can't be held away forever. like, for example -- how long will it take before other people figure out tesla's "world system" and wireless power becomes a thing? or, what about using the computer/phone with the mind? how long can all of that stuff be kept away from the public. 20y? 50y? 100y? do you really think that more than 100y will go by before tesla technology is mainstream? almost certainly this situation will assert itself into the hands of the energy sector. stuff like that.
+
+you see, I think it's that second one that is really causing a problem, because imagine for a moment that joe rogan's dream about thousands of teslas starting to invent new things which will revolutionise the energy and transportation sectors (in his interview with musk). well, that's a pretty big problem, because that means very rapid population growth, and according to most that want to retain power and control, that's a pretty big problem. the last thing they would want is for us to actually have high technology.
+
+so, I think that has put a pretty big dampner on a lot of their outlook into the future, and I feel it.
+
+as a result, I've never felt more aimless and under motivated before in my life. I normally have something I want to do all the time, and would actually feel like I don't have enough time because there are so many things I want to do -- yet instead, I just feel like there isn't enough time to do anything, and I don't really have any desire to do anything in particular.
+
+every time that I feel something that I want to do -- like I wanted to work again a little bit on the meaningful-chaos idea and it just feels like I don't really want to do it.
+
+so, what ends up happening is I read something like oahspe and it feels to me like I'm wasting my time. I go to write down notes on venus and I start out feeling like I have the idea and I'll just write it out, but by the end, I feel like I've made things worse -- which is sort of fine, because the whole point of writing here is to abort the idea so I can get the evolution of the idea.
+
+another reason why I may be feeling more negative feedback is becuse I'm not really writing very much good stuff. I'm kinda just brainbarfing into my notes instead of writing something coherent. I think people may be taking me seriously, when all that's happening is I'm just externalising a lot more of the chaos my brain experiences in the "figuring it out" process. so, if you're thinking that I've gone off of the deep end -- I have not; I've always been like this and it's how I figure stuff out -- just since this blahblog, I've been attempting to write stuff I'm still figuring out -- rather than only the stuff I've given previous thought to.
+
+it's fine, as I'm pretty sure this is just a phase (or maybe not actually). I kinda like this sort of brainbarfing. it gives me more negative feedback, but I think it's totally fine.
+
+---
+
+the other thing I wanted to talk about is, in the previous entry, I said that only people meeting the minimum requirement of bad-feeling are elligable for expanded perception. the sense I had is that I was putting off a "holier than thou" vibe when I said that.
+
+if I feel bad, then I will want something to make me feel better. this is normal. I used to use drugs all the time to feel better. I do agree that using conditions to feel better is not really a good solution, as it usually exacerbates the problem -- because rarely do people use the good-feeling of the condition to modify the underlying perception. instead, they just begin to rely more and more on the condition.
+
+this will be most likely what happens to most. I noticed when reading oahspe that osiris got thothma to build the pyramid's foundation on wanting to preserve the physical body. it's almost certain that so many of these fallen-angels are all extremely conditional, needing certain conditions to survive. I think it's sorta like glasses -- they don't really "correct" the underlying reason for having out-of-focus vision -- just focus the image to make things clearer -- which just causes the person to rely on them more. in the same manner, I find it very unlikely that anyone will actually choose to have bad conditions and make the mental effort to change one's perception, when it's much easier to just get glasses.
+
+I realise that this is the same subject as pharmaceuticals and addictions, and ... and ... and... it's human nature to look for the technology or conditions to temporarily treat the symptoms... (I think that's how to say it).
+
+from my perspective, that problem is a good thing. I had this conversation with dad the other night and I explained that most people are motivated by physical, social, or emotional things .. the greatest of these is emotional things, because you have full control over how you feel. if I'm motivated socially, anyone can tell me what to do and how to feel, so I have to find people I trust, and ones who won't tell me to feel a way I don't want to feel -- etc. if I'm motivated by physical conditions, again this is problematic for a number of reasons (acquisition, tolerance, image, presentation, circumstance, etc.)
+
+so really, the best thing that can happen to anyone is for them to enter into this state where they're completely motivated by how they want to feel rather than than other things.
+
+it's only in that state that one begins to take control of how they want to feel, and that's a super good thing. once one takes a look at the alternatives, being "addicted" is actually the first steps on the path to freedom. I don't mean to say this the wrong way, but I will: I consider an "addict" more free than subordinate or a rich person. why? because they'll do anything to feel the way they want to feel; so you can't control them; only they can control them.
+
+I really reconmmend that people do what they feel like doing rather than feeling socially or economically motivated or obligated.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
