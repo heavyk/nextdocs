@@ -68,7 +68,6 @@ anatau and jeortau are twins. allayandra was also created with them, which gives
 - (+7) allayandra / mars / aries
 - (-5+) vulcan
 
-
 ### family ties and a hidden 5th ray triad?
 
 - (+7) allayandra
@@ -145,28 +144,37 @@ the idea here is that just like the other hidden triad is to make stability so t
 
 #### opposite polarity
 
-- (-1) anatau
-- (+2) jeortau and (-2) isis
-- (-3) unessa, (+-3-+) sanatau, and (+3) ra
+- (-1) anatau ?? (+1) allayandra
+- (+2) jeortau || (-2) isis
+- (-3) unessa >>|| (+-3-+) sanatau ||<< (+3) ra
 - (+-4) saturn
 - (-5+) vulcan
 - (+-6-+) osiris
-- (-7) genxicat, (+7) thoth, and (+7) allayandra
+- (-7) genxicat ?| (+7) allayandra  |? (+7) thoth
 
 #### reversals
 
-- (-1) anatau, (+1) allayandra -> (-5+) vulcan
-- (+2) jeortau, (-2) isis -> (+-6-+) osiris
-- (-3) unessa, (+3) ra, (+-3-+) sanatau -> (-7) genxicat, (+7) thoth, and (+7) allayandra
-- (-2) isis -> (+-4) saturn
-- (+-4) saturn -> (+-6-+) osiris
+- (-1) anatau, (+1) allayandra
+  - (-5+) vulcan
+- (+2) jeortau, (-2) isis
+  - (+-6-+) osiris
+- (-3) unessa, (+3) ra, (+-3-+) sanatau
+  - (+7) thoth, (-7) genxicat, and (+7) allayandra
+- (-2) isis
+  - (+-4) saturn
+- (+-4) saturn
+  - (+-6-+) osiris
 
 #### reflections
 
-- (-1) anatau, (+1) allayandra -> (-7) genxicat, (+7) thoth
-- (-2) isis -> (+-4) saturn
-- (-3) unessa, (+3) ra, (+-3-+) sanatau -> (-5+) vulcan
-- (+-4) saturn -> (+-6-+) osiris
+- (-1) anatau, (+1) allayandra
+  - (-7) genxicat, (+7) thoth
+- (-2) isis
+  - (+-4) saturn
+- (-3) unessa, (+3) ra, (+-3-+) sanatau
+  - (-5+) vulcan
+- (+-4) saturn
+  - (+-6-+) osiris
 
 #### midpoints
 
