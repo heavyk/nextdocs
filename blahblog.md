@@ -1377,6 +1377,42 @@ did he *want* to get to the top? did he *need* to get to the top? or, did he hav
 
 only he could say for sure, but 100% guaranteed that all of those thorns there are his own perceptions.
 
+### 2022-04-24 00:40 - snake trip
+
+it's hard to describe how I feel after listening to the last ep of snake-bros #240. I felt desire to listen to it, meaning that there was interest to know my reaction to it. though the first part was especially relevant with the UFOs stuff, as I can't wait for the next installment with laura pinning marty to give more elaborated answers -- as that's going to be pretty cool. I also felt like the conclusion to that email was also very relevant in that there could be endless discussion on the subject, but they/we simply don't have the capacity yet to fully understand the many phenomenons[^1].
+
+what I mean is that there also felt like it felt kind of silly to continue to discuss the phenomena if there's no way to actually directly experience it and explore it deeper.
+
+this is my own view on drugs. when I first found out that I was stuck in nosebook, I was very sad because I had only begun to explore this area of the mind. I figured out how to expand my vision and it seemed to me to be infinite, so I (of course) wanted to explore it. however, knowing that nosebook is actively preventing me from experiencing it (hang on, this ties in to what I'm going to say next about the trip) made me feel very sad because I really believed that I wouldn't ever get to actually explore this astral world (the visual part of it).
+
+according to the sirians, only the first 3/7th of the conceptual world (the concrete mind) has visual parts to it and this is what interfaces with the imagination. I was wanting to see it in order to believe (explore) it. over time, I realised that I didn't need to see the conceptual world to believe it. I didn't really need the manifestation of being able to see the angels, demons, fey, etc, to expand my interaction with this world.
+
+there was another part in that episode about "not looking back" which I thought the part about addiction is really relevant to that, and it reminds me of a tick episode where he fights the proto clown and gets hit into outer space and goes on a journey inside of his mind. the part about self-realisation was the part where he has to not look (just believe) and then step out into the great abyss. this imagery is also in "most holy trinisophia" as well, and in the temptation was to have the rich guy guide him -- which was a false guide.
+
+---
+
+what I'm trying to say is that the aspect of looking (back or forward) is the utilisation of sensory input to determine your direction: inotherwords, you go toward what you're tuned to -- so, if you want to go toward physical, don't look back to the conceptual world and if you want to go to the conceptual, don't look back to the physicsal.
+
+in a lot of ways, I've essentiall chosen the conceptual path, and so it's kind of like a trecherous path for me to "look back" or try and do things the old way. for example, after I had the brain haemorrhage (or these people involved with these UFO/fey/spirital experiences), and I was forever changed. I simply couldn't go back to doing things the way I used to do them. effort to try and do so, were met with difficulty. the way that I experience it, is that each "layer" seems to be counter-rotating from the previous[^2], so the conceptual way of doing will "against the grain" of the previous physical way of doing things.
+
+yesterday I wrote @[blahblog](2022-04-23 11:20) to explain this idea, but it feels like I'm in the bermuda triangle and all of my senses are completely out of sorts (so I gatta rely on the instruments rather than my physical senses). anyway, you could imagine this is kinda what death[^3] feels like too, and it takes a while to orient oneself either back into the physical where effort is necessary or up into the conceptual where everything is effortless and thoughts become reality instananeously.
+
+therefore, for me this entire situation feels entirely "against the grain" for me, as I'm becoming a conceptual being. everything works differently and I have to tune to what I want to experience. I can't really "look back" and try to go back to the old way of doing things.
+
+---
+
+it's hard to explain this feeling, because there's a definite part of me that wants to go and hang out with marty and stuff and talk about all of this, but the reality is -- well, there are two: first, nosebook cannot allow it to happen because I seem to bring up a lot of taboo topics, and it would be very unwanted for that to happen. I don't really mind that they want to try and hold all of this such a secret, as I believe the whole goal is *not* for me to come and try to be a saviour to anyone -- but instead that some sort of separation will happen instead (temporal as in split or physical as in pluto) which will allow them to keep their secret going. the whole point, is for them to keep their charade going for a long time, and they can't have a reckless hotshot (me) roll through and blow it. if their secrets are blown, then they don't have any obligation anymore to maintain business-as-usual. the other reality that's happening is that I simply don't mind that they want to hold off until the very last second when they have to make the separation. I'm not doing this for any reason other than for my own expansion and capacity to tune to what I want. I don't yet feel like I'm very good at that. when I'm good at it, then you'll know (or maybe not because the separation has happened and they've covered it up).
+
+I just don't really think it's a problem, and actally because the-problem-is-the-solution, I'm totally going to the very bitter end. I *want* them to get as much capacity that they can get to hold people back, because the better the capacity they have the more people have to actually find their own way. it's kinda messed up, I know. anyway, I've always maintained that I'm just the pre-game show. later, there will be others. who are the others? you are. anyone that wants to be, is. that's the point. nobody else is going to "save" you. only you can save you by tuning to what you want and then actually believing it[^4]. that's all I'm doing. I'll get there eventually, and it'll be awesome.
+
+[1]: I think it's plural. I always get these confused -- when to use phenomena and phenomenon. this sentence is a problem because it can be read as singular or plural, "understand the [many phenomena | phenomena]". I've got no idea cause it looks both singlular and plural to me so how do I know which tense to use? anyway...
+
+[2]: upon writing this, I don't know why it feels that way to me. I would have guessed that the imaginary layer is counter-rotating, but perhaps, the imagination is just the turbulant inbetween layer (convergence line) between two systems (like a storm front where more lightning strikes happen between two pressure systems)
+
+[3]: I mean the state further than the astral. I define the astral as the state where visuals become reality really quickly. there's a part in dtp where he sees lolix and their bloody baby.. there. there's a transition from the earth based reality that everyone believes in, to things you believe in (traumas, emotions) manifesting into visuals (like lolix and the baby) and then finally devachan where nearly all resistance is released. though it feels natural in devachan that everything should just appear as its conceptualised, it takes a little bit of time to get used to that when coming from a physical perspective -- and likewise, it takes a child a little while to realise that everything he/she sees is not "real" (ie. the thing everyone else believes is "real" too).
+
+[4]: it's kind of unfortunate that kids get here and they have all these adults around them that cannot see the reality that they see, so after some time, they come to "see" the reality that the majority sees, rather than the one they see. it takes years of practise to see the mainstream reality that everyone else sees, but they eventually "grow up" enough to finally see it.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
