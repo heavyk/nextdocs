@@ -1347,6 +1347,36 @@ it's only in that state that one begins to take control of how they want to feel
 
 I really reconmmend that people do what they feel like doing rather than feeling socially or economically motivated or obligated.
 
+### 2022-04-23 20:40 - obligation and addiction
+
+I noticed when I woke up just now how similar those last two subjects are. imagine for a moment that you're a part of an organisation that has to maintain status quo (like a military or a government), because even if a certain number of the people think things could be done better, the organisation and the people are *obligated* to maintain status quo.
+
+a good example of this may be certain parts of the government that must oppose human capacity for certain technologies because if those technologies were to be acquired, it would ruin their secrecy or security ...
+
+for example, if there were a technology (like a quantum computer or something) that, even if it were to be very useful for us, but it made cracking passwords or reversing hashes a really easy thing, then they would have to prevent that technology from getting into our hands -- no matter how useful that technology could be. or, for example if the technology could be weaponised. like, imagine there were a way to direct the energy coming from the sun at something -- well, that would be 100% free energy in limitless supply (the sun would have to stop working, and that would be a far bigger problem than not having electricity and it won't happen) -- well, that too could easily be weaponised (like the vajra?) to destroy massive things by focusing the energy toward something. therefore, because unlimited electricty from the sun can be weaponised, then they can't allow us to have it.
+
+those examples may sound silly, but I'm fairly certain that something similar to that already exists -- and it's sorta on top of that idea that I constructed my "decentralised socialism" prediction -- the decentralised part is because it needs to look as if the people have the power (ie. democracy), but really it's controlled by whomever has the most resources (the whales). the socialism part was because they'll have to quell our actual access to and capacity to understand these technologies, and since you can't really take something away, they'll have to offer the technology's product in a controlled way, so that we don't actually understand the technology (you know, so like some random guy can't modify his mobile phone to blow up the white house or something).
+
+those people in those organisations are *obligated* to make actions from those social obligations -- meanwhile, an "addict" is driven by their need to feel the way that they want to feel. therefore an addict will give up on most circumstances in order to feel the way they want to feel.
+
+I know because this is what happened to me. I see massive parallels for society in general (excluding the ones with those obligations) and my own experience. it came to a point where I simply couldn't get the conditions that I needed to feel good (MDMA, weed, smokes, etc) and so therefore because I was so emotionally motivated now without conditions to produce those emotions, I was *forced* to find a way to feel the way I wanted to feel without the conditions.
+
+I don't want to say that this is the future for everyone on the planet, because I don't see it that way. instead I see it dividing into the two major groups: those with the economic capacity to purchase the conditions necessary to feel the way they want, and those that can do it perceptively.
+
+the first group is capable of finding ways to satisfy their needs/wants and the second group *is* (I AM) the satisfaction of their needs/wants. in it's most simple form, it's just forcing people to separate into their most evoloved version of their desire (evolution-of-desire) -- and those that want to find the thing they want/need in their own capacity rather than looking for it externally will attract the conditions (this is the return to source/night-side/attraction phase), meanwhile others will use other conditions to construct the conditions they want/need (which is the emission/assertive/positive phase extending out from their source).
+
+neither phase is superior to the other, but it's easy to see that the mindsets in action if looking at it like a hill. some people work so hard to climb the hill and expend so much effort, and those that they're passing on the trail up the hill seem to be passing them at a rapid speed (because they're walking down the hill, not up it). you could say that those walking up it are attracted to the summit and desire to make the effort, meanwhile those walking down the hill are attracted to the plain below and are just allowing theirselves to effortlessly go toward it.
+
+the hill analogy is kind of a bad one, because it's kinda hard to imagine a hill that can appear uphill both ways or downhill both ways, but that's what perception is all about. we cling to our belief that we must expend effort to go toward the goal.
+
+I'm reminded of a picture on facebook with a guy who walked up a hill with thorns on it. he's standing at the top with bloody bare feet a trophy and all those looking at him from the bottom don't see his bloody feet and sacrifice it took him to get to the top there. that image resonates with a lot of people -- and, those that believe it will walk uphill both ways because that's their perception.
+
+it's pretty likely that the perspective of the guy on top of the hill was that, for him, it was actually a *downhill* slope filled with thorns and sharp plants, and he had no choice but to go that way. in fact, it may even be that in his perspective none of those thorns were actually thorns, but he presents his journey as a series of difficulties so people won't resent him anymore than they already do for getting to the top.
+
+did he *want* to get to the top? did he *need* to get to the top? or, did he have a perspective of himself that effortlessly propelled him to the top, naturally?
+
+only he could say for sure, but 100% guaranteed that all of those thorns there are his own perceptions.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
