@@ -1487,6 +1487,47 @@ also, of note, when listening to it, I also had a strange desire to meet that ma
 
 cheers. I have a lot to think about more now!! so awesome!!
 
+### 2022-04-25 11:47 - STS or STO?
+
+when I was younger, I would read a lot of that alien channeling stuff and a really common theme that appeared was the idea that the good aliens are "service to others" and the bad aliens are "service to self". since meeting abraham (they teach selfishness), I've reconsidered that idea.
+
+however, it came to my attention the idea of "snake time" (previous entry) about this idea of STO. to be clear, I'm still a ways off from actually perceiving reality in that way. I wrote it out because I thought the idea was so fascinating and others may want to make similar implementations.
+
+you see, perception is individual. we think we're all experiencing the same thing, but I assure you, that is a complete illusion. we may be looking at or hearing the same things, but the experience and its underlying meaning is very different for every person. there are groups of similar perception though -- and I'm beginning to think that may be one of the more interesting metrics for a "species" -- not breading capacity or similar attributes, but similar perception.
+
+going on this idea a little more, yesterday russ and kyle (I think in #006) were talking about longheads and giants being another parallel hominid species existing parallel to humans. though they have long heads and their size is different, the sense that I get is that these alternate hominid species perceived reality in a very different way than we do. russ relayed a whole thing about this world bank whistleblower and she said that the longheads (decended from akhenaten) were very calculating and mechanical (3rd ray).
+
+I think that's important to look at because I believe that up until just recently (let's say til sometime in the 80s), most people were 2nd ray types, but increasingly there are more and more 7th rays.
+
+the difference between 2nd ray and 3rd ray perception is extremely noticeable. a 3rd ray will put everything into parts (compartmentalise everything) meanwhile the 2nd ray will look to see how everything can relate to another thing. the 2nd ray isn't very creative though because it's so busy relating and making connections (think sales team), that what I think happened is that the longheads (3rd ray types) actually were the catalyst to attract many more 7th ray, 1st ray, and 5th ray types, because (from their perspective) 1st rays are easy to control, 5th rays will be able to produce the concepts and 7th rays implementions necessary for their calculated structure.
+
+also, it's interesting to look at the longheads as the latest 3rd ray incarnation on this planet, because each of the triads (minus the last vulcan 7th ray one) have a 3rd ray in it. the last one is interesting because instead of a 3rd ray it has an opposite polarity 5th ray (vulcan), so he takes up that 3rd ray role but implements concepts rather than structure focussing more on the whole of the concept and how all of those parts work together rather than just the structure itself (in the form of mechanical parts).
+
+you can see how these longheads running the economic show are causing a tremendous change in human perception.
+
+---
+
+that's totally not where I wanted to go with this... so, going back to how I'm in the process of designing this form of perception: it's like any language that one learns -- as in, it requires that one begins to perceive reality through this new format, so for the designer, it takes some getting used to seeing the same reality a different way. it's easy to look at reality the same way (ie. a human "species"), but to make a new form of perception is entirely different.
+
+so, to give an example, when I was at the santo daime ayahuasca ceremony, I was sufficiently removed from my paradigm ("liminal state") that I noticed that if I were to just look for the space between me and what I'm looking at, I can see something new. it took some practise, but I figured it out.
+
+well, this is no different. my major takeaway from yesterday's entry was that there are spatial concepts in the traditional sense -- like the stuff that I see naturally now -- the "image" that isn't really an image which is present before the imagination sees it; some people call it a "knowing". well, that concept world is to the imagination, like ... well, just imagine a bunch of those things residing inside of a non-physical reality. like, for example imagine that you had a "knowing" of all of the things present in your reality and their interactions with each other (I'll call these temporal concepts, in contrast to the previous spatial/abstract concepts). all of these exist in that reality of "now" which extends further out than just one moment, and just like the abstract/spatial concept combines with counter-rotating physical details[^1] to produce an image in the imagination -- so, does this form of perception do the same thing temporally rather than spatially. I have a knowing/sense of all of the things in my reality and their interactions with eachother, and then I can move around inside of that space just like I can move the image around in my imagination.
+
+it's the same thing as the imagination -- just for temporal concepts. what helped me to understand this was that russ said, "that's what memory does" -- and that's a difficult concept to explain, but it's kind of like "remembering the future" and "prophesying the past". I'll leave it at that for lack of a good way to convey the idea in a clearer way.
+
+---
+
+I love this stuff. this is what I live for. I'm always trying to find out new ways to expand my perception and new ways to look at the world. for me all of this is fun. in my perception, I do it for me. I'm wholly STS in that aspect.
+
+anyway, what prompted this was a reaction that I was getting because others thought that this idea is cool too, and I don't have any problem sharing it. however, the fact that I want to share this and other things so much makes me appear more like STO -- though I strongly contend the word "service" because there's no duty or service for me. I *love* it! all of this is fun for me. it's the main reason why I love drugs so much. I probably experience the same amount of exhileration from it as faucet believed he would have to find the "z city" or tesla to find a new electrical something. discovery is so intoxicating.
+
+anyway... it occurred to me that another change of perception is on its way, because nosebook really does not want ideas to spread, and they definitely don't want perception to spread, either. so, they're in the busineess of turning everyone else into a STS rather than STO to ensure as few things spread as much as possible. it's kind of funny how a bunch of 3rd ray longheads are looking at it like they need everything compartmentalised with no relating, and that worked when we were mostly 2/6, but now it's going to be pretty hard to do both perceptually and technologically. they'll probably allow people to expand technologically, thinking that's easier to control.
+
+either way, I'm still doing all of this for my own enjoyment anyway.
+
+[1]: you can only "see" things with appearances relative to things you've already seen before in the physical -- after that, it becomes colours and geometry) to create
+
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
