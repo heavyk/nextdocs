@@ -1439,6 +1439,54 @@ the other thing this explains is why coils make magnetism, as current flowing th
 
 so, what's the ether made out of? is it even tinier concepts and orbiting electrons? like a fractal?
 
+### 2022-04-24 17:19 - time snakes
+
+I just listened to snake-bros #007 and in it kyle mentions the effortless power idea (can't remember the martial arts guy's name). he also mentioned (this was the earlier version of) the idea of being able to be aware of a period of time. he related it in one of the later episodes as being aware of like a 5 minute span of time called now, and I liked the idea so much but like russ said, "how would you even experience that?" and at that time I could begin to feel it, but I was caught up with the span of time part.
+
+it wasn't until this listen that I figured out how to experience it. I'm writing it out here -- just in case someone may find this idea as invigourating as I do.
+
+I'm looking at a figure I drew on paper on my desk where I have the sine wave of two octaves on top of each other, and in the part where the waves are nearby, because one wave is twice the size, they are more nearby to each other.
+
+I have postulated that these are the "zero-points" where two seemingly opposite direction interzctions where one is double the speed of the other can be viewed as essentially the same "moment in time". that's the first part.
+
+the next part is how I look at a concept. so imagine how it is that I write these messages (well, not all of them, because I've been blabing a lot lately) -- and essentially, I am looking at a mass of different particles, and these can be perceived as data or concepts -- and they each are orbiting (spinning) at thier own speed (much like how I described the electrons spinning around the concept in the previous entry). so just imagine this mass of spinning sub-concepts and supporting data as the thing that I want to write or to say...
+
+what I do is I perceive one point, in the mass, and then a lot of times I'm trying to see how to get from one point to another point, and this makes a trajectory through the mass of vibrating particles. it looks a lot like lightning passing in a squigly or jagged route through space (it's not straight), and that's because so many of the spinning particles are affecting it's trajectory from starting point to destination.
+
+if I can't find the path from one point to another, I add more concepts into the mass until I have a more complete picture with a suitable route. I try to add these concepts in "completed" form (ie. without resistance -- just the pure concept).
+
+when I explain the concept to one person, that is, translate it, it always comes out a little different for each person, because I add the other person's perception (the way I feel them) into the mass, and that adds more spinning "electrons" and so therefore affects the  trajectory of my traversal of the subconcepts (the translation) from starting point to destination.
+
+this is how the brain interprets linear time, and I have to take this 5d perspective where I see the concept from all angles at once and convert it into something coherent and linear that can be understood (like I'm doing now).
+
+so, now imagine that the other person that I'm talking to, is kind of analogous to all the vibration present in the situation I'm in. like the retrocusality thing, I *feel* the thing before "I" (my physical senses) translate it into something that has happened.
+
+---
+
+it's so easy to want to transform it into a linear progression from one point to another because that translation, like a juicy soap gives you all the dirty details in the minute-to-minute breakdown, just like writing this is much more invigourating (lol) than just feeling the concept. I love writing these because I enjoy listening to myself translate the idea -- (and this is important) -- because my brain enjoys learning from what I already know. just because I know something doesn't mean my brain has experienced it. this is the immense pleasure I get from translating the concept into text.
+
+so that really is the thing. in order to experience this sort of consciousness of a "span" of time (it would actually be perceived more like a concept where it's interacting and constantly trasnforming with everything around it in the "now". to explain this, when I see a concept, I see it like I see it now, but then later *I* change (so does the conceept interacting and attracting similar concepts), and so I see the concept later as a transformed/evolved verson of itself, or with "these eyes" because my own perception has changed... so I still see the concept and can see it's "future" and "past" interactions with itself in relation to me, but I'm still perceiving it now, and like any living thing, it's constantly transforming and evolving.
+
+---
+
+that doesn't sound as cool as what kyle was transmitting though, so I would say that's kind of like the "pure" (counter-rotating) version of the experience of time, but I have an intermediate solution that is why I wrote this, because I want to figure out how to "collapse the wave function" and traverse a path linearly while still remaining conscious of the whole. I'm not super duper good at this completely, but you see me doing it here where I maintain interaction with the concept and can alter my linear trajectory if I don't like the feel of it.
+
+I can't really explain very well, but I'm sure for everyone else they will just see my linear traversal through time, but I'm beginning to have this idea that I can go back and seemingly "alter" my passage through time. the best way I can describe this is .. say something to someone that they will take the wrong way, or wait until someone takes something you say the wrong way (or misunderstands you), and give little importance to that, and instead alter the feeling that *you* felt in that interaction so that it felt like they understood instead of that they misunderstood, and notice how all of a sudden they seem to now understand you. well, you just switched "timelines". it's like that.
+
+so the idea is to enjoy the linear progression through time, but have the ability to modify the "past" (or is it the present in the "span of now"?) to be the timeline that you want to experience.
+
+now, the next part is to learn how to "complete" all of reality such that it would not bother you to even go back into another "place" -- like what if you missed the bus and instead felt yourself at the bus or at home, or wherever you wanted to go? in your perception, you got there traversing through a lot of (completed) concepts that didn't have a whole lot of significance, and so therefore you weren't held into a different version of now because of them.
+
+I'm really going to have to find a better way to explain it. all I can say is, you won't notice much difference when I figure it out. I'll appear much the same, just have more and more increased "good timing" and it'll appear like things start getting easier and easier.
+
+that's all for now... I don't have it yet, and I'm still quite a ways off, but having realised a way of how it could work means that now I can go do it. easy :)
+
+anyway, I'm sure that this idea will be the first of many because ever since the "retrocausality" experiments, I've really been fascinated by this. you'll see ... I hope. I really want to find a way to first get it, and then demonstrate how effortless it all is.
+
+also, of note, when listening to it, I also had a strange desire to meet that martial arts dude. hopefully one day I will; that'd be cool.
+
+cheers. I have a lot to think about more now!! so awesome!!
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
