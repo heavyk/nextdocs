@@ -10738,6 +10738,7 @@ The first Fonecean Bible—being of Abram, a man chosen by God for the children 
 24/13.17. And God said to Abraham: Divide your people into families of tens, and families of hundreds, and families of thousands, and give to each family one rab’bah, and yet to all of them together one chief rab’bah. And make your will, and appoint your son Isaac and his heirs by his wife Rebecca to be your successors, so that my voice may remain with my chosen.
 
 24/13.18. And Abraham made his will and did all things as God commanded; and he further made the rab’bahs officers in the rites of Emethachavah,[^785] and communicated the sacred name of the Creator (E-O-Ih) to them, as well as the plans of the upper and lower heavens, the dominion of God and the dominion of satan, all of which were kept in secret through the rab’bahs.
+
 	*	*	*	*	*
 
 24/13.19. God said: Behold, there is a time to clear up all things, present and past: Were Abraham father to Hagar’s son, Ishmael, and had he been true to the law of sacrifice among the heathen, then, Ishmael, being first‑born, would have been chosen for the burnt offering.
@@ -25347,16 +25348,16 @@ Holy Veil Day
 
 34/16.06. And Jehovih said: Remember this day, and keep it holy, to the end of the world. For, without books and without arguments, behold, I have proven to you the continued life of the soul of man! ||
 
-On November 14, 1849, in Rochester, New York, U.S.A., in the first public appearance of spirit communication, sitting in a hall rented for the occasion, the young Fox sisters nervously awaited. Till now, only in private homes had they given little demonstrations of the strange rapping power attending them. But tonight, among the audience, sat prominent citizens and a good many skeptics, come to see the “spiritualism” fad put in its place, as a passing fancy of a few tricksters, and the gullible.
-“Oh,” thought some, “witchcraft, ghosts, and goblin folklore dies slowly among the uneducated.” And here lay an opportunity to set aside once and for all, the ludicrous claims they had heard rumors about. For tonight, anyone of the public could come; and many would be on the lookout for trickery and foolery. “Yes,” they thought, “this should be a hoot! A jolly time indeed!”
-For the affair billed itself as amusement, an oddity—so nothing serious was expected. Yet it proved otherwise; committees comprising individuals of sound repute investigated, to try to discover deceit, but all were unsuccessful. And all the while, this excited interest, and the challenge: Would the rapping prove spirits? Or would the skeptics be right that the demonstrations were a fraud—and would this not also put to rest the notion of spirit existence?
-Little did the audience suspect that the angels of Jehovih had long awaited this moment. Indeed, earlier, when the Fox sisters began fearing the thought of public scrutiny in the upcoming Rochester public sitting, an angel of Jehovih spoke to them, encouraging them, telling them that this was their destiny—that for which they had been prepared.
-And the angels did not disappoint. With great aplomb they caused great crackings, raps and uncanny thumps, startling the people. These and other unusual physical events occurred without any physical cause whatsoever. Because of the great interest aroused, and because the reports of the committees were to be reported at the next night’s show, the extravaganza continued for days. Every night, with people swarming to get in, they packed the place. Newspapers wrote inspired accounts, and the wonder spread quickly around the globe.
-Thus started in earnest, the worldwide phenomenon of Spiritualism. And it flourished for a generation, from 1849 to 1882—this latter date being punctuated by the publication of Oahspe, a fitting jewel, crowning the wave of spiritualism.
-(In learning the history, some spiritualists thought spiritualism’s start rested with the first rappings that were definitely understood as spirit communication by the Fox sisters on March 31, 1848. Newbrough, Oahspe’s editor, thought so too. But these rappings were not the public, widely stirring phenomenon that the Rochester rappings were. On that night of March 31 in the hamlet of Hidesville,[^1342] the Fox girls discovered that there was intelligence behind some rappings that responded to their questions. It turned out to be the spirit of a murdered man. But the great flood of angels implied in verses 2 and 3[^1343] was not evident in this comparatively insignificant, isolated event. For here was only one angel, the spirit of a murdered man, made known to a small number of individuals.
-In contrast, on November 14, 1849, the angels of Jehovih publicly proved to mortals immortality of the soul. After that there was no turning back; testimony from so many credible witnesses made an indelible mark upon public consciousness; reports widely spread by the media made it insuppressible. Before then, spiritualism would have been considered, if at all, by most as just another fringe oddity. Previous spirit manifestations and communications (including those of Hidesville),[^1344] had stirred up only marginal curiosity. But the November 14, 1849, demonstration launched Spiritualism as a public movement which would quickly span continents. 
-Jehovih’s work is not confined to small dark corners, but is executed in large measures that affect nations and peoples, influencing and directing the course of future events. Shall we not then, commemorate November 14 as Holy Veil Day?)
-Fallen Sword’s Day
+    On November 14, 1849, in Rochester, New York, U.S.A., in the first public appearance of spirit communication, sitting in a hall rented for the occasion, the young Fox sisters nervously awaited. Till now, only in private homes had they given little demonstrations of the strange rapping power attending them. But tonight, among the audience, sat prominent citizens and a good many skeptics, come to see the “spiritualism” fad put in its place, as a passing fancy of a few tricksters, and the gullible.
+    “Oh,” thought some, “witchcraft, ghosts, and goblin folklore dies slowly among the uneducated.” And here lay an opportunity to set aside once and for all, the ludicrous claims they had heard rumors about. For tonight, anyone of the public could come; and many would be on the lookout for trickery and foolery. “Yes,” they thought, “this should be a hoot! A jolly time indeed!”
+    For the affair billed itself as amusement, an oddity—so nothing serious was expected. Yet it proved otherwise; committees comprising individuals of sound repute investigated, to try to discover deceit, but all were unsuccessful. And all the while, this excited interest, and the challenge: Would the rapping prove spirits? Or would the skeptics be right that the demonstrations were a fraud—and would this not also put to rest the notion of spirit existence?
+    Little did the audience suspect that the angels of Jehovih had long awaited this moment. Indeed, earlier, when the Fox sisters began fearing the thought of public scrutiny in the upcoming Rochester public sitting, an angel of Jehovih spoke to them, encouraging them, telling them that this was their destiny—that for which they had been prepared.
+    And the angels did not disappoint. With great aplomb they caused great crackings, raps and uncanny thumps, startling the people. These and other unusual physical events occurred without any physical cause whatsoever. Because of the great interest aroused, and because the reports of the committees were to be reported at the next night’s show, the extravaganza continued for days. Every night, with people swarming to get in, they packed the place. Newspapers wrote inspired accounts, and the wonder spread quickly around the globe.
+    Thus started in earnest, the worldwide phenomenon of Spiritualism. And it flourished for a generation, from 1849 to 1882—this latter date being punctuated by the publication of Oahspe, a fitting jewel, crowning the wave of spiritualism.
+    (In learning the history, some spiritualists thought spiritualism’s start rested with the first rappings that were definitely understood as spirit communication by the Fox sisters on March 31, 1848. Newbrough, Oahspe’s editor, thought so too. But these rappings were not the public, widely stirring phenomenon that the Rochester rappings were. On that night of March 31 in the hamlet of Hidesville,[^1342] the Fox girls discovered that there was intelligence behind some rappings that responded to their questions. It turned out to be the spirit of a murdered man. But the great flood of angels implied in verses 2 and 3[^1343] was not evident in this comparatively insignificant, isolated event. For here was only one angel, the spirit of a murdered man, made known to a small number of individuals.
+    In contrast, on November 14, 1849, the angels of Jehovih publicly proved to mortals immortality of the soul. After that there was no turning back; testimony from so many credible witnesses made an indelible mark upon public consciousness; reports widely spread by the media made it insuppressible. Before then, spiritualism would have been considered, if at all, by most as just another fringe oddity. Previous spirit manifestations and communications (including those of Hidesville),[^1344] had stirred up only marginal curiosity. But the November 14, 1849, demonstration launched Spiritualism as a public movement which would quickly span continents. 
+    Jehovih’s work is not confined to small dark corners, but is executed in large measures that affect nations and peoples, influencing and directing the course of future events. Shall we not then, commemorate November 14 as Holy Veil Day?)
+    Fallen Sword’s Day
 
 34/17.01. As Jehovih, through His God, delivered Guatama’s slaves into freedom, and so, dealt the final blow to general slavery, so Jehovih blessed that day, and sanctified it.
 
@@ -25368,8 +25369,10 @@ On that day of January 1, 1863, he signed the Emancipation Proclamation and it w
 Thus, while the Emancipation Proclamation did not end all slavery in the world, nor in the USA (it took a later, 1865, constitutional amendment to do that), it nevertheless, from the spiritual perspective of wisdom, dealt the final blow to general slavery.)
 
 END History of the Holy Days
-Book of Saphah
-Saphah Prologue
+
+## Book of Saphah
+
+***Saphah Prologue***
 
 35/A.1. Saphah said: I am to perish.
 
@@ -27163,14 +27166,11 @@ Baugh‑Ghan‑Ghad
 
 35/X.53. B-G-G.: Go forth, My brother Iod’a (Gods), and bring the skulls and the blood, for this is the time of the sacred solemn feast!
 
-35/X.54. I’s: We will go forth and bring a thousand skulls and the blood for our King! All hail! Mighty King of Men! All hail!
+35/X.54. I’s: We will go forth and bring a thousand skulls and the blood for our King! All hail! Mighty King of Men! All hail! (The Master now rises to his feet, with his battle‑ax outstretched, menacingly. The initiates raise their axes and spears menacingly also, and walking backward, depart out of the temple.)
 
-35/X.55. (The Master now rises to his feet, with his battle‑ax outstretched, menacingly. The initiates raise their axes and spears menacingly also, and walking backward, depart out of the temple.)
-Emethachavah
-Brotherhood of Faithists. With modern Gods substituted in place of the Ancients[^1442]
+35/X.55. Emethachavah: Brotherhood of Faithists. With modern Gods substituted in place of the Ancients[^1442]
 
-35/Y.1. These that follow are the first three rites of Emethachavah, that is to say:
-M’git’ow (Dawn)
+35/Y.1. These that follow are the first three rites of Emethachavah, that is to say: M’git’ow (Dawn)
 
 35/Y.2. M’git’ow said: A baker came to sell me bread. I said: Sell your bread to my wife. She and I are one.
 
@@ -29989,6 +29989,7 @@ END OF BOOK OF COSMOGONY AND PROPHECY[^1698]
 38/12.18. “1241 A.D. Five months after the Mongolian battle at Liegnitz, the Sun was darkened (in some places?), and such darkness caused that the stars could be seen in the heavens at three o’clock on Michaelmas day. ‘Obscuratus est Sol (in quibusdam locis?), et facte sunt tenebrae, ita ut stellae viderentur in coelo, circa festum S. Michaelis hora nona.’ Chronicon Claustro‑Neoburgense (of the Monastery of Neuberg, at Vienna; this chronicle comprises the annals of the period from the year 218 A.D. to 1348 [A.D.]), Pez, Scriptores rerum Austriacarum, Lips. 1721, tom. i., p. 458.
 
 38/12.19. “1547 A.D. The 23rd, 24th and 25th of April, consequently the days preceding, and immediately succeeding the battle of Muhlbach, in which the Elector John Frederick was taken prisoner. Kepler says in Paralipom. ad Vitellium, quibus Astronomiae pars Optica traditur, 1604, p. 259, ‘The elder and younger Gemma record that in the year 1547, before the battle between Charles V. and the Duke of Saxony, the Sun appeared for three days as if it were suffused by blood, while at the same time many stars were visible at noon.’ ‘Refert Gemma, pater et filius, anno 1547, ante conflictum Caroli V. cum Saxoniae Duce, Solem per tres dies ceu sanguine perfusum comparuisse, ut etiam stellae pleraque in meridie conspicerentur.’ Kepler (in Stella Nova in Serpentario, p. 113) further expresses his uncertainty as to the cause of the phenomenon; he asks whether the diminution of the Sun’s light be owing to some celestial causes: ‘Solis lumen ob causas quasdam sublimes hebetari,’ Whether it be owing to the wide diffusion of some cometary substance, ‘materia cometica latius sparsa,’ for the cause cannot have originated in our atmosphere, since the stars were visible at noon.’ Schnurrer (Chronik der Seuchen, th. ii., p. 93) thinks notwithstanding the visibility of the stars, that the phenomenon must have been the same as the so‑called ‘Hohenrauch;’ for Charles V. complained before the battle, ‘that the Sun was always obscured when he was about to engage with the enemy.’ ‘Semper se nebulae densitate infestari, quoties sibi cum hoste pugnandum sit.’ (Lambert, Hortens de bello german, lib. vi., p. 182.) Horrebow (Basis Astronomiae, 1735, § 226) makes use of the same expression. Solar light, according to him, is ‘a perpetual Northern‑light within the Sun’s atmosphere, produced by the agency of powerful magnetic forces.’ (See Hanow, in Joh. Dan. Titius’ Gemeinnutzige Abhandlungen uber naturliche Dinge, 1768, p. 102.)”
+
 ---
 
 38/13.1. In these arguments Humboldt inclines to found the theory that these periods of darkness were caused by Sun‑spots. He adduces no proof. And where he refers in his own discourses to observations made of the Sun, he adduces no proof that the darkness was caused by Sun‑spots. Nor is there at present any philosophy for the darkness of these periods being caused by anything in the vicinity of the Sun. That they may be caused by opacous [opaque] bodies between here and the Sun, and not far from the Earth, as set forth in this book, is the most reasonable. The philosophy set forth, however, is more important in being the foundation for determining periods of darkness that will take place hereafter. As for a sudden darkness of a few days, the subject is worthless [irrelevant, trivial]; but where the darkness continues for several years, and frequently during hundreds of years, it is of great moment. For great stress is laid on the coincidence of wars and dissensions occurring among mortals during the same periods of time. While at periods when such darkness does not occur for several hundred years, there is great advancement in peace, and in the acquisition of knowledge. The cosmogony of this book, and the Book of Prophecy, make them parcel and part to each other, and must be studied in that way. For each one implies that the student is acquainted with the other. Where reference is made to Humboldt’s Cosmos, it is the translated copy, by E. C. Otte and B. H. Paul, Ph.D., F.C.S.
@@ -31676,13 +31677,12 @@ END OF THE HISTORY OF SHALAM
 
 END OF BOOK OF JEHOVIH’S KINGDOM ON EARTH
 
-## Also
-
 ***End of Oahspe***
 
-40/1. Glossaries.
-Combined 1882 and 1891 Glossaries
-All glossary images are from the 1882 Oahspe
+## Combined 1882 and 1891 Glossaries
+
+*All glossary images are from the 1882 Oahspe*
+
 Abracadabra: Abrakad’abra was a monotonous prayer, set in the form of a triangle, of short and discon­nected sentences, so arranged that it was without beginning or ending, the which a person might repeat over and over to induce sleep or trance. Persons who practiced casting themselves in trance by this method were called Abracadabras. The following is a sample prayer:
 O Mighty One! I am devoured with sin. Im­merse me in You, O my Father in Heaven! Hide me, so that I will be no more forever! Death I covet, O All One! Sweet world in pain; Death in life! Mighty Creator! Blessed! Heavenly! Amen! Ex­tinguish my iniquities! Make me as nothing! I want to be a saint. Talk to me, O High Ruler, Who made me before I knew it! O Mighty, All Perceiving! Holy, Holy, above all else! What am I that I should call upon You? You know all. I am not hidden. My flesh is dead even while I live. Remove all that is foul in me! Come near me, if only for once, O Mighty One! I could be destroyed by a stroke of Your hand, O All One! I am merely a waste particle in Your creation. Give me the obliterating stroke! Purify me, O Father, or blot me out! O Mighty One! You, Who are never seen, though the print of Your presence is all around me! Glory to You, on high, O Mighty One! How fearfully You made me! Take out that which is dead in me, and lo I am not! Take out that which is life in me, and lo I am not! Hallowed be Your works, O Father! All Holy be Your hidden name! Mighty and everlasting! I dare not call You by Your name, O Father! Holiness is in the thought of You; but words blot You. Take me into You, so that I shall be lost forever! Now I am going! Hold me, O Father! My vision is clouding. O You All Creator! O You Mighty One! Swallow me up, so that I am no more! Immerse me in Your Being! Make me all forgetfulness, forever! I rest in You, for­ever. Amen! O You Mighty One! You All Holy! One, and one only forever! Amen! Blessed are Your works! Blessed are my songs of You! Blessed is all Your creation! Blessed are All Your sons and daughters, forever! Amen! O You Mighty One!
 You everlasting Creator! O Mighty One!

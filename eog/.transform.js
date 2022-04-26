@@ -9,7 +9,8 @@ const input_file = 'epic-of-gilgamesh.md'
 const input_dir = __dirname
 
 const output_file = '.epic-of-gilgamesh-transformed.md'
-const output_dir = __dirname
+const output_dir = Path.join(__dirname, '..', 'temp')
+try { fs.mkdirSync(output_dir) } catch (e) {}
 
 const input_path = Path.join(input_dir, input_file)
 const output_path = OVERWRITE_INPUT ? input_path : Path.join(output_dir, output_file)

@@ -1,18 +1,20 @@
 const fs = require('fs')
 const Path = require('path')
 
-const OVERWRITE_INPUT = true
+const INPUT_TRANSFORMED = false
+const OVERWRITE_INPUT = false
 
 const input_file = 'OAHSPE.md'
 const input_dir = __dirname
 
 const output_file = 'OAHSPE-transformed.md'
-const output_dir = __dirname
+const output_dir = Path.join(__dirname, '..', 'temp')
+try { fs.mkdirSync(output_dir) } catch (e) {}
 
 const input_path = Path.join(input_dir, input_file)
 const output_path = OVERWRITE_INPUT ? input_path : Path.join(output_dir, output_file)
 
-let txt = fs.readFileSync(input_path, 'utf-8')
+let txt = fs.readFileSync(INPUT_TRANSFORMED ? output_path : input_path, 'utf-8')
 
 const prefix = (prefix, str) => str.startsWith(prefix) ? str : prefix+str
 
