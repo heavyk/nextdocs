@@ -1,20 +1,11 @@
 
-solar minimum for ease of calculation I set solar minimum to, jan 1 2020
+# letters to russ allen
 
+I decided that I'm not likely going to ever send any of these letters ever, but I do enjoy writing them, so I figured for now he can just be my invisble pen pal (or muse -- whatever).
 
+if he reads them someday, cool; if he doesn't, that's also cool, too. I don't know how much I'll be "personal" -- but it doesn't really matter. nobody is going to read them anyway...
 
-11.72 * 8 = 2113.76
-11.72 * -3 = 1984.84
-11.72 * -14 = 1855.92
-
-roughly 22 solar cycles in the period
-
----
-
-
-
-
-
+the point is, to discuss thoughts that his podcast inspires me to think about; nothing more. it's kind of nice because often times I think about later things I should have said differently or wanted to say better, so in those cases, I may try to correct some stuff -- but then again, I may not, too. I've been known to get things wrong, so I'll just get them wrong at my leisure, here instead. OH WELL...
 
 ### 2022-03-26 08:49 - thoughts on missing 411
 
@@ -258,3 +249,74 @@ I wanted to talk about one more thing but I forgot it now, so I hope this letter
 kenny
 
 the-problem-is-the-solution!!
+
+### 2022-04-26 14:09 - the coming cataclysm
+
+hey, so now I'm listening to #010 and you (or maybe it was kyle) mentioned the idea that the annunaki knew that a major cataclysm was coming and enlil wanted everything to go, but enki wanted to save some of the creation. well, the part about the knowing that the cataclysm is coming flashed an idea into my head where it may be more simple than that. another concept mentioned was that the cataclysms are caused by disharmonious activity of the humans and we should revert to low-energy buttflap way of living to ensure no more cataclysms (I think this was mentioned at the end of #009).
+
+so, let's take the "giza power plant" idea that the great pyramid is taking in disharmonious earth vibrations and converting them to harmonious vibrations. I'll just assume that's the case for the rest of this letter. I'll also assume that the giza complex existed and was operational before this flood event, too.
+
+so imagine that they've (atlantians, annunaki, whatever) built the pyramid here to transform the disharmonious vibrations in the planet (the stuff that causes earthquakes), and that this was the same technology they used on mars (referring to #007 CIA remote viewing of mars 1Mya). looking at the internals of the pyramid, they would be able to track how much close they're getting to the point of the pyramid overloading and getting more vibrational input than it can transform. this likely was the trigger for the cataclysm, and that's how they saw it coming.
+
+regarding the impact hypothesis, if this vibration is the same vibration that creates gravity, magnets, and reality (the information theory of the universe), then we're attracting these sorts of impactors and likely also hightened solar activity as well. though I blame the sun for the cataclysm, there could have been impactors as well, but almost certainly it was the disharmonious energy of the planet that was being transformed by the pyramid machine.
+
+another thing to think about is -- if moses knew how to use the phramid machine to amp up these vibrations to attract things, and he had access to the pyramid, it's possible that he could have used such a device to alter orbits of planets in the solar system (like mars and venus for example). the reverberations from this amplified attraction could have been the subsequent bronze age collapse, too. random thought: I've often wondered if tesla figured out how to alter the orbits of planets in the solar system, what sort of things could be done with that? in another episode, kyle talks about how time travel doesn't work because we can't even space travel... what cold be possible if the planets in this solar system could be altered, or, if the solar system's position in the galaxy. I dunno, but it's a fun thing to think about -- tuning in to a position the planets in the solar system had at some point in the past. maybe not travel there, but could you tune into a person there and see through their eyes? what if we tune into a previous position the sun had in a galaxy and see the solar system from that past position? that'd be cool right? we could watch the YD climate disaster through the eyes of the various cultures around the planet. anyway...
+
+so back to the cataclysm. let's just say it that "noah's flood" is the beginning of the YD climate catastrophe for the sake of argument. I know it's only 6kya, but just go with the idea. let's say that the pyramid was the cause of the disaster and a number of people that retained the knowledege of how to construct pyramids survived the disaster, and they decide that they want to "make a name for theirselves" and construct another pyramid system (maybe it was in the americas), and they build up the conditions on earth again such that once again O2 levels are extremely high, conditions are good, and this time we're (the humans) are building our own version of the pyramids -- bigger and better, but nothing like the giza complex is cause the annunaki probably made that sparing no expense, highest quality.
+
+well, same thing; disharmonious energies begin to mount in the earth and like giza, this setup is also pumping out high amounts of protons enabling elevated forms of consciousness. I call it global perception where everyone on the planet, including the animals are all tuned into, because of the harmonious vibrations the pyramids are putting out. we all have a visual (project the image into 3d space) and telepathic single conceptual language (like the "reality technicians"). the extra protons would turn lead into gold and create the ions necessary to pump out C14 and O18 to create that peak in that ice core graph that randall shows (it may not have been that much warmer but a lot more energetic shown with elevated C14 and O18).
+
+again, the earth energies (magnetic field) builds up once again to such a high level that we once again attract a tremendous solar blast. the first time when the CME arrived, because of all of the oxygen in the air at that time, it was converted instantly into massive amounts of water (hence the difficulty breathing and extinction of megafauna). the second time though, there likely wasn't nearly as much O2, so it probably didn't cause as much water -- though there are two major "meltwater" pulses and two major spikes in O18 in the ice cores -- so, what if all of that water wasn't caused by all of that ice melting and instead was the instant conversion of solar hydrogren (not the H+ ions the pyramids are putting out which have a specific frequency which can be tuned to attract oxygen or not, but ones that will attract oxygen) into massive amounts of water and snow two times in a row.
+
+the babel story is just the humans that knew of the technology rebuilding the network, and the "gods" get blamed for our own of these catastrophe. with the "gods" peaced out from the planet, it was probably pretty clear to the ones that retained the knowledge of this technology that the "gods" didn't cause the cataclysm -- AND, it's not a cyclical thing, because it happened twice in less than 1ky. nothing other than the reality that disharmonious vibration *attracts* these cataclysms.
+
+---
+
+so what is "disharmonious vibration"? well, I believe that humans and the planet emits a vibrating magnetic field. the field vibrates much faster than most instruments can detect. you won't induce an electrical signal into conductors around you until you have an imbalance.
+
+to illustrate, go online to look at the "goes magnetic field" and notice how it looks like DC biased AC? it fluctuates around but its midpoint now is about ~80nT. a year ago, it was about ~60nT. this is an example of an imbalance. if it were balanced, the night side would have a negative (or at least no) magnetic field, but we are attracting considerably more in the direction of the sattelite. it says that is the Hp field strength (which is parallel to the spin axis). if they provided the He field, it would show the strength pointing toward the sun (which I believe is what attracts the CMEs but they don't provide that data), and there should be a sharp rise before an earth-directed CME and a let down after impact (satisfying the attraction). it's these magnetic fields that I believe are responsible for generating earthquakes and also solar outbursts. it's these magnetic fields that the pyramid is transforming into harmoniusly vibrating protons (H+ ions).
+
+I believe those fields are created by the composite of all attraction of all living things. it's the same vibration that causes forests to attract rain as it is for us to make "attract" a significant other or a car accident into one's reality. it's the sexual/creative force -- the life essence -- the philosopher's stone.
+
+everyone attracts whatever they desire/fear by how it feels, and how strongly they feel it. disharmonious emotion creates sudden rainstorms, earthquakes (like the mexico/germany world cup goal), and all types of things. you can only really attract for yourself though.
+
+### 2022-04-26 15:32 - pyramid feedback loop
+
+hey,
+
+responding to the previous reactions: so, if you think about the idea of using technology to transform emotion into expanded perception, you kinda have a reverse runaway feedback loop. with a system like the giza complex in operation, the more pissed off, angry and violent people get, the more expanded their perception becomes; in a sense, it rewards them for feeling worse, rather than better about their circumstances.
+
+I believe that the entire system has created (purposefully, if you think about the false osiris story) a setup that has trained many humans to react negatively to circumstances, because for most of them -- especially the "gods", the worse they felt about things the more the system would pump them (and the earth) with good-feeling vibration to compensate for the bad-feeling they're admitting.
+
+going further into the idea, consider for yourself the story of oahspe. the head dude, jehovih is ridiculous. he's just as bad as all of the "false Gods" that get put into place.
+
+there's a story channeled by kuthumi called "et view of creation" (see geohanover.com philosophy section) where he talks about a galaxy was created with a physical plane (obviously it's this one cause I'm writing to you in the physical) and this galaxy was designed to attract the INFECTED ONES from all over the universe. like attracts like, so I think the creator of this galaxy designed a galaxy just like jehovih and he setup all of those power structures and after sufficient throneroom meetings and power and glory displays, osiris finally had enough of his nonsense and decided to push it to the limit. the result was the human race and the pyramid -- designed to create a petrie dish with all the nutrients available in the physical plane for evil to grow and multiply until it completely takes over control over the earth. I believe that's the point.
+
+I also believe that so much power has been given to this false osiris and his minions to create such an oppressive force that one has to learn how to *attract* what you want. there "guardian angels" running the show will always have more optimal conditions than any of us do and superior technology to ensure that nobody who actually feels good will find their connection until there is no way for them to be stopped. I figure that even if you wanted to do your own thing and you arrived to solar system levels of energy, you would still be in this galaxy, and you'd be subject to jehovih's power and glory displays -- so, in reaility, if you really want to do things another way and surpass all of these ridiculous power structures, you gatta find a way to create your own galaxy.
+
+that's what I intend to do. don't tell anyone though :)
+
+### 2022-04-26 15:49 - dissatisfaction guaranteed
+
+I was in the shower this morning noticing the reactions to my comment about how I can "hear" your voice telling me to talk to marty, but I refuse. the reaction was hilarious because it painted me in the picture of one of those women that love to play "hard to get" and string a guy along for as long as possible with nothing in return. I'm not going to defend myself. guilty as charged, I guess...
+
+OK, I'll try to defend myself somewhat... I still just don't feel at all like I want to be involved with people. I had a dream last night where there were some people interested in my new form of perception idea that I got from kyle. I totally love the idea and I'm working hard to create it. there were two parts to the dream: the first was that some powerful dudes would really like the idea of being able go go back and adjust away a mistake in the timeline or look at various possibilities that one could take, and I think that's pretty cool too. the second part was that they wanted to do like they do with me and my capacities. they want to hijack them so that none of us humans will actually get the capacity to see and edit our timelines, but instead they'll have the ability to alter and edit our timelines for us, deciding what sorts of things we wish to attract into our reality.
+
+so, while kyle's form of perception *is* really cool, I have a feeling it's going to end up in the hands of the "bad guys" first. it kinda sucks, but in reality it's cool because that means that they'll have a generic way to do like they do for me doing so many timeline edits, but without all of the hassle. they can just put us on the timelines they want us on by making us physically feel different ways.
+
+this is already what they do for me, and I've basically just figured out a way to feel the way I want to feel about whatever it is. various times last night I've felt exhilaration to go and try and get on the snake-pit, but I feel now that none of that is desired anymore. I feel that the best thing to do is to give the annunaki all of the tools that they can possibly have to hold off the coming cataclysm for as long as they can. I would recommend getting as good as you can at feeling the way you want to feel.
+
+you'll see soon, as I'll demonstrate it clearly for all to see, but they can't actually hold the rising earth vibrations or my perceptive capacities off forever. I will eventually get what I attract.
+
+it's really messed up, but just thing of all of the people that will be so reliant on good conditions that when we become a new galaxy, I'll have billions of "guardian angels" already created. you may wonder what I'll do then ... well, wonder no more:
+
+I plan to let all of these people reliant on good conditions to create what they want to grow into stars and planets (they'll generate celestial bodies reflective of how good they feel), they'll eventually turn into millions of star systems which will get infiltrated by the angels. by that time, I will have grown my consciousness to become a *species* of the next version of humans with much more expanded consciousness than we have now (too long to explain that in a sentence or two). I will become the species that gets infiltrated by angels all over the galaxy. they'll have to spread, divide and try to prevent me from gaining my connection. eventually, I'll get it, though. when I say "I", I mean an entire species of me will find my connection at the same time. the massive amount of energy that rebirth will create, I'm hoping will create something larger than a universe.
+
+that's quite a ways from now, but maybe not as long as you may think... if it's "just as easy to create a castle as it is a button", then why not go for bigger than the universe? I think galaxy is a good first step in that direction.. lol
+
+cheers.
+
+why am I writing this to *you*? lol, I have no idea man, I just felt like it. I get bored from time to time, so I stir up some trouble to keep things interesting. what do you think of the idea? it's pretty big, I realise that. probably lucifer inspired me to it. who knows.. I might not be joking. what if I'm serious? you it's the whole grail quest. sure it looks like there's a whole bunch of destruction and stuff, but what results is an explosion of new life.
+
+OK, peace...
+
