@@ -330,3 +330,44 @@ the-problem-is-the-solution!
 
 kenny
 
+### 2022-04-27 01:53 - the-problem-is-the-solution!
+
+I've concluded a number of these letters with this concept. the reason for doing so is rooted in the "completing" idea -- where once a concept is stripped of all of its meaning, it's now in its pure form. when that's accomplished, the problem/opponent/weapon/etc. loses the meaning associated with it. that's the best I can try to say it in peter's words.
+
+another example of this would be the movie matrix. I can't remember exactly how it goes, but agent smith decides that he is going to take over and becomes a virus, infecting everyone that he comes into contact with. this creates a rapidly multplying completely out-of-control problem. if I remember right, smith defeats neo and goes to infect neo. he infects neo, and neo has a realisation that he can do agent smith better than agent smith can do agent smith -- and I think that's when he gains the power of flight.
+
+what that has meant to me symbolically is the "borg principle". I don't fight against the things that I don't like or have power over me; instead, I absorb them and integrate them into my personality. I am literally a composite of all of the people that have caused me difficulty -- but, I can do their "evil" better than they can do it. I've upgraded their craft and improved it.
+
+in this way, I have essentially become a bit borg-like. any problems that I notice on the outside I know they're just reflections of my own inner conflict, so all I do is take the concept, absorb it (like neo) and improve it.
+
+that way of describing it sounds a bit more "evil" than peter's way of "completing" the concept so that it no longer carries (and therefore attracts) the implied meaning associated with the concept. from his perspective, there is no such a thing as good or evil -- just implied meaning.
+
+---
+
+this kind of ties in to the previous reaction that I felt where I was compared to one of those women playing hard/impossible to get. undoubtedly I've experienced this in my life, and I've determind the origin of this type of behaviour to be rooted in a sense of unworthiness or insignificance. it seems counter-intuitive to think that a woman playing hard to get will commonly believe herself to be inferior, but everything is a reflection, so it has to be true.
+
+if I look out and I perceive a lot of other people that are "not good enough", I am noticing my own "not good enoughness" in other people. so, because I want to elevate my own sense of "good enoughness" I play hard to get. that kind of nonsense happens all the time.
+
+so, inevitably I found myself around a number of different girls that perceived theirselves with plenty of "not good enoughness" and played that game with me. in some of the cases, I didn't know that's what was happening, because I was so interested in my own creative activity that I simply didn't care. I felt at times that some of them used my unresponsiveness to them as an excuse to perpetuate their feeling of not-good-enoughness. a few times I joined (sympatised) with them in their feeling of not-good-enoughness, and all it did is destroy my own sense of well-being.
+
+so inevitably, I converted their own technique to my own purposes. I don't want to play "hard to get" -- instead, I just see myself as pretty good at what I do, and they'll have to figure out how to get there too. to get on my frequency, they have to figure out what I've figured out, which is the opposite: good-enoughness.
+
+I take everything that can have the appearance of evil and complete it in my own way. you know, I think this form of perception is the real virus. it'll spread like wildfire.
+
+---
+
+OK, I want to talk more about that... I present ideas in their "worst" possible format. a lot of the predictions that I said yesterday are probably bogus, but I have to prepare for the worst possible scenario (this is an improvement on peter's technique, btw). when I say, the "worst" I know that I attract a reflection of my concept of reality, so the more pure my concept is, the smoother things will go. so I look purposefully to the "worst" knowing that it'll actually become the "best". I put quotes around worst and best because there is no such absolute. they are relative to my perception, so when I say the worst, it's the worst I can think of -- which isn't always the worst someone can think of (many people are way better at anticipating the worst than I am), but I know that there is no such thing as bad or evil, so the worst is again, just a concept with implied meaning in it. therefore, just like the knife, I *want* to experience the worst.
+
+so, when I make a prediction that we're going to become a galaxy filled with guardian angels and a bunch of people creating entire planets and star systems reflective of their concept of reality, one possibility of thta creation (in the form of rebirth) is a really big star explosion. that is an evitable outcome considering the way that our planet attracts solar activity.
+
+there is nothing that any of us can do to force anyone else to attract in a certain way. sure, machines can be installed to trasnform the disharmonious vibration into harmonious vibration, but that's a reward feedback loop that results in cataclysm. we could "punish" them for bad feeling with more bad feeling, and that too would result in attracting a cataclysm. they will attract the way they want to attract and there's nothing that any of us can do about it.
+
+each of us individually create our own realities though (including them), so for as long as they wish to be parasitic to me for example, they're obligated to continue to share the same reality as me. I don't find them to be that much of a problem. they're a nuisance at best, but like neo, I've completed their concept. I *want* to experience more of them. I want to experience the fullness or reality with them. so, for me, they are not a problem.
+
+it's funny that you brought up the idea that the annunaki perceived the humans like pets, because that's kind of what it's like. if enough people on this planet complete the concept of the annunaki, they're no longer perceived as a force against us anymore. what they will happen is they'll become the minority attraction influence. many of them will continue to be parasitic to my and others' realities, but it definitely won't be any noticeable problem -- kind of like domesticated dogs and cats have a "parasitic" relationship with their hosts.
+
+it really could go any way, but I really like the idea of taking the alpha/omega reborn deiety concept and pumping up up to work on the galactic scale. everyone is able to attract whatever they want, but that's what I personally endeavour to create.
+
+OK man, I enjoyed this letter much more than the last. I desire everything to be going well for you
+
+kenny
