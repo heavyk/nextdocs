@@ -1527,6 +1527,51 @@ either way, I'm still doing all of this for my own enjoyment anyway.
 
 [1]: you can only "see" things with appearances relative to things you've already seen before in the physical -- after that, it becomes colours and geometry) to create
 
+### 2022-04-28 01:11 - resistance and stuff
+
+yesterday I listened to snake-bros #012 and in it kyle was talking about how if you *resist* a string at the half-way point the sound doubles in frequency (because the string size divides into two shorter ones). this only works when placing the finger lightly on the top of the string. if doing the same thing 1/3 down the string divides into 3 and triples the frequency. I *think*, normally, when placing a finger on the guitar neck, you push it all the way down so it shortens the string to be 2/3 instead, raising the frequency of the string by 2/3 instead of 1/3 (I think).
+
+this got me thinking a lot about resistance, and a long time ago I read this one guy called "walter russell" and he had this idea that you have pure white light, ie continuous spectrum white light containing all of the frequencies, rather than just a few of them, and then what he did was to divide the light based on proportions just like kyle was doing on the piano (he switched to the piano to compose the colours of sound by mixing two wavelengths).
+
+that super fascinated me because I had thought of resistance as attenuating *amplitude*, not increasing frequency!! I still don't have it all sorted out, and it got me thinking about the line in DTP where he says that you can resist this "night-side" or attractive force to produce heat, light, sound, etc. look it up if you want: @[dtp/dtp](chapter-1-4)
+
+it's interesting that perspective because walter russell extended this theory all the way to the chemical elements, saying that certain elements are just octaves of eachother, containing a faster vibration, and so therefore appear to have more "mass". in the same episode, they were talking about how blueshift will cause something to increase in mass if it's traveling toward you because of the increase in frequency.
+
+so that's where I'm coming from on this...
+
+---
+
+later on that day I was talking with jaron about how weather "predictions" aren't even close, because if you look at the "forecast" for now, the reported temps are often way different than the forecast -- which basically means they're not actually feeding the reported temps back into the fitness function to correct the reports (for whatever reason), assuming that the model is a neural network of sorts. I suggested that the "forecast" may actually be tuned to not actually forecast the weather, but to provide the most believable temperature for people to think it is. I gave the anecdote that I used to look at these models and they were always wrong, so I stopped looking at them, then I looked at reported temps and found them to be more accurate, but still not very accurate -- with unbelievably cold or warm temperatures out on the field, but reported temps just over the hill at the airport being at least 10-20C different than what I experienced.
+
+I supposed that if the weather forecast could get people to believe in rain, it was more likely to happen than if you didn't believe it would rain. I'm always reminded of jerrica's mom on this one -- where, nobody else thought it was going to rain but her, and in her little section of pueblo was the only place it was raining.
+
+personally, I found out, that what I believed the weather would be like had a *much* stronger effect on it than anything the forecast would say. I used the anecdote of my time in la vera caceres spain, and I loved the warm weather so it stayed warm, but they were starting to get concerned about it not raining. after some time, I finally agreed that it could rain (combined with some bad-feeling -- forget why) and it released a very strong downpour. this remindid me of these cataclysms where rain is withheld for a long time then all of a sudden some bad feeling triggers the downpour (this is plato's account).
+
+I've given a lot of thought to this, and from my perspective, the way it works is that humans have an aura and we emit this orgone energy outward and this is what creates warm nice weather, but it's very bad for raining as this outward flow of energy increases evaporation, rather than condensation. the earth has these cells of good-feeling output as high pressure cells. I noticed that when one has a sudden drop in emotional or orgone energy, it instantly creates a low-pressure vacancy, and this perturbs the air and allows the layers (of charge?) to begin mixing and is what ultimately allows the rain to begin falling.
+
+the bigger the emotional disturbance of bad-feeling, the lower the pressure in the system is created and so therefore it'll attract more rain faster.
+
+I then talked about these orgone tubes that this one guy put on his airplane (I forget but I found it through joseph brown I think) and it talked about how these tubes (I think they were copper) would purturb the air in such a way as to create ripples and eventually cause the rain.
+
+what I think is happening is that if one imagines the sky like a bunch of rubberbands, as the plane pulls along on the strings, there is an expansion (low pressure) where it's passing, and then when the string snaps back, a contraction (high pressure), and this gets these orgone charges mixing (so they're no longer separated) and is what ultimately causes rain.
+
+I've wanted to study orgone for a while because it's related to sex/orgasm energy, creative energy, and emotional energy. it appears to operate entirely opposite of the way electricity does. it likes sameness, and mixing causes the disturbance, which is opposite of electricity when mixing causes the balancing. it appears to be affected most by geometry/shape and substance type mass.
+
+so, I went to plug this orgone idea into my new concept of the ether mentioned in @[blahblog](2022-04-24 02:02), and it made sense to me, so I'm going to try and relay that idea here.
+
+orgone accumulators are layers of organic and inorganic material. since I don't really know what inorganic is (everything not CHON?), for now, I'll just assume that inorganic is conductor, meaning free electrons, and organic meaning no free electrons. the way I heard that they work is this invisible substance passes through them (so ether or magnetism, probably) and the inorganic layers reflect the energy back not allowing it to escape, while the reason why it goes through the metallic layer in the first place is that it was attracted to the organic layer.
+
+personally, I believe that this is probably going to be hydrogen or H+ ion (proton) because that's what organic stuff is looking for. I remember there was this thing where carbon has three "docking stations" -- and...
+
+I'm gonna tangent for a second, because I've been thinking about "hexagonal planar" arrangement that produces white light. as best as I can tell, hexagonal planar is not a hexagonal lattice, but actually a bunch of cubes connected. they look like hexagons because we're looking at them from the "root 3" perspective (you know, like the middle of the vesica picsis), and a cube has three "root 3" axises, and these are the three dimensions that carbonacious molecules build in. so, a single carbon atom is basically a cube, and each of its 3 axises are looking to attach something to it. if it doesn't have something there already, it wants, hydrogen. so, let's say you're a plant and you need to construct yourself from the C just pulled in from the CO2. I don't see this part well enough, but something strips the electron in some cases and it wants another electron (ie. growth) and in other cases, it strips a proton and wants a replacement.
+
+well, it appears that something is constantly stripping one of these things (let's say electrons cause that's what I used to be spinning around the concept/nucleus) and so this is what these organic compounds are attracting. what I believe is stripping these electrons is "magnetism" -- which is what I defined as the 3d purturbations (waves) extending outward from the motion of electrons in the ether.
+
+---
+
+I experience a lot of chaos in my head as reactions. I'll come back to this later. but the way I see it is there is only electrons spinning around a proton/concept and the purturbations are what create magnetism (ie emotion/orgone energy).
+
+hasta luego
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
