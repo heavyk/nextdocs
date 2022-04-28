@@ -1573,6 +1573,30 @@ I experience a lot of chaos in my head as reactions. I'll come back to this late
 
 hasta luego
 
+### 2022-04-28 10:40 - intercalate layers
+
+I still want to talk about the idea of resistance *increasing* frequency, but it seems that after the tangent about carbon being like a cube has brought a lot of new ideas.
+
+I started to think about the intercalate layers of the sun (or graphene) and so if I think about a grid of cubes connected at their points, between each three-sided "pyramid", there would be a diamond shaped cavity. where molecules will get trapped between the layers.
+
+so then, when I thought about the layers, it seemed obvious to me that cubes could connect on the verticies, but that seemed weird because if the vertex is say positive, it wants a negative molecule to attach to it. another carbon would also have a positive vertex, so it'd be unlikely they would connect vertex to vertex, instead preferring to sit side-by-side in a sort of zig-zag pattern fitting next to each other.
+
+so then, if they would want to sit together in a cubic arrangement, what would make multiple graphene layers stay apart -- and furthermore, why do the cubes want to connect to each other on each point in the first place? if I consider each cube to be something like a magnet with each vertex as either N and its opposite south, then they would stick together, and also chairality makes a difference. so what it would appear is that in the case where two cubes are N-N arrangement, they wouldn't connect and that's what would create the intercalate layer which would extend out as far as the carbon is wide.
+
+I'm not sure if that's right. it doesn't really feel very right
+
+---
+
+the other way, and the original way I saw it is that all of the carbons could be charged so that the group of them were more positive or more negative, and so then the intercalate layers would be oppositely charged layers. so like let's say the "top" of one layer is more positive, and the "bottom" of the layer above it, is also more positive, so they would repel each other. this would create that intercalate zone, and the amount of charge would determine their separation, and therefore the size of the molecules/elements that would fit in the intercalate layer.
+
+in the case of the sun, one could imagine a nova explosion or some other event where the star rapidly expands to simply be the aligning of the layers so they're N-S-N-S-... rather than N-S-N-S || S-N-S-N. I think this could happen when some of the elements trapped in the intercalate region affect the hydrogen layers on one side and its intensity is enough to cause a cascade effect.
+
+I often wondered what could cause something to reverse its spin direction. a long time ago, I postulated that for this planet and probably for electrons and other things, it would be when something flips over, causing it to spin the opposite direction. I also heard (but don't know for certain) that an electron jumping to a higher energy state causes it to spin the opposite direction.
+
+I dunno. so this idea is pretty interesting because if layers of carbon could be produced exposing one side to hydrogen, letting the other be neutral, then graphene sheets could probably be pretty easily produced. that'd be really really good for high capacity energy storage devices like rob was/is working on.
+
+anyway, just shower ideas... so who knows if they amount to anything.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
