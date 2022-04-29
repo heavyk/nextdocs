@@ -1597,6 +1597,55 @@ I dunno. so this idea is pretty interesting because if layers of carbon could be
 
 anyway, just shower ideas... so who knows if they amount to anything.
 
+### 2022-04-29 02:45 - to david :: a few thoughts inspired
+
+so I woke up just now with a lot of different ideas. since I've been writing letters to people, I decided I would try and do the same here and think my thoughts out a bit before blabbing. this is especially the case with david, as we'll almost certainly talk again, and I don't really want to come off so airy-fairy.
+
+---
+
+a little bit after we hung up I did remember the question that I wanted to ask you -- it was about the "kingdom age" -- as, when I was younger, I interpretted the "kingdom of heaven" to be the space age -- like, when we leave the planet and go to start exploring other planets and stars. however, I've gotten the sense that lately when most people say, "kingdom age", they are referring to a mythical time in the future when we will return to monarchy, but because it's jesus that's the king, like some sort of upgraded version of king arthur, it's going to be some sort of paradise on earth.
+
+---
+
+the next thing that bothered me was stresful emphasis on desire to look into seemingly meaningless rocks and stone artifacts, rather than pay attention to the morality message in the bible. I definitely agree that stone artifacts are weird thing to place so much attention on.
+
+to be completely honest, after having looked at them for long enough, these stone artifacts (and the grail quest) are kinda the same thing for the masons and builders as the "kingdom age" is for the christians. the capacity to dress, work, and design stone temples in a harmony with the earth and cosmos seems to be the precursor to a mythical "golden age" for them.
+
+the similarities between the christian kingdom age and the golden age differ really only in rulership style. personally, I don't believe that the monarchy style of rulership has produced many well and able-bodied individuals, but more people who are content to just be told what to do, accept their place in society and just do what's told. unfortunately, "science" falls into this same system, considering that if the king/queen is the monarchy, then the church would be "science". the parallels are uncanny.
+
+anyway, I've been fascinated with this "tower of babel" idea lately because I'm beginning to get the sense that after the fabled mythical golden age of atlantis came to a screeching halt, humankind rebuilt, but there was a group of people who had kept the knowledge of the ancients (pillars of enoch, etc), and I believe they rebuilt the "world system" in a different and even more orgainc (harmonious to the earth) way, and this is probably the pyramids around central and south america (north america was mostly covered with ice), and china, cambodia, india, etc. (the cam/khem culture). when they rebuilt the world system, the re-enabled the "world language" (which I believe was telepathy and transmission of concepts visually) by hightening a specific type of solar energy on this planet that science does not recognise.
+
+so, if atlantis was sorta like the united states of its time (what we think of as masculine), being very material and "hard sciences", the rebuild after the cataclysms, would be much more feminine, asian, with softer corners, rounder, flatter, and much more connected to nature. clearly, this didn't work because we don't really see much of it left over, and I believe the reason for it has nothing to do with how "in tune with nature" you are, or how tall your structures are[^1] and sharp your edges are, there is still an underlying problem which is that some thing we do causes the earth to begin to vibrate sympathetically with us, and it attracts cataclysms. they could happen periodically, but the fact that we had two major world setbacks in such a short period of time seems to suggest that these cataclysms are a reaction to human emotion.
+
+so, even if king arthur or jesus would return right now to this earth and setup another golden/kingdom age of utopia, another cataclysm would inevitably follow.
+
+the reason for this is the other half of the equation, which is the "morality" part of the equation. if everybody is following some sort of agreed upon code of conduct and there are no immoral people, the result is a bunch of people that feel good and therefore do not attract cataclysm (or destruction of their culture). one thing that is repeated throughout the OT/NT and many other ancient texts is the idea that unhappiness and dissatisfaction with others, the king, or the situaton is the precursor to disaster.
+
+my research into the tower of babel, atlantis, and other things like that tells me that it's possible to mask dissatisfaction and unhappiness with good conditions, but that does not solve the problem. for example, many of the roman emperors had a lavish lifestyle, unlimited pleasure, and so on, yet looking at their statues, not even the artist couldn't mask their unhappiness.
+
+although there are many theories as to the reason why the roman empire fell and some of the reasons for their later actions (like, why did they go up and fight the druids, or get crushed by the goths?) what would cause a thriving empire to continue to try and conquest further, when they're living in a very high society with many ammenities? I belive that ultimately the roman empire fell because of dissatisfaction. they had looted the library of alexandria and retrieved all of the secrets to producing this solar energy for theirselves which can levitate stones, increase mental capacities, etc. -- and yet even still with high society and ancient secrets -- dissatisfied.
+
+---
+
+so really, to some extent my research into these stone artifacts and other ancient things are a bit of a waste of time (I will definitely admit that), but I do think the concept of high society and good conditions (even in tune with nature), yet still attracting disaster is especially pertinent in today's age.
+
+it appears to me that on this planet, that solar energy is rising rapidly, and what that means is that reality (as you conceptualise it to be) is manifesting more and more rapidly than ever before. this is exactly the precursor to "cataclysm", because in all of these cases, what seems to be the case is that the majority of the population was dissatisfied with their (physical/social/emotional) conditions and some combination of this negative emotion continued to cause more and more upheaval on earth.
+
+so, what to do about it? well, I don't really think there is anything. a king could come and put a system of laws in place where if everyone follows them, then there will not be any dissatisfaction. this is kind of a return to OT law, and I doubt its success. the main problem is that you can't actually cause anyone to feel better about their situation than they do.
+
+let's say there's someone that has a crappy job and they hate it. the goal is to get them to no longer feel dissatisfaction. one solution is to give them a better job so that they'll be happy there. well, someone has to fill the position of the previous guy, and so hopefully the new guy doesn't find the work unsatisfying. the other problem is, if someone is unsatisfied with life, it's very rare that better conditions make any lasting change in the person's decision to be satisfied. usually, the case is the opposite where better and better conditions are needed to try and cover up dissatisfaction (like the roman emperors). it always comes down to the fact that a person has to make their own choice to find satisfaction in whatever they're doing. it's an aquired character trait very difficult to "teach".
+
+the other solution to this is to "automate all things" -- and so then because the robots are doing all of the unsatisfying work, we'll be left with only the good stuff. there was a great movie, "office space" on this subject. the conclusion of the movie to the idea was that you have to "not give a fuck" -- and in the movie, peter finds out that he is happier when he stops caring about all of the stuff around him.
+
+what's happening on the planet right now is accelerating this process, because those there are just soo many people out there now that, like me, seem to be (unfairly) living an easy life while they have to suffer doing all of the "shitty jobs that nobody wants (like cleaning toilets or something)".
+
+those types of people will eventually destroy theirselves with their own dissatisfaction. some will find ways to control and manipulate their conditions in such a was as to continue to survive, but their dissatisfaction will continue to increase.
+
+it's my goal to not try and come up with scientific discoveries that produce better conditions, but to instead come up with discovieries that make it easier and also more compelling to actually feel the way I want to feel. though there are so many very valid and logical reasons to feel bad, trying to find a way to look at the same way which doesn't produce dissatisfaction, allows for so many beneficial side-effects, I can only hope that my life is an example of this "theory" in action.
+
+[1]: which btw, I think it's ironic that it's called the "tower" of babel, when it looks to be, instead of a monolitic tower, a distributed set of very natural temples
+
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
