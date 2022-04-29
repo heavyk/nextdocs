@@ -1649,6 +1649,47 @@ it's my goal to not try and come up with scientific discoveries that produce bet
 
 [2]: if it were only a theory, then it would be falsifiable, but it exists in this weird intermediate zone, kind like like culture. you can't falsify culture and you can't really "teach" culture either. it's something that's picked up only by example and immersion.
 
+### 2022-04-29 07:21 - lucifer and his minions
+
+so continuing on with the "tower of babel" discussion. in @[letters-to-russ](2022-04-29 04:24), and @[blahblog](2022-04-29 02:45) I correlated the epic of gilgamesh to the story of lucifer, which it's also been noted that enkidu also has a lot of christ and reborn-deity symbolism too, but the part that brought it together was the part about ishtar/anatau and her desire for the "bull of heaven" -- which is weird because in india there are a lot of temples that have two main deities, one is a bull, and the other is an elephant. well, zodiacally speaking the elephant is in libra and nearly opposite that is taurus. so, it could be perceived like a battle to see what sign the son/sun would rise in (precession). ishtar wants the bull otherwise the dead will rise up out of their graves (or take on human form) and outnumber the living.
+
+this occurance of the "ressurection of the dead" is something that is prophesied to come in the "end times" and is the foundation upon which many of the egyptian ceremony is built.
+
+in my opinion, this "resurrection of the dead" is nothing more than an energetic enough set of conditions here on earth (caused either by the sun, or from stone boxes and pyramids). this energy sustains life so well, that death is pretty much impossible. it's "vishnu the preserver" which is also the archetype for the son and the christ (the father being brahm, shakti, jehova -- so I guess the holy spirit is shiva).
+
+either way, what happens is this vishnu energy rises to such a hight that the astral mixes perfectly with the physical and there is no longer any separation between the physical and the spiritual/astral. entites can come and go taking on physical form at will, and that's all really fine because the astral is made up of the same substance as the imagination, and so is always as its perceived to be. the physical however has entropy and decay as a function of the frequency which it's vibrating. so, if the vishnu energy is strong, then everything is perfectly preserved and does not decay or die. however, vishnu may be able to preserve the physical aspect, the emotion or attracting power of a person continues to do what it's doing. so, even if you have perfect physical conditions where nothing is dying (vis naturae), the person is still attracting conditions reflective of their emotions. the preserving vishnu energy won't let the conditions become dissatisfactory though and so what happens is it takes something extra-planetary (which vishnu's energy does not extend to), to finally allow one to realise dissatisfying conditons.
+
+when that happened, all of the people on the planet at that time that *needed* the vishnu conditions to survive, realised their dissatisfaction and found all forms of life to be unsatisfactory. lots and lots of dissatisfaction. this is called "hell" today by religions. the more sensible explanation is that "hell" is just a whole bunch of very dissatisfied astral entites that have been trained (by lucifer) to *need* that vishnu/solar energy to be able to survive.
+
+---
+
+there seems to be three main factions in play: the martian/red ones (the gods), lucifer and his minions, and the humans. it seems that the red ones are quite good at building these vishnu structures, but they don't actually solve the problem of attracting dissatisfaction, so they keep attracting their own destruction (mars atmosphere, lack of magnetic field, etc) because no matter how well vishnu can preserve their conditions for them, they still keep attracting something that exceeds their capacity to prevent it.
+
+what appears to happen is that each iteration, lucifer sets up a "world system" whereby this energy is pumped up to the top and astral is allowed to mix with the physical again and these dissatisfied entites (angels and demons) are once again "let loose on the earth" to spread their ideology out to the masses (the INFECTED ONES spreading their virus), and inevitably a number of humans are converted over to the conditional way of living (needing vishnu to perpetually save/preserve their material bodies), and then that attracts another cataclysm.
+
+so, I believe the goal is to make it possible for these INFECTED ONES to run rampant in an entire galaxy running on this vishnu energy. they'll inevitably infect many humans to rely on this energy meanwhile doing nothing about their dissatisfaction -- which means that eventually we'll attract something big enough to clobber this galaxy (andromeda?) allowing them to manifest their dissatified state into reality.
+
+---
+
+I don't know if I'm lucifer or not, but the way I see it, this is kinda brilliant when understanding LOA. the-problem-is-the-solution, because they will create all sorts of really cool stuff and all of that energy is just energy and can be converted (like I'm doing with their dissatisfaction) into good-feeling energy.
+
+so, when looking at it, it's kind of like a pyramid scheme and the ones that can convert bad-feeling energy (dissatisfaction) into something that feels good are the ones at the top of the pyramid. we feel good because of how bad all of them feel. they have no intention to change, so that's fine. they can keep powering my good-feeling more and more.
+
+---
+
+upon realising this, I realised again that each iteration the goal is to make more INFECTED ONES, not less. in oahspe, jehovih wants to try and convert the angels to become his property and do everything according to his will. my goal is exactly the opposite: my goal is to make more jehovihs and give them unlimited capacity to keep expanding his power and glory to gain more and more minions. they can have as many ranks, tiers, levels, etc. as they want and they can keep going more on the dissatisfaction until their world is sooo crowded, that they have to expand and create more tiers.
+
+> "if you keep doing what you're trying to do, you'll own the world, you know that, don't you")
+
+I was going to write this in a letter to patricia, but I decided I didn't want to drag her into my craziness, because I woke up this morning realising that I don't really want to try and push anything through at all. they will eventually have to do something because they can't not do something. they only make decisions based on dissatisfaction, so they have to wait until something is so dissatisfying to make action. if I were to try and make any action based on satisfaction or desire, it would ultimately fail because it wouldn't be the inevitable least-worst option.
+
+I'm writing in double-speak now: what I mean is, they have to eventually do something, but if I wait until the conditions descend into their worst possible state, then they have to make the movement. I attract what I want, and because they're dependant on my energy, then I'll get what I attract, and they'll do the least-worst option presented to ensure they can maintain their survival.
+
+so, if you think about it, the whole goal is to keep giving them the capacity to expand their ranks and influence further and further out. it's quite possible that this galaxy is the galaxy that I want to "create" and the whole point is to take tesla's world system and extend it out to the whole galaxy.
+
+either way, it seems obvious to me that I don't actually want to try and make any action, but instead let them make all of the moves, attracting the concept in its completed[^1] state (hell yeah, peter!)
+
+[1]: last night I was contemplating what he means by "completed" concept, because I think of the concept in this state as "pure" or "without resistance", and it dawned on me as I was writing that is that "completed" means in the implementation sense -- that it's had time to develop fully and become the manifestation of what I perceive it to be.
 
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
