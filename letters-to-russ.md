@@ -371,3 +371,47 @@ it really could go any way, but I really like the idea of taking the alpha/omega
 OK man, I enjoyed this letter much more than the last. I desire everything to be going well for you
 
 kenny
+
+### 2022-04-29 04:24 - tower of babel and "let us make a name for ourselves"
+
+in one of the earlier podcasts you said you always wondered what "let us make a name for ourselves" meant. while thinking about what I what I wrote to david, I think I may have solved it.
+
+various sources talk about how there was an effort to get the INFECTED ONES trapped into physical incarnation cycles, and that the physical plane (as we know it now) is only a recent lowering of energy that happened some 11-13kya. in #024, you talked about the astroid belt (tiamat) was the "bones of lucifer" and dtp talks about lucifer being a high natured spirit, but his ideas were too lofty, so he fell:
+
+> Another law is that of compensation; [...] If the thread be slight in pitch, the screw bar will progress through its nut very slowly, but, as exerted in a screw press, the crushing force will be enormous. Vice versa; if the pitch be steep, the screw bar will progress rapidly, as to wit, the screw nail, which may be driven into wood with a hammer, and revolve as it goes in. [...] if a human being is content with the gradual, easy pitch of the Godward ascending plane of pure daily life, daily temptations to work in error, and too often fall, progress upward will be slow, but very sure. But, on the contrary, if eager to learn rapidly, it must meet in a few hours all the crushing force of temptations to err and to sin which the ordinary man meets distributed through many, many incarnations, covering ages, aye, aeonian time. In the one case the Father giveth sufficient of the daily bread of strength unto men to enable them to progress very slowly, but with certitude. In the other, all the splendid reserve of force of a very God is needed, for all the power of Lucifer, that high nature spirit who was incarnate in the planet which disrupted into the solar asteroidal belt, upon the lapse, the failure of its Soul, all of his glorious power sufficed not to carry him to victory, so he fell.
+
+> Satan, know ye him? He was an Angel of Light, fallen, and come to so much the greater fall in that his height was so lofty. He is a rebel, and out of harmony.
+
+sorry for the long quotes (the book is very wordy), but the basic idea is that lucifer had a penetration rate comparable to core 7, while most have a very gradual pitch. the picture painted in this book is that satan/lucifer was a lofty being with too much ambition, and so therefore after (as a planet) was destoyed, he summoned many dark minions to try and lead everyone astray from "God".
+
+OK, in the sirian guide, this lucifer guy is called jeortau / teonackaeeon / teonakaeean, and you'll notice that the main site of the "tower of babel" is teotihuacan, which is practically the same name. the idea here is that the atlantian red ones (phonecians, etc) took off probably returning to mars, and so then on earth this luciferian spirit rises up, the great dragon, the serpent of old, and convinces humankind that we can improve on the technology of the atlantians and use the technology to give all humans a single world language -- a language of harmony, and perfect communication of concepts transmitted visually, all founded upon the natural way of integrating with nature.
+
+like lucifer, the humans set out to "make a name for ourselves" and become equal with the gods (the atlantian/martians), you can't overthrow your slave owners from the mindset of being a slave, no more easily than you can win the lottery and expect your dissasfaction with money to disappear. we eventually repeated the same cataclysm that the atlantian gods brought upon theirselves with their own dissatisfaction.
+
+---
+
+so, now I want to talk about zyron/tiamat/lucifer, as I think what happened there was that a long time ago, the planet there (it eventually became earth, so I'll call lucifer the "lord of the earth") was ruled by lucifer and he and his planet, his goals were so "lofty" as he probably had many ideas on how to create really great conditions and amazing stone structures which will enlighten the people's minds and make them brilliant with a number of physical conditions. exactly like earth (cause it is), tiamat, responded to the greater contrast between how people felt emotionally and how they felt physically. this disharmony eventually manifested itself in such an enormous catastrophe that it wiped out all of the really really big stuff (like the >100ft giants and stuff, and noticing the "mudfossels", the sudden influx of hydrogen/protons, turned everything organic into stone, like the wood in jerusalem temple mount).
+
+that was such a major catastrophe that it put us in a different place in the solar system, the amount of this solar energy that the planet had on it must have been so great to be able to petrify and turn everything into stone like that. that cataclysm was the greatest "fall of lucifer" and greatly reduced the size of the planet and a number really awful things. seems though that this "original sin" of dissatifacton keeps attracting judgement from jehovih.
+
+so, here's the connection to the story of lucifer making a bunch of satanic minions and fallen angels: it's said that during the time of atlantis, death was barely even considered as one could just slip out of the body just as easily as before and go to inhabit another body or construct one's astral image to interact directly. it seems that capacity is powered by the energy the sun and these stone structures put out.
+
+in the epic of gilgamesh, ishtar threatens if she doesn't get the bull of heaven to destroy gilgamsh:
+
+> Fill Gilgamesh, I say, with arrogance to his destruction; but if you refuse to give me the Bull of Heaven I will break in the doors of hell and smash the bolts; there will be confusion of people, those above with those from the lower depths. I shall bring up the dead to eat food like the living; and the hosts of dead will outnumber the living.
+
+if one takes into account that these stone boxes and solar energy cause the mixing of the astral with the physical, then I believe it's saying that anatau (ishtar) will allow bring all of these astral entites (ghosts) back to life again. gilgamesh in this story likely represents the martians/atlantians, and lucifer (enkidu) in this story is the early very advanced humans that were present on this planet when conditions were so incredible.
+
+so, then after enkidu/lucifer is destroyed, there is a very symbolic tale of gilgamesh racing the sun and surviving a flood, etc (cataclysm). so what did happen to all of those dead people that were present which ishtar/anatau was going to return back to life? I belive that after the destruction of the energy grid setup designed to quell that disharmonious energy failed, then a very big (nibiru) impact wiped the planet of the energetic capacity for those disincarnate souls to go back into bodies.
+
+1/3 of those entites were used to dissatisfaction as their baseline emotion, and so when they inhabited another body, they just used it up and moved to another one, however after the nibiru incident, all of the available bodies did not have good enough conditions to inhabit. almost certainly, they would inhabit them, but the body could not sustain them and die, get disease, or a mental incapacity. so those "fallen angels" had to stay in astral form and try to find anyone with good enough conditions which they could haunt enough to bring them down to their level so they could be inhabited (reminds me of kyle's "fevers").
+
+the other 2/3 became what we know of as normal humans today. those minions of lucifer have been haunting people for a long time, and they need good conditions in order to survive in physical form because their dissatisfaction is so much.
+
+it seems very unplausible that such an advanced society so in tune with nature could possibly get taken down so quickly by these minions of lucifer, but almost certainly they noticed that once again society had produced conditions once again capable of sustaining their incarnation into physical form -- which then prompty attracted another catastrophe rather rapidly.
+
+as I'm writing this, I was thinking about going to starbucks to send this to you, but as a single email, it's missing a lot of context cause I refer to things (like the sirian-guide which you may not know about, so let me know if you have any questions). considering the next thing I'm going to write (to patricia, though I felt this one better to write first), I probably won't send an email. anyway may, I hope you have a great day! my goodness you guys are so inspiring!!
+
+much love,
+kenny
+
