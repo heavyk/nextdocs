@@ -1787,6 +1787,84 @@ in short, if I go to the bitter end, I can easily see how this will allow a smoo
 
 lastly, if I were to go with a manifestation, which one and why that one?
 
+### 2022-04-30 16:24 - another way to look at it
+
+most guys would go with the manifestation; that's the "standard model" for guy behaviour. there's nothing new about it. it's been done before countless times.
+
+so, imagine a few different groups of guys. most of the guys are at the base of the pyramid, believing that a desirable manifestation with girls is simply not possible. above that there are the guys that believe that if they "get lucky" and end up with a desirable manifestation with a girl, this is rare for them and so they need to do everything in their power to try and hold on to that manifestation (marriage, jealousy, possession, etc). above that there are guys that think they can have manifestations with girls but it's still kinda lucky and it'll fade with time. they're just going to enjoy it while it lasts. finally, there are the guys that through some process have easy access to desirable manifestations with girls -- now, whether that's paying for them or through the implementation of PUA techniques doesn't matter to me. these guys feel they can get those manifestations when they desire them.
+
+that's your basic pyramid of dudes when it comes to girls (from my experience). I don't know how real it is, but every dude wants to be in the top segment there, because that's full control over the ability to have the manifestaion whenever desired.
+
+what all of those segments have in common is that they all desire a manifestation and the only variation between them is a gradient of control over acquisition of that manifestation.
+
+what zero guys are doing, is doing their own thing. I'm not counting asexual or homosexual guys in this pyramid because I simply don't know how to factor it in. my own experience was (I decided to be asexual for a while) is that it seems that many homosexual and asexuals fall into the bottom segment of that pyramid -- a disbelief in the possibility of a desirable manifestation with a girl. that is at least true for myself, and seemingly others I've talked to as well.
+
+so, even the asexuals are still doing things relative to other people. they may be doing their own thing but it's because they're they don't believe they can have a desirable manifestion with a girl.
+
+this is not the case with me. I *do* believe that I can have a desirable manifestation with a girl -- and even it seems the most likely outcome for me now that I know how to feel the way I want to feel. this means that no matter whatever antics she could possibly pull, I can still feel the way I want to feel; she doesn't influence the way I feel.
+
+so, that puts me closer to the top segment of that pyramid than at the bottom. however, that pyramid is still founded on the desire for a manifestation. so, in that sense, I'm not even on the pyramid.
+
+---
+
+earlier today, jaron had a meme picture up on facebook that said (paraphrased):
+
+```
+confidence is not:
+people will like me
+
+confidence is:
+it's also OK if they don't like me
+```
+
+I can't remember exact wording, but the basic idea is that confidence is or is not a relation to other people liking me. I stronly disagree, saying that confidence has nothing to do with other people liking me or not. confidence is me and only me; there are no other people involved.
+
+this is the same subject with the pyramid there. just replace people like me with "a desirable manifestation with girls":
+
+```
+confidence is not:
+I believe I can have a desirable manifestation with girls
+
+confidence is:
+it's also OK if I don't believe I can have a desirable manifestation with girls
+```
+
+believing that I can have a desirable manifestation with girls has nothing to do with confidence. here's another way to look at it:
+
+```
+I desire a manifestation with girls is not:
+I believe I can have a desirable manifestation with girls
+
+I desire a manifestation with girls is:
+it's also OK if I don't believe I can have a desirable manifestation with girls
+```
+
+put in that way, see how desiring a manifestation has *nothing* to do with believing I can have a desirable manifestation (with girls)?
+
+now, I'll reword it so it's easier to read:
+
+```
+I believe I can have a desirable manifestation with girls, therefore:
+I *don't* desire a manifestation with girls.
+
+it's OK if I don't believe I can have a desirable manifestation with girls, therefore:
+I desire a manifestation with girls.
+```
+
+huh, so, when that meme popped into my head, I didn't realise it would support my point, which is a weird coincidence, but I still contend that *desiring* a manifestation with girls and *believing* I can have a desirable manifestation with girls are two VERY DIFFERENT THINGS.
+
+my point is, the road usually traveled is the one where one desires a manifestation and so therefore falls into one of those segments of that pyramid.
+
+now let's look at the evolution-of-desire. when I say "desires" I mean needs/wants. when I look at the desire I don't look at the physical aspect of a girl or not, for me, I no longer pay a whole lot of attention to the physical manifestation anymore (which is why I can feel the way I want to, so easily). so for me, what I'm looking at is an emotional conceptual, or abstract idea now as the "goal".. of which there are infinitely many manifestations.
+
+I consider the PUA thing to be the art of getting oneself into the top segment of that pyramid without needing to use money or some other shady means of easy access to girls -- and the thing I picked up from it, is to take the woman out of the material. she's no longer a material object that you can possess. possession = bad. the next thing is to no longer fixate on any single one of them out there (oneitis) and work on you (find a hobby, something you love). the advanced ones took it metaphysical and explained how what you're searching for, is on the inside and girls aren't what you're really looking for and can't actually "fill that void" for you either.
+
+essentially, they're saying to conceptualise them instead of materialise them. they are a function of how you feel about them; but, more importantly *how you feel about yourself*.
+
+huh... that went a totally different direction than I thought it would...
+
+btw, what I said, applies to all people, not just girls.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
