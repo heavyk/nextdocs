@@ -1759,6 +1759,34 @@ my point is, the less tangible the desire is (ie. the more emotional/conceptual 
 
 [2]: this is such an important realisation because when believing in and desiring conceptual/abstract things, the less they need to actually obey the physical "laws" anymore.
 
+### 2022-04-30 14:04 - why do I want to go to the bitter end?
+
+I was sitting out in the sun (apparently there's an eclipse this new moon) and the question popped into my head, "why do I want to go to the bitter end?" I didn't really know what to answer, so I thought I would write to find out.
+
+the first idea that comes to my mind is, cause the obvious thing to do is to just go with one of the girls or whatever to placate the problem. I don't like that response for a number of reasons, most notably because I'm making action decisions based on what other people want from me.
+
+so, what is it that I actually want then? I think the last entry was about that in the sense that it's not really what I want to *do* but how do I want to feel (or what abstract idea am I looking to accomplish). in that case, the thing that exhilerates me the most is not trying to find some thing or someone which can make me feel good, but to continually find ways to feel good no matter the circumstances. I think normally, when one figures out how to feel good, their reality reflects that pretty rapidly (at least it does for me), so the fact that I have nosebook constantly working to ensure that my reality does not match the way that I feel, is a huge opportunity for me to feel a lot better than I normally feel.
+
+to put numbers to this, let's say that 1000 units of good-feeling is enough to make a really good manifestation happen. well, with nosebook, let's say they have the capacity to increase the resistance by some really large number -- let's say 1000x resistance so that for every 1000 units of good-feeling I feel, I only physically feel 1 unit of it. therefore, in that setup, in order for a manifestation to happen I have to find a way to feel not just 1000, but 1000000 instead -- 1000 times better than I would normally have to feel to get the manifestation.
+
+in reality, it's probably much more than that, as they're likely continually improving their capacity to resist the way I feel. I don't have numbers, but I would guess it's millions of times better than I normally would have to feel before a manifestation can happen. this is such an amazing opportunity because that gives me the opportunity to build up a lot more potential before the arc finally happens.
+
+the other way to look at it, and this is the one I prefer, is that if I consider the difference between how I feel and how others feel, I feel considerably better than a lot of people do, and that creates that pyramid scheme that I talked about, but if I were to get the manifestation, most people would just be watching me rather than attracting their own manifestation. by holding off, it allows many more people to find a way to perceive their own way toward what they want.
+
+the last way to look at it, and this is the one I most prefer, is that if I consider the "cataclysm" angle. I've been looking at the geophysical effects of negative emotion, and how that (I believe) is the attractor of cataclysm -- as in these cometary impacts and solar outbursts are attracted by us, and are not at all random. contrary to most belief, I would say that if the majority of the planet were feeling good, it would actually be *impossible* for a cataclysm to happen -- and I mean good, not just bored or content because those will allow the manifestation of dissatisfaction of others.
+
+so, let's just say that there is enough diversity that most people feel good -- well, then the ones who don't, aren't a big enough factor in the equation, and so there's not really any more risk of a catastrophic failure anymore.
+
+if I take my time to get to the manifestation, and in the process, that allows for the majority of the people on the planet to get to a place where they actually feel good, then it's a smoothe landing. everything went well. if someone wants a cataclysm, they can attract a cataclysm in their own life and find their personal destruction. LOA will have to continue to manifest our realities in reflection of our perception.
+
+let's say that after some really large period of time there are people that don't feel good and are attracting cataclysm, but there are also many people that feel good, then a split will occur and we'll go our separate ways. I've talked about the 1024y alpha/omega conceptual cycle, and I think this may be the future trigger for a split because I'm essentially the omega or the rebirth one, and I've reborn into not needing the manifestation and feeling the way I want to feel, which means this will wax up to the top until the next cycle where that will be at its peak. so, just like right now is peak mutual-back-scratching and has come into full power -- well, not-needing-the-manifestation will be at its peak next time, and it's coming into power may not be compatible with some people's realities, thereby causing a split.
+
+---
+
+in short, if I go to the bitter end, I can easily see how this will allow a smoothe transition for us into the "kingdom of heaven" -- which is what I want to do. the way I want to feel is the abstract capability of being so good at feeling the way I want to feel, that nothing is impossible anymore.
+
+lastly, if I were to go with a manifestation, which one and why that one?
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
