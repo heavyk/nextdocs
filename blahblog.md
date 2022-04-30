@@ -1721,6 +1721,44 @@ I'm done.
 
 I wrote all of that because I could feel something around that, but I still don't know what's going on.
 
+### 2022-04-30 05:46 - few more thoughts on pyramid schemes
+
+first, there was some confusion of why I called it a pyramid scheme, and it's because I take in bad-feeling from others tuned to m/ perception, and then offer my energy to them for their utilisation. it's free for my to convert that energy, and so then inevitably with these sorts of people, because they live conditional lives, they have to have power structures and subordinates which get access to a portion of their resources. those minions of theirs also feel inferiorness and that causes the top guy to feel superior. superior and inferior are the same frequency, just looked at from opposite directions; the more superior one feels, the more inferior everyone else around has to feel to maintain that superiorness[^1].
+
+from my perspective, there are those that use/need my energy for their survival, and its those that form the rest of the pyramid. I'm only the top point. my goal is not to depend on others, but to simply interact freely with them, which puts nobody else relating to me. this is important for being the top point, because in normal pyramid schemes, you're the top point of your pyramid, but the bottom of someone else's. so really, it's anyone else's choice to decide where they live in the system. the top point can have infinite depedents, but depend on no one else. the bottom points depend on others, but nobody depends on them.
+
+so, when I say depends, I mean in the energy vampire sense. energy is free can be infinitely summoned, and it's only a person's inability to allow that energy (resistance, complication of the concept) which prevents that energy from flowing. so, without any resistance, the more dependents the more energy. this is why my whole thing is lowering of resistance. the lower my resistance goes, the more energy can pass through me. if I have zero resistance, I become a superconductore, allowing infinite quantites of energy to pass through me. when I say resistance, I do mean resistance in the DC sense, but I mostly mean it in the AC sense of disharmonious waves which cause destructive interference. the higher my frequency, the less resistance, because I have more harmonics to work with and a broader spectrum.
+
+---
+
+long intro. it occurred to me this morning that there's a good reason why these characters went the "bad-guy" route. I briefly mentioned that this same energy pyramid also works in the positive sense -- and, those that believe in (or the same as) you will cause an increase of energy to flow, however the difficulty there is that I would have to get everyone to believe the same thing and think the same (an impossible endeavour, IMO). however, if someone feels bad about and projects negative energy in my direction, I can convert that energy into whatever I want.
+
+therefore, in that sense, for someone capable of transforming energy easily, it's far more beneficial to have a bunch of pepple feeling bad about me than it is for them to feel good about me. I like to think of this as the elija effect. he turned all of their disbelief into what he wanted, which was to ignite the alter covered in water.
+
+in a lot of ways, this can be done with nearly everything. let's just take the 4-minute mile for example. it appears impossible to everyone until someone does it. the first guy to do it probably used some of this elija effect to empower himself, knowing that there are a lot of people out there that think he *can't* do it, so all he has to do is to tune into the emotion of their surprise when they find out it is possible, and just by tuning into that and feeling that emotional response from them (just like elijah tuned into the priests' surprise of the altar igniting). it's kinda like ante-retrocausality because you're just tuning into your own (and others) emotions in the future.
+
+---
+
+so, this is one of the reasons why I think a lot of the "bad-guys" weren't actually all that bad -- and it was their perceived badness which fueled their energetic capabilities. it was then others that totally didn't understand how to convert energy, which then thought that there's power in being evil and depending on some demon or something to give them powers.
+
+it's pretty difficult to explain this concept because of all of the pre-conceived ideas about demons and energy vampires and stuff, so I'll just say that I'm about as close to "evil" as one can get. many others depend on me for their power and I use their dependence on me to further expand my good feeling. this works well for me because energy is infinite and easily transformed. for others, it doesn't work well and they have to keep switching bodies because they think they believe in a zero-sum system where there is only a finite quantity of everything. for me anything that is desired can be summoned, and that negative desire is also positive desire perceived backwards, so there aren't any limitations -- only a limitation in realised things which can be summoned.
+
+---
+
+so then, if the only limitation are concepts that are realised to be wanted, it could be seen that diversity becomes the problem, but in reality, it's much easier to desire an emotion or an abstract concept which has infinite physical manifestations, rather than a single physical thing.
+
+I was talking to jaron about this the other day saying that "he doesn't know what he wants" and he responded a few times by saying "he doesn't know what he wants to *do*" -- but that's not what I meant. I meant, he doesn't know what he wants in an abstract sense -- as in how he wants to feel or what living style he wants to have (with mom or without) like with how much independence and self-scheduling.
+
+what I'm meaning is that it's really hard to look at the different scenarios because each has their advantages and drawbacks to them, but if he could figure out what he wants in an abstract or an emotional sense, it's much easier to reason about and see if he's going in the direction that feels more like the way he wants to go.
+
+let's say he wanted to feel more independent, then each situation either feels more independent or less so it's easy to see what is more and what is less desired. even if he wanted more money, then it could still be reasoned about, but see how money is already short-circuiting the desire for independence?
+
+my point is, the less tangible the desire is (ie. the more emotional/conceptual the desire is), the less one has to believe in it being even possible[^2].
+
+[1]: this is the case with all zero-sum things. like if there is $1000 total, I have to have at least $500 to be the most superior, leaving $500 to be divided amongst the rest.
+
+[2]: this is such an important realisation because when believing in and desiring conceptual/abstract things, the less they need to actually obey the physical "laws" anymore.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
