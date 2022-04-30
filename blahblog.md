@@ -1865,6 +1865,20 @@ huh... that went a totally different direction than I thought it would...
 
 btw, what I said, applies to all people, not just girls.
 
+### 2022-04-30 17:40 - forgot the conclusion
+
+the reactions were so heavy at the end there, I ended quickly cause I had trouble thinking.
+
+---
+
+all of the manifestation stuff is the "standard model". I don't want to do the standard model. anyone saying that I should just go with the standard model is just a bunch of skerptards telling that I need to follow the standard model just like everyone else. I've heard the standard model story before and it's been done countless times. I want to try something that's not really been done before to my knowledge: which is, the realisation that I AM the manifestation. meaning, nothing outside of me is the manifestation. not girls, not science, not circumstance, physical conditions, or any of that... it's *me* that's the manifestation. who is "me", well, it's not this physical body, that's for sure. I'll leave it at that.
+
+besides that, it's pretty easy to see that a secondary result of this will be that many others will figure out what I know. some dudes will get it (and most will gravitate to the standard model), but it's very likely that many more women will get it. as enticing as a manifestation may seem, it's something entirely different to become the manifestation you're looking for.
+
+so, it's kinda annoying for those wanting a manifestation, but it's easy to see that ... you'll probably thank me later. I'm reminded of how grateful that the thing with andrea never worked out, because I would have never come to realise that I AM the manifestation that I thought she could have been.
+
+this is also true for all of the other girls out there, thinking that I'm the manifestation they were looking for. imagine how wonderful it will be when they realise that she is the manifestation that she thought I was going to be.
+
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
