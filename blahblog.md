@@ -1879,6 +1879,59 @@ so, it's kinda annoying for those wanting a manifestation, but it's easy to see 
 
 this is also true for all of the other girls out there, thinking that I'm the manifestation they were looking for. imagine how wonderful it will be when they realise that she is the manifestation that she thought I was going to be.
 
+### 2022-04-30 19:44 - shower thoughts on 1024y conceptual cycle
+
+while in the shower I made the connection between the two points I made in the last entry. I concluded with the idea that by going until the bitter end, I predicted that some dudes might figure out what I'm saying, but most of them will use it to go the standard model of manifestation. in contrast, I postulated that because this next cycle in the 1024y conceptual cycle is the not-needing-the-manifestation, feeling-purposefully, and evolution-of-desire, (this is the cycle that I'm starting in my "rebirth" -- which I figure started either 2012 or 2020) and so as that cycle waxes up to the top[^1], I figure that it'll be mostly girls that get on to the not-needing-the-manifestation bandwagon.
+
+in the context of leapfrogging-time-pickles, this is the optimising for "no affection" rather than lots of it. this is same optimisation that I'm doing, and I think that what happens is at the end of the cycle once accomplishing the ending point (so you know you're going to arrive there), you then jump back into the timeline, I know I'm going to find my connection, so I wait until the "bitter end" just like I'm doing now, then after that optimise for lots of affection and good conditions. as mentioned, when returning to the end of the timeline where I know I am, I'll have to slow down tremendously, creating essentially the effect of running into a wall, causing a huge rebirth.
+
+---
+
+OK, I wasn't very clear so I'll run over it again.
+
+- this last cycle was "mutual-back-scratching" so the alpha is at full mutual-back-scratching right now.
+  - that will begin to wane probably when I'm "reborn"
+  - I don't know when exactly is the "rebirth", but it probably starts when I "get connected"
+- as the omega, I'm being "reborn" into a new concept right now, and that concept is the "not-needing-the-manifestion" and feeling-purposefully.
+  - I'll take that concept til the very bitter end, when it's no longer possible for them to hold me back from being "reborn" into the new concept.
+  - the reason for going to the bitter end is that it's maximum acceleration
+    - (because the manifestation always slows down the acceleration, but is a burst infusion of energy, which after the initial explosion begins to wane, so negative acceleration).
+  - after being reborn, I go at maximum speed all the way up until the next cycle
+    - (forget the details of "death" and stuff like that and just assume that I have complete control over where and when "I" am incarnated into physical)
+  - at the end of the cycle, I'll suddenly have to go from the fast speed to the slow speed where I jumped into the body at the end of the cycle, and this will cause a huge rebirth. my time is over.
+- the main conceptual type of people will fall into the category of mutual-back-scratching or feeling-purposefully.
+  - many people (but probably mostly girls), will begin join in the new paradigm of feeling-purposefully.
+    - they will realise, like I did with andrea, that they are the manifestation that they thought they were looking for externally (evolution-of-desire)
+    - because of the way that nosebook is setup, I believe that these people will be able to consciously control their incarnation in the timeline and so they'll gain the leapfrogging-time-pickles capability
+- those that have gained access to control their physical incarnation with technology will do whatever they do, but for the ones that do it consciously (like me), will likely optimise for the desired path or for fuzzing.
+  - you arrive to the location where you are when you jump into the body, so if the new experience is desired, you'll experience a slowdown getting back to where you are, however, if you choose a "worse" (fuzzing) path, you'll experience a speedup when getting to the end.
+    - the desirable path is enjoyable and you only suffer the slowdown at the end. if the slowdown is rapid enough, it's essentially "death".
+    - the fuzzing path is pretty desirable because "you" are not the physical body, so "you" retain your concept of yourself between incarnations, no matter how many times you run through the timeline.
+  - those that take up the fuzzing path will get better and better at feeling-purposefully, until they become so good at it that there isn't much optimisation that can be done anymore.
+    - after that happens, they'll be forced to take a desirable timeline and the slowdown (and resulting death) will be inevitable.
+    - so, if death is unavoidable, why not optimise for desired?
+      - personally, I think the best way to experience those desired conditions would be from a connected state.
+      - well fuzzed, getting connected should be pretty easy now, so go for as long as possible and go big.
+- all of us will be doing this simultaneously, and at the end, it's the time for a new concept to emerge.
+  - the mutual-back-scratching concept will end and have to be reborn.
+    - I figure this will cause a split, as this may be an incompatible reality for some.
+    - I can't really tell if it's a split or if this is a forced death and rebirth for them.
+    - I think the rebirth factor is largely determined by their trajectory is when arriving to the end of the timeline. as in, will it be deacceleration or acceleration.
+    - for example, right now mutual-back-scratching is at it's peak, and the one being reborn now is the "physical-reality-is-everything". at the end of this cycle, the same will happen. it'll be the end of mutual-back-scratching, and it'll be forced to join everyone in the "feeling-purposefully" paradigm or be be reborn into something new. (I don't know if split is an option)
+  - now, the feeling-purposefully concept in full power.
+    - whoever the omega is will have feeling-purposefully completely removed from their capability forcing a rebirth into a new concept.
+    - let's just say that for the next 1024y cycle, I just chill out and experience good conditions, holding the timeline stable. when we get to the end of the timeline, there will be a number of people that have gained the capability to go back into the timeline and make adjustments to their timeline, either going the desirable or fuzzing path. they can be assured that they arrive to me.
+      - depending on their speed when they arrive, they'll experience either an acceleration or a rebirth.
+
+man, I don't know why I saw it so clearly earlier and then now I'm very confused...
+
+I'll leave that there, but, in the shower, the way I saw it is that the girls were looking for me as their manifestation but in reality, they'll realise that they're looking not for me, but for theirselves. they are the manifestation they're looking for... this causes them to become alpha/omega types just like me.
+
+it's difficult to describe how much dissasfaction and clouded thought I'm experiencing now. it feels like someone (nosebook?) is very concerned about the idea of a bunch of girls figuring out what I know or something like that. anyway, I'll continue tomorrow.
+
+[1]: it'll accelerate faster than imagined, because considering a 1024y cycle, even after 32y is still ~10%, which is quite a lot. (64y is ~20%)
+
+### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
