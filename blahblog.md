@@ -1931,6 +1931,22 @@ it's difficult to describe how much dissasfaction and clouded thought I'm experi
 
 [1]: it'll accelerate faster than imagined, because considering a 1024y cycle, even after 32y is still ~10%, which is quite a lot. (64y is ~20%)
 
+### 2022-05-01 09:01 - thinking about the guys pyramid
+
+so I left for starbucks this morning and I was thining about some of the reactions, specifically to the one where I said that with my limited experience, I figired that most asexuals and homosexuals were on the base of the pyramid thining it impossible to have a desirable experience with girls. that certainly was the case for me, and I did get the impression that most gay men did find women unattractive for that reason -- considering that any meaningful relationship with them would yield an undesirable result.
+
+trying to figure out the reactions, on one side, I could see how some women could get offended and think that I'm trying to get them to change their behaviour. I definitely am not, as everyone is entitled to do as they wish. I'll leave it to the religious and penal institutions to tell people how to behave and punish them for "bad" behaviour. I'm not giong to get into that mess.
+
+what I do is look at how everything is attraction. so, if someone believes they will not have a desirable interaction with someone else, no matter how hard the other person tries, the person believing a desirable interaction to be impssible, will *always* perceive an undesirable interaction. it's just how it works; it's all perceptual.
+
+---
+
+for me, personally, what ended up happening is I looked all over the place for different things, and I finally concluded with asexuality because I noted pretty quickly that I wasn't going to be able to control anyone else's behaviour and neither did I want to. I finally concluded that I didn't know what I wanted; I couldn't find anything that I could say, "this is what I'm looking for".
+
+this is the conversation that I was having with jaron, because I recognised that I wasn't looking for a person, place, or thing. I was looking for a feeling, and although others could inspire me to feel that way (raquel made me feel pretty good), but if I have to depend on them to feel that way, then I'm right back where I started. *I* want to find a way to feel that way for myself and not be needing things outside of me for that. nobody can satisfy me, but me.
+
+
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
