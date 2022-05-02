@@ -1945,7 +1945,41 @@ for me, personally, what ended up happening is I looked all over the place for d
 
 this is the conversation that I was having with jaron, because I recognised that I wasn't looking for a person, place, or thing. I was looking for a feeling, and although others could inspire me to feel that way (raquel made me feel pretty good), but if I have to depend on them to feel that way, then I'm right back where I started. *I* want to find a way to feel that way for myself and not be needing things outside of me for that. nobody can satisfy me, but me.
 
+### 2022-05-01 19:15 - prepare the footgun
 
+earlier I tried to fall to sleep but I couldn't do it. now, I'm trying to just lay there and mom and jaron are talking. my brain keeps reacting to their thoughts. I'm just feeling the feelings and stuff, but they keep having my translate the feeling into words or something. the translations are uncomfortable for me, so I've got music on and I'm writing this. instead of doing microtranslations of individual feelings I feel emitted from the conversation and how I relate them, I'm just going to write my thoughts here. it'll inevitably be a footgun -- so, sorry to those involved ahead of time.
+
+---
+
+it's easy to point the finger at jaron because he's clearly very confused about a lot of things. I mentioned this to him when I talked to him about it that day (forget what day it was now). my point to him was that he believes mom is going to read his texts to jerrica, mom probably believes that jaron is going to act up, and while they were talking I felt a lot of expectation from mom that jaron would be trying to be creepy or sexual or something. that's what mom expects from jaron, so that's the lens she's reading the text messages with. jerrica must be attracting this sort of thing from jaron as well, because it's not just jaron, it's charles, derek, probably her last boyfriend kyle and anyone she seems to care for. almost certainly she believes that this is how boys behave. they get jealous, cause problems and are honory (something like that).
+
+so, while jaron is definitely the easiest to point the finger at, and he'll probably take the blame and stuff, because it's unlikely that mom or jerrica will ever admit to attracthing like that, this is kind of the same discussion that I wrote about earlier today in starbucks. if one expects to have an undesirable interaction, then that's what one should expect. it's not the other person's fault that you are attracting an undesirable interaction.
+
+in the context of what I wrote about earlier, it's often the case that someone will say, "girls are always right" or "men take the blame and are the ones required to change their behaviour, meanwhile women do not need to change anything." -- and, that may or may not be true (some will think that statement is true while others will not), I don't think that really helps to look at it that way.
+
+let's just say for a moment that they *are* always right, and that we are the ones that have to change our behaviour... my point is, that behaviour has nothing to do with anything. behaviour is attracted, so I get what I expect. even if I had the intention of behaving perfectly, it still doesn't matter because there will still be things that I do which seem to indicate to the other person that I am behaving the way they expect me to. no matter how hard I try, I will never be able to escape their expections of me, and they'll always see what they expect to see.
+
+so, blame away, but personally if I were jaron, I wouldn't worry about what jerrica or mom is doing, and instead just pay attention to what I'm expecting from others. if I were jerrica, I wouldn't worry about what jaron is doing, and instead try and soften my beliefs about boys...
+
+I'm getting reactions, so let's take that example. it's easy to say, "I'll soften my beliefs about boys when they start behaving differently". it may be a while before that happens, because they'll always conform to how you expect them to behave -- so, in your perception, they'll always behave the way you expect them to behave. no amount of reasoning can change the way you will see them behave. they are destined to conform to your expectations of them.
+
+from jaron or any of her future boyfriend's perspectives, no matter how much effort he puts into behaving the way she wants him to behave, her expectation is different than her desire. she desires he behave some way, but her expectation is that he won't. expectation always overrides desire, which is why perception (which is the foundation of expectation) is what *actually* matters.
+
+---
+
+so how do you change perception? it's impossible to do it all at once, and it's incremental, looking for (noticing) what you want to see, rather than the stuff you don't want to see. look for improvements. look for them to begin to behave the way you want them to behave. inevitably that won't work for some (especially adults), so instead look for them to *feel* the way you want them to feel, and peace out when they don't feel the way you don't want them to feel.
+
+looking for them to *feel* the way you want them to feel *is* changing your perception. that's the whole point. when it's no longer material or and behavioral (conditional), it becomes a lot easier to see/feel (perceive) what you want to see/feel[^1] (perceieve).
+
+it's really not that hard.
+
+---
+
+quick anecdote: in spain there is a lot of emphasis on "hechos", and once you've done certain things, they're kind of like unredeemable. there's no way to ever fix those things. they're scars that will forever haunt you around those that know about your "hechos". thing is, both sides have "hechos" and so it's sorta a stalemate because neither side can "forgive" the other side for having committed such an awful thing. 
+
+the thing is those will just lock a person into a never-ending cycle of frustration and hatred because you'll keep attracting the same thing from anyone new. I don't recommend "forgiving" the person for what they did, but get off of that frequency entirely. you can try distraction, but it'll usually just be a longer time-delay until it comes back. I really recommend looking for improvements and for the things that one wants to experience, instead of noticing the horrible boyfriend in every guy that gets close. it's impossible to forgive someone for something, but it is possible to change what things you're noticing.
+
+[1]: I say "see" because it's visual for me, but I think visual for most is perception of physical. 
 
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
