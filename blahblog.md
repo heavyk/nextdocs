@@ -1977,9 +1977,13 @@ it's really not that hard.
 
 quick anecdote: in spain there is a lot of emphasis on "hechos", and once you've done certain things, they're kind of like unredeemable. there's no way to ever fix those things. they're scars that will forever haunt you around those that know about your "hechos". thing is, both sides have "hechos" and so it's sorta a stalemate because neither side can "forgive" the other side for having committed such an awful thing. 
 
-the thing is those will just lock a person into a never-ending cycle of frustration and hatred because you'll keep attracting the same thing from anyone new. I don't recommend "forgiving" the person for what they did, but get off of that frequency entirely. you can try distraction, but it'll usually just be a longer time-delay until it comes back. I really recommend looking for improvements and for the things that one wants to experience, instead of noticing the horrible boyfriend in every guy that gets close. it's impossible to forgive someone for something, but it is possible to change what things you're noticing.
+the thing is those will just lock a person into a never-ending cycle of frustration and hatred because you'll keep attracting the same thing from anyone new. I don't recommend "forgiving" the person for what they did, but get off of that problem frequency entirely. you can try distracting yourself, but it'll usually just be a longer time-delay until it comes back again. instead, I highly recommend looking for improvements and for the things that one wants to experience, instead of noticing (yet again) the horrible boyfriend or nagging mother/wife/girlfriend in every person that gets close.
 
-[1]: I say "see" because it's visual for me, but I think visual for most is perception of physical. 
+it's impossible to forgive someone for something[^2], but it *is* possible to change the things I'm noticing.
+
+[1]: I say "see" because it's visual for me, but I think visual for most is perception of physical.
+
+[2]: I can't forgive someone for conforming to my expectations; that's stupid. in fact, the whole concept of forgiveness falls apart once I belive that everything is attracted. I can't forgive you for my attraction.
 
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
