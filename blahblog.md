@@ -2075,6 +2075,28 @@ I put this description in, because it has an interesting symmetry to the previou
 
 [2]: in that same vein of thinking, I also noticed this triad showing up in the "breakaway civilisation" (tesla/vulcan) and hitler (mars/aries).
 
+### 2022-05-03 13:08 - ray types and not-good-enoughness
+
+I'm probably repeating myself, but when I say ray type, I do not mean to intend that any single person is of only one ray type. quite the opposite. they state that the triads there are created beings with pure ray type, implying that we're a mix of ray types.
+
+ray type has more to do with where you start perceptually. a 7th ray will start with physical stuff (data, stones, etc) and then from there go to another ray type. this is a very common thing. since I've been listening to snake-bros, it's probably been more on my radar than most, but both of them looked at all of the crazy ooparts and other crazy stuff (listen to snake-bros #018 if you want to hear how they both had skerpy moments) -- and then eventually turned around to the idea that there has to be more than just what can be experienced physically. this is the "7th ray path".
+
+now compare this to my path which was quite the opposite. I felt a lot of things that seemed to contradict what people were telling me. a person would say one thing, but I knew that they had to by lying. or, I would look at something on the news and to me it would just feel evil, disingenuous, or just flat out disinformation. like them, I skerped myself pretty hard as well saying, "no I want to believe what they say rather than what I feel" -- and all of the same skerptard tactics that russ describes in #018 are all the same things that I experienced when I would confront people about the difference in what I felt them say as to what they really said: file drawer, confirmation bias, etc. -- so, it's clear that I took the 5th ray path.
+
+the 1st ray path is sorta similar to the 5th ray path in that it's more feeling oriented, but I think abraham desired it probably the best when talking about esther. disney princesses are also usually the 1st ray path as well. they desire and then get what they desire, realise the flaw in their desire and then desire anew.
+
+the 3rd ray path is a lot like the 7th ray path, but it starts with logic and axioms of "truth" and then tries to build up from there until the "truth" structure topples over and has to be rebuilt.
+
+---
+
+the other reaction that I got to the last entry is why would I be putting emphasis on the "lame god" part of vulcan (the physical part) in comparison to the perfect physical form of aries? well, it was to illustrate the aspect of not-good-enoughness.
+
+it is true that as soon as I'm able to conceptualise myself as not physically disabled, then I will lose my disability, which reminds me of the end of "the usual suspects", but I haven't got to the end of the movie yet. there are probably still aspects yet to be elaborated on and revealed. it'll take probably as long as you all continue to have questions, and then once there is no more desire for me to continue to answer questions in a form of humility, I'll convert into my fully realised "luciferian" form (the 7-headed dragon), and it's almost certain that in that form, it'll be very difficult to take anything I say seriously because my pride and arrogance will likely be a little bit upsetting (it's really hard to listen to someone who appears superior to you -- unless of course, you're forced to do so).
+
+this is kind of one of the reasons why I want to go for as long as possible. if they're able to hold me all of the way, it'll take me some practise, but, with time, I should be able to gradually find a way to perceiving myself physically with good-enoughness rather than not-good-enoughness. if I can do that, the transition will be seamless and it won't cause any real large disturbances.
+
+until then, I desire to continue to expanding my knowledge until I become a "know it all" because in my connected state I can tune into and know anything I desire. until then, I prefer to continue to get stuff wrong.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
