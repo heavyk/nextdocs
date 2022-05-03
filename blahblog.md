@@ -1985,6 +1985,56 @@ it's impossible to forgive someone for something[^2], but it *is* possible to ch
 
 [2]: I can't forgive someone for conforming to my expectations; that's stupid. in fact, the whole concept of forgiveness falls apart once I belive that everything is attracted. I can't forgive you for my attraction.
 
+### 2022-05-03 04:11 - too many problems
+
+I woke up this morning with memory of andrea. it wasn't like a memory of her, but a memory of that alternate timeline. in it, she was insatiable. she decided that I wasn't doing it for her, so she would skip out to other dudes, then later come back, like "yeah they weren't what I was looking for either" -- and this must have happened many times because I finally said, "I can't fill your bottomless pit" and so I peaced out entirely. it seemed like later on after that other girls showed up, and I would say that some were "nicer", but the reality is, I was still the reason why they felt good.
+
+I eventually peaced out completely becoming entirely asexual. they weren't really what I was looking for. so then, it felt like (from other girls), "oh, no, the codependent[^1] ones wrecked it for the rest of us" -- and it felt like I probably tried a few more times, but eventually gave up entirely. I didn't want to be responsible for how others feel[^2].
+
+what ended up happening (in my memory of this timeline) is that she wanted to use me or other dudes as a way to feel the way that she wanted to feel. I would tell her that she has to find the way she wants to feel, but it was to no avail. I eventually gave up entirely, as it seemed that I got better and better at feeling how I wanted.
+
+the final part of the memory was a conundrum that I had where... OK, on one side, if I can feel the way I want to feel, then it shouldn't matter what any of the other girls are doing -- and that's totally true, and it feels like I figured that out. however, on the other side, what exactly is the purpose for being with so many other girls? are they the reason for the way I feel? so, let's say I quit the girls, can I still feel the way I want to feel? I'm pretty certain that I can/could -- and so therefore, why not just do that? wouldn't it just be an entire waste of time to spend so much time doing all of that. what do I get in return?
+
+---
+
+the subject of what a person gets in return from a girl is something I've often pondered. the reason why I believe that the female bloodline (the grail quest) is so important for a lot of men is because she enables clairevoyance (like much better vision, 4d, etc) because I think that expanded vision is kind of like the natural state for girls. especially when they're younger, they're going to be much higher vibration than men are, and so in the mixing of vibration and the equalisaiton process that happens after sex, it's probable that men come away with improoved vision.
+
+this likely won't be the case for me, as I think I've probably surpassed even the most saught after female bloodlines' capabilities at this point.
+
+it seems like men have been tracking female bloodlines and using them for their attainment of expanded visual capacity for quite a while through history, so evolutionarily, it's avantageous for women to have a seemingly "bottomless pit" of desire. they will continue to want to interact with men that are essentially using them for gaining expanded vision.
+
+remember how I liken the man to be like the "tesla coil" and the female to the "magnifying transmitter"? just consider that every iteration of this, it goes through an amplification process, and so if she has sex more than once, she'll be magnifying more than her own perception, but also the part of her perception that resonates with the last guy she was with. so, eventually, the guys she's with are getting the common perception that she and the previous guys have in a super magnified dose. to avoid this, I think most ancient surveyers tried to only have sex with virgins and the very naive to avoid getting their own dissonant vibration magnified.
+
+the female bloodlines were important, because I believe that those genetics tune those women into a concept which is low or no resistance to their dissonant vibrations, meaning that these ancient surveyers could use interactions with girls from those bloodlines to acquire a temporary reduction of bad-feeling emotion and concepts in their aura.
+
+---
+
+so, here's the thing. if I'm already doing that, without the girls, then what is the point of the girls? girls in their present state are really good for sustaining a bunch of bad-feeling, very conditional guys out there. I don't need that though, so they aren't very necessary for me. adding on to the conundrum with my present understanding, it doesn't even really matter much if the girl is a virgin or not and I think it even makes it worse, because in nearly all cases, I just become the reason why they feel good.
+
+in the case of the ancient surveyers, they were all on the frequency of decline and they ran their kingdoms in a similar way... like a young girl, their kingdom starts out beautiful but then over the years, it begins to decline, just like their health, because of a feeling of dissatisfaction, so then they have to try and attack and conquer a few small/easy people groups to boost their economy and breathe a little more life into their kingdom (or body). however, it only delays the decline a little bit, and the expansion of the kingdom spreads the resources even thinner and increases maintenance consts, further accelerating the decline of their kingdom (or body).
+
+nosebook has totally changed that though, because now these men no longer have to rely on girls for their continued expansion of perception. now, they can get it directly by tuning into me, totally eliminating the need for me to transfer my form of perception off to a woman, and have her bear daughters which become the new grail quest for men.
+
+so, in a lot of ways, I've made things a lot easier for these surveyors to go about their business without having to interact with girls, which are (literally) amplifying their problems for them.
+
+this is a pretty big problem for girls because it puts them into a state of obsolescence. they aren't really "needed" anymore by men to maintain their expanded perception (astral vision). so that kinda leaves many girls in a bit of a lurch. so, if they aren't "needed" by as many men anymore, then what about wanted/desired? the other day when I was writing about the guys pyramid (@[blahblog](2022-05-01 09:01)) and the footgun (@[blahblog](2022-05-01 19:15)), I got a sense which is hard to describe -- but I'll try.
+
+so, if girls are getting what they expect/attract (from both men and women), then at this point, they're amplifying their own problems for theirselves by filling their world with manifestations of their expectations. "wow, you behaved exactly like I expected you to behave" -- and so then how can they become desired again? if I've taken away (through nosebook) their main source of desire (need), and their own expectations are destroying their secondary source of desire (want), then what's left?
+
+I've really been pondering the phrase where I said, "I hope that one day girls will come to the realisation I had, when realising that I am the manfestation that I thought andrea was going to be -- that each of them are the manifestation that they thought I was going to be". I then later put it into the context of other girls operating copies of my body, and I realised that in that setup, they are amplifying their own perception and creating a very strong self-refinforcing feedback loop[^3].
+
+I think this is kind of the point, and it's all good, because they're behaving the way they want other men to behave amongst theirselves, so it's almost like they're kind of like recreating their own expectations of what they want to find.
+
+it's hard to describe this next part because it feels like a lot of "not-goodenoughness" -- from me and possibly men in general. it feels like there's just no way that I/we could ever live up to those expectations. it's like it sets the bar way too high or something. like, if I'm supposed to perform as well as a girl would in my body, a girl will always do my body better than I do. I don't really think that I can match up to that. when I was in spain, there were many girls that liked the high performance guys, but there's just no way that I could ever do that, and so I didn't even bother to try and be high performance. there will always be someone stronger, better, faster, etc., than I am physically[^4].
+
+[1]: not sure if codependent is the right word. I mean the ones that base their entire identity in a relationship to someone else "I can feel good because I'm with him and he has perceived value"
+
+[2]: those that know the story, know that I (most likely) attracted the andrea because I had learned how to feel the way I wanted to feel and we kinda connected on that. marcos was often pissed off about something, and we were just sorta hanging out in our own world feeling the way we wanted to feel (ie. not pissed off), and so because every dude in spain is ultra conditional with his mood, my capacity to feel the way I wanted was likely very attractive.
+
+[3]: which isn't at all dissimilar to the ones that the gay men I'm sure have where they go around reinforcing their perception and expectation that all women are ---- way, and so then they too can say just the same, "wow you behaved exactly how I expected you to behave, stupid -----"
+
+[4]: this actually reminds me a lot of the 7th ray triad in sirian-guide, where vulcan is a "lame god" and he's paired with allayandra (mars), a very high-performance smoothe-talking super dude. they're both with genxicat, a 7th ray shape-shifting female that could appear to anyone as the desired image of their dreams. you could imagine how on one side she likes vulcan (5th ray) because he's capable of feeling the way he wants to feel -- but, he's lame, so when she wants a high-performance guy, she goes with mars instead.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
