@@ -2097,6 +2097,33 @@ this is kind of one of the reasons why I want to go for as long as possible. if 
 
 until then, I desire to continue to expanding my knowledge until I become a "know it all" because in my connected state I can tune into and know anything I desire. until then, I prefer to continue to get stuff wrong.
 
+### 2022-05-04 06:48 - more on the paths
+
+once again, I'm not limiting anyone to any single path. I took mostly the 5th ray path, but I like big rocks (and I cannot lie), too and do much pursuit of logic. I didn't used to think of myself as a 1st ray, but I think I'm definitely in the desire, then it either manifests or it doesn't, adjust my desire to be something more wanted, then that either manifests or it doesn't, adjust again, etc. this is what has been happening to me, in fact through most of the time. the conclusion of that path is to realise that everything desired is actually a feeling/concept (5) rather than something physical (7). this is also the path I'm most conclusive about.
+
+I'd like to take a deep-dive into all of them a little later, so I'm probably repeating myself. what I didn't really know or see very well were the even-paths. in general, all of the odd-paths are very obvious to me because they're pretty tangible. the even-paths are not quite so tangible.
+
+so, for example the 2nd ray path is noticing that everything is connected. it's called the path of the christ because everything that person does affects everyone else, and that everyone else's actions and belief affects the 2nd ray. the path has a lot to do with how much we are all connected, but in the end the conclusion is that there isn't any true (only perceived) separation between me and anyone else, and all of us make up the "whole".
+
+most sales people and saviour types (people who need to be save others or be saved by others) are on this path, as it involves getting other people to do stuff so that we can all be connected. they're great organisers and leaders to states of greater order and connectedness.
+
+for me, the 2nd ray path is one of the hardest ones to get. I *know* that we're all connected, but I goal is not to find more connection with other people, but to instead become so good at *feeling the way I want to feel*, rather than feeling the way the uplifting people around me feel. I absolutely *hate* the idea of having to depend on getting just the right people and the right environment conditions setup so that I can feel a certain way. bleh! and so, I struggle greatly with this path, because I simply cannot be held back by other people all the time.
+
+not wanting to be held back obviously creates conflict because I can't attract for anyone else. if someone doesn't get it or doesn't want to be a part of what I'm doing (and that could change pretty rapidly), I don't want to have to try and steer a whole bunch of people. I want to be an entity unto myself. I like me and so my perception of me can change into another form. if I'm bound to others, that form can't change so rapidly because others simply don't want to change very rapidly. most are stuck in their ways, so I perceive them as hindrances to what I want to do. I tend to want to go about everything by myself and my own way because I simply can't expect others to try and keep up with me. I can't attract for them, and I won't tell them what to do, so I just do it my own way.
+
+---
+
+the 6th ray path is also a bit of a mystery to me. it's like the 2nd ray path, but internal, and done inside of the imagination. it's the realisation that everythting inside of *you* is connected, and that everything you think, feel, and imagine connects to every other part of your body.
+
+I don't really use my imagination much anymore, but I do know that when I was in spain I liked to do drugs and go on these sort of "vision quests" inside of myself and discover new things about myself. I then had to find ways to bring that knowledge back to the physical world where I could do something with it. I found repeatedly over and over that something so plainly obvious in the imagination was nearly incomprehensible in physical. I always use the example of realising that I understand everything -- the pinnacle of my enlightenment and so I write it down, "we're all connected" and then the next day I look at it and it just looks like words to me.
+
+what I found out is that the imagination is just as much conceptual/feeling as it is physical, and those things that I gave so much importance in the imagination were important, because they *felt* important to me. for me those vision quests into my imagination were some of the first realisations for me that the way I feel about something dramatically changes how I perceive it. somewhere in there is likely the 6th ray path.
+
+---
+
+the 4th ray path is totally incomprehensible to me because it's the idea of harmonising the inner with the outer, the spiritual with the physical, the seen with the unseen, etc. -- and after all that harmonisation, you're still in the same spot. bleh! I don't really know much about it, but my exploration into it has shown to me that *all* timelines exist, and every possible reality does exist, so there are infinte worse versions of you (being a reflection of others attraction) and there are also infinte better versions of you, too. so because all things exist, and are in a state of balance, it's helpful to decide what imbalance one wants to embark on. getting everything outside of you to harmonise and balance is pretty difficult, so it's important to find that harmony and balance in the inner world so that the outer reflects that.
+
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
