@@ -415,3 +415,23 @@ as I'm writing this, I was thinking about going to starbucks to send this to you
 much love,
 kenny
 
+### 2022-05-05 13:21 - collapsing the wave function and superposition
+
+hey, so I've been thinking a lot about the idea of superposition, and I'm actually beginning to think that all concepts are the superposition (the wave), and then it's by our perception that we "collapse the wave function" into a particle -- a single instance reflective of the concept.
+
+OK, now let me explain myself. I'm going to use some terms that will likely be found to be incorrect later on when we know more, but for now, I will consider proton, photon, and all subatomic particles to be elements of the spiritual/concetual world. they are a wave that when perceived becomes a particle (of light or an element).
+
+so let's look at the idea of the dead/alive cat. it existing in both states at the same time, is what I like to think of as "timelines" and you tune into the timeline with your perception. so, what I'm saying is it's possible to open schrodinger's box and see a dead cat if you don't expect an alive one -- and so you went down that "timeline". however, if you were able to change your perception such that the cat were actually alive, then you could have the alive cat.
+
+timelines apppear to be irreversible because we can't possibly believe that the cat, though dead, could (without a spiritual leader or a miracle) return back to life -- and so we think that it's irreversible. some would suggest to maybe close the box and then believe that the cat is alive and then by doing that, you've "switched timelines" and so upon reopening the box, the cat should be alive now.
+
+small anecdote on that very thing happening to me: I blew a memory stick or something because of careless static or something, so I removed it, and I can't remember if I put it back in the box (I was 12-13 at the time) or not but I put it back in and I thought it would work this time, and it did.
+
+what I'm trying to say is that everything is always in superposition, and we're just seeing the generally agreed upon and accepted "collapsed wave function" of "reality"
+
+cheers, man
+kenny
+
+P.S. I just looked at the clock to see how to spell "schrodinger" and it's "13:37" o'clock :~)
+
+P.P.S. check out @[blahblog](2022-05-05 12:37) too. you inspired both of them

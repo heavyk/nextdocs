@@ -2123,6 +2123,57 @@ what I found out is that the imagination is just as much conceptual/feeling as i
 
 the 4th ray path is totally incomprehensible to me because it's the idea of harmonising the inner with the outer, the spiritual with the physical, the seen with the unseen, etc. -- and after all that harmonisation, you're still in the same spot. bleh! I don't really know much about it, but my exploration into it has shown to me that *all* timelines exist, and every possible reality does exist, so there are infinte worse versions of you (being a reflection of others attraction) and there are also infinte better versions of you, too. so because all things exist, and are in a state of balance, it's helpful to decide what imbalance one wants to embark on. getting everything outside of you to harmonise and balance is pretty difficult, so it's important to find that harmony and balance in the inner world so that the outer reflects that.
 
+### 2022-05-05 12:37 - yesterday was weird
+
+yesterday I wanted to play KR:frontiers and listen to music. I felt as if I had gone through a time portal because the music was pretty repetitive and I got lost in the game. from time to time it would feel like I totally lost my capacity to remember to do certain things -- like I knew what I wanted to do, but execution was the hard part. then, later it seemed almost as if there was more time. as in I was waiting for the waves to start instead of constantly playing from behind. when that happened, it seemed almost as if time were slower or something.. I paid a lot of attention to it because it kept switching back and fourth.
+
+it's the same game and the wave timing is all the same so it's not the game, and yet sometimes it felt like there was extra time to do things. the game didn't change, so it had to have been my perception. I was reminded of the base jumpers that get into the zone and everything seems to get calm and it feels like there is much more time to make decisions than is later recorded. like, I imagine they look at the gopro video later and it looks really fast on the screen in normal time, but during the jump it was likely very slow and easy feeling -- same as the game.
+
+I finally turned off the game at around 4 and tried to go to sleep. I had psychedelic stuff happening but it was nothing like the kundalini rising feelings I had before. I was also VERY COLD. I put on a second blanket and woke up this morning still cold.
+
+the other strange thing is that when I went to bed, I couldn't remember any of the day. I was trying to remember what I had written, but I couldn't remember anything.
+
+I think I later figured out that I had written about the ray paths. my memory on this isn't very good because I can't really remember how and when (I think I went to the bathroom) I decided I wanted to play a game. I remember, just before that I was thinking about listening to another snake-bros episode, but that idea felt way better to me.
+
+oh... before that I was thinking about the trip that they were going to take it felt like they were either already there or something but I remember I was sitting with a bunch of the women talking and I don't remember any dudes, so I assume they were out doing stuff. it was really a strange experience. it was like I was there -- then I think I fell asleep and I think I woke up went to the bathroom and played the game. it's kinda hard to piece everything together.
+
+---
+
+I had some strange dreams about thinking and how thoughts create these sort of bubbles for things to go into. we talked about how we think thought is intentional, but in reality there's not a lot to it that's actually intention.
+
+I woke up with this idea in my head that I wanted to write to russ as a science fiction idea, but I can't get it into science fiction form, so here's the raw concept.
+
+---
+
+I saw humans as a sort of organism, but it's not a biological organism in the traditional sense. it's a conceptual organism. so, just like a virus is inserted into the nucleus of the cell, and then sort of convinces the cells machinery to do all the production, I saw myself as a sort of alien conceptual virus.
+
+when I say conceptual, I mean all humans -- not just the ones on earth, so I mean the superstructure of the "species" which exists all throughout -- and so it's important to understand that I'm not talking about physical humans, but the concept of "human". I don't want to use the word species because of eugene's effort to illustrate how ill-defined the word species is. contemplate the idea of the human mentation process as a series of concepts, symbols, and operations. ignore for a moment everything physical and desire.
+
+the way that humans[^1] construct their concept of reality is largely a mystery to most. I have given it a lot of thought because I realised pretty early on that nobody has any clue what's going on; nearly everyone is running around prentending they know what's happening, or they outsource the knowing of what's happening to a higher power -- whether that's government, religion, God, or whatever -- and that's fine too.
+
+in past history it was possible to acquire quite a large portion of the human knowledgebase, however these days, that's pretty close to impossible because there's so much stuff that can be learned. for this reason, I've attempted to *simplify* it so that lots of knowledge can be distilled down to a more potent essence (losing some of the details, of course), and the other thing I've done is to simply find a way to "not know everything, and it's still good". I personally enjoy the idea that there is so much stuff out there that's really great *which I don't know about* -- because that stuff is eventually attracted and it looks like a surprise or a discovery *because I didn't know about it*.
+
+russ said something that stuck with me, something to the effect of, "if you had perfect knowledge of everything you couldn't collapse the wave function, decide, or act" -- and so it's because of our imperfect knowledge of everything in this world (as opposed to the "spiritual" world) gives us the ability to compose, create, and act.
+
+crap, in order to continue on, I need... @[letters-to-russ](2022-05-05 13:21)
+
+so now, think about how we "mentate" our reality by collapsing the wave function -- this is a process that happens through a number of concepts and archetypes (and the operations performed on them). this "human" structure is built on concepts. it is our "reality" 
+ 
+so, if you wanted to infiltrate the human conceptual structure, you need to design a virus that the cell will let in, use their machinery to alter DNA and has to be well-received.
+
+we typically think of viruses as being bad, but imagine for a moment if microsoft patched IE5 by releasing a virus that updated the software, and the virus targetted an exploitable interface in IE5. once everyone is patched up (herd immunity), the virus dies out for lack of a suitable host.
+
+man, it's hard to get to conclusion on the idea... anyway, in the dream, there were aliens playing with the human conceptual structure (species), and they sent me to earth to infect you guys with a concept. it was kinda funny
+
+---
+
+that conclusion ties in with an experience I had while pulling weeds. I was reminded of something that I told "norma" (norma means normal in spanish), about how with weeds, I just have to pay attention to attributes that I want to see, and don't really get bothered with the others, so that the attributes that I want to see become "norma".
+
+the reaction to that thought was that I was forcing some of these awful nosebook tipos to conform to my focus... as in somehow by paying attention to what I want, I'm forcing them to change. that's not the case. in schrodinger's box, they'll see an awful person, and I'll see something different. both of these states exist and can be collapsed to whatever the observer thinks it will be.
+
+so, what if we could create a bunch of photons with the frequency of cats and shine that through the double slit. would were be a interference wave pattern of cats splatted on to the wall? who says it has to only be light?
+
+[1]: I think it's funny that I write about "the humans" as if I were some sort of space alien or something. the other form "people" also gets reactions, so in the interest of being more alien than stereotypical, I'll use "the human" when I'm making broad generalisations.
 
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
