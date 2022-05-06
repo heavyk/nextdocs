@@ -2175,6 +2175,30 @@ so, what if we could create a bunch of photons with the frequency of cats and sh
 
 [1]: I think it's funny that I write about "the humans" as if I were some sort of space alien or something. the other form "people" also gets reactions, so in the interest of being more alien than stereotypical, I'll use "the human" when I'm making broad generalisations.
 
+### 2022-05-06 10:27 - conceptual only upgrade
+
+today I was out pulling weeds again and it occurred to me that I was implying that it was a conceptual only upgrade. I honestly didn't really think too much about it because for me concept comes first, so the capacity for me to manifest the reality is as effortless as tuning to it.
+
+I could rush toward the manifestation by star-watching and rising the kundalini various ways, but I've chosen to instead take as long as possible to get there by exerting no effort.
+
+the effect this is having is that the concept that I'm using to get there is taking a stronger effect because it's present in people's realities for a longer period of time. if it were to manifest, people would completely forget about the unseen conceptual world and instead fixate on what can be seen. so the concept, because it's not visible, is getting better adoption, the longer there isn't a visual distraction.
+
+the concept itself isn't really visible to most people yet, but I've noticed that the longer I wait, the more people are beginning to see that there is a method to my madness and that I actually know what I'm talking about. in the past (referencing gods of eden here), people need a manifestation, apparition, or something in order to believe[^1], and in my opinion that didn't work well, because it created a "I'll believe it when I see it, but not change my concept/believe of it, because I don't actually have to believe it until the performer of the miracle shows it to me" sort of attitude.
+
+for me a concept is visible, physical, and very tangible. that's essentially the main reason why I don't need the manifestation so much -- because it's real already for me even before it has showed up in the physical. this capacity is a very large part of the conceptual upgrade that I've brought, so it'd be pretty obnoxious to just say a bunch of good sounding ideas like, "you gatta feel it" or "you when you feel it as reality, it *is* reality" -- and then go around manifesting things that I can feel. it's sorta like showing off a bit.
+
+much better would be to let others discover that they too have everything required to do the same. I'm not really anything special. I may have different DNA now, but that's because my DNA is a reflection of my perception[^2]...
+
+so, maybe it is actually a good idea to do a conceptual only upgrade. the result would not be that any single one person would get a DNA upgrdade, but instead a large group of people would acquire the concept, having been exposed it for so long, and so all of those in that large group of people would eventually get the DNA upgrade they're looking for.
+
+so yeah, I didn't really think about it, but maybe it is better that I'm doing things the way I'm doing it. evntually, it'll all be effortless for me and for a lot of other people as well.
+
+[1]: john 4:48 - unless you see signs and wonders, you will not believe.
+
+[2]: I've been thinking about the word "species" a lot lately, and I think that ultimately what determines one species from another is that each species has a remarkably different form of perception, and so that translates into a very different type of animal or plant. I have a lot more ideas, but I want to read the "stabilization theory" book first before getting the wrong idea about stuff. it appears that genetics is much more complex than my simple reduced idea[^3] offers.
+
+[3]: speaking of which, I've been thinking about how to predict chemicals interactions under different conditions. it'd be cool to render chemistry as a system of geometric formulas; plug in the conditions and out come the results. I guess it would have to be based on probabilities, as it would be impossible to model each individual wave and particle.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
