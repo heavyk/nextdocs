@@ -2219,7 +2219,7 @@ so, it's easy to see how this would likely be the case for most females, especia
 
 ---
 
-after that I wondered if my resistance to the whole saviour idea comes from this built-in system of all saviours have some sort of debt to be repaid. we typically think of it as the saved has to repay the saviour, but the sense I get (I have no data to say one way or another), is that in the case of females, if I save them, then I have a debt to repay -- and that sounds backwards from the intended concept, so I don't know what is going on there. however, my experience with males is the opposite: if I save one of them, then they see it kinda like a good thing to repay me for whatever it was. so it's backwards.
+after that I wondered if my resistance to the whole saviour idea comes from this built-in system of all saviours have some sort of debt to be repaid. we typically think of it as the saved has to repay the saviour, but the sense I get (I have no data to say one way or another), is that in the case of females, if I save her, then I have a debt to repay her later -- and that sounds backwards from the intended concept, so I don't know what is going on there. however, my experience with males is the opposite: if I save one of them, it feels like they have a desire to repay me (they don't) for whatever it was. so it's backwards.
 
 I don't know if that's just my perception or not, but I find it very weird that in my experience, if I've ever gone out of my way to do something for a girl, then it gets seen poorly and I have to repay the debt for trying to make her feel like she was incapable of whatever it was.
 
