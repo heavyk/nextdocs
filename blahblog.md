@@ -2233,6 +2233,58 @@ anyway, I wanted to write this because it suddenly made sense to me my resistanc
 
 so now this comes to the topic that I talked a while back on "what would I do if I were king?" -- and I explained that I would put another person into that position -- and I contemplated on the idea further thinking about patricia and things like that -- but then now after writing this, I realise how awful of an idea that is. so instead, I just have to say that the concept is out there, so *you* gatta figure it out for yourself, if you want it; I will make no effort toward it.
 
+### 2022-05-07 13:47 - 2nd ray females and the sun
+
+so I should explain a little more of the concept I think. there is some context to all of this:
+
+> The THIRD RAY, being concerned with mental action does not respond with as much ardor, enthusiasm or interest to relationships with the opposite sex. This causes difficulty with their relationships within a SECOND RAY system or with a SECOND RAY of the opposite sex.
+
+notice the difficulty with relationships within a 2nd ray system or a 2nd ray of the opposite sex. first of all, when the sirians say "the THIRD RAY" they just mean "not 1st or 2nd" because all other rays (except for 6) is an aspct of the 3rd. the 6th ray is just the 2nd but opposite polarity (physical, rathter than non-physical). though 3rd ray is not physical, it's much more physical than the 1st.
+
+the 2nd and 6th act as midpoints, translating something from a less physical to a more physical perception. logic is much more physical than desire even though both are not physical. likewise, physical is much more physical than emotions/concepts, even though they're both physical.
+
+---
+
+so, what they're saying is that a 2nd ray has difficulty with a 3rd ray because a 2nd ray sees connections, and a 3rd ray sees "paths" -- as in this is thy way to go to "get" this, where as the 2nd ray sees them as already connected. the 4th ray is much better suited to interact with the 2nd ray because the 4th ray can perceive their connection but their disharmony is what keeps them separate.
+
+essentially, the 3rd ray sees the parts. it's all about compartmentalisation (litcerally: separated but working together mental aspects) and arranging the things in a way in order to produce the manifestation of the purpose/desire. 2nd ray sees the whole and how everything affects everything else, but the 3rd is concerned with the parts involved in the manifestation.
+
+so by very nature our sun will be somewhat in conflict with a lot of dividing at the physical into parts of manifestion.
+
+---
+
+OK, now let's look at the sun now with the idea that we produce manifestations which then produce emotion/vibration/concepts. the sun has the job essentially like I do of taking in the emotion/vibration/concept from my environment and then transforming it into something that harmonises with the desire.
+
+imagine for a moment there is a whole lot of desire (1) out there and there is a whole lot of logic (3), disharmony (4), concept (5), and manifestation (7) out there. the sun has to find a way to make the desire become compatible with those 4 aspects, and so it does this with powerful vibrational emanations (solar flares, wind, and CMEs).
+
+keep that image in mind; now, let's talk about genetics.
+
+---
+
+there must be some mechanism inside of our DNA that translates solar energy into something physical that can be consumed. the sirians say that this is the "SOLAR ANGEL" and it resides at the very top of the 5th plane (touching the 4th, but in same polarity as physical). the sun is transmitting 2nd ray energy, which is a very high frequency energy. I have no idea what it would be like to talk about, but let's just say subatomic particles and/or the solar medium (ether) in which we reside.
+
+some portion of the DNA takes this energy and converts it down into something usable by the physical organism. I've heard about mitochondrial and also about the x-chromosome. those seem like viable candidates for the physical machinery to translate the "soul" or SOLAR ANGEL vibrations into something we would call a personality. no matter the case, it's feminine, because both of these are transmitted through the maternal line[^1].
+
+so then, if the soul is basically your solar identity or "account", that identity is its frequency, and so to think to yourself the role that women play. they are composed of two of these things and they produce another with two or another with one (having combined the fureqencies, making the genetics compatbile to the incarnating "soul").
+
+---
+
+the picture that emerges for me is that the sun is a giant system that is constantly coming up with new frequencies (in both environment and genetics) that facilitate the 3rd ray (physical) manfestation of desire -- NOT AS A THING, but as *a frequency*. the sun is only responsbile for finding a way to make a compatible frequency for that desire.
+
+that can often result in some sort of "sacrifice" in the sense that maybe a girl may have some weird desire to have sex with some unsavory types, thereby transmitting his energy to the next guy, and he'll then turn that energy into something that that will produce another step toward making a manifestation of a desire possible. or, maybe she'll have a child with his genetics, and that energy will facilitate the manifestation of another desire.
+
+the solar perception is not looking through the lens of "time" as we would see it, and time probably starts to be perceived around the top of the 6th layer (somewhere in the imagination). so when the sun is looking at things, it's only looking to find a series of transformations which will produce a vibration harmonious to the desire. we basically work in opposite to the sun's effort, by deciding to do things our own way, and so then then sun has to work harder and put out even more energy to create the environment capable of manifesting that desire.
+
+---
+
+people that are "low resistance" will often find theirselves doing the sun's bidding to make a manifestion possible. I'm definitely guilty of this, and many children are as well. we yell at them and say, "why did you do this horrible thing" and really for them it was in the direction of the desire (wanted), but we look at it with physical eyes and say, this is not the manifestation that is wanted. we want this rigid physical manfiestion to continue where it is, *and you broke it*.
+
+personally, I've lost my strong perception of physical in this way because if something gets broken, a new replacement is coming (though this is hard for some to believe), but the reason why it got broken was because it was in the way of the coming desires to be manifested.
+
+this solar energy transformer is not only specific to females but to all humans (and likely built-in to our genetics), and is the "receptive" part of ourselves designed to perform the 2nd ray aspect of finding a way to make desire possible.
+
+[1]: I believe. for this discussion I will assume it's the case. however interesting things to know more about would be if fungi are missing this solar energy transformer and that's why they "borrow" a mammalian nervous system in order to "see"
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
