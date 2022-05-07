@@ -2107,7 +2107,7 @@ so, for example the 2nd ray path is noticing that everything is connected. it's 
 
 most sales people and saviour types (people who need to be save others or be saved by others) are on this path, as it involves getting other people to do stuff so that we can all be connected. they're great organisers and leaders to states of greater order and connectedness.
 
-for me, the 2nd ray path is one of the hardest ones to get. I *know* that we're all connected, but I goal is not to find more connection with other people, but to instead become so good at *feeling the way I want to feel*, rather than feeling the way the uplifting people around me feel. I absolutely *hate* the idea of having to depend on getting just the right people and the right environment conditions setup so that I can feel a certain way. bleh! and so, I struggle greatly with this path, because I simply cannot be held back by other people all the time.
+for me, the 2nd ray path is one of the hardest ones to get. I *know* that we're all connected, but my goal is not to find more connection with other people, but to instead become so good at feeling the way ***I*** want to feel, rather than feeling the way the uplifting people (or not) around me feel. I absolutely *hate* the idea of having to depend on getting just the right people and the right environment conditions setup so that I can feel a certain way. bleh! and so, I struggle greatly with this path, because I simply cannot be held back by other people all the time.
 
 not wanting to be held back obviously creates conflict because I can't attract for anyone else. if someone doesn't get it or doesn't want to be a part of what I'm doing (and that could change pretty rapidly), I don't want to have to try and steer a whole bunch of people. I want to be an entity unto myself. I like me and so my perception of me can change into another form. if I'm bound to others, that form can't change so rapidly because others simply don't want to change very rapidly. most are stuck in their ways, so I perceive them as hindrances to what I want to do. I tend to want to go about everything by myself and my own way because I simply can't expect others to try and keep up with me. I can't attract for them, and I won't tell them what to do, so I just do it my own way.
 
@@ -2198,6 +2198,40 @@ so yeah, I didn't really think about it, but maybe it is better that I'm doing t
 [2]: I've been thinking about the word "species" a lot lately, and I think that ultimately what determines one species from another is that each species has a remarkably different form of perception, and so that translates into a very different type of animal or plant. I have a lot more ideas, but I want to read the "stabilization theory" book first before getting the wrong idea about stuff. it appears that genetics is much more complex than my simple reduced idea[^3] offers.
 
 [3]: speaking of which, I've been thinking about how to predict chemicals interactions under different conditions. it'd be cool to render chemistry as a system of geometric formulas; plug in the conditions and out come the results. I guess it would have to be based on probabilities, as it would be impossible to model each individual wave and particle.
+
+### 2022-05-07 11:49 - 2nd ray path, system, and females 
+
+I think it was in @[blahblog](2022-05-04 06:48) (actually maybe not) where I made the mention that the sirians said that this is a 2nd ray system, and so then I postulated that most females, by default will be of a 2nd ray type -- as in, unless you define yourself a different way, the standard preinstalled software runs on 2nd ray.
+
+actually, I don't remember now how specifically I've talked about it, so I'll just go over it again. it's one of those things where I don't really have any data to show a statistical correlation to my idea or even a good way to relate the idea, so I'll do my best. this is 100% speculation.
+
+the reason why I continued on with the thought is, if by default females are 2nd rays, and so therefore the majority will look to try and find their inner significance/divity through the 2nd ray path (the one I dislike the most). for the rest of this I'll assume this is true for sake of argument.
+
+---
+
+I woke up thinking about how, if most females are on the 2nd ray path, they'll want to be the saviour, or to be saved by someone. there is always the princess that has her knight show up in shining armour and save her from her life of insignificance.
+
+exploring that idea further, I noticed that there is always a cost involved with saviourship -- as if, if someone saves you, there is a debt that needs to be repaid.
+
+the 2nd ray path is that we're all connected and so the actions that I make affect everyone else -- or, from my perspective, the way I feel affects everyone else. however, this is only kinda true, because if I'm not receptive to (on the same frequency as) the other person's feeling, I they don't affect me -- so, in reality, the actions that I make only affect those that are tuned into the recipient of the action. for example, if the action affects the "family", then all thos tuned into the "family" vibe get affected.
+
+so, it's easy to see how this would likely be the case for most females, especially the family oriented ones -- and they're just trying to keep things running smoothely, so they're trying to minimise/maximise the effect that one has on the rest of the family/group -- and, in order to keep everything running smoothely, often times, a sacrifice has to be made in order to keep the whole operation from falling apart, and these debts sort of stack up after a while.
+
+---
+
+after that I wondered if my resistance to the whole saviour idea comes from this built-in system of all saviours have some sort of debt to be repaid. we typically think of it as the saved has to repay the saviour, but the sense I get (I have no data to say one way or another), is that in the case of females, if I save them, then I have a debt to repay -- and that sounds backwards from the intended concept, so I don't know what is going on there. however, my experience with males is the opposite: if I save one of them, then they see it kinda like a good thing to repay me for whatever it was. so it's backwards.
+
+I don't know if that's just my perception or not, but I find it very weird that in my experience, if I've ever gone out of my way to do something for a girl, then it gets seen poorly and I have to repay the debt for trying to make her feel like she was incapable of whatever it was.
+
+a good example of this would be when I was with raquel. I paid for a lot of things, but not because I wanted to make her feel inadequate, but because I paid for a lot of things -- no matter who I was with. the unfortunate result was that I think she felt that she had a debt that she had to repay me (she doesn't) but it caused a large amount of discord, and I didn't realise that by "saving" her from having to pay for something I was accumulating a debt that I would have to repay later.
+
+there are so many examples of this throughout my life where I do something nice or whatever for a female and it gets taken as if I want something from her or whatever. I've learned not to try and have any objectives for any females as a result -- mostly because it's only caused problems. if they want something, they have to find it for theirselves, cause I'm not going to offer something they want (or don't want) because it creates debt.
+
+---
+
+anyway, I wanted to write this because it suddenly made sense to me my resistance toward doing anything for girls. I am steadfast in my determination to let them figure it out for theirselves.
+
+so now this comes to the topic that I talked a while back on "what would I do if I were king?" -- and I explained that I would put another person into that position -- and I contemplated on the idea further thinking about patricia and things like that -- but then now after writing this, I realise how awful of an idea that is. so instead, I just have to say that the concept is out there, so *you* gatta figure it out for yourself, if you want it; I will make no effort toward it.
 
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
