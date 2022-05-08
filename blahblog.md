@@ -2303,7 +2303,35 @@ the idea is to have a direction for yourself. what I see people doing often is t
 
 resistance is not a good replacement for having one's own direction. if I just go the way I want to go and don't fight against anyone along the way, that direction is inevitable. nobody can stop it. only you can stop it by thinking that others are trying to impede you.
 
-"have a plan, or become a part of somebody else's" is the exact quote, I believe.
+"have a plan, or become somebody else's" is the exact quote, I believe.
+
+### 2022-05-08 13:11 - LAN party
+
+I've been thinking about an idea for a while where people create their own networks and connect to others within their aura. the idea would be to make it distributed and have a number of software programs running on it. you would be the wireless access point that people can connect to. so obviously a transition needs to be made over to this system so the first thing to do is to figure out how to use the human aura as a transmission medium, then use the mobile phone for all digital stuff.
+
+probably some sort of usb device needs to be created which receives power from the network, keeping the phone charged and connecting it to the network. then, the rest is software, so the big tech giants take care of that google for android, apple for apple, etc. I imagine open source software could show up to also support this system...
+
+I had this idea a while ago and mentioned it many times before, but today it might have been me listening to snake-bros #020 where they were talking about electro gravitics, a universal field theory and generally complaining about "climate change" being an effort for us to reduce energy concumption. I think I channeled that frustration a bit and went on a rant about how these "renewable" devices are just bad ideas. they label them sustainable, but there's nothing sustainable about snow covered solar panels. so I ranted for a bit.
+
+anyway, mom (I think) had a really good idea of converting human energy into power. I know it sounds really matrix-like and everything, but I know for example that I generate a lot of power, so then combine this with my idea of using the body's auric field as a transmission medium for tesla transmission (using the earth as one capacitor plate and the ionosphere/human aura as the other plate),then anywhere in that field power could be drawn from the humans that compose the network. obviously then we'd need some sort of credits system (like a cryptocurrency) where people could purchase power from providers in their area, to power everything from computers to air conditioners.
+
+I know it's possible but there are a lot of details that need to be worked out to make a viable system. it's completely possible, and would be pretty dope to implement. I don't really know where to begin, but I do know that if you build a network big corporations will be all over that to do their own marketing. it's a very lucrative endeavour, for sure, but I would want to do it completely open source -- well, you know me and how I am -- so it would be as "unhosted" as possible, with completely decentralised being the end goal.
+
+so then I went out to go pull weeds and I was thinking about it this idea further and I felt a pulling sensation coming from the snake-bros community (I think they're on that trip right now -- or is it later -- not sure, but I definitely felt their thinking about the idea too). I think it's a totally dope thing and we're kinda at the stage technologically where it's actually possible. everyone already runs around with an extremely powerful computer with them all the time (mobile phone) and distributed networking software is totally capable of pulling this off now -- so what I mean is, all the puzzle pieces are waiting to for a reliable distributed network that doesn't suck.
+
+I don't think it would be anything more than a small device that touches your skin for it to work (as a first version, but obviously it needs to become more ergonomic than that), but after that it should be pretty easy to get everything together.
+
+---
+
+it all sounds pretty easy to me and totally possible, but I have difficulty with it in that it's just another way to rely on conditions -- so I'm kinda defeating my own message by making a condition of well-being that can be relied upon. also it's clear that this is going to be the starting point for everyone getting their own crypto currency allowing for fast exchange between people within the network. so there's the whole "mark of the beast" aspect to it there. also, if humans become the power stations, we're literally going to be powering the AI with our energy, and so it's sorta the precursor to the matrix thing as well. though I think the idea is soooooooooooo cool, I can see how it could be perceived as a sinister plot by the AI overlords to enslave humans (or whatever sci-fi dystopian narrative you could come up with). that's the bad part.
+
+the good part is that it's powered by the human aura, and the human aura size is directly proportional to your resistance levels, so if you want more "influence" (a wider direct network connection -- fewer hops), you have to lower your resistance or find artificial means to boost your aura size. I believe most people will choose the resistance, as it's the easiest and you actually feel good (for reals) from it. so, in a sense it's tangible proof of what I'm talking about, and it'll be visible to the person their influence and so they can optimise it how they choose. it's a real-time feedback for anyone's resistance level as the aura size will fluctuate based on how good you feel and your vision upgrade level. so it's a very metrics and data oriented approach to "spirituality" with the benefit of wireless power, economic freedom, and a distributed global network.
+
+we'll see, but I can see how a network like this can open the door to "electro gravitics" too (ie. flying) -- and that could be really cool, but I would want to start with just the network and power transmission (and all of the software that comes with it), but then later -- I'm telling you, this system/technology will open up a whole new world.
+
+---
+
+so while I was pulling weeds, I had the idea that maybe I should actually email this idea to russ. I dunno... (what does randall always say?) I guess, we'll have to wait and see.
 
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
