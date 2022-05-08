@@ -2285,6 +2285,26 @@ this solar energy transformer is not only specific to females but to all humans 
 
 [1]: I believe. for this discussion I will assume it's the case. however interesting things to know more about would be if fungi are missing this solar energy transformer and that's why they "borrow" a mammalian nervous system in order to "see"
 
+### 2022-05-08 05:38 - resistance as a replacement for direction
+
+so, I can't really sleep so I thought I would write on a subject that is interesting to me...
+
+in @[blahblog](2022-05-07 17:38) (exactly 12h ago!) I casually mentioned that any girl that they stick me with would be easy for them to control, so they could therefore then control me through her.
+
+anyone who has low resistance is easy to control. in a lot of regards I'm easy to control because I don't really fight them much on a whole lot, because it's counter-productive to what I want to do, which is release resistant ideas from my perception, not add more resistance by trying to fight against their efforts to control.
+
+so in a sense, I am saying that they are looking for low resistance girls for ease of control, and so am I, but not because I want to control them, but because it's senseless to fight someone because nobody except yourself can actually prevent you from doing anything.they may be able to temporarily hold something away, but the sun has your back, and will ensure that it eventually becomes a reality.
+
+---
+
+so, there's this common idea that I've noticed that people will say, well, low resistance just means they'll take advantage of you. there's a really good saying that I like a lot which is something like, "if you don't have a plan, someone else will make you part of their plan"
+
+the idea is to have a direction for yourself. what I see people doing often is they don't like the direction someone else has for them so they begin to build up resistance saying things like, "you're taking advantage of me" or "I don't want to be taken advantage of" so they find ways to try and avoid the other person (or institution)'s guidance -- and that adds resistance which later will have to be released.
+
+resistance is not a good replacement for having one's own direction. if I just go the way I want to go and don't fight against anyone along the way, that direction is inevitable. nobody can stop it. only you can stop it by thinking that others are trying to impede you.
+
+"have a plan, or become a part of somebody else's" is the exact quote, I believe.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
