@@ -252,4 +252,30 @@ so because it looks like a stalemate, I'll just continue to wait for one of them
 
 [4]: even for example while writing this idea out about using data to learn a lot about the user, there were reactions, because the obvious implication here is that nosebook has every conceivable data point on everyone's experience on the network and so therefore lots can be learned by sorting people into groups and seeing what are the different habits and motivations for the different groups. like, for example, I'd want to know what group I fit into, what are our habits and behaviour drivers, and like how well can they predict stuff (statistically, as in percentage likelyhood toward any action). I'd also want to know statistics on what others commonly feel, and is there a trend toward certain emotions that correlate with time or planetary aspects... tons of stuff like that.
 
+### 2022-05-07 21:01 - quick followup
+
+two dominant reactions. the first one was that I was trying to talk up patricia and how I actually liked her conversation, and I was just making things up to make it sound more than it was. well, that would be the typical guy thing to do, but it's kind of embarrassing how clueless I was in the earlier part of my life. I've been sorta "faking it till I make it" for a really long time now. there are so many people out there that are so much better than me at a lot of stuff because they've worked on their technique. I work on concepts because almost all implementation looks really foreign to me. it takes me quite a while to get the hang of something and even if I know the concept, I still fail pretty hard at execution. it's really unfortunate how late I learned so many foundational concepts.
+
+like, with marcos, after a number of failures with dani, I finally learned that a minimum viable product is what is most important -- and also how to market myself, because largely it's the person's belief in me to create the product that is expected which enables the fast production. what I mean is, for example, with marcos, I had a very different version of the product in my mind than he did; same with zaryn over tuenti, so when I noticed that when I had the same product concept as marcos, everything went well, but meanwhile there was a difference in our concept of the product, productivity was slow (same with augusto and jori). it's embarrassing to admit that it took me this long and so many failed projects to realise what probably seems to others to be extremely obvious, but I just didn't make such a realisation. I'm foucused on how I would want to use the program/site and what is my experience as a user that it's hard for me to see these bigger picture things.
+
+it was a long time before I started to view the stats of tuenti as relevant. the others would refresh the page often to see the stats, but I thought stats were useless, and only to really tell me when a site failure had happened. like I said, it's embarrassing how clueless I used to be. I find stats very interesting but I don't pay much attention to them because I want to be doing things that statistics says is impossible, not the boring whatever percentile.
+
+---
+
+the second reaction was that I'm suggesting that I'm setting the bar so high that I can only accept flying girls with glowing hair -- and that sure would add a pretty good amount of not-good-enoughness into the mix, but that's not what I meant at all.
+
+I was painting the picture that if such a girl did exist, her presence would be so apparent to people on earth that major changes on the planet would happen and other interesting things -- as in the whole earth would vibrate like she does, and then those compatible with her vibration would join her in that global consciousness state.
+
+so, the subtext there is that for all of the other girls out there, she would appear to be a sort of "savoiur" to end all of the waiting because as soon as she goes up, there will be no holding me back anymore by nosebook because the world is now a reflection of her and so she made it all possible.
+
+---
+
+so as I was writing that I made another realisation: if I am a reflection of her, then it doesn't matter if nosebook comes up with a false version to try and trick me or whatever, each one of these girls that finds their connection will each experience a version that is reflective of them, and so therefore one can imagine that this will create a number of parallel realities.
+
+think about how girls like to be together but also separate and have their own space. what I mean is, if girls create a sort of "time" bubble, where everyone inside their bubble experiences their time, then one could imagine that not all of these different girls that find their connection will be 100% compatible with each other, so they'll each have their own reality and the people compatible with them inside of their bubble.
+
+so really, who knows what'll happen. it looks most probable to me that things will keep accelerating, I'll still be held back and eventually one girl will figure it out and this will cause a chain reaction. people will probably go into those groups/bubbles that I wanted to ask patricia about.
+
+interesting...
+
 ### surgery and dissatisfaction
