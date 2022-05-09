@@ -2354,6 +2354,50 @@ that's all for now...
 
 [1]: I just had a weird idea pop into my head when I wrote ... which was that if the whole thing will be built on personal cryptocurrencies, every node on the network can get their own default allotment of credits and I'll charge others some amount for utilisation of that power. this sets the price rate, then others joining the network can also offer their power probably at a lower cost, and so by default my power price will set the standard (most expensive) rate which others will offer cheaper alternatives. huh. pretty good.
 
+### 2022-05-09 14:55 - thinking about the "why"
+
+listening to snake-bros #026 now and russ was talking about this TED talk where a guy explains that there are three concentric circles: what on the outside, how in the middle, and why in the core. he then relates that martin luthor king jr attracted a crowd of 250k people before social media and advertising because he talked about his dreams and so people showed up because he was giving the why -- why do we want to have liberty and racial equality, etc. -- or when a general gives a motivational speech to the soldiers going in to battle, the speech is about the why they're going in to risk their lives for what they believe.
+
+well, in this project, I don't really have a why. for me, it's a cool idea and I like it conceptually, but there's no why for me. I just don't care if it happens or not. my life will be roughly the same whether it does or doesn't. sure, I may have more fame or whatever. as the central access point, I'll definitely be the "richest" also, as all prices will come in reference to my "initial investment" into so many other people.
+
+so, think about it: people need my power, so they exchange tokens for that power, and so now I essentially own a part of that node/person on the network. the fact that I hold these tokens now automatically gives them value, so I'm a value generating machine -- but who cares? what do I get in repayment for that value? more stuff, I guess. well, there is also the idea that the more energy that's desired from me, the more I summon, automatically, meaning that I'll grow very energetic very rapidly, so that's pretty cool too I guess -- but I'm already growing more energetic rapidly.
+
+so in the episode, kyle is talking about how he used to make music because it makes him feel good, but now he's motivated to create something that's timeless and will continue even into the next solar regime. I know what he's trying to say, but I already believe I'm timeless, and I'm pretty certain that I've proven it to myself time and time again that it doesn't matter the circumstance or whatever, that I do always find my connection, and it's my connection that gives me access to these concepts. like, I don't need to read a cool story on a stone to remember that energy is always conserved; this is obvious to me in my connected state -- and, in fact, I would say that is not only conserved, but becomes *more*.
+
+so, for me, because my connection automatically gives me access to all information, I do things because they're fun. my "why" is: because it's fun.
+
+---
+
+we were just about to leave and go to a national park for mothers day (we didn't go yesterday cause there were too many people there), and a strange thing happened to me. I was sitting around listening to snake-bros just enjoying my time, and having to pee a lot because I was drinking so much coffee. mom says we're going to go in an hour, and I can't hold it that long so I just go knowing that since I've been peeing once every 1.5-2hrs, that I'll go again before we leave. mom comes down and tells me we're going to leave soon, and I already felt as if I needed to pee. I listened to a little more of the episode and then went up, but jaron was in the bathroom so I waited until he was out. by the time I got in there, they're all in the car waiting for me, and I simply cannot feel like I need to pee now (even though a few minutes ago I felt strongly like I had to). I got really frustrated because I can't actually feel the way I want to feel, so I just told them to go, as I didn't want to be bothered with trying to figure out how to pee or to make them wait.
+
+anyway, besides that I can't actually feel the way I want to feel, this also comes as a pretty sobering reminder that I do a lot better when I'm just doing my own thing by myself and there aren't people waiting on me to do something. I don't know what it is that whenever someone is waiting on me for something (whether it's to pee or for some code or whatever), I totally lose my original feeling that I used to have. this was most common for me when I wanted to create something for someone, but I often times shot myself in the foot and told them about it, so then they began to wait for it, and now all of a sudden I no longer feel the presence of the thing I want to make but the absence of the thing, because I feel the person waiting for the thing that's not there.
+
+it would be simple to say, "ah, this is everyone else's problem!", but the reality is, I have to find a way to feel the presence of what I want, even when the other person is feeling the absence. so, this really is completely my fault and I can't really blame anyone else for anything.
+
+the easy thing to do is just to continue to exist in an environment where people don't have a reason to wait for me (like I have here at mom's house), because then I simply don't have to worry about what other people feel; cause in that environment, it's easy to feel the way I want to feel.
+
+---
+
+so when I think about this sort of thing in a broader sense, I don't really know what it is that I find fun anymore. I just do stuff now. I don't really think too much about what I'm doing or why I'm doing it anymore.
+
+in fact, if you look at my conversation, most of it is just idle chatter. I don't actually talk about anything I consider to be fun anymore, and I don't really have a reason for talking about anything anymore, so I just say random things probably to get attention.
+
+---
+
+the last thing here is probably related: last night I was playing around with an app that compiles and runs GLES shaders. I wanted to play around with it because I figure if I can get the shader to process random input from the camera and display images, I could use my concepts of ante-retrocausality to potentially begin to "predict" or pre-cognate their appearance in the sequence that I want them to appear, which is a really cool idea that I want to work on -- and I don't really know why, but it sounds a lot more fun more fun to me to make a program where I can "predict" the appearance of random images with greater and greater accuracy until I gain "control" of the images that are appearing.
+
+I want to put that to music and visuals so that I can "predict" the way the song will sound in just the same way. I think one could learn to type and other forms of input in that way, as well.
+
+so for me, the project sounds really cool, but I don't really have a why. one reaction suggests that one motivating factor would be girls. girls should motivate me -- which I think is a terrible idea and I've only seen this to end in disaster in every example I've looked at. I do things because I want to do them. I don't usually have a why, other than I really enjoy the project.
+
+this reminds me of my time with jori, which was another situation where I didn't have a why. I didn't really care about a crytocurrency and the prospect of becoming rich again but this time with girls, too -- also didn't appeal to me either. I just don't care.
+
+I don't really know what I want, and if I did, I don't have any reason for why I want it either.
+
+I produce zillions of really good ideas all the time. this isn't the first, and definitely won't be the last. there will be even more really cool ideas that I have which I feel no motivation to produce.
+
+[TODO: insert song "supermode - tell me why" (remix of bronx beat)]
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
