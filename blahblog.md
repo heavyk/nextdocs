@@ -2398,6 +2398,28 @@ I produce zillions of really good ideas all the time. this isn't the first, and 
 
 [TODO: insert song "supermode - tell me why" (remix of bronx beat)]
 
+### 2022-05-09 16:05 - the brainless automaton and why
+
+so, I was thinking about it further and I don't really have a reason why I do anything anymore. I just do stuff and I don't really think about why I do things.
+
+for example, the other night I played games all night and by the time the morning rolled around, I was wondering "**why** did I play games all night?" -- and I didn't really have an answer. I just did it because it was an idea that popped into my head which felt good and then I followed it. I never questioned why I would want to do it; I just acted.
+
+after thinking to myself that I had "wasted" the whole night playing a game, I decided that wasn't the way I wanted to perceive the night so I changed my perception of it and then wrote @[blahblog](2022-05-05 12:37) which was absolutely amazing and a lot of fun to write.
+
+I don't really have a why for anything I do anymore; I just do things, and then retroactively find a way to feel good about what I did or am doing. I'm literally a brainless automaton, no better than anyone "addicted" to drugs. the only difference between me and an "addict" is that I feel compelled to do things which are compatible with the way I feel, which is usually pretty good. I'm completely a slave to whatever things pop into my head which are compatible with how I feel (just like an addict).
+
+---
+
+so I don't really know how that TED talk would actually help me, because the next thing I noticed is that everything that I've come up with in the past few years where I had a "why" (see [my thoughts on howtube](/howtube/initial-thoughts-and-ideas.md) for an example) has quickly lost interest to me, and what originally felt to me like somethting that I could list a lot of good reasons why, later turns out to not feel so good to me anymore.
+
+so, the talk suggests that you can motivate someone with the why factor, for me it's actually some of the most unmotivating thing to discover the why. if I just do something because I like the way it feels, then I do fine.
+
+an easy example of this is the various lists of girls that I've made or when I feel desire from them when out and about. if I just go with it, then I feel fine -- but if I start to ask why, or wondering what is the purpose, everything feels bad and I stop doing that for a while.
+
+so, if I just operate like a brainless automaton, finding a way to feel good about whatever I'm doing, then things go fine. the minute I try to motivate myself, others, or figure out the motivation -- things go poorly and I stop feeling so good.
+
+I know that my reality is a reflection of how I feel so feeling the way I want to feel is top priority, so I simply don't ask why. I'm essentially no better than the grunt that patton is giving the speech to before he goes to die on the battlefield. I don't die though because I feel good, so I keep finding myself in situations which reflect that.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
