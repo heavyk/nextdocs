@@ -2333,6 +2333,28 @@ we'll see, but I can see how a network like this can open the door to "electro g
 
 so while I was pulling weeds, I had the idea that maybe I should actually email this idea to russ. I dunno... (what does randall always say?) I guess, we'll have to wait and see.
 
+### 2022-05-09 09:38 - party LAN
+
+I went to sleep thinking that the idea was probably too ahead of its time, and that it felt still like a lot of effort. I only know that it's possible, but I don't know all of the details yet. so, it's impossible for me to feel like it's in the beginning stages of manifestation into reality.
+
+either way, I woke up thinking about the idea of power transmission. I know that my aura is quite large -- estimating it to be probably the width of the USA by now. it may be larger. I'm getting that number based on my perceived (by me) influence on the world climate patters -- as in, the way I feel has a dramatic effect on the climate here in colorado, but I get the feeling that effect is reaching all the way to the east and west coasts by now. or, like when the sun emits x-ray outbursts I physically feel better and the climate around me warms up -- and I know since last year at least, this effect (which happened at night) extended all the way over to the east coast, but didn't really affect europe much. so I dunno, exact sizes, but by the time it's setup, it's pretty conceivable to me that my aura would be at least the size of the planet by then -- as in, I'll have just as much of an influence as the planet does.
+
+the good news if that's true is that everyone will be able to connect to my network by default and draw power from it too. that would probably a pretty big god-send for nosebook, as it means they'll have to expend far less energy to hold me back and instead that energy can be used to power people's air conditioners[^1].
+
+the other good thing about that is that by default everyone will be 1 hop away from everyone else. I'll be the sort of central hub routing all of the traffic through (in the beginning), but the idea is to get a number of early influencers with a large auric field that can expand the network capacity. it's like bittorrent; the more nodes, the more throughput the network has.
+
+---
+
+then I was thinking about how to turn the human auric field into a sort of mini ionosphere, and I don't really have any ideas yet, so experiments need to be done. this is one of those things that I simply don't have a good enough of a concept of what is actually happening yet.
+
+in general, this morning I don't really feel too much resistance to the idea, but I don't really feel like -- like I did in other situations in my life previous to a large change, like returning to the USA, or going to spain/canarias/berlin. it doesn't have that "this is the reality that's becoming so real so fast I can already feel it before it's started. so, I'm just going to keep it in the thinking phase for a while longer because ... I don't want it to be like the thing with jori where I felt as if I was being pushed to create something, and it wasn't just a fun project that I was working on with friends.
+
+like this morning, I was thinking about how it would be to watch and be involved with the various electrical experiments that will inevitably need to be done on me to figure out how to use my auric field. I imagined archer (GMA) doing like these experiments and we were trying to figure out the results and what they meant and what experiment to do next -- so, even in my imagination I was thinking to myself a much more "garage experimenter" sorta setup to create the physical network. the software I'm totally not even worried about as there is so much talent capable of producing it, it's not even a worry for me.
+
+that's all for now...
+
+[1]: I just had a weird idea pop into my head when I wrote ... which was that if the whole thing will be built on personal cryptocurrencies, every node on the network can get their own default allotment of credits and I'll charge others some amount for utilisation of that power. this sets the price rate, then others joining the network can also offer their power probably at a lower cost, and so by default my power price will set the standard (most expensive) rate which others will offer cheaper alternatives. huh. pretty good.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
