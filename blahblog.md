@@ -1161,7 +1161,7 @@ the other part about the trojan horse, is the said they exploited the lack of ou
 
 ---
 
-I said all of that to kind of show that there is a reflection and/or reversal going on to kuthumi's relation of the creation of this universe. the original universe kuthumi relates did not have at all a concreteness to it. umm, I can't remember exactly so I'm just going to wing it[^4] but the original universe basically didn't have very much of a "concrete mind" and so that was the way that so many of the entites could be corrupted so easily, believing the illusions of the corrupted 7th ray.
+I said all of that to kind of show that there is a reflection and/or reversal going on to kuthumi's relation of the creation of this universe. the original universe kuthumi relates did not have at all a concreteness to it. umm, I can't remember exactly so I'm just going to wing it but the original universe basically didn't have very much of a "concrete mind" and so that was the way that so many of the entites could be corrupted so easily, believing the illusions of the corrupted 7th ray.
 
 if we consider that the dream-state (see @[blahblog](2022-04-15 17:59)) is akin to not having a concrete mind, and so therefore in this lack of resistance, anything can be believed -- even an illusion -- so therefore, what osiris is creating with these pyramids and empowering the fallen-angels with them is *many* corrupted 7th rays, just like the one that managed to deceive the INFECTED ONES, and so then later on if we consider that the "master craftsman" (vulcan) was the designer of the pyramids, we can see the same pattern emerging again, and this time the "master craftsman" is tesla and nosebook is the pyramids, allowing them (nosebook), to take advantage of our lack of a concrete mind (full-blown creators in dream-state) to create whatever it is that they want and to tune into the multiple universe that they want.
 
@@ -1193,7 +1193,6 @@ the-problem-is-the-solution
 
 [3]: I keep wanting to call it "multiple worlds" theory -- but I think russ said "parallel universes". I first contemplated this idea with the writings of "john titor" in the 90's, and I think he may have called them "multiple worlds" and "worldlines"...
 
-[4]: I tried to look up my notes on this, to remind myself what the layers of the original universe were, but my notes have vanished. I'll have to redo them. I think somebody didn't like my notes on all of the elements that the INFECTED ONES used to infiltrate the tech civs. I searched for a number of words I definitely wrote and they're all gone.
 
 ### 2022-04-20 09:54 - I should perhaps be a little clearer
 

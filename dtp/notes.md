@@ -10,7 +10,7 @@ download aslan faction / industrial mixes
 figure out how to trim trailing whitespace on save
 - add that as a feature to the plugin?
 
-old repo (for reference)
+bill and ted's excellent adventure
 
 
 shakespere:
