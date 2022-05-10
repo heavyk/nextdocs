@@ -2420,6 +2420,36 @@ so, if I just operate like a brainless automaton, finding a way to feel good abo
 
 I know that my reality is a reflection of how I feel so feeling the way I want to feel is top priority, so I simply don't ask why. I'm essentially no better than the grunt that patton is giving the speech to before he goes to die on the battlefield. I don't die though because I feel good, so I keep finding myself in situations which reflect that.
 
+### 2022-05-10 09:40 - thinking more on feeling how I want to feel
+
+I've given a lot of thought to the whole problem and basically I have to figure it out because the trend is toward me getting more famous, not less -- which means there will always be more people waiting on me, not less. I could try to hide from people but that doesn't really fix the problem.
+
+so I thought about what is the solution and it seems obvious conceptually -- and that is simply not to freak out and feel how I want to feel emotionally no matter the situation. I think that's largely a pretty big problem for me because the more I feel people waiting for me the stonger of a desire I feel that I want the situation to end, and I start going through all of the "why" statements in my head, "just hurry up so you can ..." etc. and none of that helps.
+
+I can say from experience that focusing on the why *used* to work pretty well for me to activate physical to respond to my desire, but that is definitely not the case anymore, and actually the trend is toward me having less and less physical control, rather than more. if I could use emotion to physically feel the way I wanted to feel, I would be completely unstoppable. I would be able to do like that one neuroscientist woman with the stroke -- able to switch between hemispheres on command[^1], but there is large effort to keep me from using the way I feel emotionally to affect the way I feel physically.
+
+the TED talk neuroscientist is right -- if that capacity were available to everyone, it would completely change everything. psychopaths could feel even better about the bad stuff they're doing, people could commit crimes switching in and out of bliss and all sorts of deranged activity could be enabled -- and of course many scientific discoveries and tons of progress, so it's pretty obvious why "they" don't want anyone to have the capacity to physically feel the way that they want to feel. all you have to do is to find a way to feel that way emotionally and then the physical body will follow.
+
+if you feel so light and free, you'll fly. if you feel amazing and on another part of the world, you'll teleport there, etc. they want to hold us (but I'm speaking specifically about me) in a material reality that they can control.
+
+---
+
+I don't really mind that they control all of my physical reality (7) and are able to neutralise my desire (1), because that doesn't really serve me much of a purpose. I don't have access to my imagination (6) and I don't really like all that hippy harmony crap (4), and I really loath the idea that I am responsible for how others feel and others are responsible for how I feel (2), and the only thing left really is logic (3) and concept/intuition (5) -- both of which I'm pretty good at.
+
+I've been noticing large portions of logic are visualised, and so without a visual capacity logic is very difficult for me to communicate and be communicated to me because of the interface, but conceptually I get logic and can do operations on concepts just fine, so I've been kinda starting to work on a more feeling-oriented logic (as opposed to symbolic logic -- because symbols to me are archetypes not operators). I've mentioned it a few times before, but I think that this could produce some interesting results eventually
+
+---
+
+so when it comes to these projects and other things, a pretty key element is for me to find a way to feel physically the way I feel emotionally, but the first part is to not let my physical situation or others desire override how I feel emotionally. once I have that, then things will be a lot easier, but I think for the most part I want to continue to work on new ideas.
+
+like I said, this is not the first idea, nor will it be the last. there will inevitably be another even cooler idea than this -- and who knows, maybe if I get all the way to the end of the evolution-of-desire, I AM the manfestation of that desire in physical form.
+
+I think for now I want to do other things.
+
+[1]: the capability of feeling bliss and that everything is connected and perfect, she claims is in her right hemispehere, but I have cultivated that same capacity in my left hemisphere as well, *and* I have power over it, being able to turn it on and off at will like she does. however, along with complete denial of access to my right hemisphere, that capability to turn off language and switch into that form of perception has been completely blocked[^2].
+
+[2]: probably related: I have these reoccurring dreams about these guys in my head that get angry and scold me every time I try to go into or even want to inquire of what is inside of a room inside of my brain. first, I don't know why there is a room in the first place, cause I'm constantly trying to break down all conceptual barriers, allowing me to determine where "me" begins and ends; and second, I don't know why there are people in my head that want to prevent me from going into a "part" of my brain... they get very angry and make me feel very terrible for even wanting to know what's in there. I don't really have much of a reason to fight them as fighting is like trying to punch someone under water -- there's not resistance to get enough inertia to do anything productive.
+
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
