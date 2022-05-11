@@ -120,3 +120,30 @@ the last conclusion here (I know that this is the third one), is that this sort 
 
 I'm reminded of the card where I illustrated my hemispheres personified as symbols on to paper and many people were sure that it meant whatever. well, surity that it means someting (even from someone else) adds energy into the equation and in the end, what finally manifests is what it means to you. skerptards are your worst "enemy" but also your "biggest supporter" as well. so put your friends into ridiculous boxes and then allow that symbol to manifest into something different than expected.
 
+### 2022-05-11 13:41 - antimemes and hiding things in plain sight
+
+I'm listening to snake-bros #029 now and russ is talking about antimemes -- the opposite of a meme, is an idea that does not want to be retained in memory or propagated.
+
+it's kinda cool because last night I ended talking about how skerptards are your greatest enemy if you believe them, "pffffft, no dude that's just random correlation / coincidence", but they're also your greatest supporter if you believe you (doesn't matter what they believe).
+
+kyle brought up a really great example of the cathedral, and in it he showed how they seemingly give "information overload" and so you go away with a sense of awe, but no specific memory of any of the exact symbols. then russ added to that with another great example of the commisioners of the cathedral getting the most awesome structure, but the builders of the cathedral told their (sacred geometry as divinity) story with the symbols of the religion, and because they're somewhat compatible, the church people are so blinded by church symbols memes that they miss the underlying antimeme that holds their whole meme together.
+
+---
+
+so I thought about it and the concept of an antimeme is easily explainable if we think of an antimeme as any concept which is incompatible with the person's perception. all radio signals are antimemes to us, because they're there and we could be looking right at them (like his 411 monster) but we simply don't see them because they're not compatible with our perception. if you trained your eyes to see certin frequencies of the EM spectrum, you could start to see some of those previously invisible things (antimemes).
+
+---
+
+this is a beautiful example of what I was talking about with the symbols -- because they're there and so many people see the surface appearance (the hero on a horse, the dragon, the prince and princess,kingdom, etc.) but in reality, those symbols *mean* something to you, and so they have to be believable enough for someone to look at it and say, "yep, that's real" for them to believe it to become real.
+
+imagine for a moment the movie, "encanto" -- and the story has all of these characters with their flaws and interactions that seem real enough that you totally miss that the house has a personality, is driving the story, and that it's totally impossible -- and so I leave that film thinking, "yep, seems plausible". other people focus on the house saying, "houses can't move things around like that -- the house would have to have positional antigravity pulses and an AI capable of responding to suscinct interactions grasping the meaning of what's inferred by the person's desire for 'help'" -- and those people would totally miss the symbols in the characters personalities, believing them to be "real enough" or "not nearly as problmatic as the idea of a magical house" -- so they consider the characters to be real.
+
+no matter how one perceives the film, one part is the antimeme and the other is the meme. most people probably went away remembering all of of the characters, songs, and animation. for me, the film was like the cathedral in the information overload sense.
+
+I've trained myself to not get so fixated on the overwhelming amount of detail by fixating on single details so I can subconsciously. I picked this trick up from "monk" the tv series where he would go around counting things and touching the tops of poles to keep is mind fixated on a simple detail so that he doesn't get information overload[^1] -- meanwhile subconsciously he's absorbing every detail and can revit it later with his photographic memory.
+
+I don't have photographic memory, so I capture the essence of everything that I come into contact with. for example, to reply to a reaction of how I absorbed so much of that intro when I only barely read it, is because I applied this same principle. I fixated my mind on how over my head all of these crazy formulas are so I could subconsciously pick up the essence of the book without having to expend too much effort to try and figure out all of the weird forms of expression they were using.
+
+I have so much more to say about this, but I don't yet know how to present it, so I'll just wait for the next event which gives me an excuse to write about it...
+
+[1]: I believe this is also what tesla was doing when he was out in public in order to distract himself from the torrent of other wierd feelings that everyone else was putting out. he was highly sensetive so he spent most of his time inside of his inner world, but when he had to be externally focused around a lot of other people, he had to have a mania to distract him.
