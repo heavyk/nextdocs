@@ -2530,6 +2530,52 @@ whoever came up with that idea (the physical plane) is also a genius :)
 
 [2]: as an example, a giraffe doesn't see "mammal" perception and neither does hamster see "mammal" perception, though they are both mammals, so if you (as an mammal) take on the form of a hamster, you won't see what the giraffe sees -- though you're both mammals.
 
+### 2022-05-12 12:12 - reverse psychology and mind games
+
+I woke up this morning with a sense that I am supposed to go over to do paul's weeds, but when I'm there I'll just talk about things that are interesting to me. I started to practise some of the conversations that I would have with paul about things -- as in he will inevitably ask me about my past, my age, my work, etc. so I was preparing the story I was going to tell, and I decided I wanted to focus it around happiness. to get around the, "why are you living at home with your mom and not working?", question, I decided to take the tact that I've essentially retired. I stopped using money because it's not necessary for happiness. I think this may be a subject that has crossed his mind recently so I figured we could have common ground on that.
+
+anyway, while I'm practising these conversations I also noticed two other things: first, there is effort to get me involved with paul and family because it's the lesser of two evils, cause someone definitely doesn't want me to be working on the party LAN project[^1] and so it appears that I'll be passing on that one. I don't really mind, as that's not my problem, so I was thinking about how I would tell them that they have to figure it out theirselves (I love this meta stuff), and I had the strong feeling that none of them actually felt capable of actually leading such an endeavour -- as in they want a leader to lead the way cause they're so used to getting almost everything wrong almost all of the time.
+
+right in the middle of those thoughts: conversations about happiness with paul, the effort to keep me away from working on party LAN, and needing a leader capable of figuring out the way to go even while doing everything wrong -- and mom comes in to tell me that they need to look for sleeping bags. I was under the impression that she knew where they were, but they started to look for it, sorta signaling to me that I need to go outside -- presumably to go work on the weeds.
+
+well, I hadn't finished practising my conversations yet, so I decided I was going to work on mom's weeds for a while first. I kept feeling like I should be going over to work on their weeds, but at the same time everything feels uneasy and out of place, so I keep getting reminded of the "it takes two" session where trump and bloody are playing. trump is taking his time and bloody is always saying, "nice and easy" "you got it" "that's it" -- those sorts of things. there's no need to rush anything at all. so it is apparent to me that they're pushing me and trying to steer me so I started to think about the steering aspect. I've been noticing a lot of "reverse psychology" lately as they've been having mr. motor fight against the stuff they *want* me to do.
+
+so I was thinking about the dream feeling when I woke up about going over there to talk with paul about the stuff that interests me as being actually a reverse psychology. the idea here is that I do that and then people fight against it, desiring more and more that I should go and try to find a manifestation with girls or whatever.
+
+that's all fine and good, but I'm just going to continue on doing no manifestations obviously -- so I started to think about the happiness conversations now in this context of having a manifestation objective...
+
+so, what is happiness? is happiness doing what other people want from you? what if they're hot and they return physical pleasure in exchange for doing what they want you to do? is that happiness?
+
+what I believe happiness is, is the ability to feel good the environment in which I'm in without needing it to be any different than what it already is. it's sorta like contentment.
+
+that's it really, and you don't need money to feel that way. I don't really talk about it too much but often times when I'm staying up or whatever, I notice that there are times when I feel large amounts of dissatisfaction. I often say, "lots of dissatisfaction" or something like that as I notice it, but it's not my goal to stay there. I enjoy finding a way to feel good about things exactly how they are.
+
+obviously I'm a complete hypocrite for saying all of this -- because, when I can't pee, I'm doing the exact opposite of that. I'm still trying to figure out how to make that better. nice and easy.
+
+---
+
+I'm not saying that I want to force people to find a way to feel good about their environment without needing it to change, but that's exactly what I am saying...
+
+I've been paying a lot of attention to the weeds and how the same seed grows a different plant in different environments[^2]. I noticed that a plant grows up in a certain environment and I think of this as a vibrational environment, and so then when taking the plant to another environment, it has to acclamate to the new environment and begin to stabilise itself in the new setting -- and so with time the plant begins to stabilise itself in a spectrum of environments, and so plants especially are 100% dependent on their environment for their well-being, so the more they adapt/learn to be in other environments, the more "hardy" they are -- the most hardy, of course are weeds, which grow up in bad-feeling environments and come out as a reflection of the vibration.
+
+a good example of this is the goatheads. the vibration around mom's house has changed so much since I got here, the goathead seeds are growing those tall bright green leafy ones now -- which means the energy around mom's house is much different to how it used to be. those same seeds in other places are coming up as these uniformly-sized leaf ferns with purple flowers. so environmental stresses are changing the manifestation of this species of "weed".
+
+on that same note, I also noticed that I adopt the frequency of the thing I'm focused on. for example, last night when writing about the renaissance being another self-sabotage by someone who wanted to "weed out" the die-hard physical-reality-is-everything guys by twisting the meanings of plato and aristotle to conform to the idea of an immutable heierarchy of species, humans being at the top just below "God". -- well, my tone changed considerably in those writings as I noticed that I adopted a lot of eugene's "way of thinking" to express myself.
+
+well, likewise, I think this whole weeds thing is kinda funny too because after he gave me the job I immediately proceeded to work on mom's weeds. I thought at the time that I was just copying dad, but I find it more probable now that I was actually behaving more similar to paul -- probably that's how he approaches his business ideas. I'm sure he's aware of the power of desire when the client really wants the work done.
+
+I'm starting to become a conceptual shape-shifter. I reflect the energy of the people I interact with.
+
+anyway, everything is coming along fine and eventually someone will also find me on being content with the present environment and not needing it to be different. they'll be a weed like me, and then the "landscape architect" will have a real problem on his hands, lol.
+
+until then...
+
+> take your time -- and you will see -- infinity...
+
+[1]: this is just the code name I've given it. it probably won't be the real name, as I would prefer something more like "affinaties" -- and I even got some reactions from the guys at telefonica, so who knows -- if we could reach an agreement, maybe the tuenti name could be rebooted. I do like the "tu en ti" (you inside yourself) sorta idea it gives (yes, I know it's "tu entidad" -- but ideas are free(dom)).
+
+[2]: I also have started to see my first hybrid as well: a weed and mint mixed so it's a weed that smells minty. that's so cool and I just love it so I want to figure out how to do more of it.
+
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
