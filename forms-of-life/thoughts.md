@@ -37,3 +37,27 @@ so, putting it all together, I think the fossil records are the organisms that w
 [1]: interestingly enough, one of the major triads has this conflict built right into it, where isis (-2 like the sun) will be in conflict with ra (+3) -- and so osiris (+-6-+) takes this non-physical conflict and turns it into a physical one (the conflict between the imagination/astral (6) and the physical (7)).
 
 [2]: I'm using the word oxygen, because it seems to me to happen both when CO2 and O2 get high. also, I've seen those CO2 clouds turn unnaturally rapidly into dark moisture clouds too, so some energetic process can turn CO2 into water -- though I'm not sure how.
+
+### immutablity of species (pp 6-8)
+
+the philosophers aristotle and plato had this idea of a conceptual universe, where the concept or idea is immutable and eternal. I contend with the idea of it being immutable, because for me they're always attracting similarly feeling concepts to them, and so therefore they appear to me as alive and constantly in motion.
+
+what I think they meant by the idea of immutable would be similar to the "address" or the frequency of the concept. the concept is always similar enough to where it was when I last left it, I can *always* get back to it, but that doesn't mean that it hasn't transformed a bit since I last looked at it. usually the deficiency to tune into the concept is the address or perception my brain has of the concept, and not the pure concept itself. this process of removing those impure perceptions preventing one access to the pure idea is what I call "evolution-of-desire" and they're pretty similar and I outline the differences in "evolution-of-concept"
+
+a way to look at this would be to just assume that any noise preventing reception of the concept is on the side of the receiver, and the concept does exist in its pure eternal form out there in the ether somewhere, I'll simplify this by saying the address is a hash and, *that* is what is immutable, not the concept itself, as it's a living breathing idea.
+
+I got my idea of "private key (address) is a hash of the value" idea directly from this world because whatevr you change the data to be, there is another copy of the idea at the new address (which is a hash of the value). you can always get back to the "old" idea with the previous address, but it's desire that causes the new value to be created and the corresponding new address. since it's a frequency, not a hash, an idea that has improved only a little bit will be a very similar frequency as the original, and even with the most dramatic changes, there will still be a considerable amount of resonance with the previous revision.
+
+---
+
+so what happened here is aristotle and plato were going on and on about how the idea is eternal and immutable, and they meant the address, but somewhere after the renaissance it got changed to mean, "the database (of species) is immutable" and so therefore no more new data can be added to the "species" database and only gradual changes or derivatives can be made to the immutable database.
+
+I'm pretty sure this is exactly the opposite of what they were saying. in fact, I'm pretty sure that they were trying to illustrate that the eternal pure concept or species exists and all "what-it-is-to-be" (manifestation) of that idea into physical form will always be a slight derivative -- an imperfect implementtion of the "perfect" idea -- and that slight difference comes *because* of the physical stresses of the environment, not the other way around.
+
+whoever came up with that twist to keep biology spinning its wheels looking for a heierarchy of material categories to identify the differences between the species, was very sneaky.. pure genius[^1], cause it's exactly backwards. physically oriented humans could have never saw it coming[^2].
+
+another example of this kind of reversal would be for me to convince humankind that the physical universe begat the conceptual and that all ideas have a physical origin and that only physical things can account for the reason why you feel the way you do.
+
+[1]: it feels like there is some objection to the idea that I think this guy is a genius, and I don't want to write out a whole defense, so instead have a look at the concepts presented in leapfrogging-time-pickles referred to as "fuzzing". nerds often times congratulate a genius of a person that figures out how to exploit a system. the ones that submit the vulnerability to the human is called the prophet, errm the "white-hat" fuzzer, and the one who directly uses the vulnerability on the system without submitting the report is the judge -- or "black-hat" fuzzer. one could make a case that there have been numerous attempts to tell of such a spiritual/conceptual world of perfect ideas and its counterpart, this world of action and change -- so I don't really think it's a problem because this sort of idea could only stick around in a materialistic (matter is the only thing that composes reality) type of mind[^2].
+
+[2]: these are just "ways of thinking, which seem so natural and inevitable that they are not scrutinized" which are reflective of a physical-only, material-first mindset.

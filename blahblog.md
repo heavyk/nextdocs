@@ -2484,6 +2484,53 @@ as a side note on this issue, if they want to "trap" me while I still have not f
 
 [3]: this reminds me, for some reason, of (my neighbour) eva (and maybe the other one too). I don't really know why. it must mean something to somebody.
 
+### 2022-05-11 23:27 - duality and two parallel universes
+
+earlier today I listened to snake-bros #029 and there's a part (think it's the 3rd, erm 2nd segment) where they talk about the idea of twins and duality being some sort of fundamental to there being a wave or a vibration. if you have forward, you have backward, and anything beyond a single point has a dual or an opposite.
+
+so now I'm reading "forms of life" and I got to the part where he explains the great blunder of how the word species was originally referring to the perfect idea, which then incarnated into the physical world is imperfect, containing flaws due to the constraints of this world (environmental stresses, etc). that word "species" which used to mean the non-physical concept of the thing, the smallest concept being an atom (let's say) and then more complex concepts being molecules, then large structures like rocks, and then plants, etc. -- all the way up through the animals up to humans, each of these physical forms is an imperfect implementation of the perfect, eternal idea.
+
+I explained my thoughts on [immutable concepts](/forms-of-life/thoughts.md#immutablity-of-species-pp-6-8) being a sort of shorthand idea containing all of the same problems as the word "perfect" because we think in units rather than frequencies, so only the ability to tune into the perfect or pure (completed) idea is a matter not of the idea but of our tuner and receiver, not the concept itself. we live in the world of change and so here where things are changing due to physical conditions we are evolving the concept (evolution-of-concept) and also the desire (evolution-of-desire) which drives that change (desire-resolves-to-emotion).
+
+I then expressed my admiration for whover was the guy that thought up the twist to turn the timelessness of a concept to mean immutability of a concept -- as it clearly threw humankind into stagnation by ensuring that we try to understand our world around us with a physical-reality-is-everything world view. it was genius, a perfect twist which totally destroyed one whole half of the waveform. that guy was like the renaissance "half-bridge rectifier" and he gets my admiration because it took 400 years (!!!) for people to begin to see the flaw in the verb "to be", believing for years that "I AM" *only* the physical body and (thanks to shakespere) the emotion that I feel. nothing about me is eternal and evolution is a random set of processes out of which form emerges, rather than the opposite view which this book holds, which is that evolution is a set of processes which *stabilise* the form.
+
+---
+
+I decided to write this because I was getting reactions to my idea of pushing for a conceptual universe again -- and it felt as if they were saying that it's not necessary to evoke a conceptual universe to explain stabilization theory -- and I agree, but I'm not looking at only the stabilisation part of it. I'm looking at the physical form (DNA and everything) for each and every form as being the physical manifestation of that form of perception -- so, when a pig and a chimpanzee are crossed, it's mixing the perceptions of the two parent animals, and that produces the resulting DNA of the offspring. so you'd get a chimp that thinks like a pig or a pig that thinks like a chimp.
+
+I tried to express this idea in my thoughts on the intro, because it seemed plainly obvious to me that in times past, the earth was more energetic at the time and so therefore many more hybrids were fertile -- that is, they were capable of some form of compatible perception with another form -- and so the ancients breeded humans with various wild animals to embue the human with the qualities of that animal -- like if you crossed a human with a snake, would you get a human much more sensitive to sneak attacks and aware of his surroundings? what if you mixed a human with a bull? it's my idea that the ancients were mixing perceptions, not animals, and so they had a lot more success because they looked for the change in perception rather than the form. some of those alterations may not have made them *physically* have the appearance of an eagle or a reptile, but only *visually* have the appearance of an eagle or reptile because of their attributed change in behaviour (reminds me of american indians' names).
+
+---
+
+wow I derailed my idea a bit there... anyway, what I wanted to say is that I'm certain that such a world does exist and that we (and all things are) eternally vibrating parts of the greater whole and we identify ourselves with the reflection of the concept we perceive ourselves to be.
+
+I don't mind that others want to continue to believe that physical-reality-is-everything, cause they'll just keep seeing a world that reflects their own perception; it's their "way of thinking" which they don't question or want to question it.
+
+in the grand scheme of things, those that want to stay thinking that way are totally fine and they make so much possible. I don't want to fight them at all. in fact, it's likely that in the future I'll be giving them more great ideas to continue to think that physical-reality-is-everything.
+
+---
+
+gonna go a bit metaphysical here and just assume for a moment that everything is in motion and everything is a vibration. I don't think that the unwanted part of the slope is a necessary traversal at all. traditionally, if we want to turn AC into DC, we use a full-bridge rectifier, but that just produces DC current. I don't know how to exprress this idea in traditional electrical concepts yet, so I'll jump over to a higher level approach.
+
+if unwanted is necessary for wanted, and when wanted manifests, there is always going to be a part which is unsatisfying (an unwanted part), because that perfect (wanted) concept does not fit into physical reality as a perfect manifestation of itself, because of the physical conditions of the planet. so, you could try and pump up the physical conditions of the planet like atlantis and babel, and those will yield more and more perfect forms, but never absolutely perfect.
+
+so there will *always* be an oscillation between unwanted and wanted. it's impossible to get rid of that duality, or else we would have complete stagnation -- (cause everything is neither wanted or unwanted) nothing would die and neither would anything new ever appear -- perfect contentment.
+
+so that oscillation always has to take place, but what if you don't want to experience one side of that cycle. let's say you don't want to experience anything unwanted -- ever. well, certainly somewhere out there, there has to be someone that only wants to experience physical experience. they never want to have any experience ever with a conceptual universe ever. dispite the mounting evidence to the contrary, they don't want to believe that there is ever an eternal part to creation.
+
+so you get a bunch of these guys and you round them up and you let them perceive reality through an aspect of yourself. you give them bodies that they want and whatever physical conditions they desire, because you know those perfect physical bodies and conditions are subject to inertia and change (ie. deterioration) so from their perspective all they see is awesome things getting worse. keep refreshing their awesome stuff and, they can spend 100% of their time looking at the deteriorating aspect of the concept in the physical universe, never perceiving the ideal from where it comes. so for as long as they don't attract their own destruction, they are offering to perceive one half of the cycle for you and do all that desiring for improvements based on the deterioration they're experiencing.
+
+this idea works when they are an aspect of me, cause "I" am more than just this singular physical body. I am a concept which can have infinite imperfect physical manifestations of it. so, let's say "I" am more than one body (meaning "I" am the genus and they're a species of that genus[^1]), each species of that genus has a different perspective, so one species won't interfere with another species perspective[^2]. so what ends up happening is one species will spend all of their time looking at the physical aspect (non-ideal) form going into decay and deterioration (unwanted), while the other species is responsible for manifesting the perception of unwanted into a new desirable form. they don't have to *only* look at the wanted aspect and get that into physical though. each species can choose to look at any quantity of wanted or unwanted that it wants to. some will tend more toward the concept to physical (wanted, creation of new, improvements) form of perception while others will tend more toward physical to concept (unwanted, deterioration, death)
+
+this physical realm essentially comparmentalises perception to the species, allowing for the genus to outsource the perception of unwanted... the-solution-is-the-problem.
+
+whoever came up with that idea (the physical plane) is also a genius :)
+
+[1]: in the sense that a house is a species of the genus building.
+
+[2]: as an example, a giraffe doesn't see "mammal" perception and neither does hamster see "mammal" perception, though they are both mammals, so if you (as an mammal) take on the form of a hamster, you won't see what the giraffe sees -- though you're both mammals.
+
+### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
