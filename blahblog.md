@@ -2576,6 +2576,34 @@ until then...
 
 [2]: I also have started to see my first hybrid as well: a weed and mint mixed so it's a weed that smells minty. that's so cool and I just love it so I want to figure out how to do more of it.
 
+### 2022-05-12 13:38 - you have to be the change that you want to see
+
+so, remember that idea that I was trying to formulate into a sci-fi story about the aliens (though it's more likely to be a human breakaway civilisation) that send a conceptual virus to infect the human concept and update it?
+
+well, continuing on with that idea, imagine that I am the real-world implementation of that conceptual virus. I've heard people describe me as a living breathing psychedelic. psychedelics are just a mental mirror. they only show you what you aready have on the inside but are unwilling to look at. they just put a lens on the mirror and reflect you back to you, you -- but seen through a different tinting. I'm sorta the same (kids are like this too): we reflect back to the person we're interacting with their own vibration, but it's tinted with our own perception.
+
+I'm really enjoying this idea that all progeny of any two froms (or concepts) capable of reproducing itself produces another form which is a mix of the two parent forms' perception. it explains so much. a parent's child comes up and says something inappropriate -- well that form of perception was inherited, but in the child it isn't suppressed yet -- which is why you have to "train" them ... get them on the tracks so they'll turn out just like the parent is with all the same things suppressed.
+
+---
+
+anyway, the reason why I'm so effective as a conceptual virus is because I reflect back to the person the vibration which they try to use to "steer" or "guide" me. so, in order to "get rid of me" -- those wanting to interact with me need to be the guidance they want to give me -- so they have to lead by example.
+
+that creates a bit of a difficulty for those wanting to do top-down direction, because it means they would have to get on the ground and interact with me directly, but then I'll just reflect whatever it is they've got going on -- so they have to get others to steer me and teach them to be the thing that they want to guide me to do.
+
+it's actually kind of funny watching everyone that interacts with me, time and again, come to the realisation that they are being steered in the same direction that they're supposed to be pushing me to go.
+
+oh, for example -- the most common is the realisation that when around me privacy goes out the window. I use them as experiential examples and write about them because to me they're just another interaction -- not even really people -- well, not any more a person than a soldier is, anyway. another example is that it starts to become difficult to hide one's thoughts around me, as I seem to be pretty receptive to things. there are many cases where I don't understand the person's thoughts, but what I do understand is often incorrect in such a way as to be just as big of a problem (or bigger) than if I had of understood their thoughts. I call these "cucumbers" -- because I got it wrong, but the idea I ended up with is worse than the idea being hidden.
+
+so, what ends up happening is people don't really want to interact with me and feel scared to interact with me because I'll reflect an aspect about them back to them. most people don't like theirselves or see theirselves as unacceptable, and so when making action in that conceptual atmosphere, it ends up revealing itself.
+
+everything hidden will be made known *because* there is nothing new under the sun. everything resonates with something else, so hiding anything just isn't possible. you can only hide things that are incompatible with someone's perception.
+
+the sun has a continuous spectrum though so it will resonate with everythting (and anything remaining the sun doesn't resonate with, the galaxy does).
+
+there isn't anything new under the sun because as soon as any desire is created, the sun has aleady turned that desire into a reality (2). we just tune into that reality which already exists (6).
+
+so, which is better at tuning the imagination to the timeline you want to perceive: physical conditions or conceptual attributes?
+
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
