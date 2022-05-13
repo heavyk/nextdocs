@@ -2604,6 +2604,46 @@ there isn't anything new under the sun because as soon as any desire is created,
 
 so, which is better at tuning the imagination to the timeline you want to perceive: physical conditions or conceptual attributes?
 
+### 2022-05-13 02:48 - why the conspiracy?
+
+it's possible that I'm repeating myself here, but I'm listening to snake-bros #030 - jeremy figgis and they're asking the question of why the conspiracy? why keep anti-gravity, the nature of human consciousness, giants, or whatever from us?
+
+jeremy answers that you have to look at the function. the conspiracy serves a *function*, and russ responds, "yeah it's like the tower of babel thing" -- which I think is right -- but he continues (paraphrase), "cause the gods say, if they do this they'll become unstoppable" -- which I think is wrong. I think that's what humans who didn't have an accurate understanding of LOA thought at the time, so the story they're telling involves gods which want to keep them down -- when the (IMO) much more likely scenario is that it's all humans attracting things and then blaming the gods (or God) for the problem rather than taking responsibility for the attraction.
+
+I'll bring this around, but first the subject of responsibility is an interesting one. when a person is given some amount of responsibility and something goes wrong, there are very few people that take responsibility for the failure. most, blame someone else or try to hide the failure.
+
+so, just for a moment, let's assume that "the gods" existed and they had a directive from some authority somewhere to run the earth, but bad things happened. there will certainly be lots of blaming of outside things (it was the comet) or the authority (the gods don't like or are punishing us). the rest will cover it up and try to pretend like there was never a failure at all.
+
+these are the common responses that most people engage in, so it doesn't seem too out of place or conspiratorial to me at all -- actually, pretty normal.
+
+---
+
+however, I personally do believe there is a conspiracy element to it. going back to the original question, the previous answer explains the giants and longheads case pretty well (who's covering up the giants and the longheads? probably the giants and longheads are).
+
+so, then how is the same conspiracy happening over so much time and space? my answer is "fallen angels" -- and I find it pretty likely that these "angels" know that the body is not the consciousness and they do move from body to body (which is why they're considered immortal -- not because their body stays well, but because the same consciousness moves from body to body). it's probably the case that many of the giants are now the longheads and they've been traveling from body to body for thousands of years. if they can move around like this, you can imagine that they do know the insides of the pyramids and what is actually inside of the structures -- and considering my ideas expressed in box-consciousness, it's pretty likely they know that these structures hold they key to "immortality" -- which is the ability to go into the astral after death and then find a suitable body to inhabit again and continue on the conspiracy.
+
+you could imagine that with thousands of years of secrets accumulated, they will spare no expense in keeping their immortality and true knowledge of human consciousness a secret (ie the conspiracy to keep paranormal stuff forever in the fringe).
+
+so that's the conspiracy. here's the anti-conspiracy: let's go back to the original answer from jeremy about the function -- and that function is again our own attraction.
+
+let's say that we don't want another cataclysm, and devices that boost our attraction power increase that likelyhood meanwhile we're attracting negative things, so therefore, we *want* someone to prevent us from getting access to the devices, pyramids, or whatever conditions which will boost our attraction power and attract our own destruction.
+
+this morning, jaron made a comment about why I think that I have bad teeth, and it was wrong. I tried to explain to him that at the time raquel convinced me that flouride is bad, so I essentially stopped brushing my teeth for a long time and it caused large cavities to form. well, it turns out that flouride enables tons of visual capabilies and stimulates my pineal a lot (though for most it calcifies it, I'm the opposite), so when I started brushing my teeth again at marcos' house I found it easy to gain access to the astral and start to lucid dream and see pictures in my eyes. that's when the shocking started.
+
+if I had have been brushing my teeth at augusto's house when I was on the edge like that with the shrooms and MDMA, I would have gotten partial connection back then, and I wouldn't be writing this now. it's pretty easy to see that raquel's conspiracy which I participated in and ruined my teeth was necessary to get me to a point where nosebook can fully prevent me from gaining my connection.
+
+if I had've got my connection back then, I would have attracted my destruction very very rapidly. it would have been the tower of babel all over again, but on a personal level. so, I attracted raquel to convince me of a flouride conspiracy so that I didn't have the condition necessary to attract my destruction.
+
+said another way, my own desire for not a personal cataclysm attracted a set of circumstances (nosebook) which prevents me from getting connected, *so I don't attract a personal cataclysm*.
+
+---
+
+inotherwords, I think our desire to not have another major cataclysm has attracted a massive conspiracy across time and space designed to prevent us from gaining access to the conditions which would boost attraction power, and because we're still focused a whole lot on the stuff that doesn't work, boosting that just attract a cataclysm.
+
+we created the conspiracy. sorry guys, no aliens; it was the humans and some immortal humans too, but still -- just humans (I sound like graham hancock, I know)
+
+BTW, really great show! I hope jeremy surfaces again for another interview at some point; that'd be dope.
+
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
