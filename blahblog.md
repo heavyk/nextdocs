@@ -2530,7 +2530,7 @@ whoever came up with that idea (the physical plane) is also a genius :)
 
 [2]: as an example, a giraffe doesn't see "mammal" perception and neither does hamster see "mammal" perception, though they are both mammals, so if you (as an mammal) take on the form of a hamster, you won't see what the giraffe sees -- though you're both mammals.
 
-### 2022-05-12 12:12 - reverse psychology and mind games
+### 2022-05-12 12:13 - reverse psychology and mind games
 
 I woke up this morning with a sense that I am supposed to go over to do paul's weeds, but when I'm there I'll just talk about things that are interesting to me. I started to practise some of the conversations that I would have with paul about things -- as in he will inevitably ask me about my past, my age, my work, etc. so I was preparing the story I was going to tell, and I decided I wanted to focus it around happiness. to get around the, "why are you living at home with your mom and not working?", question, I decided to take the tact that I've essentially retired. I stopped using money because it's not necessary for happiness. I think this may be a subject that has crossed his mind recently so I figured we could have common ground on that.
 

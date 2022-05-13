@@ -147,3 +147,37 @@ I don't have photographic memory, so I capture the essence of everything that I 
 I have so much more to say about this, but I don't yet know how to present it, so I'll just wait for the next event which gives me an excuse to write about it...
 
 [1]: I believe this is also what tesla was doing when he was out in public in order to distract himself from the torrent of other wierd feelings that everyone else was putting out. he was highly sensetive so he spent most of his time inside of his inner world, but when he had to be externally focused around a lot of other people, he had to have a mania to distract him.
+
+### 2022-05-12 20:20 - blowhard the long-distance leviathan
+
+I want to write something, but I don't know what I want to write.
+
+I just watched s03e01 - the little wooden boy and the belly of love. I might move this over to string-board, but for now I'm just blabbing cause I want to write. I noticed that ever since @[string-board](2022-05-10 22:11), where I mentioned that I find arthur to be symbolic of nosebook in general, now I see him completely differently.
+
+this time when I watched it, I noticed new things. for example, let's say that arthur is nosebook, and carmelita's father is tesla -- the one who made their flying suits and many other devices -- well, he says he had invented a lot of things and decided he wanted to walk across the country when he got swallowed up by a whale. he didn't seem desperate to get out, and the tick reveals at the end that they were in "the belly of love".
+
+in @[string-board](2022-05-10 22:11), I noted that there said that love is cool, tick's mustache made him cool, but the mustache just used him to get the beard the mustache was in love with.
+
+in this episode arthur falls in love with carmelita and wants to spend time with her instead of being a sidekick to tick. OH, maybe arthur isn't so much nosebook in general but actually more like the "landscape architect" or something like that, because tick gets them into situations all the time because he thinks like he's invincible, so then arthur has to find a way to bail them out of the situation -- though it seems that tick always finds his way out of everything anyway, so arthur is mostly saving himself.
+
+anyway, carmelita is a really weird character because arthur really likes her, saying things like, "we've barely just met but it feels like I've known you my whole life". the episode also has this feeling like she's trying to seduce him for some reason, but really all she wants to do is to figure out the codes her father (tesla) wrote in the notebook, which the decoder is inside of arthur's flying suit.
+
+the tick get pissed that arthur is leaving him alone because he's in love with carmelita. tick is funny because he wants to do crappy "hobbies" with arthur, but they're like the worst hobbies (crafts) ever, like a macaroni duck, so now that arthur is gone, he decides to make his own sidekick out of his own craft which is the little wooden boy and then proceeds to go on patrol (ie. looking for crime/trouble). somehow the wooden boy hears the plight of arthur and carmelita's encounter with the above-the-law espionage crew, so the tick sounds the battlecry and goes to help them.
+
+the three swiss industrial espionage guys (and one girl) try to take the notebook from arthur, and in the process arthur has to nearly undress fully. he says, "this is the most humiliating thing I've ever ..."
+
+so let's say that there is a sort of city state (like the swiss) that is sort of "above the law" like the USA is, and they've nearly figured out how to recreate tesla's world system -- well, then this sort of industrial espionage would most certainly be the most humiliating thing, because then at that point they could tune into the physical experience of any person or animal on planet earth. nosebook wouldn't have any secrets at all.
+
+they get the book and the decoder in arthur's flying suit and he goes to stop them. he flys out to get the swiss guy with no pants on and manages to stop him and get the book and his pants back by pinching the swiss guy's nose with tweezers (huh?) even though carmelita doesn't think he will succeed with tweezers. after he succeeds, she flys up to hug him in mid-air for (I suppose) getting the book back.
+
+so she's hugging him in mid-air, the swiss falls to the ground and tick congratulates the little wooden boy for his hard work (the little wooden boy fights hilda, the only female swiss). arthur and carmelita are sharing a moment together in mid-air when "blow hole the legendary long-distance leviathan" (you know, the "he's going the distance, he's going for speed, she's all alone in her time of need" leviathan).
+
+blow hole (which I always think of as "blow hard") makes a trip across the country every 10y (apparently). this is his second time going across the country[^1]. the first tour (2018) I crushed the hippies' dreams (sorry no drugs and sex), and then the next time I go for it (2028), is this the the time of this industrial espionage setup? blowhard captures the reporter, "sally vacuum" in the middle of her news coverage of him and takes her along; she wants to know where he sees himself in 10y (cause presumably he'll make another trip across the country again, then).
+
+I suppose that blowhard is actually significant of my pontification. it's possible that nosebook makes some of my pontification/ideas difficult to find, and so from time to time, something happens and somebody discovers one of the hard to find bits, which then "goes viral" and spread by word of mouth "across the country".
+
+so the whale is my message and at the core of it is carmelita's father (tesla). tick sees that carmelita and arthur are going to be swallowed up by blowhard and runs to catch them, getting swallowed as well. carmelita's father tells the tick that he has to burn his new sidekick to get out of blowhard the long-distance leviathan.
+
+P.S. I was even pontificating about whales this morning, too.
+
+[1]: so, if we consider that fwh said I have till 2038 and I came to the country in 2017, but I didn't really get settled in till 2018, that's exactly 20y, so that means that they seem to happen in intervals of every 10y, so 2018, 2028, then 2038 I'm gone.
