@@ -181,3 +181,35 @@ so the whale is my message and at the core of it is carmelita's father (tesla). 
 P.S. I was even pontificating about whales this morning, too.
 
 [1]: so, if we consider that fwh said I have till 2038 and I came to the country in 2017, but I didn't really get settled in till 2018, that's exactly 20y, so that means that they seem to happen in intervals of every 10y, so 2018, 2028, then 2038 I'm gone.
+
+### 2022-05-12 22:48 - USB
+
+I don't really know what to do about this, but I remember I was out picking weeds on remi's driveway and found a quarter. paul offered me $25 and I found 25 cents -- so that's $5^2 and 5^2 cents. I thought that was cool. my memory is all jumbled around there, but it reminded me of janine bolon's book which I can't remember now but it made me think of a really funny "get rich quick" scheme: "making sense out of your dollars" ... with a slogan something like, "if by the end of this seminar, you aren't making cents out of your dollars, full money-back guarantee"
+
+I was having a good laugh at that when I can't remember if it came before that event or after but I transported back to a dream a long time ago that I titled "adam and eve's dream". I just searched the archive and I can't find the dream for some reason. it may be one of the things my computer crashes were designed to erase. so cause I can't find it, I'll relay the dream again because it's gone now and it left a pretty good imprint on me.
+
+---
+
+in the dream, I remember there was something that was going to happen; I interpretted it as a cataclysm and everyone was preparing to get off of the earth or something.
+
+the scene suddenly changed and now I'm in a foreign place and it looks sorta similar to earth, and there are these metallic buildings with supplies in them -- which I presumed to be preparations for the coming cataclysm.
+
+the very first thing I noticed is how dark everything was. as in, there was barely any sunlight at all and there was way less ... I don't know what to call it, but it's that invisible colour that I "see" which I describe as being a part of people's aura or an element of the ether[^1]. in the dream I noticed there was basically nobody around, so I figured that was why there was all that missing inivisible colour that I usually see.
+
+so, it's much darker than usual and there are these metal buildings with food supplies in them. there's basically no humans around anywhere but I don't feel danger. I just think they all left the earth to escape the cataclysm (something about going into a portal). I don't feel cold or warmth either -- just sorta normal -- but there's a tremendous amount of emptiness and space around me. it felt kinda like I was one of the only people there on earth because everyone had left. I don't remember plants, but it seemed like there was some form of vegitation. other than that, I notice there are a whole bunch girls that are there with me -- like a lot of them.
+
+I really had this sense that it was just me and the girls and everyone else had peaced out. when I woke up I didn't feel anything particularly strong -- neither excitement or trepidation. it was just sorta what was happening. it felt clear to me that we were sort of starting from the beginning. it's for that reason that I labeled it "adam and eve's dream"
+
+---
+
+so I'm out on the driveway and I have this strong sense/reaction to something from nosebook where they are realising that I'm a rapidly accelerating problem that they need to get rid of. I just wrote @[blahblog](2022-05-12 13:38) and explained to jaron the idea of a dynamic meme designed to infect the human concept (half of the idea I told to jaron and the other half is written in blahblog), so the reaction was in relation to that, and they realised that it was getting harder and harder to contain me concepts and keep them from "going viral" (blowhard making a trip across the country?) and they were realising that there's no real good place to send me. I'm becoming a problem to their entire charade.
+
+as I had that reaction, I had the realisation that if I just keep holding out, eventually I become such a problem that they have to send me to another planet. I then flashed into "adam and eve's dream" and realised that the reason why it was so dark is because I was on pluto.
+
+I forget how much longer after that, I had another reaction and in this one, now I am in the spot of enki and I had designed the "adamu" to do all of this work in the field toiling and doing the weed picking, but the corrupted brotherhood had forced enki to never be able to find his connection again -- and here I (remember I'm enki in this vision/reaction experience) and I'm picking weeds and doing the labour now that he had designed the adamu to do because the annunaki were complaining about having to do the labour and stuff -- cept I'm not complaining about it. I said all of that to explain that the reaction was to emphasise a connection between enki and adamu switching places. I repeated the snake-bros sign-off phrase, "good night adamu; get back to work"
+
+so putting all of the pieces together, does that mean if I continue to hold off on everything they throw at me, are they gonna have to ship us off-planet??? wow... that's a pretty good sized cucumber already, if that's the case. lol
+
+(USB is a reference to jaron's comment today when I told him he can put bill and ted's excellent adventure on a usb memory. he said there's US plan A: USA -- and there's US plan B: USB)
+
+[1]: for example, in places like discotecas or concerts, I see TONS of this invisible colour because there's such a density of people with strong emotions. it's related to emotions and it's stronger the more people feel around me.
