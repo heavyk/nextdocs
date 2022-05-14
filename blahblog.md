@@ -2644,6 +2644,58 @@ we created the conspiracy. sorry guys, no aliens; it was the humans and some imm
 
 BTW, really great show! I hope jeremy surfaces again for another interview at some point; that'd be dope.
 
+### 2022-05-14 12:24 - doing only what I feel I can do
+
+so yesterday when I woke up (actually, it may have started two days ago in the shower), it felt like someone wanted me to practise a conversation that I would have with allie. I asked her what sort of things she likes to do, but I could feel that was the wrong question, so I asked her what sort of ways that she likes to feel, and followed up with asking her at how good she is at feeling that way whenever she wants to -- or, does she need something to happen first to be able to feel that way.
+
+so then in the conversation we started to talk about it because I could tell she didn't really understand why I would ask such an outlandish question, "what are some things that you like to feel". that question also had reactions to it in the sense of like this is something that a predator might ask to a girl. I don't know why I remembered those reactions again just now, but I didn't feel too bothered by them in my low-resistance dream state. I started to explain myself:
+
+"have you ever noticed that you only do the things that you feel like doing? ..." (and other things for some reason I feel resistance to trying to remember and write out our conversation).
+
+I continued on talking about how we're told commands all of our lives, but really, since you can only do the things that you feel like doing, commands cause a lot of problems. I then started to use the example of how maybe she has someone that would give her a command to do something and it's something that she doesn't feel like doing -- like maybe your mom or whatever.
+
+---
+
+as soon as I started to suggest to her that she begin to follow what she feels like doing instead of what the authorities are telling her to do, it feels like I'm getting reactions from remi. clearly, it's a bad thing for me to try and suggest to her child that she should disobey her parents' commands.
+
+I understand that's kind of a problem, so I won't really do such a thing -- but I also kinda probably will. not overtly anyway, but there will definitely be subterfuge. most people when telling others something like this, is something like: "disobey this authority and follow my commands instead"
+
+---
+
+commands are a weird thing because they're not helpful. when I was trying to tell this to allie, I gave the example, "I can tell myself to get up all I want, 'kenny, get up' -- but it isn't until I actually *feel* like getting up that my body actually moves -- or a person playing sports wants to break a record or do something amazing -- they aren't able to do it until they actually *feel* like they can do it, and also believe it, but they still have to feel it first. so, I've noticed that *all* body movement happens based on feeling, not based on command"
+
+so, what I've basically done is covert entirely over to feeling as my driving force. there's kind of a problem with commands in that they are often telling you to do something that you don't feel like you want to do. the command, and usually the fear that follows if the command isn't followed becomes the motivating force behind the command. so, a command is actually still motivation through feeling, but in the negative manner (the fear I feel motivates me, rather than my desire to do it -- which makes sense because fear is negative desire).
+
+what happens during the process of getting commanded and commanding others is a desensitisation to how one feels and what one actually wants to do -- and so one begins to rely on commands, and the motive force that the command gives as the inspirational feeling for the action. we lose our our capability to act based on our own desire (cept when it's a strong desire like sexual passion), and need the feeling inspired by others' commands to provide the motivation.
+
+I saw this all the time in spain (they love commands there), and every dude was going from one command structure (that he usually rebelled against) to another command structure (which he also rebelled against), and the desire was to find a sort of righteous command structure. it's sort of the opposite of the grail quest. it's the people hoping that arthur finds the grail so that arthur can give them rightous commands instead of undesirable commands.
+
+this desire for someone to give the "right(ous)" commands they can agree with (cause they all have a strong opinion on when and where each commands is appropriate[^1]) would show up in the quest to find a wife/husband capable of giving the desired commands (or no commands at all) and in people's expectations for the government as well. in fact, "manifestations" were just the united civilians giving the government commands back -- and in the case of a novios, the dominant one gives the commands until the other feeels sufficent displeasure in those commands to begin rebelling against those commands with someone else[^2]. I absolutely hated the games of attraction over there becuse I was expected to give commands and I didn't really want to tell someone else what to do -- and if I didn't give the right commands, then that means I don't have "celos" and therefore don't care for her; I tell her what I want her to do if I like her a lot. ugh.
+
+---
+
+going back to allie again. the other day when I was over there I was outside and I noticed a bright light in my eyes which happens whenever someone is using using nosebook around me, so I think they prevent people from using it in my vicinity -- so she can't use that, and as a respnse I felt a tremendous amount of boredom coming from her. she feels things strongly but has very little control over it. she feels all of her emotion largely in response to what ever events just happen, which means that, unless she's given a command, it's very unlikely that she'll feel like making any action. in addition, if she's feeling her emotion in response to events happening in her surroundings, then that's one of those situations where other people are responsible for how they feel.
+
+what all that means is that it's very unlikely that anytime soon (cause it can't really be learned in just a few days -- takes a fair bit of practise) that she'll feel like making any kind of action she isn't capable of summoning herself. so, we're kind of back to the beginning part of the conversation, "what are the things you like to feel, and how good are you at feeling that way even when the circumstances give no justification to feel that way?"
+
+---
+
+the other thing I pondered this morning was why was mr. motor going to such great effort yesterday to get me to go home when the sun was going down? was it that there was higher energy and making it more possible for me to feel reactions? I don't really know, but it's obvious that mr. motor is definitely still fighting against a lot of stuff still. it wouldn't surprise me if mr. motor or someone is doing the same thing to allie as they are to me with my programming or whatever, where I have a feeling (that manifests physically) like I want to do something and then as soon as I go to do it, it suddenly no longer feels like it once did[^3]. so, it's pretty unlikely that anything will ever materialise, because in this sort of world, it's all about action, and I don't think that action actually results in anything. I know it feels kind of disabling to constantly feel unable to convert feeling into action, but I've learned that I have to just figure out the "how" (I want to feel) aspect, and leave all of the why and the what to become a reflection of how I feel.
+
+---
+
+finally, there is desire for me to talk about my suggestion to not follow authority and their commands cause that's really poorly worded. what I should say is, "don't fight against the commands of the authorities and if there are any required actions (commands), don't just follow them because they said to do it; figure out instead a way to feel desire to do the thing not because they said to do it, but because you want to do it."
+
+it's true that in this way (by doing it because you want to, rather than because they commanded you), you strip thir command of its power, because you're not obeying them, you're following your own desire not their command -- but that's not why I recommend it -- but because you'll actually feel better -- and I've noticed that almost invariable something good comes out of it, like a sort of positive karma. the action will contain your energy if you follow it with your own desire, rather than the fear (or whatever) their command imbued it with. doing things from desire rather than fear always yields a better *eventual* outcome.
+
+what I often times do is to not follow their command immediately. I make up an excuse to wait until find my own desire to do it. I almost always go do something else until the desire has built enough that I finally *want* to do the ordered thing. that gap there allows me time to "get my energy right"
+
+[1]: it's absolutely mind bending to me how under one relationship status a command (especially in a sexual connotation) will be completely deplorable, but as soon as a certain relationship status is reached, that same command that would otherwise be deplorable, now becomes desired -- and, if one of the couple says the command before the relationship status has been reached, it's very bad news for the person (both males and females) to have started to give that command before the relationship status is reached.
+
+[2]: I imagine this is similar in italy, and that's the origin of the song "la dama e movile" -- cause she has to keep looking for someone to follow her commands, even if it's just for a night.
+
+[3]: in fact, even with writing this, the feeling I had when I woke up was fading fast, and by the time I got up it had completely disappeared. I kinda regained a little bit of the conversation (but like I said, I felt a lot of resistance), and instead of talking about the original subject, this entry has gone a totally different way than the version I had when I woke up. the previous version had a lot more to do with the problems of me encouraging kids not to follow authority or any commands really. actually, there's desire for me to talk about that.
+
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
