@@ -213,3 +213,37 @@ so putting all of the pieces together, does that mean if I continue to hold off 
 (USB is a reference to jaron's comment today when I told him he can put bill and ted's excellent adventure on a usb memory. he said there's US plan A: USA -- and there's US plan B: USB)
 
 [1]: for example, in places like discotecas or concerts, I see TONS of this invisible colour because there's such a density of people with strong emotions. it's related to emotions and it's stronger the more people feel around me.
+
+### 2022-05-15 22:29 - quixote (first impression)
+
+I was watching s02e02 - alone together, and I noticed some symbols in it. they're going to fix up the chairface chipendale's moon graphiti and there was a bit about the "quixote" probe. I've always wondered what the don quixote story was, so I went off looking to see what it could be. I started to read the synopsis on wikipedia and I started to get a sensation that a lot of the symbols seem very familar to me -- as in they sort of resonate with my life.
+
+it's not uncommon for a person to see theirself in the symbols of a story, and actually it's probably the normal thing to do (though I don't know for certain). putting symbols into a story which are approachable by people is a very common thing.
+
+---
+
+one of the things that I've heard very often from people is that I don't see what I'm supposed to see. they see something mundane and ordinary yet I see something entirely different. it's as if I see things that are not there all the time. I think now my vision is a lot more controlled, but that happened with people's physical appearance and also with the picture that their words would paint. I just see a different thing and it's often times the exact opposite of what everyone else sees.
+
+I used to blunder through life blaming and accusing people of things ...
+
+---
+
+jaron just told me good night and we got into a conversation abou highly-motivated people, so it's funny how the conversation I just had with him was about the subject that I was just going to write about...
+
+I used to be a highly-motivated person, and I had these ideas that I wanted to *do*, and so I would go around and blame people for preventing me from doing them.
+
+(I just wrote out the highly-motivated concept, and you can see how don quixote is a sort of comical, exaggerated version of that).
+
+---
+
+lots of chaos with the symbols, so I want to end this, but before I do, when I was reading about it, I noticed that part two of the book (which was written 10y later, like the return of blowhole), apparently (from what wikipedia said), the second part has a lot of new elements that become themes of the "modern novel" with character exploration, rather than just a bunch perfect chivalry knights doing awesome stuff. so more introspection and analysis on the personality than just an enumeration of nobility and the noble actions that they perform.
+
+as I was reading that, it occurred to me that part two feels a lot like a timeline edit on cervantes part, which together with shakespere, seemed to derail the 1600's enlightenment period and turn us once again (in the sciences) to a more materialistic analysis, but on the character level, we're more "human" rather than just a bunch of arrogant (but enlightened) douchebags running the show.
+
+ever since [writing my thoughts on "forms of life"](/forms-of-life/thoughts.md) where I noted how about 400ya, on the subject of species, we deleted the concept world and turned it into physical-reality-is-everything world.
+
+it seems that this is also tied to the "s02e06 - bloomsday", "400 year bloom" where the plant is about to bloom, but it has to be held away from blooming "in the bad way" by playing it music. they have a few close calls, where it almost blooms, but "american maid" sings "my country tis of thee" and another american classic which I can't remember now. it starts getting really big and starts to bloom again but the tick sings "la donna e movile" to it to prevent the bloom.
+
+I believe these songs are symbols of different aspects of things that we have been put into place to refocus us so that the flower (which represents humankind), doesn't "bloom in the bad way". or, seen from the leapfrogging-time-pickles perspective, these are self-sabotage events that happened.
+
+imagine for a moment that the renaissance produced a golden age (a split that this timeline didn't have) and they figured out that there was a split, so having sufficient techology or perception they figured out how to tune into the other split (our timeline) and so all of the great enlightened ones (shakespere, cervantes, lope de vega, and many more) purposefully sabotaged their own art so that it changed the focus on to the character of the person, "beingness" versus status (as in, ser/estar, ser vivo/estado), and so on this timeline the great artists played a different music to prevent the 400y bloom from happening "in the bad way".
