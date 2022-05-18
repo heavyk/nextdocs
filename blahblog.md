@@ -2762,10 +2762,41 @@ very weird conclusion because it's sort of doing the opposite of both of those p
 
 I wonder how "right on" I am about all of this stuff or if I'm just incoherent rambling in the blahblog. there are elements of it in it that should have been in string-board (especially since I'm tieing so many things together), but I'm keeping it here. 
 
-
 [1]: this is a pretty remarkable feat in itself because consider that you have a swing or a pendulum and you want to make it oscillate twice as fast, rasing the frequency of the swing by an octave -- how would you do that? the amount of force required to cause the pendulum to reverse it's direction and travel the same distance twice as fast probably requires the square of effort, so raising the vibration of someone in this manner requires quite a lot of extra effort. it's much easier to constrict or confine something to a smaller space so that it bounces off of the walls to increase the frequency. so turning a low freqency into a fixed rate high one is pretty easy -- just make a space the size of the wavelength you want and then a good absorber (like CO2), but a dynamic system that multiplies the number of cycles per second I think is a considerably more difficult challenge.
 
+### 2022-05-18 07:57 - such dissatisfaction, much wow
 
+I noticed that there is a lot of dissatisfaction. I'm not really worried about it, though everything feels pretty weird, I have a terrible cough, and I don't really feel like doing anything.
+
+I was thinking about the "party LAN" project and it occurred to me that there is definitely no need to actually do that project if nosebook does the same thing. I'm pretty sure that they already have tons of spare power already (probably free energy devices and stuff), but if they convert over to doing this, they can dissipate a lot of energy -- though, I don't know what would happen if they just sunk it into the earth.
+
+I actually think they've been sinking a lot of my energy into the earth, and that's probably one of the reasons why I'm progressing more rapidly than I would have imagined -- because they're essentially taking my energy and tuning the earth to me (and me to the earth). my technique would be to transform that energy first to 60Hz before using it or sinking it into the earth to essentially remove it's beneficial (high frequency) effects.
+
+the next thing I thought of (or perhaps it was a reaction) was the idea that the power companies could be given this technology and instead of creating the network, they just sell our energy back to us for money.
+
+I don't know how they're going to do it, but I think the best thing to do is to let them try and do the worst (in their perspective, "least bad") way. there are a lot of potentially hilarious fails that could happen pretty quickly and I think the inflatable money system is on it's last leg -- kinda falling apart. I don't want to really offer any bailouts or anything. I want to let them figure out what to do.
+
+---
+
+I've really been giving a lot of thought to the concept of "I want to do it my way" -- but that's not the best translation of the concept. I think it may be something more like, "let me do it (so I can learn)". it feels like a child does when someone is constantly bailing them out of trouble or "showing them the right way" to do something.
+
+that concept was inspired by my inquiry into the "tower of babel" because when I was talking to mom, I was saying that if the giza pyramids caused a cataclysm and so therefore wasn't the solution -- and the mexican pyramids also caused a cataclysm cause it also wasn't the solution, then the only remaining options are both of them (in the case that it's an OR operation, both also produces a failure) or neither of them.
+
+I believe it's neither, because if transforming the frequency didn't work -- and neither did transmuting the frequencies either -- well then transforming and transmuting the frequency won't improve anything at all.
+
+so, when I had the idea yesterday about how to solve a number of problems at once, lowering temperature, and sinking the energy into devices that do not have any consciousness (and restricting the frequency to a certain frequency), what could possibly go wrong?
+
+the only thing I can think about, is if I'm tied to 60Hz as my frequency, that means the fastest I can go is that fast, so I'll either have to decrease(?) the length of a second (I'm really not sure if it's decrease or increase the caesium decay rate) -- or, go massively parallel. both options are kinda exciting to think about.
+
+I have a terrible time at doing anything in parallel, and I fail really miserably at noticing more than one thing -- when it comes to things like games and stuff, I just can't figure out how to look at two things at the same time -- however, when it comes to emotions, I can do many many things at one time. I'm constantly doing a whole bunch of stuff I don't really have capability of being conscious about, so I just tune into the results located somewhere in the ether. being confined to a single speed means that I'll begin to do like I'm doing now (cause I think they've capped me off at a speed), so I'm learning how to do more things by emitting a desire and then tuning to the result. millions of different things can be happening at once, but I'm not very good at it yet to utilise it it infinitely parallel capabilities (the only problem only becomes reception -- just like you can mix 1000 sounds together without a problem, but hearing any single one is a real difficulty after about 5-10).
+
+that idea sorta excites me, and I think I also like the idea of modifying the physical "laws" to increase my frequency -- though I could imagine how it'd be a bit of a problem for a lot of things if the second increased or decreased it's length. it's cool to me on a conceptual level, but I could see how there are a lot of people that will miss the slow paced physical reality, being on a sort of permanant coke binger or something -- it feels good, but it's a total blur because it's going so fast.
+
+---
+
+oops, forgot to talk about the "I want to do it myself" concept -- and all I really want to say about that now is, I don't want to really offer any more suggestions about ideas for one of two reasons: first, all ideas I say out loud never will materialise, so if I just keep them to myself, it'll actually happen, and the other reason is that I feel like it's best to give them every opportunity they can to do what they want to do. from my perspective, my connection is inevitable, so it's mostly just wasting time for me no. for me and them both, the-solution-is-the-problem.
+
+I've
 
 ### corrections
 ### 54 and eclipse
