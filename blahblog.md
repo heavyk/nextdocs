@@ -2516,7 +2516,7 @@ if unwanted is necessary for wanted, and when wanted manifests, there is always 
 
 so there will *always* be an oscillation between unwanted and wanted. it's impossible to get rid of that duality, or else we would have complete stagnation -- (cause everything is neither wanted or unwanted) nothing would die and neither would anything new ever appear -- perfect contentment.
 
-so that oscillation always has to take place, but what if you don't want to experience one side of that cycle. let's say you don't want to experience anything unwanted -- ever. well, certainly somewhere out there, there has to be someone that only wants to experience physical experience. they never want to have any experience ever with a conceptual universe ever. dispite the mounting evidence to the contrary, they don't want to believe that there is ever an eternal part to creation.
+so that oscillation always has to take place, but what if you don't want to experience one side of that cycle? let's say you don't want to experience anything unwanted -- ever. well, certainly somewhere out there, there has to be someone that only wants to experience physical experience. they never want to have any experience ever with a conceptual universe ever. dispite the mounting evidence to the contrary, they don't want to believe that there is ever an eternal part to creation.
 
 so you get a bunch of these guys and you round them up and you let them perceive reality through an aspect of yourself. you give them bodies that they want and whatever physical conditions they desire, because you know those perfect physical bodies and conditions are subject to inertia and change (ie. deterioration) so from their perspective all they see is awesome things getting worse. keep refreshing their awesome stuff and, they can spend 100% of their time looking at the deteriorating aspect of the concept in the physical universe, never perceiving the ideal from where it comes. so for as long as they don't attract their own destruction, they are offering to perceive one half of the cycle for you and do all that desiring for improvements based on the deterioration they're experiencing.
 
@@ -2836,6 +2836,18 @@ so, yes, I think we're perfectly on course and doing just fine.
 
 [3]: there was another hidden fourth that I associated with memristors (I can't remember right now because it's blocked)
 
+### 2022-05-18 17:03 - I think I figured out how they hide stuff in the open
+
+I was reading through one of my old entries where I was talking about weeds (end of @[blahblog](2022-05-12 12:13)), and I noticed that when I got to the part where I mentioned I noticed the weeds bit, I felt "I know this already" and I skipped over that whole section, sorta like how when remembering something I don't need to replay the whole entire movie because I got the "jist" of it. so when people interact with these entries, it felt to me like they do what I just did -- skip over entire sections because they think they already know what it was.
+
+well, I felt like I wanted to go back and actually read it because I realised I *didn't* know what I said there, as it had been deleted for some reason. so, I reread it and I noticed how the adaptation process that weeds go through when acclamating to a new environment is sorta the same thing as "survival of the fittest" but perceived as a stabilisation process rather than an evolutionary process[^1].
+
+this is interesting because after my shower I noticed some reactions to the "natural selection" comment I made. I don't fight against darwin's version of evolution, yet instead embrace it (the-problem-is-the-solution), so if they want to play the "survival of the fittest", try and keep up. like the tortoise, I'll give them all the head-starts that they want and every conceivable advantage that they can have -- and so then let's play the "survival of the fittest" game -- which, for me is not really an evolutionary process, but a *stabilisation* process where I just continually find new ways to stabilise the already completed evolution through adaptation to my new environment. that's a very important distinction; read it again.
+
+survival of the fittest, bro; try and keep up.
+
+
+[1]: which is also interesting because I have noticed that weeds don't really like it too much to be "transplanted" or moved. they like to get to where they want to grow by their own form of propagation, and then I noticed that a single seed has (I've seen) up to four different physical manifestations depending on the energy of the environment. it's really weird how they don't like to be moved into different soil by humans, whereas cultivated plants don't seem to mind as much.
 
 ### corrections
 ### 54 and eclipse
