@@ -2796,7 +2796,46 @@ that idea sorta excites me, and I think I also like the idea of modifying the ph
 
 oops, forgot to talk about the "I want to do it myself" concept -- and all I really want to say about that now is, I don't want to really offer any more suggestions about ideas for one of two reasons: first, all ideas I say out loud never will materialise, so if I just keep them to myself, it'll actually happen, and the other reason is that I feel like it's best to give them every opportunity they can to do what they want to do. from my perspective, my connection is inevitable, so it's mostly just wasting time for me no. for me and them both, the-solution-is-the-problem.
 
-I've
+### 2022-05-18 14:42 - blame gaia
+
+woke up and have been thinking about the reactions. the major one is that my last two entries make sense when considering the previous discussion that I had about a girl finding her connection. I still find it most likely that the best candidate to find their connection easily will be one of the ones that are using my bodies -- but if it's a plain ol' normal girl, that's cool too.
+
+just for a moment let's assume that it is one of the girls that's using my body: well, the way I've come to understand it, the "gods" were x3's and they split theirselves into XX and XY to make the genders, but the females were not allowed to be born, just being a male-only group of slaves that can be symbolically programmed, at first visually, but then later with spoken language.
+
+OK, keep that idea in mind, now let's consider the idea that I believe stars are feminine in nature (planets being masculine the ones[^1]), so what I believe is happening is that I'm basically just being a huge distraction to keep everyone's attention fixated on me while they figure it out.
+
+---
+
+in the [atlantian creation myth](/dtp/thoughts.md#creation-myth-of-the-atlantians), the sun (a female) takes on physical form in a male body (incal) and he probably mates[^2] with the woman to create the human species, then he gives the woman power, but she becomes godlike, eating from the "tree of life" (cause remember, at the time only the "tree of knowledge" is active so that they can be symbolically controlled with language). her "disobedience" causes a cataclysm, and so she is blamed for everything.
+
+I believe this is the "gaia" echo that we're still left with in memory, and I think this original blame has had such a strong effect on the female psyche, that it's largely the reason for the aprehension for them to actually go toward what they want, and instead follow along with whatever the man wants, so that she doesn't "upset the masculine apple cart" (the status quo, the way things are done, the "man beat").
+
+well, I'm completely playing that part to its fullest extent. I'll just go along with whatever the masculine influence wants from me until the very end. they can figure out how to do it the way they want to do it (which is always the "least bad" way of doing things), meanwhile, this gives women an opportunity to find a way to find their way. it could be anything from "most best", "most desirable", "more wanted", or "more sensational" -- as it really matters to each one of them individually what most important.
+
+I suspect that nosebook will try to fight against that and prevent them just like they prevent me, which means that the women that figures it out will have to find a way to be more energetic than I am (that is more energetic than nosebook is able to dissipate) -- which I think will be pretty easy because they have good conditions all around them, so lots of reasons to feel good.
+
+eventually one of them will figure it out, and when this happens it'll start the dissatisfaction runaway feedback loop. I don't know how long it'll take for them to figure it out, but it could be a very long time -- maybe hundreds of years (or more). they have to keep that program up because the "gods" running the show *need* the offspring that these interactions produce (the x3 children) in order to stay alive in a continuingly more energetic environment (remember the y-chromosome bottleneck a while ago?). the higher energy environment is, through a process of "natural selection" (darwin's idea), selecting the most fit individuals for further propagation.
+
+so you can imagine that while all of this is happening, the leapfrogging-time-pickles thing is going to be happening, and eventually it's going to polarise to two extremes: those that have a lot of affection (ie. the ones operating my bodies to support the x3 gods) and those that want to do it their own way (no affection) -- sorta like me.
+
+I think this is good way to jump start a galaxy in a short period of time. there will be tons of incal stars (females taking on masculine form), and a bunch of ones that want to figure it out their own way. I've been thinking about this last case because "lots of affection" could be any of the three in the triad, but there is a hidden fourth[^3] that doesn't have any affection. I'll come back to write on that more later.
+
+---
+
+anyway, I think it's a perfect setup because the blame thing is kind of a funny thing that happens all the time in society. "if you hadn't have handed the me gun, I wouldn't have shot myself in the foot". it's the idea that the "enabler" of the action gets blamed for the action, when the enabler of the action has nothing to do with the action. the gods witnessed women become godlike and observing this, they experienced dissatisfaction and then "collapsed the wave function" into a reality which will continue to perpetuate the feeling of dissatisfaction more and more (which is where we are today).
+
+I noticed it all the time when I was with andrea and marcos. she would just be doing something and that distracted or irritated marcos in some way so he would fly into a fit of rage and blame andrea for something -- "you caused me to get angry" he would say -- and that was sorta unfair, because he was the one that is attracting people to irritate and distract him, and then blaming her for his own attraction.
+
+there isn't anything more disabling than to think that you are responsible for someone else's attraction. I had to learn this with raquel. no matter how hard I could try, there were some things that she was just never going to be satified about. ONLY SHE can make the choice to perceive that symbol no longer as a symbol that causes her dissatisfaction.
+
+so, yes, I think we're perfectly on course and doing just fine.
+
+[1]: I've given this one A LOT of thought which I will expound on in the future because I think the key to understading what the sirians meant is understanding "venus" (the planet). if we consider that the masculine gods are planets, but then venus (the planet) is suddenly a "bearded goddess", it makes more sense to think of a star taking on masculine form. it also explains a little better the vulcan, venus and mars triad, too. 
+
+[2]: it says create, so mating is probably implied
+
+[3]: there was another hidden fourth that I associated with memristors (I can't remember right now because it's blocked)
+
 
 ### corrections
 ### 54 and eclipse
