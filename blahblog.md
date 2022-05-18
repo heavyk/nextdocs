@@ -2696,6 +2696,77 @@ what I often times do is to not follow their command immediately. I make up an e
 
 [3]: in fact, even with writing this, the feeling I had when I woke up was fading fast, and by the time I got up it had completely disappeared. I kinda regained a little bit of the conversation (but like I said, I felt a lot of resistance), and instead of talking about the original subject, this entry has gone a totally different way than the version I had when I woke up. the previous version had a lot more to do with the problems of me encouraging kids not to follow authority or any commands really. actually, there's desire for me to talk about that.
 
+### 2022-05-17 16:02 - no cataclysm
+
+I have an idea that I want to say but I don't really know how to present it. I was talking to mom yesterday about frequencies and how stars amplify all frequencies because of their contiuous spectrum emission, and how that amplifes everything -- the good and the bad. I contrasted that with the mexican and giza pyramids, where they take in an input and output something harmonious.
+
+I also talked about how I think the giza pyramid technology is built on the utilisation of high pressure CO2 in these specifically sized chambers and boxes because carbon, being optically black absorbs essentially *everything* -- and so these boxes were being used to take in a broad spectrum of frequencies and transform them to a specific frequency that resonates (probably) with the mitochondria of the "gods" -- giving those that have a bloodline that's resonant with the frequency these stone chambers are producing are receiving a lot of really beneficial and harmonious energy.
+
+I compared that to the mexican pyramids, where I belive these are more about *transmutation* of frequencies, so it would take in a broad spectrum and then output another broad spectrum, but probably at a higher frequency[^1]. thus, because of the dynamic nature of this second setup, *all people* had increased consciousness and the ability to communicate telepathically. this is likely the origin of the "one world language" -- enabling all humans to communicate telepathically and with images conjured in 3d space -- something that previously only the "gods" had capability of.
+
+---
+
+today, I talked about gaia and the concept of the previous creation myth and how I think it ties into the matriarchical society that existed previous to the YD barrier (or whatever it's called -- the last cataclysm). I explained how I thought that previously humans were essentially automatons, and they took symbolic commands from those running the show, and that's why there is so much repetition and imparative statements in many old texts -- because it reads a bit like a computer program.
+
+I talked about how woman in that creation myth ([which I got from dtp](/dtp/thoughts.md#creation-myth-of-the-atlantians)) were prevented from eating from the tree of life, but the kundalini serpent caused her to partake of the tree of life -- and I think that caused an avalanche effect of women becoming godlike in their capabilites, allowing them to see the abstract ("right brain") part of reality.
+
+this must have caused so much dissatisfaction (amongst the "gods") that they attracted a cataclysm, and of course blamed it on the women: obviously things were going well until she figured out her divinity and then a cataclysm happened. if she hadn't have figured it out, then things would still be good, so what we have to do is to prevent them from ever finding that so they don't wreck our perfectly tuned setup again. that culture and mindset turned into the atlantean culture, conmplete with its magnetic therapy and everything.
+
+so even with only the gods' DNA getting the harmonious frequencies and everyone else held away from it, the destruction of atlantis was a "chilling reminder" that it's not *only* the humans' fault for the cataclysms.
+
+I don't want to put all of the blame on the "gods" for attracting the sinking of atlantis, though they were probably the main contributer. I believe the "tower of babel" exemplifies this pretty well, and -- I don't know how many of the "gods" were on earth at the time though I think it was most or all of them, so they contributed again.
+
+however the main lesson from the tower of babel story (for me) is that even if you give everyone the capacity for good conditions, it doesn't actually improve anything.
+
+---
+
+long intro. so, then later after thinking about all of that I was thinking about how there is this repeat problem that is showing up. it's the part about gaia and how when she figured out how to plug into her "tree of life" like that one neuroscientist from the TED talk that russ mentioned -- (see @[blahblog](2022-05-09 14:55) @[blahblog](2022-05-09 16:05) @[blahblog](2022-05-10 09:40)) it caused a lot of dissatisfaction.
+
+that premise is the idea behind the 400y-bloom, where in those situations, what would normally happen is that a bunch of dissatisfaction would ramp up into a cataclysm -- yet, instead of a cataclysm happening, what instead happens is a split. the dissatisfied ones create a reality that is refelctive of their own perception and the others go toward a sort of utopia.
+
+you can imagine that at some point along the way, once the split was discovered, someone probably figured -- "hey, I wonder what will happen if I sabotage my own conditions that caused me to get connected so that I/we never get connected and so then dissatisfaction doesn't ramp up and they never experience a cataclysm because someone gets connected." -- which is sorta what I think happened. he/they then jumped back into their bodies that they sabotaged, knowing that they'll find their connection eventually anyway so why not just go for it.. and that's kinda where we are now.
+
+---
+
+so the idea here is that I was thinking about the whole situation that I'm in now, and you can imagine that if I were to find my connection, there would be A LOT of dissatisfaction. then, to add insult to injury, imagine if women figured out how to find their connection too... that would be even worse, right? I don't want to make any comment on any gender or nationality or anythting like that, but you could easily see how that would create a lot of dissatisfaction -- and I mean, A LOT.
+
+at this point, the whole thing seems pretty plainly obvious to me, and that we're already on the sabotaged version and I think that it's not just me -- meaning that there will be many of us that are not looking to get the conditions requisite for connection.
+
+obviously, there will be limits that are found -- as in, at some point it'll become impossible to sabotage yourself any further and connection is inevitable. the long-term goal here is to go for as long as we possibly can *without a cataclysm*, and eventually at some point, someone will find their connection and it'll be a chain reaction. this will cause so much dissatisfaction that an preventable split will occur.
+
+---
+
+so what I'm saying here is that I don't really think that anything will really happen with anyone or anything. I've been thinking again about the "party LAN" project again, and because it provides a good way to waste massive amounts of human energy, it may become viable, because if my theory is right about many of us coming back and sabotaging ourselves over and over that means there will be A LOT of people like me gaining energy very rapidly, and so if nosebook has to figure out how to do what they're doing with me, not just to say hundreds of others but perhaps millions, that's a very big scaling problem for them. I don't really have any way to really know for certain, but I think a system like this is necessary because if I (or anyone else) finds their connection, then it will start a runaway feedback loop of dissatisfaction.
+
+so, keep us away from our connection, we'll need a system designed to dissipate energy. this system will dissipate (sorta like mom's healing teacher) both good and bad energy alike, cause your AC needs a fixed frequency, so no matter how high your frequency is, it always gets converted to a fixed 50/60Hz, thereby lowering the amplitude of anyone who joins this network, allowing us to self-sabotage pretty easily keeping all of us (no matter what frequency) at mostly the same amplitude.
+
+it'll be interesting to me to figure out what the conversion rate will be, because a high frequency is like a tightly compressed gas, so upon decompression, it'll have a massive cooling effect... what I don't know is if higher frequency gets a better energy conversion to mains power or a lower conversion. the cooling effect can probably be exploited as well, cooling the environment around those converting high frequency into low frequency (which counteracts the excess heat created from the resistant/dissatisfied ones)
+
+---
+
+there was another sort of weird thing which I haven't figured out very well that I was feeling, as well. it has to do with the transmutation of energy. it connected to the part about the broad spectrum emitters and that you amplify the frequencies that you look at (perceive).
+
+I think for me, I want to kind of take it up to the next step and start learning how to transmute energy really well. right now I'm pretty good at transmutation, but I don't emit very strongly. I was explaining to mom that I find girls emit their energy very strongly, yet for men I don't notice this nearly as much -- cept for the gay ones. I don't know if it's all gays, or just the bottoms that emit strongly, but I suspect that it has something to do withe the prostate/uturus. I don't think it's necessary to be gay to emit strongly either, as that's just the manual stimulation of an organ in the body. I know that I do emit strongly under certain circumstances, and the evidence is usually noticed as a rapid change in the climate.
+
+like I said, I don't really know how to piece it all together, but I feel like this is an excellent way for me to begin to transmute energy. thinking in the triads, the female takes in one energy and then outputs it again to the other. the emitter is the one I can't figure out because for me the emitter is the bottom, not the top -- the receptive one. I can't figure out what that has to do with this, but it seems that the effort nosebook exerts on my prostate essentially prevents me from becoming an emitter. that would mean that the emitter is the physically receptive one, but I don't know how that happened. so, is nosebook's efforts essentially the same that a bottom would feel?
+
+what I mean is, would nosebook's efforts be something sort of like permanent anal sex? if that were the case, I would imagine that the effect that anal sex has is potentially pain or pressure -- some sort of slight discomfort but then later or perhaps during, but I would assume later after the pressure is released -- but is probably activated when they begin to reverse the pressure and start to emit that will result in an overwhelming feeling of pleasure that floods the body, which is a physical sensation, but it's not the direct result of stimulation -- a feeling simlar to the feeling that a girl emits when she starts to get excited (every girl is different, but the older they get it feels as if the frequency seems to lower).
+
+if that's the case (or something similar to that), then what's happening and why I get those terrible pains in my prostate from time to time is that when I start to feel good *and emit it*, then that's when I get the pressure. the better I feel, the more pressure and more pain, so what I have to do essentially is to *internalise* the good feeling and not emit it. I transmute the feeling of pain into a feeling of pleasure, but if I allow the pain to feel like physical pleasure, then the pain gets worse. however, if I feel it instead emotionally as relief and satisfaction, then the pain goes away.
+
+---
+
+huh! so, reflecting on what I just wrote -- what I essentially said is that I want to build a system that converts us into living stone boxes, where our own energy is *transformed* into a fixed 50/60Hz frequency and then used to power unconscious devices. then, on the subject of *transmutation*, my goal has been, not to become an emitter of that transmuted frequency, but to instead internalise it and cause it to lose its physicality.
+
+very weird conclusion because it's sort of doing the opposite of both of those pyramids. I suppose that it is the amplification of those harmonious vibrations that cause the others dissatisfaction. so, if I can come up with a system that will allow everyone who wants to self-sabotage to "give their energy away" and turn it from a 400y bloom into a much longer time -- the prophecies predict 1000y (probably because it's related to the solar cycle, so a 24y setup at the beginning of a cycle will allow for a maximum increase of energy before the solar "deadline" is reached).
+
+I wonder how "right on" I am about all of this stuff or if I'm just incoherent rambling in the blahblog. there are elements of it in it that should have been in string-board (especially since I'm tieing so many things together), but I'm keeping it here. 
+
+
+[1]: this is a pretty remarkable feat in itself because consider that you have a swing or a pendulum and you want to make it oscillate twice as fast, rasing the frequency of the swing by an octave -- how would you do that? the amount of force required to cause the pendulum to reverse it's direction and travel the same distance twice as fast probably requires the square of effort, so raising the vibration of someone in this manner requires quite a lot of extra effort. it's much easier to constrict or confine something to a smaller space so that it bounces off of the walls to increase the frequency. so turning a low freqency into a fixed rate high one is pretty easy -- just make a space the size of the wavelength you want and then a good absorber (like CO2), but a dynamic system that multiplies the number of cycles per second I think is a considerably more difficult challenge.
+
+
+
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
