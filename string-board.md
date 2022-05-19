@@ -247,3 +247,39 @@ it seems that this is also tied to the "s02e06 - bloomsday", "400 year bloom" wh
 I believe these songs are symbols of different aspects of things that we have been put into place to refocus us so that the flower (which represents humankind), doesn't "bloom in the bad way". or, seen from the leapfrogging-time-pickles perspective, these are self-sabotage events that happened.
 
 imagine for a moment that the renaissance produced a golden age (a split that this timeline didn't have) and they figured out that there was a split, so having sufficient techology or perception they figured out how to tune into the other split (our timeline) and so all of the great enlightened ones (shakespere, cervantes, lope de vega, and many more) purposefully sabotaged their own art so that it changed the focus on to the character of the person, "beingness" versus status (as in, ser/estar, ser vivo/estado), and so on this timeline the great artists played a different music to prevent the 400y bloom from happening "in the bad way".
+
+### 2022-05-18 22:58 - arthur and little wooden boy
+
+I watched "s01e01 - the idea men" tonight and I noticed one thing which I don't know what it means, but in the intro, the tick says that he and arthur are not two men, "we are ten men". interesting.
+
+anyway, I've noticed that arthur is always right-handed, though tick is usually left-handed. so, I was thinking about maybe the idea that arthur symbolises my left hemisphere and the tick the right, cause I had some reactions to the "little wooden boy" in that regard. I don't believe arthur symbolises my right side because his most notable characteristic is worry which is not something I do a lot of. he also has a flying moth suit, made by an inventor. I don't fly, and if I did, I would fly, not because I had a suit, but because I felt like I could fly.
+
+I believe that some people at nosebook have ramped up their energy levels to a point where they can fly, so it's a device (something external to them) which gives them the capability. in one episode tick tries to convince arthur to carry him (manouvere 14C I think), but arthur doesn't think it'll work. I just don't really fit arthur's archetype.
+
+arthur also in the grail quest, is the king which is searching for the grail (ie karmalita), and if he finds the grail (the female bloodline that increases the vitality of and heals the land), again, that's not me at all. the idea there is that if the king is good and just, then things will prosper and it'll go toward a golden age -- but, as I explained in quixote, that grail quest of knights and chivalry is a bunch of bunk, and quixote's optimism to a golden age only illustrated his delusion -- meaning, we're in the sabotage, so no golden age. the timeline where they went off and had their golden age exists and I believe it is them (we/me) that have influenced this timeline (self-sabotage) so that nobody gets connected (ie finds the grail), because that does create a golden age, but it also creates a cataclysm at the peak of the golden age.
+
+I'm not searching for material things to give me flight or want to create a golden age. I believe that all of those external things that the golden age symbolises can and should be realised from within, so that you attract what's wanted rather than attracting a cataclysm at the hight of awesomeness (like the belt in s03e04). your awesomeness doesn't come from a material thing (like a belt) but from belief in oneself. I align much more with tick in that regard. in that first episode, tick tells arthur is time for him to start believing in himself.
+
+I rest my case on that regard.
+
+there is one objection to that, which is that tick is muscular externally as a sort of reflection of how he thinks, yet arthur is sorta pudgy as a reflection of how he thinks ("not in the face! not in the face!"). well, if I were to be let go so that I actually feel the way I really feel, I'm pretty certain that I would quickly gain a perfect body like the tick's.
+
+instead, I'm tuned to feeling like someone who's pudgy would feel (which is probably how many subcribers to my perception feel), I take in the way that they feel and then find a way to feel good anyway. I notice that I'm constantly making tons of improvements. I may have a pudgy body now, but give me a few years and it'll start to look really good. why? because despite the numerous setbacks, I'm constantly finding ways to feel better, so I'm kinda finding ways to feel better faster than they can find ways to cause me to feel worse. eventually I'll outpace their capabilities and you'll notice my body getting way way more attractive, simply because I've gotten so good at feeling the way I want.
+
+to prove my point, it's probably the case that many of the nosebook guys would get pretty pudgy if they sat around all day like me, and potentially look even worse, but they use artificial techniques to improve their strength and appearance (symbolised by the belt).
+
+---
+
+so finally we come to the little wooden boy. imagine for a moment that carmelita (little brown one) is symbolic of andrea, and they sorta get infatuated with her and her father's inventions which give them abilities like flight. arthur is telling carmelita that he thinks that the tick felt threatened by her, and it jumps over to the tick sad saying something that I completely disagree with (kinda), "you know little wooden boy, the worst sin in the world is disloyalty".
+
+loyalty is sorta in the same vein as @[blahblog](2022-05-18 21:27) where I talk about doing what I feel like doing. if I'm loyal to someone, I'm doing what they expect from me given the our current relationship status (see first note in @[blahblog](2022-05-14 12:24)), which makes disloyalty definitely a *sin* -- but "sin" is just a greater relationship between you and your superior deity -- so again, it's an expectation, and I'm liable to do what I want to do, not what I'm expected to do.
+
+so now imagine for a moment that I also represent the swiss industrial spies. I also fit that symbol as well, because I'm sorta "above the law" in that, if I were to develop a system (like the "party LAN" project), there isn't a whole lot they could do to stop me. for anyone else, they can do all sorts of stuff to dissuade them from developing something that threatens their monopoly, but for me, it's much more difficult. the major problem that most other people have with such a system is they simply don't believe in theirselves enough to do it, and if they do, they've already turned to the dark side.
+
+the idea here is that eventually, my own (woke california blowhard) pontification will cause me to have to give up the little wooden boy..
+
+I've been trying to figure out what the little wooden boy represents, and so following the idea that carmelita is symbolic of andrea, during that time, I adopted the perpetual evolution-of-desire approach to life. I don't want to actually get any manifestations, not for any other reason that I need or want them, but because I want to become the embodiment of that manifestation rather than having the manifestation itself.
+
+so let's say that's the wooden boy, right? that means that I have to burn the evolution-of-desire aspect allowing whatever to manifest so that I can have nosebook back as my sidekick?
+
+see how it just doesn't make sense? I've given up on the party LAN idea and I think it's totally cool if they use that technology to keep me "forever" held away from my connection, because I know that I'll eventually get to feeling so good (even without my connection), that I'll still feel really amazing and have a body to match.
