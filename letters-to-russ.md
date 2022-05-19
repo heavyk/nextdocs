@@ -435,3 +435,34 @@ kenny
 P.S. I just looked at the clock to see how to spell "schrodinger" and it's "13:37" o'clock :~)
 
 P.P.S. check out @[blahblog](2022-05-05 12:37) too. you inspired both of them
+
+### 2022-05-19 12:32 -  conceptual dyslexia
+
+hey russ, you can probably pass this letter on to kyle if you want...
+
+I listened to #031 where you started out with dyslexia. I experience what he said all the time, but I can make it happen at will (that is, to switch back and fourth between the dyslexic version and what I know to be there)
+
+due to reasons which are too lengthy to explain here, both of my eyes are pretty blurry and the centre portion of both of my eyes have a giant blurry blob.
+
+the blurry blob behaves very strangely. for example, when there is high geomagnetic activity, it produces this wavy sort of "aurora" in the centre of my vision. things that are inanimate aren't nearly as blurry, but for example anything that emits UV light is extremely blurry... the moon (which emits/reflects a ton of UV light) is just a giant white blurry mess and my eyes cannot actually focus on it, so I see two or more copies of the moon in each eye, as if they had an "astigmatism".
+
+the other thing that is exceptionally blurry are people's faces... sometimes their body too, but the faces are especially blurry. I also noticed that there is a trend. I catch negative reactions to me talking on the subject, but because I'm not going to send them, I'm just going to talk openly. the trend is that women (most prominantly young girls) have the most vibrant blurriness when they're "excited" or feeling really good about theirselves (in the case of the women). the other one is gay men. they tend to have a pretty big blurriness to their faces which makes them appear to me as having a very youthful or childlike appearance.
+
+because I can't really see what it is in the centre there, my mind will "guess" at what the text is or what the person looks like (if it's the case of a face). for the moon, my mind does not guess what the moon looks like, it just feels eternal confusion as to what it is. it doesn't have a defined appearance. other men have the blurriness about it too, but they're less pronounced, and for me them, my mind interprets the the faceial blurriness as a very sharp and well-defined image (even though visually it's blurry)
+
+a while back you talked about a UFO that someone described as having being more round than the most round object. when I first got astral vision a long time ago, this was the first thing that I noticed about the moon -- is that it appeared much more round than it should. it's hard to describe that, but you'll know what I'm talking about when you see it.
+
+I associate this blurriness with people's auras but mostly it has to do with what I call astral vision. it has four dimensions to it (height, width, breadth, and depth) and you can conjure images inside of that space. it's much clearer and more vibrant than this world normally is, and there are more colors. inside of that extra dimesion, you can conjure images made from your imagination and interact with them as if they were real entites. some call these angels, demons, monsters, etc -- whatever your imagination perceives the vibration that you feel the entitity to be, the entity will appear that way to you. in the centre of my eyes, people look differently to me (how I feel them to look), rather than how they look physically.
+
+the same is for text, but the words combine with my mood, so like kyle said, when looking at text, it's never anything that doesn't make sense. it always makes sense, and it seems like a mix of my mood and what the message of the text is trying to convey -- so it often comes out really funny. I tell them to my brother all the time too. facebook is the funniest because there is a lot of text there that feels differently than what the words say.
+
+---
+
+in that same episode, you talked about having this effect where you can see with your eyes closed. I associate that with astral vision as well, and it's what moody institute was trying to teach. just like lucid dreaming, if you just keep feeling like everything is *normal* (don't get excited because it'll pull you out of it), you'll be able to leave your body and float around the room, fly around the city, whatever. if you want to "prove" to you that you weren't just imagining it, listen to the people downstairs talk and then go ask them if that's what they were just talking about -- and their reaction alone will "prove" it.
+
+I think that's all for now... I had one more thing, but this is good for now. cheers!
+kenny
+
+
+
+
