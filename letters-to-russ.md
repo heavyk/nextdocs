@@ -508,5 +508,41 @@ OK, I've caused enough trouble for one day. you can imagine now why I don't want
 much love,
 kenny
 
+### 2022-05-19 16:17 - 5d and the anti-conspiracy
 
+in my last letter I talked about an anti-conspiracy (btw, for example, I also get the "aurora" in my eyes in higher energy situations, like now for example).
 
+I didn't really explain the anti-conspiracy very well. I only briefly mentioned that in my low resistance dream state, I seem to help them and give them solutions to how they can prevent me from seeing the astral. if I'm helping them, it's not a conspiracy.
+
+I think it's actually desirable to completely skip over the astral. I don't really mind that they're in the astral and that it's a big secret because most (though not all) are using the extra visual capabilities (like a reality simulator in the imagination and other things) to try and control from the top-down the physically focused people of the earth.
+
+so if it's actually desirable to me to entirely skip 4d, that means I'm going straight to 5d. like I said, a 3d human can project an image into the astral and then that image will be seen by those also with astral vision (like the little girls, or any woman past puberty that feels really good about herself). I think women have a much higher affinity to astral vision, and girls have it. I don't really know for certain because this, like the subject of gay seems to be  shrouded in secrecy. I've noticed that any time there is a large conspiracy or coverup, it's related to something related to expanding human consciousness. there is definitely an effort to ensure that women never figure this out, and so they're designed to, once puberty starts, get locked into the world of language and logic (ie. stay away from the "tree of life"), cause if they did that, they would become godlike and very powerful.
+
+oops, derailed. just like it's possible for a 4d entity to project an image down into 3d, it's also possible for a 5d entitiy to project an image down into 4d for astral entities to interact with. these are likely the origin or solomon's "demons", fae, etc. they're only perceivable in places that allow one to begin to pertceive the astral and interact with it (magnetic anomalies, etc.) and so now we get into the 411 stuff and the bermuda triangle. someone knows that stuff is linked to consciousness and because it can't be controlled, it's covered up. I would guess that everyone of those people, boats, and planes that have disappeared had their vision expand very greatly before tuning out of this timeline and into another.
+
+in this sense, I think that bramley is completely right, but I don't really think that it's "aliens". he calls it the UFO and notices that this thing must be extra-dimensional and trying to control and rule humans from the top-down. I believe that marty is totally right where he sees connections between UFOs, cults, spiritual movements, and consciousness to be all connected. they definitely are, and I believe that they've been trying to influence things.
+
+personally, with all of my dealings with them, I don't want to have anything to do with any of that. for me, it appears that I'm just making the jump right over 4d perception to 5d. I know that sounds very strange to say, but I think that for many of the 411 cases and the bermuda triangle cases, some set of conditions (whether it's the atlantian pyramids under the water, berry or boulder fields) -- those conditions enhanced consciousness in a way which caused them to tune out (pretty sure this has to do with vibrating magnetic fields, and not the constant 60Hz kind that keeps most of us tuned to that frequency)
+
+so, for me, it's really not a big deal to just simply pass through/over the dimension that they control and continue on to the next one. even when I'm there, I doubt that I'll even want to try and project down into their world (for some reason this idea is reminding me a lot of "ramtha"), as it doesn't contain anything that I would want to be a part of. I think in that sense, I'm just here to kinda help them to maintain their control over the astral even more.
+
+conditions on earth are becoming more and more conducive to many humans perceiving the astral -- and, in fact, if you think of the astral as being capable of conjuring the image of something you think or feel strongly, in that state of mind, you could conjure anything that is similar to your vibration mixed with the conditions of the environment. everyone would have "dyslexia" in that sense, but it wouldn't just be the wrong words showing up, you'd by conjuring the beings/objects of your desire (fear is negative desire) -- again this explains quite a few of the 411 cases, and also many of the "end times" prophecies.
+
+speaking of "end times" prophecies, you could imagine that somewhere in the halfway point, there a mix of high-minded individuals and also ones filled with fear, and so when the high-minded individuals start to see astral, they conjure the things that they want/desire. that will cause others who are conjuring the things that they don't want/fear to experience even more dissatisfaction and therefore conjure even more things that they fear. it would be pure chaos with everyone conjuring all sorts of unwanted and wanted stuff. it takes a while for those that are conjuring the unwanted stuff to destroy theirselves, so for a while there is a lot of "tribulation" where there is a grand battle between good and evil. good wins on the upswing because it's getting easier to be high-minded and conjure wanted things.
+
+so again, if we consider the solution to so many of these questions to be a massive conspiracy to cover up the astral 4d perception, where you create your own reality very quickly, then that explains why it takes some "temperment" to not create really unwanted things -- and the "end times" are all of the uninitiated, untempered, people manifesting so much unwanted stuff, it's chaos and eventually spirals into a cataclysm.
+
+that cataclysm doesn't destroy everything though and out of it, many new forms emerge and many new "species" which are tempered/compatible with the new solar regime are capable thriving in the new higher energy environment in the new solar regime where we we all perceive the astral.
+
+anyway, the astral is no more good or bad than a hammer is good or bad. it's just another way for humans to create the environment that he wants.
+
+---
+
+for me personally, I don't mind that there is a 3d world strongly influenced by a bunch of astral entites. it's not really that big of a problem because we're all eternal anyway, so maybe I'm a bit sadistic or something, but from my perdspective it's a good thing that I don't perceive the astral. I'll just let them continue to keep me away from it and I'll keep "raising my vibration" cause eventually I'm off to 5d. if you can see yourself as a concept and no longer as your body (physical) or your image (astral), you'll be able to move around and project yourself into any space or time that you want. that seems way cooler to me than having a vivid and realistic imagination.
+
+I *want* them to get better at keeping me/us out of the astral, because it's perfecting me/us so that my/our vibration is so high I/we will completely skip over all of this bullshit and go to straight to the realisation that I will eternally be a manifestation of my own concept of myself (you have to like yourself and feel good for this to be a good thing, else it spells self-destruction).
+
+OK, that really is good enough for now, peace!
+kenny
+
+P.S. mom bought a bread called "rustic white", and I thought of you.
