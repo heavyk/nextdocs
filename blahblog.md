@@ -2849,6 +2849,62 @@ survival of the fittest, bro; try and keep up.
 
 [1]: which is also interesting because I have noticed that weeds don't really like it too much to be "transplanted" or moved. they like to get to where they want to grow by their own form of propagation, and then I noticed that a single seed has (I've seen) up to four different physical manifestations depending on the energy of the environment. it's really weird how they don't like to be moved into different soil by humans, whereas cultivated plants don't seem to mind as much.
 
+### 2022-05-18 21:27 - steering kenny and bending time and space
+
+today when I went over to paul's house I was pulling weeds and noticing that it's kinda hard to get me to do stuff predictably. for two days entirely, I just worked on mom's weeds, even though I felt pressure (kinda mixed with desire) to do their weeds.
+
+the feeling that it had to it is, "how can we influence/steer kenny to do ..." and so because I know that I attract my own reality, I don't mind talking about it.
+
+I sorta do mostly what I feel like doing which is very difficult to work with in a corporate situation where direction comes from the top down, rather than from the ground up or from within. the reason why tuenti was successful for a long time is because there wasn't much steering at first. I just did the things that I felt needed doing (ie. the things I wanted to do because the list of things to do is enormous, kind of like the amount of weeds) and so for a long time the product wasn't in a fully developed state so I had a lot of freedom to pick the task that I wanted to do (and that was another reason why I liked to work while they were out partying, as well).
+
+later however, as the project became more visible, they started to begin to assert theirselves into the direction of things. they may have been right about some of the things, the effort to begin to steer me was ultimately what caused me to leave. I wanted to work on something that I want to work on, rather than be steered by someone.
+
+so, the answer to the question of "how to steer kenny?", is to convince me that whatever it is, is what I want to do. you can present me with a lot of different ideas, but ultimately I like to take my time and "get my energy right" before making any sudden changes. in every case in my life where people have tried to steer me, it's caused a lot of problems for them (and for me too kinda), because as soon as they want to get me going in a direction, then suddenly I don't want to do it anymore. why? because it's now their desire, not mine.
+
+I could be convinced of the idea in my brain (weighing out the pros and cons) and it can appear to be "the right way" to me, but I still don't want to do it. "the right way" isn't always the way that I want to go -- and it's often the case that I want to instead go the wrong way until I can go at it the way *I* want to go at it.
+
+---
+
+the next subject is totally different but feels related (probably someone who knows something about it will understand). I had a lot of reactions to where I was talking about how, if I'm limited to 60Hz (for example), then, to experience more, I need to lengthen the duration of a second.
+
+the second is defined as n ticks of decay from a caesium atom (I believe), and so in order to experience more, I need to lengthen the second, meaning I want the atom to decay less rapidly, so I have more "time" -- I think. it seems right, though I can't say for certain.
+
+so then I was thinking about how the SI units are defined: distance is defined in terms of time -- or, the distance that light will travel in a second of time. and time is linked to the caesium atom and its decay, so if I can cause it to decay less rapidly, then that means that the day has the same duration of seconds, but feels longer. then space is altered too because the metre is defined in terms of time, so that means that the number of metres that light travels in a second remains the same, but because the metre (and second) is slightly longer due to the caesium atom is decaying slower, light actually travels a further distance in the same number of caesium ticks (ie "time").
+
+to further complicate this, science currently believes decay is constant, but it may not be, and its decay rate may actually be a very local effect -- meaning that nearby to me, there will be a sort of "time dialation", where seconds feel longer than they normally do, and light travels a little faster. this time dialation effect probably isn't the same all over the planet though, so how do we *actually* record time?
+
+the decay rate is measured in terms of the second, and the second is defined by number of ticks an atom decays, meaning that decay will appear to remain "constant" because of the units being relative to each other.
+
+---
+
+good intermission. so then later I was trying to figure out how they could convince me of something, and I'm just really not sure what it is that they could convince me of anymore. what I mean is, on the subject of girls, I'm just not that convinced that is something that I actually want. sure, it sounds good -- but like I was telling mom, it's good to have a bunch of people around me that don't feel so good, because they amplify the not-good-feeling stuff, and that kinda allows me a chance to improve the way I perceive things.
+
+so, in a sense, I value the not-good-feeling people much more than the good-feeling ones, at this point. a while back, I decided that if I *were* to go with the girls, I would probably go with the ones that don't feel too good, and so therefore they'd cause me to feel her not-good-feeling stuff (that I resonate with), and when I'm able to be around and sleep with the worst feeling girls, and still feel good, then I've actually really made it.
+
+the problem with that idea is I sorta don't really feel very attracted to people that don't feel too good. I just sorta let them do them. there is an idea of an image, and that image is a sort of external persona that can be presented to people as a stand-in for how the person really thinks about theirself:
+
+> I hate myself so I have to make a presentation that people will like -- and, if they like that persona, then I can like that persona too, and then I have to forever be that persona for other people and I can't ever be myself because myself is "unacceptable"
+
+I sorta see right through those people though, and their antics to create a likeable image for others to see, looks to me like someone trying *wayyy* too hard. I don't mind being around them, but they usually don't like being around me for too long because I'm so observant, and so I eventually notice an inconsistency in their image. another major problem is I actually listen to people, but most of all I try to figure out what they're really saying, because often times their words feel fake or weird to me. their image starts falling apart and from then on it's too difficult to go back.
+
+this happened to me all the time when I was in discos in spain. many times, I was talking to a girl and she would say something and I would try really hard to figure out what she's saying, or think that she's like those movie characters, where everything they say is symbolic and foreshadowing of something else, and really all they wanted me to do is to see the image they have of theirself in their head, so that I can be an excuse for them to like theirselves.
+
+in reality, nobody ever *tries* to say anything symbolic, but I noticed that I started to attract people saying things symbolic and then conversations got really weird and after a while not even I could tell what we were talking about. attraction is everything.
+
+---
+
+so there's this idea that hollywood has where they can steer people with images and symbols -- and to a large extent, it works pretty well for a lot of people. the main problem is that everyone sees those same symbols slightly different. a concept is much more absolute in its appearance than a symbol, and a symbol can be manipulated pretty easily to see it in any way that wants to be seen. a concept feels to me to be relative to the observer, but the observer seems to be relative to the symbol. I think this backwards appearance is how lawyers are able to twist something to make something appear one way or another.
+
+I guess the conclusion here is that I'm not looking for someone that is ... oh I remember, it was in @[newblog](2022-01-11 11:53) where I said, "purity is dead". in that one I mentioned that all pure people feel like their influence, which is usually mr. motor -- so really it takes someone that has a disassociated external image to their internal image (sorta like me. I don't look externally like I should).
+
+you could say that I'm giving a competition to the person that can "trick me" maybe symbolically or whatever, but I don't think that it's actually that way. that's just a funny way of looking at it, because it's all attraction. the person has to meet me where I am and harmonise with me in some sort of way in order to attract (you can't attract what you want by focusing on what you don't want)...
+
+OH, last thing: the idea of symbols is a funny one too because most symbols have lost their "meaning" for me (in the emotional sense). I can look at something and I notice the meaning imbued into the action or the words, but they don't really evoke much of a positive emotional response for me anymore.
+
+I remembered the fourth thing, btw: it's the who/what/when vs why vs how (to accomplish it) vs how (do I want to feel). the "how" is the important one but also the least inspiring one.
+
+
+### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
