@@ -2903,6 +2903,29 @@ OH, last thing: the idea of symbols is a funny one too because most symbols have
 
 I remembered the fourth thing, btw: it's the who/what/when vs why vs how (to accomplish it) vs how (do I want to feel). the "how" is the important one but also the least inspiring one.
 
+### 2022-05-19 20:25 - more thinking
+
+some of the reactions to the letters I wrote to russ today: (@[letters-to-russ](2022-05-19 12:32), @[letters-to-russ](2022-05-19 14:19), @[letters-to-russ](2022-05-19 16:17)) got a number of reactions and the most interesting one is the one that suggested that my reluctance to send the letters is kinda like the ea telling the reed house to abandon worldly possessions and build an ark in preparation for a coming cataclysm. (telling people to abandon privacy and build the "party LAN" project, being sorta similar to the "ark")
+
+that's definitely not my reluctance, but it's a funny concept because I did say that I was just passing through this 3d world (probably on my way back to 5d), so in that sense it's all about getting the right technology into the hands of the right people. it's kinda like the opposite of the ea and noah story, cause I'm doing my best to get the information to the network[^1], not to the noah character.
+
+I wouldn't have said this a few years ago, but the perspective I have now, it seems like this is way too easy. I don't even know why it's so difficult, cause now it appears all so plainly obvious to me. so, from that perspective, maybe what I'm looking for is to try and figure out a way to bump up the network's capability to hold me and us out of the astral so that the next few incarnations I actually have a challenge. I don't really know, but I definitely don't have an agenda, and I give my information freely to anyone who wants to use/implement it. I'm definitely not suggesting anyone do anything. and finally, I don't really see a cataclysm coming anytime soon. 
+
+I believe that one of the reasons why there won't be a cataclysm anytime soon is because the network, probably due to my influence has increased desire and now capacity to keep people who have not taken the oath of secrecy out of the astral realm. this will continue on for quite a while, and so now that nobody (without the oath) is going to find their connection, they now no longer have any reason for any major dissatisfaction for quite a while -- so, no cataclysm.
+
+---
+
+the other reaction was to my comment about shakespere and how he obviously encoded a lot of this information into his works in a cryptic fashion. I believe this was done because they were/are members of the red cross, and so have taken the oath of secrecy. I think it was either randall or alan that said that they can talk about it indirectly and with allegory, but they can never discuss the topic with the uninitiated (unclean masses) directly.
+
+well, supposedly shakespere's tomb has this really cryptic message about someone passing by so fast, and they should stay a while instead. I remember working on that idea a while back and it seemed clear to me that the author of shakespere had to have been one of the "renaissance half-bridge rectifiers" that, like me seems to be continuing to self-sabotage the conditions that would otherwise allow us to establish our connection. I don't know how many of us there are, or if it's just me projecting myself down into space and time wherever I feel like it, but it seems to be the case that the entire goal is to ensure these guys have all the tools that they need to keep the uninitiated *out* of the astral realm.
+
+to me, all of this seems to be pointing in the direction of the creation of a galaxy. I mean, if we're going to have a cataclysm, let's make it the most epic one ever.
+
+like I said, I think that ea had been trying to do everything "the right way" all of his previous incarnations, and "the right way" just doesn't work too well, because it's too easily manipulated by various forms of ideology. so then if what people want is ideology, let's go full power structures with complete control over ideology then.
+
+personally, it looks like people want secrets and to be told what to do. that's totally fine for other people, cause I don't have any ability to desire for other people. they desire what they want, and I desire what I want -- and since I can only desire for myself, it looks to me like this is just another case of the 400y-bloom, but it's more like a 1000y-bloom. my "mission" as I pass through, looks to be to ensure they have their "no uninitiated in the astral realm so we don't have crowds of unacceptable people invading our space" (and so therefore, with full capacity to regulate access to our space, enlil won't get pissed enough to attract a cataclysm) system setup and running fine.
+
+[1]: when I say, "the network", I'm referring to the brotherhood network as defined by bramley (the general concept, not any specific organisation).
 
 ### who/what/when vs why vs how
 ### corrections

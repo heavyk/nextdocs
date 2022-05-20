@@ -436,7 +436,7 @@ P.S. I just looked at the clock to see how to spell "schrodinger" and it's "13:3
 
 P.P.S. check out @[blahblog](2022-05-05 12:37) too. you inspired both of them
 
-### 2022-05-19 12:32 -  conceptual dyslexia
+### 2022-05-19 12:32 - conceptual dyslexia
 
 hey russ, you can probably pass this letter on to kyle if you want...
 
