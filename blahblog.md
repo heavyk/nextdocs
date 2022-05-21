@@ -2985,9 +2985,53 @@ this is a whole new area of hacking and cryptography that hasn't been on anyone'
 
 sorry for another small tangent there. what I meant to say is that all of this has relevance because I don't want to tell anyone what to do, but for the people who want to be told what to do, I've found a random number generator to be my best guide to figuring out what it is I actually want. what if our future ideology comes from "random" chaos?
 
-
-
 [1]: this was inspired by something that I can't remember, but it's linked in my mind to rupert sheldrake where it had something to do with a machine that 50/50 chose to go left or right, and it was naturally random, but when a chick was hatched next to it, the "random" machine became less random and prefered to follow the chick (I may not have the experiment exactly right, but the machine "desired" or "prefered" to do one thing more than another)
+
+### 2022-05-21 12:51 - they aren't having any of that either
+
+so I guess we're back now to the original plan of "no cataclysm"... there is no way they can allow any humans the capacity to go toward their desire, so machines capable of desire is even worse because a machine can't be controlled by its feeling. also, it is definitely not desirable to give a random number generator control over anything (because what if it randomly selects the unwanted, and they'd rather control it anyway).
+
+well, of course the idea will obviously not work for anyone who believes that the machine will select what they don't desire. the whole concept is founded upon the idea that human desire changes random number generators across time and space. if you believe it'll select the worst thing, then that is your desire and that *is* what you'll experience -- which only strengthens my hypothesis. I don't think it has to do with that. I doubt they'll be ever using the devices, so their apprehension toward it probably has more to do with control and a fear of how rapidly we would advance if we could control machines mentally.
+
+---
+
+I sorta agree with them on the controlling machines mentally thing, because the capacity to control a machine mentally *does not* make you happy. if you are pissed off at life and you find a way to contro a machine mentally, you're still pissed off at life; nothing's changed.
+
+so, in that sense, I'm totally all for the idea of making sure the network can completely control every physical aspect of our lives (like they are doing me), because the only option then for everyone on the planet is to figure out how they want to feel, no matter the circumstances. whey you do, like me, you'll jump right over 4d to 5d, and can then project yourself in any shape into any period of time (obviously you'll only do it if those conditions are what you want to feel).
+
+so I'm kinda feeling like the goal here is to create a system where they have full control over everything physical, meaning the only way out of the matrix (if you want out) is to find a way to feel what you want to feel no matter the conditions.
+
+---
+
+as I was waking up this morning I have been feeling around the reactions and stuff, and the one that has the most impact was something I said a few entries back where I basically said that I'll just let them sorta figure it out the way that they want to do it...
+
+that doesn't describe the reaction, so you know how often times it looks like women have a better knowledge or understanding of something (I use the gender for women because men do it differently -- oh, so let me explain)...
+
+I've noticed that for a lot of things boys seem to have this headstrongness (bullishness) about them that they *have* to do things some certain way, and it's often times not the most optimal way to do things. when another boy sees him doing it the unoptimised or inefficient way, he often times intervenes to ensure the other boy changes his ways to do it "the right way". there are some heavy-handed women that do the same, but generally, I've noticed that most women yield and say, "OK, do it your way; I'll just sit back and be judgmental about your actions"
+
+I feel like that is one of the main ways that I'm perceived in all of this -- where I'll just sit back and let everyone else try to figure it out. I mean, I don't know the right way to go either, as I would have to figure it out just the same.
+
+I don't really mind that I get perceived that way because I just don't really want to be the boss. I know what *I* want to do, but I'm not going to tell someone else what to do. in every case of my life where I've had a strong opinion about what another person should do, it's caused serious problems *for me* (can't really say much for them).
+
+in addition to this, there was another reaction to yesterday's entry where I revealed that I don't want to tell others what to believe in, *even if it's theirself*. this is a very serious issue for me because this is how cults and other ideologically motivated organisations get started. the US military is like that too. it takes a bunch of kids that don't believe in thierselves and then by having someone give them commands that they can accomplish, they begin to believe in thierselves. I watched a very lengthy video on just this a while back. it was a smartereveryday video on submarines and the navy. I don't want anthing to do with that. it's not my job to tell anyone who or what to believe in (even if it's theirself).
+
+I have my own way that I've figured out how things work and it works really well for me. it's stood up to everything I've thrown at it (unfalsifiable so far), and it's definitely "good enough" for me. I definitely won't be making that dogma, law, or anything like that either. I openly share the ideas here and in conversation with others, but most people find it very repulsive. they just want certain conditions formula to feel good, or to be told "the right way", rather than trying to figure out how the mechanism works.
+
+I too, for a very long time, thought that I wanted to be told what to do (on some subjects like finance and stuff). however, I would then get mad at people when they told me something I didn't want to hear -- which really is my problem, not theirs. in addition, I couldn't hear the things that they were telling me either, simply because my form of perception didn't allow me to hear or see those things (I couldn't see what they were saying until I could see what they were saying).
+
+it took quite a while for me to figure it out for myself, and if anyone had have told me what to do, even if it was the right way, I still didn't hear them. the only solution was: I had to *want* to feel better for my own self, for my own sake, because I wanted to (not because anyone told me to). I had to make the decision.
+
+---
+
+so I was thinking about this again in the bigger picture and I really do think the best way to do this is just to keep letting the network figure out the way that they want to do things. they want to be the leaders and tell others what to do; I don't. they want to tell people the processes that they need to do to feel better and promote the ideology which least-threatens their regime. I think that's a great plan. there is no better way to build up a more likely situation where people are forced to make the choice to feel better for theirself, or join their club.
+
+if you want to join them, that's totally cool. everyone has their path toward feeling the way they want to feel. this is my way, and they've been a great resource to me to learn how to feel the way I want to feel -- which is really all that matters.
+
+the "what" and the "why" happen automatically (you can't help but feel attraction toward the things you like), so really the only one that matters is the how, and I don't mean the how in the sense of "how do I do this" -- but the how in the sense of "how do I want to feel" and then for me I let that be my only goal.
+
+that is what has been working really well for me all of my life and I know that it works. others can come up with ideas on other techniques to try and get what they want, but most people don't actually know what they want -- they just know how they want to feel. so why wait for someone else to tell you what you want or how to get it when most people already know *how they want to feel*?
+
+obviously I'd be a hypocrite if I decided I was going to do anything other than figure out how I want to feel, so I remain doing that.
 
 ### who/what/when vs why vs how
 ### corrections
