@@ -2927,6 +2927,68 @@ personally, it looks like people want secrets and to be told what to do. that's 
 
 [1]: when I say, "the network", I'm referring to the brotherhood network as defined by bramley (the general concept, not any specific organisation).
 
+### 2022-05-20 23:31 - rethinking the thing
+
+it's hard to describe the many different reactions that I felt since yesterday's entry. they ranged from, "we have to get him working on the project" (to keep me busy), to "let's just do the the project ourselves" (referring to the party LAN project).
+
+that doesn't really describe the feeling because there were also a lot of considerations as well, like how to get me to do this or that, what to do with the girls, etc. it was a pretty big jumbled mess.
+
+the most interesting thing that happened to me is that I had this feeling like, "oh no, they're going to do my project, and I won't get to be the ... I dunno how to say well.. perhaps "leader of", director, motivator... something like that, and it had the feeling too like, if I don't steer the project, they'll do it wrong or not get all of the capabilities that are possible out of it -- like it'd be crippled to some degree.
+
+it was a weird feeling because I hadn't felt that for many many years now. I think the last time I felt it, I was working at tuenti, which is when I finally gave up trying to get people to things my way (which I think is the best way, of course). since then, I've just had all my ideas as free and people can do whatever they want with them.
+
+I'll probably have my (unfounded) opinions on what I think is better or worse, but ultimately I know that the implementer would always have a better idea of the situation that they're in than I could.
+
+it's like I'm trying to figure out how to do something new task I don't yet believe is possible like highlining or something and an expert comes up to me and says, "duh dude, that's easy" -- well, they're not the one implementing the approach in my body, but most importantly with my perception. of course, in their perception, it appears easy, but for me it doesn't. the opposite could also be said where I watch them and say, that looks hard (from my perspective), but from theirs it totally doesn't.
+
+I just don't want to tell people any more what they can or can't do; that's just not me. you see, I originally left tuenti in the first place because I enjoyed working on the project -- as in, I enjoyed programming and I wanted to work on ways to improve my programming output by my own mental capabilities rather than tell other people to produce what I wanted. I want to produce the things that I want to make myself, my own way. that, along with the accountability/responsibility to give the boss a verbal handjob every f-ing meeting was the main reason that I didn't want to have anything to do with being a boss.
+
+---
+
+in the light of the previous entry you have to realise that I just don't want to be involved in telling *anyone* what they can or cannot do. I don't want to tell them what to do, either. there's a distinction. one is telling them the who/what/where and the other is telling them what's possible. it's kind of an unobvious thing, but when someone tells a person (like a child) what they can or cannot do, the child does not understand that you mean, "not recommended" or "not a good idea". they see this as a possibility door being closed.
+
+for example, if a kid asks me if he can have a ... for christmas, and I say, "no, you can't" -- that's a lot different than saying, "if you have enough money to buy it, you can have it". my dad usually told me the second one, as in, "I don't have the money or want to buy it, but you can"
+
+the same thing applies here too. if I tell someone they *can*, should or want to do something, but they don't actually believe it, I'm sorta causing problems. I'm like the expert highliner looking at the noob saying, "dude, it's like totally easy, duh".
+
+the other thing is that telling people what to do fits right into the whole difficulty of ideology, which I just don't like very much. this conflicts very strongly with my own knowledge that, for example OSX is a thousand times better product than KDE, gnome, or anything else open source has come up with. you need a cohesive and uniform structure to a project that only a strongly opinioned leader can really give as a reflection of her/himself -- and, as the "principality and power" over the project, the product will conform to the image of the leader as well, strongly influencing the project's attraction will be similar to the leaders' attraction, too (this is the grail quest in corporate form, just king arthur is the CEO/CTO/COO/etc -- when the king is good, the kingdom is doing well).
+
+I understand this pretty well which is why I want to do things my way, but not many people want to do things my way. I could try to convince everyone to go my way -- or, I could just go my own way. it seems far easier to me to figure out a way, like solomon did with his demons to construct my own workforce as a reflection of myself, rather than try and conform others to my image: I'll leave that to "God".
+
+---
+
+in response to open source and an opinionated leader, obviously a mix of both is probably better. I think that google has proven this with good examples such as chromium and the like. the difficulty with open source software is that there are always so many good ideas and so many ways to go, but which ones are the way that the project *wants to go*?
+
+I've grappled with this question for a while because a project is a bit like an organism. I think of it like a concept, in that everyone interacting with the concept changes the concept ever so slightly and the concept also alters everyone that interacts with the concept too. I used to have this idea that we could hook these "random number generators" up to the the planet as a sort of feedback system, so that when the planet wanted more rain, it could give the signal through a set of signals through the random number generators to adjust processes on the planet, like add rain here or whatever. it's the same system as the "meaningful-chaos" project but the planet could influence the number generator to manifest its desire faster. just like I wanted to use this system as a feedback system for my own brain, this would be the planet's feedback system.
+
+well, that's not the only thing it could be used for. imagine that a project like a website could have one of the meaningful-chaos machines to kind of steer the project, and the project itself could begin to manifest its own desires into a form which we (the programmers) would produce for it -- but since it's our own project, that desire is our own for the project -- just we didn't have an effective way to tune into that collective desire for the project because we were blinded by our own whatever.
+
+the concept can be extended to anything really, and I'd say that to a large extent it does work pretty well. whenever I've flipped a coin regarding a desire that could extend beyond my own, that desire did seem to affect the "randomness" of the coin. 
+
+yes, it does appear that nosebook is capable of influencing our desires, as that capability to influence desire is the reason why this project wasn't explored further. so, nosebook could influence us to influence those machines, but I've noticed that they tried to influence it to go one way, but it turned out to go the other way, probably because they can only influence me to do the things that I resonate with.
+
+anyway, I've long wanted to make this project a reality. I've been working on it for years. I can't actually remember when I started it, but it may have been before I even went to berlin -- so perhaps more than 11-12y now.
+
+in my own interactions with randomness, I've discovered a lot about my own attraction and my desire too -- because I can feel a lot better if the coin represented my desire or was opposite to it. noticing the desire in the forwards and backwards apparition is a very interesting thing. also, there was this weird feeling like, "do I *have* to do what the random thing told me to do?" it's an interesting thing that I want to share with others.
+
+additionally, you know the last picture that I drew where it said, "this is a machine capable of desire"? -- well, I was referring to this project. I figured that after I got humans affecting random, human organisations/projects affecting random, the planet affecting random -- well, the next obvious step is to see what happens when machines start to affect random so as to actuate their desire[^1].
+
+---
+
+it may sound like I've totally launched off into a complete tangent, but it's relevant. remember when I said yesterday that I noticed that people wanted to hold secrets and to be told what to do? well, a random number generator can do both of these. it's theoretically possible to, encrypt something in such a way where *nobody* has the key (ie, it's a random key of arbitrary length), and if human desire is activating random number geenerators, then future hackers will use the same technique to "crack" keys.. they'll randomly find the right key with the same way that one attracts the reality that one wants.
+
+so if you encode something with a completely random key, the most likely person to "discover" its key is you, so you could encrypt whatever you want into vaults where nobody has ever known the key except for the computer that originally encrypted it pulling the random out of wherever.
+
+this is a whole new area of hacking and cryptography that hasn't been on anyone's radar's at all, because nobody has ever thought that you can crack something with your mind, just by focusing on it and desiring something.
+
+---
+
+sorry for another small tangent there. what I meant to say is that all of this has relevance because I don't want to tell anyone what to do, but for the people who want to be told what to do, I've found a random number generator to be my best guide to figuring out what it is I actually want. what if our future ideology comes from "random" chaos?
+
+
+
+[1]: this was inspired by something that I can't remember, but it's linked in my mind to rupert sheldrake where it had something to do with a machine that 50/50 chose to go left or right, and it was naturally random, but when a chick was hatched next to it, the "random" machine became less random and prefered to follow the chick (I may not have the experiment exactly right, but the machine "desired" or "prefered" to do one thing more than another)
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
