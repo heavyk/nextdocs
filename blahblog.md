@@ -3033,6 +3033,50 @@ that is what has been working really well for me all of my life and I know that 
 
 obviously I'd be a hypocrite if I decided I was going to do anything other than figure out how I want to feel, so I remain doing that.
 
+### 2022-05-21 16:54 - the way you think it's going to go vs random
+
+there are two basic forms of controlling something with one's mind: there is symbol (language, operations, processes) which define a method of transmission of a predicted outcome. the better the symbols are communicated, the more predictable the output. a good way to to think of this is a radio receiver or a musical instrument. you input symbols (notes which are just frequencies or minute actions like plucking, blowing or pressing) which all mean something, and then are composed together to produce an output. it is expected that if you play the same notes on the same machine, you will hear the same output. random occurs in only inaudible variations that come from the amplifier, electric parts, strings, or whatever environmental electrical conditions.
+
+you would hope with those machines that the effects of random are to be attenuated as much as possible so as to not get an predictable output.
+
+I wanted to create a type of this machine that would read my thoughts and then be able to convert those thoughts into symbols which could then be used to control and operate my computer. we tried various things of trying to read the EEG (or whatever) electrical signal that can be measured on the scalp as a result of brain activity, but I found this to be mostly unuseful because I couldn't figure out how to turn those waves into symbols very easily. I needed a way for the machine to "learn" and begin to associate certain waves with certain symbols, and that seemed very very difficult to me.
+
+before I went to berlin I thought about the opposite of these machines after reading about these "quantum random number generators" -- which essentially had a prism inside of it and the photons emitted would either go to the left or the right based on a 50/50 chance. the paper cited said that a person can influence those photons to go more to the right or left (more ones or more zeros). I purchased one for I think 1000EUR and the first problem was it only had crappy windows drivers. it took me a few years before I even figured out how to negotiate and decode the USB signal to get my random signal. I also noticed that by then it wasn't at all 50/50, but more like 60/40 and in some cases closer to 70/30. I didn't really know what is causing the system to get more and more uncalibrated, but I did notice that each year it got worse, and some environments[^1] it seemed worse, too.
+
+so I don't have any really good data, only just a bunch of things that I've sorta gleaned from the experience.
+
+---
+
+what I've noticed over the years is that random seems to always go in the direction of desire -- and this includes (though I may regret saying this) PRNGs as well, as it seems random itself is an interface into consciousness.
+
+our science tells us that there is certain probability for some event to occur at random, yet it seems that despite all of the impossible odds associated with these spectacular events, larger and more complex structures seem to continue to appear in our universe and around us -- seemingly "at random".
+
+I've developed this idea over the years that "random" is nothing other than the opposite of symbol. when I say, symbol, I mean "the way you think it's going to go" and random is the opposite of that. you see, if physical reality is predictable because it has these laws and things which, if all the variables involved in the equation can be known, one can predict the outcome. usually, there are so many variables with an impossiblity to know each one, a statistical probability approach is taken. however, in the ideal world of infinite knowledge, everything would be predictable. so our desire for order propels our capacity to better understand and therefore have better knowledge, *to be able to predict* the outcome.
+
+well, just like the conceptual universe is the opposite to the physical one (where perfect knowledge exists), so too the opposite to the world of symbol and ordered operations is the world of desire. it's the opposite. it's the way you don't think it's going to go. the world of random, surprise and delight -- or catastrophe and chaos (depending on what you're attracting).
+
+so, it's my opinion that *all random tends in the direction of desire*. imagine that there are an infinite number of possible random things that could produce just the right conditions for whatever to happen, and it does. how is that possible? well, we say it's "coincidence". to that, I'd like to refer you to snake-bros #034 the last segment (I think) where russ reads from "pursuing the unexplained" by ivan t. sanderson, where before approaching the subject of rain making or cloud busting, he delves into the force or mechanism to explain "coincidence". kyle finishes up that segment by talking about nucleation, and how it takes one atom (at random) to change its state spontaneously, and then from that one atom, where nobody can ever predict where it will be, that sets off a chain reaction which forms ice or busts clouds[^2].
+
+you see, if entropy were actually just random chaos and disorder, why are we here? it seems to me that even the largest of catastrophes in the grand scheme of things, *still tend toward wanted*.
+
+---
+
+I've wanted harness random all of my life because it appears that my entire life (in the midst of it) seems to be tons of "random" events, but over time I've noticed that they do have a purpose.
+
+btw, it was impossible for me *not* to eventually notice nosebook's effects on my life because I kept noticing less and less random -- more and more order until it became pretty much predictable and fully under the control of someone or something (I believe it's "the network"[^3]). the entire time it has felt as if every effort has been taken to remove all elements of surprise and delight (random) from my life. only predictable "meh" level events are allowed to occur.
+
+they seem to have temporal capabilities to forsee these random (to me) events before they occur. you can probably begin to see how, if it takes a "random" set of conditions to come together just right for something to happen, and they're able to sorta interrupt those random events, stopping the chain reaction before it has time to get going, more and more random events seem to be accumulating, and eventually the "random" will build up to events which will extend beyond their capacity to forsee for it to eventually happen.
+
+it's very difficult to explain this picture, but imagine that random occurs at a very high frequency, first at the subatomic level, then in the form of heat and light on the atomic level, then molecular (like DNA changes or spontaneous events), then further and further down into animals, people, etc where these "random" events affect their desire, actions, and emotions, etc. -- then involving many of these elements (people, animals, molecules, etc) combined over larger and larger periods of time until the "random" effects are impossible to prevent from happening altogether because it would require such a magnificent expenditure of resources to accomplish.
+
+it's just really cool to me to think that the opposite of order and predictability is desire.
+
+[1]: different places on the planet, but probably solar conditions would influence it too
+
+[2]: this just reminded me of another experiment: freeze a smoothe bottle of water like they suggested, but instead of flicking it, apply the "cloud busting" technique to it and see if you can cause the random nucleation of the ice with your mind. once you can do that, now try imaginining a picture in the ice, like the negative of the cloud in the cloud busting technique and see ice taking that shape.
+
+[3]: again, I have to stress that I do not believe that the entire brotherhood network is corrupted and trying to control anyone that could upset their charade, but it does seem that even the ones that are not theirselves a part of the corruption, they do seem to be "steered" by them just the same.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
