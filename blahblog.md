@@ -3077,6 +3077,47 @@ it's just really cool to me to think that the opposite of order and predictabili
 
 [3]: again, I have to stress that I do not believe that the entire brotherhood network is corrupted and trying to control anyone that could upset their charade, but it does seem that even the ones that are not theirselves a part of the corruption, they do seem to be "steered" by them just the same.
 
+### 2022-05-22 13:23 - control
+
+this morning I was talking with jaron about the idea of "people trying to control me" -- and I told him that I've noticed in my own life, when I thought people were trying to control me or I was trying to control other people, that was evidence that my life feels out of control to me.
+
+I've found that people want to control things (and who feel like their life is being controlled) tend to feel like their life is out of control, right. however, no amount of preventing the other person from controlling you or getting someone else under control will ever produce a feeling that things are under control. that's something that's accomplished because of you and your relationship to your environment. I found that the better I understand my environment, the more in control I feel.
+
+control is also prediction -- so, if you can predict something, then you can prepare for it. I just started reading [the lost book of enki](sitchin/lost-book-of-enki.md) and I noticed that they place heavy emphasis on it. there is this thing called the book of fates/destinies, and in it, each planet's orbital period and such are recorded. these are the things that can be predicted. however, the book says that they are also the things that can be controlled. apparently, the great pyramid is capable of altering the orbit of the planets, and so these things are the controllable things, however something like a prophecy or something is more like a "fate" in that it can come out differently than predicted.
+
+this fits right in with my previous discussion on random and symbol, so I'll likely have much more to say on that.
+
+---
+
+anyway, the reaction was that if I'm suggesting that only people who feel like their lives are out of control are the ones that want to control things, I'm implying that basically all aspects of society are run by people who think their lives are out of control. yes, I am saying that. it's worse than that because they become the "principality and power" and so therefore become the dominant attracting force. most of them are attracting more and more physical evidence of things being out of control and are trying to use physical methods (financies, securities, miniltaries, etc) to try and maintain that control.
+
+I've done a lot of paying attentien to power structures and I can be more than 95% confident in my assertion that most all of the power structures are their own greatest enemy. they're attracting their own out of control state by putting greater and greater effort into keeping things under control. the more they try to control, the stronger they're attracting the manifestation of the thing they're trying to prevent.
+
+and so this gives even more validity to the concept behind the grail quest, where if the king is doing well, the kingdom is doing well. or, said another way: if the king feels like things are under control, they're under control. however, if the king feels like things are starting to lose control, they quickly descend into a manifestation which will remove the king, for he's the origin of the discontrol.
+
+what this creates is a constant turnover of power structures that want to control, because things want to return to balance, and so any source of imbalance will attract its own balance (this is the law of karma or compensation). it's funny because the annunaki power structures were designed to fail from the very beginning.
+
+---
+
+the reaction following that one is difficult to translate (cause there's so much conjusion and conflicting ideas around it), so I'm going to do my best. in the previous entries, I've been talking about how it's my goal to ensure that they have all of the technology they feel they need to be able to get everyone under control and to be able to control everyone.
+
+I think it was obvious when I wrote that, that I don't actually believe they can really control anyone, and it may have been obvious that they'll actually be successful. I assured everyone this is the case when I said, "if we're gonna have a cataclysm, let's make it the most epic one ever" -- because I know that they can try to keep everyone under control for longer and longer -- and, even if they have all of the head-starts and the fastest capability to turn their thoughts into commands (ubermicro), they'll still be attracting more and more discontrol, until finally nature wants to remove the source of discontrol and return to balance (ie cataclysm).
+
+I'm fully aware that no matter how hard they try to get everything under control, they'll never get it under control, and the feeling of discontrol is only a manifestation of their internal conflict. so, why not let them try to get everything under control? it's impossible for them to actually control anyone. a person can only be controlled if they feel like they too are out of control.
+
+a few years ago I felt very out of control and it felt to me like I was being controllled by someone that wanted to try and take advantage of me. I was very anti-control and wanted to try and get rid of them, but now looking back that old me didn't know what I know now. I don't feel out of control now so I don't feel like anyone is controlling me either. they simply can't control me.
+
+what they can do, is decrease the amount of random in my life, and so by decreasing the amount of random, they make things more ordered and controllable. however, that *still* isn't control. they can't control how I really feel about something and/or how I perceive it, so they can't really control what I attract. they can requisite "random" coincidences that would cause a manifestation of wanted, but if my attraction stays on wanted, the alignment of those "coincidences" will gain longer and longer periods of time[^1], but they will eventually manifest. they can't impose discontrol on to somebody who feels control forever. nature doesn't feel out of control, and neither do I.
+
+---
+
+interesting final reaction there, because I used the example of tuenti and zaryn. I didn't feel like things were out of control, so eventually one of us would have to win the vibrational argument. the project would either have to go in the direction of me, and zaryn would have to conform or to go, or it would go the way of zaryn and I would have to conform or to go. I usually choose to go, because it's impossible to fight (something that feels out of control) for control.
+
+it's all attraction and eventually the creation that I want to make will manifest -- probably not for a while though as these guys seem they have a lot they need to prove. I don't mind. my goal is to try and let them prove theirselves. I don't have anything that I need to prove. I'll let the ones that want to control do all of the controlling.
+
+
+[1]: I think probably because I'm a person of extremes, I'd say that I'm looking to see how to get them to try and prevent that manifestation, not just for like a few years, but for way longer than that. 1000y-bloom
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
