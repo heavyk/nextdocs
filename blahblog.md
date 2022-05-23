@@ -3111,7 +3111,7 @@ what they can do, is decrease the amount of random in my life, and so by decreas
 
 ---
 
-interesting final reaction there, because I used the example of tuenti and zaryn. I didn't feel like things were out of control, so eventually one of us would have to win the vibrational argument. the project would either have to go in the direction of me, and zaryn would have to conform or to go, or it would go the way of zaryn and I would have to conform or to go. I usually choose to go, because it's impossible to fight (something that feels out of control) for control.
+interesting final reaction there, because I used the example of tuenti and zaryn. I didn't feel like things were out of control, so eventually one of us would have to win the vibrational argument. the project would either have to go in the direction of me, and zaryn would have to conform or leave, or it would go the way of zaryn and I would have to conform or leave. I usually choose to go, because it's impossible to fight (something that feels out of control) for control.
 
 it's all attraction and eventually the creation that I want to make will manifest -- probably not for a while though as these guys seem they have a lot they need to prove. I don't mind. my goal is to try and let them prove theirselves. I don't have anything that I need to prove. I'll let the ones that want to control do all of the controlling.
 
