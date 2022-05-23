@@ -3115,8 +3115,21 @@ interesting final reaction there, because I used the example of tuenti and zaryn
 
 it's all attraction and eventually the creation that I want to make will manifest -- probably not for a while though as these guys seem they have a lot they need to prove. I don't mind. my goal is to try and let them prove theirselves. I don't have anything that I need to prove. I'll let the ones that want to control do all of the controlling.
 
-
 [1]: I think probably because I'm a person of extremes, I'd say that I'm looking to see how to get them to try and prevent that manifestation, not just for like a few years, but for way longer than that. 1000y-bloom
+
+### 2022-05-23 16:40 - the gliessburg cycle and uranus
+
+in snake-bros #034 russ and kyle were talking about how two cvylendar magnets that are parallel will stay side-by-side, even if N and N are the same -- so that if you point the poles at each other, they'll repel, but side-by-side, they're fine.
+
+the sun changes it's polarity every 11y (or so). I think this is aligned to jupiter's orbit, and the reason why it takes another 11y to get back to the same polarity is because they're a spinor -- two rotating things in relationship with each other. if they weren't rotating, it'd just be 360 instead of 720.
+
+anyway, there may be variations to how the solar wind affects us when the sun's north pole is the same as ours (N-N) vs when it's opposite (N-S). I'm not aware of that data though.
+
+however, it occurred to me that the "gliessburg cycle" can possibly be explained with uranus' orbit. when uranus' south pole is facing the sun and the sun, it probably has a stronger effect than when the north pole is facing the sun (or viceversa). the reason why it'll drop off from being very high to very low between cycles is because now uranus is repelling intead of attracting because the sun has changed polarity.
+
+the sunspots have a leading polarity magnetism and a trailing polarity magnetism. uranus is rotating toward either the leading or trailing (can't visualise it in my head), and when those are the opposite polarity, it'll experience more attraction, while the same polarity will have the opposite effect on the sunspot (shrinking it rather than growing it).
+
+I think there's something to it.
 
 ### who/what/when vs why vs how
 ### corrections
