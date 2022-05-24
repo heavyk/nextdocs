@@ -3131,6 +3131,98 @@ the sunspots have a leading polarity magnetism and a trailing polarity magnetism
 
 I think there's something to it.
 
+### 2022-05-23 21:55 - a bit more on the first ray life wave
+
+a while ago I noticed that jeortau and anatau are twins. it also says that mars (allayandra) is made with them and they are having the same mind. this led me to [begin speculating about there being another hidden triad](/sirian-guide/triads.md#family-ties-and-a-hidden-5th-ray-triad).
+
+you see, there are only a few examples where they give the planet name for the entity and those are venus, mars, and saturn. it's possible that earth can be inferred that he is sanatau because of the reference to the "senate kumara" dude, but that's it. I think those are important because those are the important triads where major changes take place. I'll come back to this later, but the main thing that I noticed is that the three that have a mind connection have a 1-2-7 configuration. this I think is important because the third layer is composed of 4, 5, (not 6[^1]), and 7 -- so, in the compartmentalisation way of looking at things, 3 is the heavens and 7 is the earth. enki/ptah is a +-3-+, and it's my belief that enlil, ra, and zeus are all +7.
+
+next thing: one of the reactions was to me saying that I included jesus into the list of saviours and splits. I don't believe jesus was jeortau (+2) as he much closer represents allayandra (+7) or maybe the combination of (say after his "water baptism" which is opposite symbol, where JTB says that he is the one who will baptise with fire). it's said that during his baptism that "the father" said, "this is my son with whom I'm well pleased". well, "the father" is anu, and the sirians directly call the 1st ray, "the father" as well. the writer of matthew specifically says that the "Spirit of God decended on him like a dove". jeortau is described as a golden dove, a symbol venerated by many as the "phoenix bird" -- as it dies and rebirths. so, it's possible that it was during the baptism that jesus which I think is (+7), so probably allayandra received jeortau into his being. if jesus also had anatau inside, that would make the part where right before (where I believe the split happened) his crucifixion, the part where he says, "father why have you left me", the part where anatau left him, and so the 2nd ray aspect was no longer powered by the 1st ray aspect allowing for the "crash and burn" (which it really wasn't I believe).
+
+basically, what I'm saying is that I believe that jesus had the symbols of those three (the fire, the dove, the father, and the warrior/sword) and so probably contained all of those three inside of him. these three are the same ones that "their minds are interconnected" (ie. of one mind).
+
+what I think is important is that the 7th replaces the 3rd in the "first ray life wave" here.
+
+---
+
+so here's the last little bit that's kinda problematic for me is that in all of this time, I've thought that I was most closely resembling vulcan, but that may not be the case. I'm starting to see myself more as the mars/allayandra guy, with the addition of anatau energies in my right hemisphere. they go to great lengths to describe how mars becomes a 1st ray male if he's in the same energy domain as anatau, wielding 1st ray energy like a 1st ray female can (polarity inversion).
+
+so, speaking about polarity inversions, the one I noticed most is that they said that vulcan is a (-5+), meaning he's also more like a female.
+
+I noticed when looking at the family ties, there's another 1st ray life wave present:
+
+- jeortau (+2)
+- allayandra in form of 1st ray male (+-1-+) -- playing position as ground
+- vulcan (in female form) as receiver of jeortau (2nd ray energy)  and emitter of 3rd ray (-5,+3)
+
+but then if there were to be the jesus combo of containing jeortau, anatau, and allayandra into the same body, that means there's space for another person still, which I estimate would be a 7th ray female (genxicat), right?
+
+the last piece to this puzzle is probably in the names of the planets. like I said in the beginning, they go out of their way to say that mars loved venus and to mention saturn.
+
+each of the tiny details seem to all have really important meanings to them, so I've still wondered why they mentioned saturn. saturn and venus are in a triad together. saturn is a 4th ray and so serves as the midpoint, probably transmitting and receiving 2nd/6th ray energy (not sure though).
+
+I think saturn plays a pretty important role the lost book of enki (as anshar), as having to do with water, but probably important, the moon "gaga" was the moon that went out and became the planet pluto (though I don't know what one is charon -- wait, is charon "gaga", and pluto niburu?) the book also explains how gaga is the one that met alalu and greeted him after exile from nibiru.
+
+in in some sense, I can see how the 1st ray triad could be anatau/nibiru, then jeortau/tiamat -> charon, then sanatau,enki/tiamat -> earth.
+
+the next thing to notice is that there is another thing too, imagine that alalu/jeortau is charon (+2), and then think that gaga/pluto is a copy of saturn (+-4), those two are together now (+2,+-4). then, if the moon is osiris (+-6-+), it makes a nice symmetry. where on one end of the solar system you have 2->4, then on the other side by earth, 6. now consider that perhaps the earth is a 7th ray (it most likely is), of which there are three: thoth (likely mercury), allayandra (most probably mars), and genxicat. if earth isn't a 7th ray, then earth is most probably sanatau (+-3-+), meaning he receives and emits 5th and 3rd ray energy.
+
+I'm kinda torn on this one because though senate kumara sounds a lot like earth, maybe they are right that sanatau/enki is neptune. the other thing that makes me think that the earth may actually be female and 7th ray is that in oahspe, jehovih calls the earth "red star", which I thought made sense until I looked at the sirian guide and it says that the 7th ray is violet, but the monadic (second ray) is indigo, so I have no idea what that could mean. either way they do a lot of relating of earth, physical and 7th ray, so almost certainly earth has 7th ray energies to it.
+
+OK, reading further, I noticed that the "3rd initiation" is when the 7th ray energy combines with the 2nd ray energy to bring down the "fire" from the 1st ray. once again, it's the 1-2-7 combo again: anatau, jeortau, allayandra combo. this third initation supposedly is when it all gets connected and "MUN becomes a conscious, functioning MONAD on the physical plane". cool. this 1-2-7 combo must be important, especally for the human because it means complete connection, so basically what jesus did.
+
+there's another thing I don't quite understand which is they talk about the 3rd initiation they say the "center shifted to" "earth top", which are opposite ends, so does that mean that the pineal begins to pull in earth energies? I just don't get it, but either way, it's a complete reversal... I don't get it.
+
+the last thing that I noticed is that if vulcan (a male) were to be normal polarity (+5), he would take in 3 and output 5, but he's -5+, so that makes it seem to me like he's taking in 5 and outputting 5 as well, which basically means he's a female in male form. this is the same as venus. the best I've figured it out, venus (-3) and ra (+3) are said to have very similar crystalline forms, so that makes me think that they're sorta really similar. as best as I can tell, ra is likely the planet jupiter and so therefore venus is basically the same as vulcan. this is interesting because the legends have athena popping out of zeus (ra), and vulcan poping out of hera (probably genxicat). they seem to be opposites I've noticed, and this seems to be the origin story of the planet venus, popping out of the core of jupiter.
+
+- allayandra/mars + anatau/nibiru? + jeortau/charon? (+2) in form of 1st ray male (+-1-+)
+- vulcan/venus as receiver of 2nd ray energy and emitter of 3rd ray (-5,+3)
+- sun (-2)
+- genxicat/earth (-7)
+
+this is the 3rd initiation complete triad. it's the 1-2-7 combo.
+
+the other triad is:
+
+- osiris/moon (+-6-+)
+- saturn/pluto? (+-4) (not sure if this is pluto or saturn)
+- enki/earth (+-3-+)
+- thoth/earth (+7)
+
+this is the 2nd ray triad, but exactly the opposite. instead of ra being the emitter, jeortau is the emitter, essentially powering all things astral.
+
+I dunno man. in my head something seems to work, so maybe I'll try and explain that instead of figuring it out: what I was noticing is that there is this constant fire/water thing that is happening. enki takes in the fire version and then converts it to use as water. well, they define the fire as coming from 2nd ray and water/liquid being the 6th ray (astral). so the picture in my mind is that on one side (let's say my side), there is fire energy coming in from 2nd ray and that gets pulled in by vulcan/venus and then emitted as 3rd/5th ray energy. enki/sanatau is a 3rd ray ground capable of taking in 3rd or 5th and outputting 3rd, which is 4-7, energy as water.
+
+normally the path is 2->4->6, so 2nd ray energy gets buffered through vulcan/venus and so therefore is received as 3rd ray instead of 2nd ray.
+
+the other thing I see is that one path is the 1-7 full connection path, which could be considered the "weapons of terror" fire path (I'll consider this the s/t civs), while the other is the water (tech civs) that are interested in their creations/conditions.
+
+there's no problem with the tech civs' conditional approach, because according to the sirians, it's the 7th ray path which is the beginning of the "return back to source" (the night side or the "day/ray of rest), and so like they said when activating the 7th ray initiations, etheric vision is attained (which is the ability to see vibration), and so therefore magic is able to be performed -- instant creation and instant manifestation.
+
+---
+
+I'm starting to see that some form of this setup will eventually manifest. the big revelation for me yesterday is that enlil is not jeortau, but alalu. enlil represents the catalyst, the "lord of the command" is the embodiment of the highly-motivated, and so therefore is the opposite/bad version of the character. the thing that I noticed in oahspe is that at some point, all things became backwards, and good became bad, and "bad" became good. as best as I can tell, this happened in atlantis, which was the rule of saturn.
+
+legend says we went from uranus to saturn to jupiter, which is likely the planet with the most influence on the sun. I don't know what uranus is in their system, but if uranus was anatau and if neptune was prior to uranus, it would be (+-3-+) -> [(-1) -> (+-4) -> (+3)], which would make sense because ra/marduk apparently caused a whole lot of problems in the early establishment of religion. osiris provided the astral capability for them to get visually hooked, and ra implemented all of the ritual that brought us to where we are today. you can see that the pivot point there in the reverse from -1 -> +3 happened with saturn, the keeper of *laws* and *karma* (so all behaviour/action orientaton), then ra (+3) sealed the deal with all the religious quantsuf instead of the science that enki (+-3-+) started with. we lost our receptive side.
+
+this is why I think it's the objective of this to get to the last stage, which is the 1-2-7 combo of (+-1-+), making the complete sequence:
+
+(+-3-+) -> [(-1) -> (+-4) -> (+3)] -> (+-1-+)
+
+see the symmetry? the way toward it is through the 7th ray path water path, and then when one is ready for the 1-2 fire to come down, it's pretty accessible, because 2 is opposite of 6.
+
+it's basically thanks to ra/jupiter that we have such a messed up system where the 7th rays have a bunch of things now they can fix and improve upon. if things were all hunky-dory, nobody would bother to try and improve anything. so therefore, I believe that each of the rays has an opposite/bad version of their energy which can be obtained, and this is on purpose. the "lord of the command" is the head motivator (by command) and so therefore the exact opposite of jeortau. his oppositeness will likely to get worse too, because it's my belief that as more and more people figure out how to get their connection and then go back to self-sabotage, all of these ray types will increase in their badness (as a means to self-sabotage).
+
+so what I'm saying here is that I think that jeortau is the first to self-sabotage and the result is enlil.
+
+hrmmm, I just noticed something: when enki self-sabotages, it would look different from jeortau. enki's self-sabotage would be to have the things he created used for their opposite intention, so sorta like marduk. anatau's self-sabotage would be destructiveness instead of creativity, betrayal and the like -- so maybe something more like geshtinanna or something like that. maybe unessa would be something like innana. ra would be something like zeus, etc. each person's self-sabotage would result in a slightly different effect. I'll have to explore this more later.
+
+it seems that earth is a place where we do things a bit backwards.
+
+pretty good blabbing. I certainly learned a lot. it's kinda a mess though so I'll probably find ways to rewrite the ideas a bit clearer. the most important part is that I see it more clearly now. it's weird how it fits with the very beginning of this blog too when I started out by talking about and trying to decode encanto.
+
+[1]: I always thought this was the case as the 2nd ray connects to the 6th ray with its midpoint (reflection point) being the 4th ray. obviously the 6th is much more physical than the 2nd ray, but apparently, the sirians say that the 3rd emaates out into all four: 4th, 5th, 6th, and 7th. I can see why they say that now, and it doesn't really matter cause it doesn't change the fact that for mentation, the 3rd is the opposite end of 7th.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse

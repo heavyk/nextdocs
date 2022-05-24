@@ -87,18 +87,22 @@ so, there are 12 planets, and then one sun. that reminds me of jesus and the 12 
 
 quite frankly, I'm stumped by these 12 planets bit. above, they talk about these "creators" as having planetary consciousnesses
 
+((LOTS OF QUESTIONS ABOUT THIS STILL))
+
+- sun (isis, -2)
 - mercury (thoth, +7)
-- venus (unessa, -3)
-- earth ()
-- mars (+7)
-- zyron (blown up)
-- jupiter ()
-- saturn (+-4)
-- uranus ()
-- neptune
-- pluto
-- charon (?)
-- sun (?)
-- moon (?)
+- venus (unessa, -3 - vulcan? -5+)
+- earth (jeortau?, +2 - genxicat?, -7)
+- moon (osiris, +-6-+)
+- mars (allayandra, +7)
+- zyron (jeortau, +2)
+- jupiter (ra, +3)
+- saturn (dwal quin, +-4)
+- uranus (anatau, -1)
+- neptune (sanatau, +-3-+)
+- pluto (copy of saturn?, +-4?) 
+- nibiru (anatau?, -1)
+- (bonus) charon (copy of jeortau?, +2?)
+
 
 [at this point, I'm very confused, so I quit]
