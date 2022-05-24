@@ -45,8 +45,8 @@ ra (+3) takes in a concept or an abstract idea (5) and then produces a form, str
 ### first ray triad
 
 - (-1) anatau / sekhmet
-- (+2) jeortau / teonackaeeon / teonakaeean
-- (+-3-+) sanatau / prahakatah / ptah
+- (+2) jeortau / teonackaeeon / teonakaeean / (alulu)
+- (+-3-+) sanatau / prahakatah / ptah / (enki)
 
 anatau and jeortau are twins. allayandra was also created with them, which gives me the impression that allayandra is going to be the reversal and opposite polarity of anatau. they are both mentioned as loving to war.
 

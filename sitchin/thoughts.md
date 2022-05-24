@@ -50,3 +50,71 @@ speaking of which, atlantis isn't really mentioned so far. I have a feeling that
 the last thing that has impressed me by this book is how it seems like the same history repeats itself. I'll assemble a better outline soon, but this seems to be the entire intention of the author. it has some funny and convenient narratives that make a good story, but it feels to me that the author is trying to say that there is a pattern that repeats over and over, and one may consider this to be like the "destiny" of a planet, but the destiny of a planet can be altered, and so therefor isn't "set in stone" -- even though they were stone tablets engraved with the planets' destinies. so, a person's trajectory through time is more like a "fate".
 
 I don't know how to explain, but it feels like this document was given to a scribe as a means to essentially compress time. I have another theory even more radical than the one above which is where this document enabled "God" to create the world and everything in it in only 6ky, allowing us to have the massive time compression we see today. that one is going to take me a bit to explain, but maybe lucifer is going for a galaxy instead of just a solar system this time, but instead of having to do anything, it all becomes effortless because this is the 7th day (of rest).
+
+### 2022-05-23 16:56 - alalu and tiamat (take two)
+
+I realised a few problems with the way that I conveyed the story the last time. I'm also not certain about the location of nibiru.
+
+the sirians said that the three planets suitable for life were earth, mars, and zyron (where the hammered bracelet is now). thy planned to move the INFECTED ONES to earth, so they got earth ready for that creating the animals and like that would occupy the planet there. the INFECTED ONES were to be drawn to mars, and these I believe were all the really power hungry ones that had taken up physical forms elsewhere in the galaxy and are flying around in astral form.
+
+interestingly, jehovih in oahspe relays a very similar story about the creation of earth, designed to contain lots of angels that would take on human form that would then mate with the early humans, and become their guardian angels. the other interesting coincidence with jehovih is the 3600y "shar" -- which is very similar to his [3000y harvest cycle](/oahspe/thoughts.md#the-harvest), so I don't fully know what that is, though I will say that oahspe seems to round things to multiples of 5 and 10 to as many signifcant digits as possible, however -- the sumerian stuff seems to capitalise on multiples of 3, which seems to make sense because the martians supposedly had 6 fingers on each hand, while we have 5. my calculator won't convert the numbers to base 6/12 for me, and I don't feel like writing a program to figure it out. I know they use a base 60 number system, so that's just 60x60 (sorta like 100x100 is for us). that could explain the "shar" cycle. jehovih explains it as going through periods of high light (hi’dan) and lower light, but to my knowledge doesn't explain the mechanism, or if this is a planet or solar system-wide phenomena.
+
+---
+
+the way that tiamat is explained, it is a single planet that has 11 moons around it, the foremost being kingu. so you have tiamat and kingu as the big ones, and then around it a bunch of smaller ones. in my mind, this looks like a solar system. the picture I get is the image that tesla had of essentially igniting the upper atmosphere of the planet so that we would have power everywhere (like being inside of a capacitor) and also daylight glow everwhere (if the atmosphere was filled with sufficient CO2) as well.
+
+as I mentioned, I think that the technology to create an atmosphere[^1] and charge the lower atmosphere in a way to hold that upper atmosphere -- to actually fix the martain atmosphere. so, in a way, he was the first "saviour" -- and that's why the story paints him as a "now that I've saved the atmosphere breach on nibiru, now I want to be king" -- sorta way. also, like I mentioned, I believe they used the same technology on earth.
+
+alalu's technology was certainly as different of an implementation to what enki eventually adapted it to be, as the great pyramid was different to the teotihuacan pyramids. it seems that enki is constantly adapting some kind of technology to that alalu is coming up with.
+
+there's also the part where alalu figures out how to make his way through the hammered bracelet using "weapons of terror" -- which, really makes me wonder -- why didn't anyone try this before? I haven't read much about the weapons of terror yet, but they were using them to try and get the volcanos to spew (more CO2) out into the atmosphere again so their plants would grow. sitchin translates this as nuclear weapons, but I don't think it was nuclear. I think it was an energy weapon that has some effect of putting consciousness into overdrive (something like a psychedellic), and these weapons, being great enhancers of mental capacity were probably the same "fire" that was used to ignite the atmosphere of tiamat and turn it into a star.
+
+the martians have outlawed the use of fire, so enki finds a way through the asteroid belt, not with fire, but with *water*. I believe that enki did a similar conversion of alalu's upper environment enhancer, not to create fire barrier, but to create a *water* barrier -- a sort of firmament to protect the planet from the rays of the sun.
+
+it looks to me like alalu wants to build things with fire that enhance mental capabilities, but enki wants to build the same thing but with water, which dampens the attractive power[^2].
+
+the destruction of zyron in the book is explained with tiamat getting broken into two. this doesn't really make sense, because if you took a second earth and blew it to bits, it doesn't seem like it would create the amount of asteroids that are in the asteroid belt (plus all the ones that went cometary).
+
+what seems more likely to have happened is that the entire planet of zyron was blown to bits (probably using the weapons of terror), and in the process earth took a real good wack in the pacific ocean sinking the contenent of pan/lemuria and wiping out civilisation on the planet at the time[^3]. I don't know what happened to the other moons, but it seems that kingu was an especially useful moon, but remember they can alter the "destinies" of the planets, so kingu got moved to the earth to become, probably a monitoring station or a regulator of some type.
+
+---
+
+quick sidebar about the moon: if I were alalu and I wanted to create a solar system, I would probably be doing it mostly in mental space, and then let the mental artifacts attract the physicality that responds to their attraction. so, you can imagine that there are 10 planets that exist, not yet in the physical form but only in the astral. the moon probably regulated these. I don't know why I think it, but if you imagine the sun is a -2 system, and then there is zyron, and then there is a bunch of planets that exist only in the astral realm, there needs to be a sort of transformer that steps the sun's energy down to astral frequencies in order to sustain the energy for the planets until they're fully formed.
+
+in the legends of egypt, the earth gains 5 days (spins faster), the moon rises in brightness, and 5 new children are born. those 5 new children may have been the same previous 5 visible planets, but now with the moon's astral lens, they appear different. not sure about this.
+
+anyway, my point is that alalu/jeortau is a (2), which is what connects anu/anatau (1) to enki/sanatau (3). so if zyron is (+2) and the planet is caused to become attractive using these "weapons of terror", the planet would become very bright and sorta look like the planet venus, becoming a (-2+), which means he needs the opposite implementation of himself below the midpoint, which is the astral (6), which the physical implementation of that is the moon. it essentially trangulates the sun (-2) and zyron/alalu (+2) and the moon (+-6-+). later, the same pattern is repeated in person with osiris (+-6-+) and his wife isis (-2) or asta, which means star.
+
+it's possible that the imagery of osiris being broken to bits is a temporal resonance or yet another "proof" of the cyclical "destinies" that the planets interactions play out on earth.
+
+---
+
+the final subject here is that I noticed that alalu/jeortau/teonackaeeon seems to be constantly associated with the "saviour" bit. it looks like what happens is he gets all proud and decides, "forget you guys and your dumb laws, I'm gonna do it myself" and then he sets out to do something that he wants to do. the discomfort that this causes eventually causes a split. one of the splits goes in the direction of whatever he was creating -- so there probably is a solar system out there somewhere in the galaxy with the centre of it originally being the planet zyron. likewise, there's also pretty likely another version of earth out there where the americas came to enlightenment and went on to do great things (and this is the vision that I believe that terence had).
+
+however, those were very incompatible realities for the martians and romans and so it produced a split. let me explain the split again cause I see it now clearer than I ever have before.
+
+so imagine for a moment one of the splits, which is the one of the "tower of babel". we can't really tell if the tower of babel was the first or the second meltwater rise recorded, though there may be some that know, it's possible that the tower of babel actually was the first one, then, like I think happened with enki and alalu, enki took the technology and converted it to the atlantian/martian way of thinking and that's how the great pyramid was constructed. I'm ahead of myself.
+
+so let's just say that jeortau/alalu finds a way to get anatau/anu's technology into the physical, but the problem is it's based on fire. that produces an incompatible reality and so there is a split. alalu goes off as a solar system or whatever and they're successful in creating what's wanted. they gain the capacity to see timelines and notice that the other side of the split encountered a cataclysm because of all of the dissatisfacton. they then sabotage theirselves in the timeline, allowing the martians to defeat and stop their project from advancing, and so jump into the self-sabotage timeline. enki/sanatau then takes that technology and converts it into a format which is compatible with the martian mindset (like water -- not an amplifer, but a dampener)
+
+in the case of jesus, the same thing happens, but instead of technology, it was genetics for them to continue to maintain their existance.
+
+it appears that the goal for alalu/jeortau is to keep trying to get the necessary technology into their hands which allows them to continue to not change their perspective. each successive time, he siphons off the ones that want to see wanted into bigger and bigger creations, and then jumps back in to make an even bigger one.
+
+one time it created another solar system, but that "failed" (or did it?) and then another time a system here on earth of transmuting things into wanted -- and all of those people have seemingly vanished without a trace (bermuda-411 style). I think the renaissance was also a success, too. out there somewhere, they're living high culture and elevated consciousness. I think they've figured out that this is the most happening place because of the incredible time compression, and so all you have to do is just give them the power to try and stop the creation, and then they will. any type of large creation can be created, just you have to become the creation that you want to be.
+
+---
+
+let me explain this a little better: if all creations are a reflection of you, you just need to be vibrationally harmonious to whatever it is that you want, and then that reality will eventually happen. as soon as it's incompatible with their reality (as in something that disrupts their business-as-usual), they have to try and prevent it. they can't prevent it forever though as it'll eventually happen. when that happens, a split will happen. likely in the split (given enough time) we'll come to find a way to perceive timelines, and so then we'll have the option of sabotaging ourselves to see what the bigger more evolved version of what we want is. we can do this for as long as we can find ways to sabotage ourselves.
+
+---
+
+this one has an interesting set of reactions to it because I'm kinda introducing a second set of "good-guys" into the equation. it's not just enki vs enlil. I think that enlil and friends are just the catalyst. what I mean is that enlil causes enki to find new forms of technology which are compatible with the tech (water) mindset. his son (I think), thoth puts that into order and ritual, which is the 7th ray path. alalu seems to be interested with the conceptual perceptual (fire) path. neither one is bad or worse.
+
+in my thinking about this alalu guy, I'm beginning to realise I align a lot more with alalu than with enki. kinda interesting actually, because -- like I said in other places, I find the 2nd ray path to be detestable.
+
+[1]: in order to hold up a firmament or something an opposite polarity charge needs to be put to keep the layer separated. like, you can't just have chaotic convection all over the place -- you'd need clearly defined layers demarcated by some spherical resonator
+
+[2]: again, this book seems to be a commentary on the difference between fate/attraction vs destiny/cycles, where both appear certain, but both can be altered, one with mentality/emotion and the other with cycles/vibrations -- which is sorta looking at the same thing, considering mentality and emotions are also vibrations
+
+[3]: this is probably why there are so many "OOPArts" that are under millions and millions of years of sediment, the weird artifacts in coal, etc.
