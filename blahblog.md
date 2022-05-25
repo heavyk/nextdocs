@@ -3223,6 +3223,42 @@ pretty good blabbing. I certainly learned a lot. it's kinda a mess though so I'l
 
 [1]: I always thought this was the case as the 2nd ray connects to the 6th ray with its midpoint (reflection point) being the 4th ray. obviously the 6th is much more physical than the 2nd ray, but apparently, the sirians say that the 3rd emaates out into all four: 4th, 5th, 6th, and 7th. I can see why they say that now, and it doesn't really matter cause it doesn't change the fact that for mentation, the 3rd is the opposite end of 7th.
 
+### 2022-05-25 13:26 - jeortau dream
+
+I just woke up from a dream where I was looking at the americas (this was around the time of jesus -- not sure before or after), and the americas were thriving. they had *massive* cities and an enormous food infrastructure. it wasn't clear to me how they had so much great food, but it's what enabled them to have such a massive population.
+
+well, that population was wiped out or vanished or something because surely, if there were hundreds of millions of people in the americas even 800ya, it seems like there would be evidence for it -- and maybe there is under the jungle there. I just listened to snake-bros #039 (I think) and they were reporting that such an infrastructure did exist, and so perhaps something like what was described by moroni did happen. I don't know.
+
+---
+
+anyway, back to the dream: it seemed that the whole objective was to create a massive population of people that really wanted and relied on good conditions. like I said, I don't know where they went, but in the dream, jeortau seemed to specifically have the goal is producing a massive population dependeent on good conditions, and it felt to me like now was a repeat of that happening. (I know I repeated myself... don't want to fix the sentence)
+
+so then I continued on to explore the dream a bit more in my waking state and I noticed that whatever happened to them was purposeful, as it allowed for a repeat of the nibiru story. in the lost book of enki, the annunaki bicker endlessly about who is rightful heir to the throne, and massive problems crop up because of this endless dissatisfaction. no matter how much of a coverup the story is, you know at least that much bickering if not way more was happening over who is the rightful heir to the throne. this is vere's story in a nutshell. the "in-diane king" and all of that stuff.
+
+however, these petty arguments over who is to be the rightful heir to the throne, I didn't feel was happening in the americas. they were either content or apathetic because they had good conditions; it was unclear to me which.
+
+---
+
+I don't really know what the dream meant, but like I said, it seems that the whole goal of the various iterations is to siphon off the content ones (do they just disappear when reality becomes incompatible?) and leaving only the discontent ones (those probably descend into anarchy). that continually leaves behind the civilisations that have these petty heir disputes (started first on nibiru/mars). that leaves behind a vacuum, which then these petty heir disputers go and pick up the pieces of.
+
+I'm convinced that the americas at that time had far superior technology and capacity than the roman empire did at the time (which was the superpower).
+
+so yeah, I'm still trying to figure out the dream, but it feels like this same pattern keeps repeating but on different scales, and the whole goal seems to be to create more and more of these entites that don't want to live in harmony but want to fight these petty battles over resources.
+
+it works out well, because I do believe that massive civilisation in the americas *is* out there, and they may have been the influencer of terence's vision and a number of my own dreams. what I'm saying is, nothing bad happened to them -- they just left behind all of the bad apples to continue to expand the number of those in competition for resources and positions of power.
+
+it seems to me that in the extremely massive scheme of things, the goal is to get larger and larger quantites of these types. like, what if the roman empire was in charge of an entire galaxy? what if they had so much land and resources spread over countless planets that they could create the most massive power structure ever. surely, the "king" of that power structure would be the most sought after one ever, and they can build their "checks and balances" necessary to keep that whole thing running.
+
+I think it's actually us that designs the infrastructure capable of running such a large operation, and it's their job to try and figure out how to infiltrate and take over the power structure.
+
+what I mean is, in the context of fuzzing, it only takes a finite amount of iteratons of them figuring out how to infiltrate the system before the system as a whole becomes resiliant to their style of infiltration.
+
+so, you can imagine that this is sort of like a progression in the sense that larger and larger structures get formed and infiltrated until the system as a whole becomes a stable one.
+
+when I look at it, I don't see this structure ever working with a top-down authority structure, but instead, I think the foundation will become a lot more like nature, as seen in the amazon rainforest, for example -- where many small autonomous organisms (performing entirely "service to self" tasks) act as machinery to larger and larger organisms. I don't see any top-down approach working, because those are all easily exploitable. instead, I see more and more efficient interactions happening between small organisations, building up from there (bottom-up).
+
+anyway, that's good enough for now; I think I understand the dream.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
