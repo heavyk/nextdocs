@@ -63,6 +63,11 @@ txt_replacements([
         return '\n\n### ' + t + '\n\n'
     }],
 
+    // chapter descriptions
+    [/\n(Synopsis of the [A-Za-z]+ Tablet.*)\n([^]+?)(### .*)\n/g, (line, synopsis, contents, title) => {
+        return '\n\n' + title.trim() + '\n\n#### ' + synopsis.trim() + ':\n' + contents.trim() + '\n---\n\n'
+    }],
+
     // too much whitespace
     [/\n\n\n/g, '\n\n'],
 
@@ -75,7 +80,6 @@ word_replacements({
     'Horno': 'Homo',
     'it,,': 'its',
     'lgigi': 'Igigi',
-
 })
 
 dash_replacements([
@@ -85,103 +89,194 @@ dash_replacements([
     'Workers-Homo'
 ])
 
-const quote_sections = [
-    { before: 'Nippur quotes Enki as saying:',
-       after: 'The long text continues' },
-    { before: 'Prophet Isaiah (seventh century B.C.):',
-       after: 'In dealing with the past, Enki himself perceived the future' },
-]
-
-const paragraph_exception = (cur, next) => {
-    if (next.startsWith('Chapter five of Genesis'))
-        return true
-    if (next.startsWith('There was a reddish brilliance'))
-        return true
-    if (next.startsWith('And there lay upon the table only one stylus'))
-        return true
-    if (next.startsWith('And the stylus you see'))
-        return true
-    if (next.startsWith('And then the great god Enki'))
-        return true
-    if (next.startsWith('At times there was joy or pride'))
-        return true
-    if (next === 'Was anyone responsible, is there someone accountable?')
-        return true
-    if (next === 'And I said, Here I am.')
-        return true
-
-    return false
+let quoted = {
+    sections: [],
+    inside: false,
 }
+let is_quote_section = generate_quote_section_fn([
+    { after: /Synopsis of the ([A-Za-z ]+) Tablet/,
+     before: '---',
+       type: '- ' },
+    { after: 'Nippur quotes Enki as saying:',
+     before: 'The long text continues' },
+    { after: 'Prophet Isaiah (seventh century B.C.):',
+     before: 'In dealing with the past, Enki himself perceived the future' },
+])
+
+const paragraph_exception = generate_txt_condition_fn([
+    /^Chapter five of Genesis/,
+    /^There was a reddish brilliance/,
+    /^And there lay upon the table only one stylus/,
+    /^And the stylus you see/,
+    /^And then the great god Enki/,
+    /^At times there was joy or pride/,
+    'Was anyone responsible, is there someone accountable?',
+    'And I said, Here I am.',
+])
+
+const should_join = generate_txt_conditions_fn('prev,next', [
+    {prev: /[,;\-]$/},
+    {prev: 'let volcanoes again erupt!', next: 'he then commanded.'},
+])
+
+const shouldnt_join = generate_txt_conditions_fn('prev,next', [
+    {prev: '---'},
+])
 
 // ------------------
 //   implementation
 // ------------------
 
-const replace_line = (prev, next) => {
+/*
+let is_quote_section_old = (i, txt) => {
+    for (let q of quote_sections) {
+        let {after, before, type} = q
+        if (quoted.inside === false) {
+            if (
+                (typeof after === 'string' && ~txt.indexOf(after)) ||
+                (after instanceof RegExp && after.test(txt))
+            ) {
+                return quoted.inside = {startl: i, type: type || '    '}
+            }
+        } else {
+            if (
+                (typeof before === 'string' && ~txt.indexOf(before)) ||
+                (before instanceof RegExp && before.test(txt))
+            ) {
+                return (insert_line(quoted.inside.endl = i-1, ''),
+                    quoted.sections.push(quoted.inside),
+                    quoted.inside = false)
+            }
+        }
+    }
+
+    return quoted.inside
+}
+*/
+
+function generate_quote_section_fn (quote_sections) {
+    let fn = 'if (quoted.inside === false) {'
+    for (let {after, type} of quote_sections) {
+        if (after) {
+            if (typeof after === 'string') {
+                fn += '\tif (~txt.indexOf('+JSON.stringify(after)+'))\n'
+            } else if (after instanceof RegExp) {
+                fn += '\tif ('+after.toString()+'.test(txt))\n'
+            } else {
+                console.error('unknown quote before:', after)
+            }
+            fn += '\t\treturn quoted.inside = {startl: i'+(type != null ? ', type: '+JSON.stringify(type) : '')+'}\n'
+        }
+    }
+
+    fn += '} else {\n'
+
+    for (let {before} of quote_sections) {
+        if (before) {
+            if (typeof before === 'string') {
+                fn += '\tif (~txt.indexOf('+JSON.stringify(before)+'))\n'
+            } else if (before instanceof RegExp) {
+                fn += '\tif ('+before.toString()+'.test(txt))\n'
+            } else {
+                console.error('unknown quote after:', before)
+            }
+        
+            fn += '\t\treturn insert_line(quoted.inside.endl = i-1, ""), quoted.sections.push(quoted.inside), quoted.inside = false\n'
+        }
+    }
+
+    fn += '}\n'
+    fn += 'return false'
+    // return new Function('i,txt', fn)
+    return (new Function('quoted, insert_line', 'return (i,txt) => {' + fn + '}'))(quoted, insert_line)
+}
+
+function generate_txt_conditions_fn (args, conditions, if_true = 'true', if_false = 'false') {
+    let fn = ''
+    for (let conds of conditions) {
+        let keys = Object.keys(conds)
+        if (keys.length) {
+            fn += '\tif ('
+            let ops = []
+            for (let k of keys) {
+                let cond = conds[k]
+                if (typeof k === 'string') {
+                    ops.push('~'+k+'.indexOf('+JSON.stringify(cond)+')')
+                } else if (cond instanceof RegExp) {
+                    ops.push(conds[k].toString()+'.test('+k+')')
+                } else {
+                    console.error('unknown condition '+k+':', cond)
+                }
+            }
+            
+            fn += ops.join(' && ') + ') return '+if_true+'\n'
+        }
+    }
+
+    fn += 'return '+if_false
+    return new Function(args, fn)
+}
+
+function generate_txt_condition_fn (conditions, if_true = 'true', if_false = 'false') {
+    let fn = ''
+    for (let rule of conditions) {
+        if (typeof rule === 'string') {
+            fn += 'if (txt.startsWith('+JSON.stringify(rule)+')) return '+if_true+'\n'
+        } else if (rule instanceof RegExp) {
+            fn += 'if ('+rule.toString()+'.test(txt)) return '+if_true+'\n'
+        }
+    }
+
+    fn += 'return '+if_false
+    return new Function('txt', fn)
+}
+
+
+
+
+function replace_line (prev, next) {
     let joined = prev + ' ' + next
 
-    if (~joined.indexOf('threw myself to the ground'))
-        console.log('hold it:', joined)
-    if (~next.indexOf('Now come,'))
-        console.log('hold it:', joined)
-    if (~prev.indexOf('Now come,'))
-        console.log('hold it:', joined)
+    // if (~joined.indexOf('Synopsis of the Third'))
+    //     console.log('hold it:', joined)
+    // if (~next.indexOf('Chapter five of Genesis'))
+    //     console.log('hold it:', joined)
+    // if (~prev.indexOf('Now come,'))
+    //     console.log('hold it:', joined)
 
-    // if (inside_quote !== false) {
-    //     return false
-    // }
 
-    if (!inside_quote && /[,\-]$/.test(prev)) {
+    if (!quoted.inside && should_join(prev, next) && !shouldnt_join(prev, next)) {
         return joined
     }
 
     if (/^[A-Z]/.test(next)) {
-        // inside_quote === false && 
         if (/("?[!:\?\.]"|[,;:!\?\.])$/.test(prev)) {
-            return paragraph_exception(prev, next) ?
+            return paragraph_exception(next) ?
                 joined : [prev, '', next]
-        } else if (!inside_quote && /[a-z0-9\)"]$/.test(prev)) {
+        } else if (!quoted.inside && /[a-z0-9\)"I]$/.test(prev)) {
             return joined
         }
     }
 
-    if (!inside_quote && /[a-z0-9\)I]$/.test(prev) && /^[a-z\(I]/.test(next)) {
+    if (!quoted.inside && /[a-z0-9\)"I]$/.test(prev) && /^[a-z\("I]/.test(next)) {
         return joined
     }
     
     return false
 }
 
-const is_quote_section = (i, prev, next) => {
-    for (let q of quote_sections) {
-        let {before, after, type} = q
-        if (inside_quote === false) {
-            if (prev.endsWith(before)) {
-                q.startl = i
-                return inside_quote = type || '    '
-            }
-        } else {
-            if (prev.startsWith(after)) {
-                insert_line(i, '')
-                q.endl = i
-                return inside_quote = false
-            }
-        }
-    }
-
-    return inside_quote
-}
-
-const do_quotes = () => {
-    for (let quote of quote_sections) {
+function do_quotes () {
+    for (let quote of quoted.sections) {
         if (quote.startl > 0 && quote.endl > 0) {
             let type = quote.type || '    '
             if (type === '```') {
                 insert_lines(quote.startl, type)
                 insert_lines(quote.endl, type)
-            } else if (/^([ >]+)/.test(type)) {
-                for (let i = quote.startl; i < quote.endl; i++)
-                    txt_lines[i] = type + txt_lines[i]
+            } else if (/^([ >\-*]+)/.test(type)) {
+                for (let i = quote.startl; i < quote.endl; i++) {
+                    if (txt_lines[i] === '---') debugger
+                    if (txt_lines[i]) txt_lines[i] = type + txt_lines[i]
+                }
             } else {
                 console.error('unknown quote type:', quote.type)
             }
@@ -191,24 +286,24 @@ const do_quotes = () => {
     }
 }
 
-const insert_lines = (i, lines, remove = 0) => {
+function insert_lines (i, lines, remove = 0) {
     txt_lines.splice(i, remove, ...lines)
     update_lines(i, lines.length - remove)
 }
 
-const insert_line = (i, line, remove = 0) => {
+function insert_line (i, line, remove = 0) {
     txt_lines.splice(i, remove, line)
     update_lines(i, 1 - remove)
 }
 
-const remove_line = (i) => {
+function remove_line (i) {
     txt_lines.splice(i, 1)
     update_lines(i, -1)
 }
 
 
-const update_lines = (i, delta) => {
-    for (let quote of quote_sections) {
+function update_lines (i, delta) {
+    for (let quote of quoted.sections) {
         if (quote.startl > 0 && i <= quote.startl)
             quote.startl += delta   
         if (quote.endl > 0 && i <= quote.endl)
@@ -219,7 +314,6 @@ const update_lines = (i, delta) => {
 // ----------
 
 let i = 0
-let inside_quote = false
 let txt_lines = txt.split('\n')
 while (i < txt_lines.length-1) {
     let prev = txt_lines[i].trim()
@@ -243,7 +337,7 @@ while (i < txt_lines.length-1) {
         i++
     }
 
-    is_quote_section(i-1, prev, next)
+    is_quote_section(i, prev)
 }
 
 do_quotes()
