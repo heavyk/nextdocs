@@ -21,53 +21,117 @@ const is_lower = (chr) => /[a-z]/.test(chr)
 const is_upper = (chr) => /[A-Z]/.test(chr)
 const is_numeric = (chr) => /[0-9,\.]/.test(chr)
 
+const word_replacements = (obj) => {
+    for (let k in obj) {
+        // very inefficient
+        txt = txt.replace(k, obj[k])
+    }
+}
 
-txt = txt.replace(//g, '--')
+const txt_replacements = (list) => {
+    for (let [find, replace] of list) {
+        // very inefficient
+        txt = txt.replace(find, replace)
+    }
+}
 
-// remove page numbers
-txt = txt.replace(/\n([0-9 ]+)/g, (line) => {
-    return ''
+const dash_replacements = (list, replacement = '--') => {
+    let obj = {}
+    for (let word of list) {
+        obj[word] = word.replace(/-/g, replacement)
+    }
+
+    return word_replacements(obj)
+}
+
+// ------------
+//    config
+// ------------
+
+
+txt_replacements([
+    // remove dashes
+    [//g, '-'],
+
+    // remove page numbers
+    [/\n([0-9 ]+)/g, ''],
+
+    // chapter titles
+    [/\n([0-9A-Z, ]+)\n/g, (line, t) => {
+        if (!t.length) return ''
+        console.log('title:', t)
+        return '\n\n### ' + t + '\n\n'
+    }],
+
+    // too much whitespace
+    [/\n\n\n/g, '\n\n'],
+
+    // scanning errors
+    [/ [l1] /g, ' I '],
+])
+
+
+word_replacements({
+    'Horno': 'Homo',
+    'it,,': 'its',
+    'lgigi': 'Igigi',
+
 })
-txt = txt.replace(/\n\n\n/g, '\n\n')
 
+dash_replacements([
+    'Enki-the',
+    'therefore-as',
+    'Earth-with',
+    'Workers-Homo'
+])
 
-// chapter titles
-txt = txt.replace(/\n([0-9A-Z, ]+)\n/g, (line, t) => {
-    if (!t.length) return ''
-    console.log('title:', t)
-    return '\n\n### ' + t + '\n\n'
-})
-
-txt = txt.replace(/\n\n\n/g, '\n\n')
-txt = txt.replace(/lgigi/g, 'Igigi')
-txt = txt.replace(/ [l1] /g, ' I ')
-
-let inside_quote = false
 const quote_sections = [
-    ['Nippur quotes Enki as saying:', 'The long text continues'],
-    ['Prophet Isaiah (seventh century B.C.):', 'Isaiah 30:8']
+    { before: 'Nippur quotes Enki as saying:',
+       after: 'The long text continues' },
+    { before: 'Prophet Isaiah (seventh century B.C.):',
+       after: 'In dealing with the past, Enki himself perceived the future' },
 ]
 
-const paragraph_exception = (l0, l1) => {
-    if (l1.startsWith('Chapter five of Genesis'))
+const paragraph_exception = (cur, next) => {
+    if (next.startsWith('Chapter five of Genesis'))
         return true
-    if (l1 === 'Was anyone responsible, is there someone accountable?')
+    if (next.startsWith('There was a reddish brilliance'))
+        return true
+    if (next.startsWith('And there lay upon the table only one stylus'))
+        return true
+    if (next.startsWith('And the stylus you see'))
+        return true
+    if (next.startsWith('And then the great god Enki'))
+        return true
+    if (next.startsWith('At times there was joy or pride'))
+        return true
+    if (next === 'Was anyone responsible, is there someone accountable?')
+        return true
+    if (next === 'And I said, Here I am.')
         return true
 
     return false
 }
 
+// ------------------
+//   implementation
+// ------------------
+
 const replace_line = (prev, next) => {
     let joined = prev + ' ' + next
 
-    if (~joined.indexOf('Now come,'))
+    if (~joined.indexOf('threw myself to the ground'))
         console.log('hold it:', joined)
     if (~next.indexOf('Now come,'))
         console.log('hold it:', joined)
-    // if (~prev.indexOf('Nippur quotes Enki as saying:'))
-    //     console.log('hold it:', joined)
+    if (~prev.indexOf('Now come,'))
+        console.log('hold it:', joined)
 
-    if (/[,\-]$/.test(prev) && !inside_quote) {
+    // if (inside_quote !== false) {
+    //     return false
+    // }
+
+    if (!inside_quote && /[,\-]$/.test(prev)) {
         return joined
     }
 
@@ -76,27 +140,30 @@ const replace_line = (prev, next) => {
         if (/("?[!:\?\.]"|[,;:!\?\.])$/.test(prev)) {
             return paragraph_exception(prev, next) ?
                 joined : [prev, '', next]
-        } else if (/[a-z0-9\)"]$/.test(prev)) {
+        } else if (!inside_quote && /[a-z0-9\)"]$/.test(prev)) {
             return joined
         }
     }
 
-    if (/[a-z0-9\)]$/.test(prev) && /^[a-z\(]/.test(next)) {
+    if (!inside_quote && /[a-z0-9\)I]$/.test(prev) && /^[a-z\(I]/.test(next)) {
         return joined
     }
     
     return false
 }
 
-const is_quote_section = (prev, next) => {
-    for (const q of quote_sections) {
-        let [start, end, type] = q
+const is_quote_section = (i, prev, next) => {
+    for (let q of quote_sections) {
+        let {before, after, type} = q
         if (inside_quote === false) {
-            if (prev.endsWith(start)) {
+            if (prev.endsWith(before)) {
+                q.startl = i
                 return inside_quote = type || '    '
             }
         } else {
-            if (prev.startsWith(end)) {
+            if (prev.startsWith(after)) {
+                insert_line(i, '')
+                q.endl = i
                 return inside_quote = false
             }
         }
@@ -105,39 +172,81 @@ const is_quote_section = (prev, next) => {
     return inside_quote
 }
 
-let lines = txt.split('\n')
-let i = 0
-while (i < lines.length-1) {
-    let prev = lines[i].trim()
-    let start = lines[i+1].trim()
-
-    let line = replace_line(prev, start)
-    let q = is_quote_section(prev, start)
-    // change this to be a starting line idx,
-    // continue to transform until ending idx is found
-    // then, go back to each line until starting idx and add the prefix or ``` chars
-    if (Array.isArray(line)) {
-        if (q !== false) {
-            for (let i = 0; i < line.length; i++)
-                line[i] = q + line[i]
-        }
-
-        lines.splice(i, 2, ...line)
-        i += line.length-1
-    } else {
-        if (line === undefined) {
-            lines.splice(i, 1)
-        } else if (line === false) {
-            // do nothing
+const do_quotes = () => {
+    for (let quote of quote_sections) {
+        if (quote.startl > 0 && quote.endl > 0) {
+            let type = quote.type || '    '
+            if (type === '```') {
+                insert_lines(quote.startl, type)
+                insert_lines(quote.endl, type)
+            } else if (/^([ >]+)/.test(type)) {
+                for (let i = quote.startl; i < quote.endl; i++)
+                    txt_lines[i] = type + txt_lines[i]
+            } else {
+                console.error('unknown quote type:', quote.type)
+            }
         } else {
-            if (q !== false)
-                line = q + line
-            lines.splice(i--, 2, line)
+            console.error(`quote: "${quote.before}" ... "${quote.after}" was not found!`)
         }
-        i++
     }
 }
 
+const insert_lines = (i, lines, remove = 0) => {
+    txt_lines.splice(i, remove, ...lines)
+    update_lines(i, lines.length - remove)
+}
+
+const insert_line = (i, line, remove = 0) => {
+    txt_lines.splice(i, remove, line)
+    update_lines(i, 1 - remove)
+}
+
+const remove_line = (i) => {
+    txt_lines.splice(i, 1)
+    update_lines(i, -1)
+}
+
+
+const update_lines = (i, delta) => {
+    for (let quote of quote_sections) {
+        if (quote.startl > 0 && i <= quote.startl)
+            quote.startl += delta   
+        if (quote.endl > 0 && i <= quote.endl)
+            quote.endl += delta
+    }            
+}
+
+// ----------
+
+let i = 0
+let inside_quote = false
+let txt_lines = txt.split('\n')
+while (i < txt_lines.length-1) {
+    let prev = txt_lines[i].trim()
+    let next = txt_lines[i+1].trim()
+
+    let replacement = replace_line(prev, next)
+    // change this to be a starting line idx,
+    // continue to transform until ending idx is found
+    // then, go back to each line until starting idx and add the prefix or ``` chars
+    if (Array.isArray(replacement)) {
+        insert_lines(i, replacement, 2)
+        i += replacement.length-1
+    } else {
+        if (replacement === undefined) {
+            remove_line()
+        } else if (replacement === false) {
+            // do nothing
+        } else {
+            insert_line(i--, replacement, 2)
+        }
+        i++
+    }
+
+    is_quote_section(i-1, prev, next)
+}
+
+do_quotes()
 
 
 // // scanning errors
@@ -161,7 +270,7 @@ while (i < lines.length-1) {
 
 console.log('done', output_path)
 
-txt = lines.join('\n')
+txt = txt_lines.join('\n')
 
 fs.writeFileSync(output_path, txt)
 
