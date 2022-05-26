@@ -3259,6 +3259,44 @@ when I look at it, I don't see this structure ever working with a top-down autho
 
 anyway, that's good enough for now; I think I understand the dream.
 
+### 2022-05-25 21:32 - on the concept of becoming a "god"
+
+I'm listening to snake-bros #041 and kyle is talking about the concept of "becoming a god". he brings up an idea that made me want to write because he says that these pantheons are filled with these things that we put the term "god" on, and he's saying that "god" could just mean something from outer space.
+
+he brings up the tower of babel in this context saying that, just like the garden of eden where the gods didn't want humans "to become like us" (same for tower of babel) -- and so he's kinda saying that the objective is to keep us out of space, but that doesn't really work for the garden of eden story, which I believe that the two trees are the hemispheres of the brain.
+
+he explains that if an extraterrestrial being landed and said, "I am blarg" -- I wouldn't know what blarg is, but based on its behaviour, I would begin to associate "blarg" with the behaviour of that entity. the idea is that is the same for the word "god" -- and not necessarily all of the religious connotation associated with it.
+
+---
+
+the idea popped into my head that they associate the word "god" with the capacity to control reality. essentially, if you were a "god", you had the ability to bend the physical elements to your will and other things like that.
+
+the other thing he mentions is omnipotence -- the ability to see anything and to know things that are not witnessed with only the faculties of the body. a "non-local consciousness" that allows for perception beyond just the capability of the body.
+
+---
+
+in the garden of eden, if the two trees are referring to the two hemispheres, the idea of "becoming like us" refers to both the ability to control one's reality and also to be able to access knowledge and experience no longer local to the body.
+
+in the tower of babel, I believe it was the same thing -- again, a way to control one's reality, and also a way to gain non-local knowledge.
+
+the main difference between the two is that the tower and the brain is that one is technology and the other is biological capacity (amongst other things).
+
+the brain really is just a tuning mechanism though (as is the tower), so I propose that the whole thing of "becoming a god" is really just a process of tuning. it's kinda the same thing, but looked at backwards.
+
+for example, one does not control the radio stations, but the radio receiver. you can affect you're broadcasting, but you can't really change what others are broadcasting -- but you can change what you're tuned to. so in that sense, you control your reality. in addition, if tuning is the method whereby you attain non-local knowledge, again, there could be millions of people broadcasting crap, but that doesn't mean you have to tune to it. so again, that satisfies the idea of "becoming a god", also.
+
+---
+
+I don't really know where to take this entry now because I've said all of that stuff before so instead I'd like to ... imagine for a moment that the tower of babel story *is* real, and every time that humans start to gain control of their reality, there's some pissed off enlil out there trying to ensure that you don't gain control of your reality ... well, if the control over what you have in your reality is because of the two trees (the brain), then nosebook has all of the control. if the way to control reality happens because you're using a tower to transform/transmute earth's vibrations into some extra mental power, thereby increasing mental power -- again, nosebook has that pretty well buttoned down, and I'm proof of that.
+
+so what I'm saying is that you don't need full access to both trees, or a super tower to gain control over your reality. I think the goal of both of these events (and the graduation of humankind into godlike status) is to gain/evolve the capacity to tune to whatever we want to tune to, regardless of conditions.
+
+anyone who wants to become a god can certainly do it -- and pretty easily too -- as I'm demonstrating.
+
+it's all perceptual.
+
+P.S. this is just the control subject (@[blahblog](2022-05-22 13:23)) restated another way.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
