@@ -23,14 +23,15 @@ const is_numeric = (chr) => /[0-9,\.]/.test(chr)
 
 const word_replacements = (obj) => {
     for (let k in obj) {
-        // very inefficient
-        txt = txt.replace(k, obj[k])
+        // very inefficient and gross
+        txt = txt.replace(new RegExp(k, 'g'), obj[k])
     }
 }
 
 const txt_replacements = (list) => {
     for (let [find, replace] of list) {
         // very inefficient
+        if (typeof find === 'string') find = new RegExp(find, 'g')
         txt = txt.replace(find, replace)
     }
 }
@@ -80,6 +81,8 @@ word_replacements({
     'Horno': 'Homo',
     'it,,': 'its',
     'lgigi': 'Igigi',
+    'surrey': 'survey',
+    'Endu': 'Eridu',
 })
 
 dash_replacements([
@@ -127,32 +130,6 @@ const shouldnt_join = generate_txt_conditions_fn('prev,next', [
 //   implementation
 // ------------------
 
-/*
-let is_quote_section_old = (i, txt) => {
-    for (let q of quote_sections) {
-        let {after, before, type} = q
-        if (quoted.inside === false) {
-            if (
-                (typeof after === 'string' && ~txt.indexOf(after)) ||
-                (after instanceof RegExp && after.test(txt))
-            ) {
-                return quoted.inside = {startl: i, type: type || '    '}
-            }
-        } else {
-            if (
-                (typeof before === 'string' && ~txt.indexOf(before)) ||
-                (before instanceof RegExp && before.test(txt))
-            ) {
-                return (insert_line(quoted.inside.endl = i-1, ''),
-                    quoted.sections.push(quoted.inside),
-                    quoted.inside = false)
-            }
-        }
-    }
-
-    return quoted.inside
-}
-*/
 
 function generate_quote_section_fn (quote_sections) {
     let fn = 'if (quoted.inside === false) {'
@@ -200,7 +177,7 @@ function generate_txt_conditions_fn (args, conditions, if_true = 'true', if_fals
             let ops = []
             for (let k of keys) {
                 let cond = conds[k]
-                if (typeof k === 'string') {
+                if (typeof cond === 'string') {
                     ops.push('~'+k+'.indexOf('+JSON.stringify(cond)+')')
                 } else if (cond instanceof RegExp) {
                     ops.push(conds[k].toString()+'.test('+k+')')
