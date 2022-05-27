@@ -3297,6 +3297,53 @@ it's all perceptual.
 
 P.S. this is just the control subject (@[blahblog](2022-05-22 13:23)) restated another way.
 
+### 2022-05-27 16:02 - blabing about triads and stuff again
+
+I went to great lengths last night in
+@[sitchin/thoughts](2022-05-27 04:34), @[sitchin/thoughts](2022-05-27 02:53), and @[sitchin/thoughts](2022-05-27 04:32) to try and point out the triads because I saw them really clearly last night (not as much now), cause I could see two major patterns.
+
+the first pattern is that the "saviour" gets painted as the 1-3-7 triad, when really, I think that the *true* saviour is not a single triad, but the combination of the 1-2-7 triad activated in a single person.
+
+the second pattern I could see is that really enlil (as aries or mars) is actually the "saviour", not enki -- but not naturally. he needs to activate his desire/fate side of things, which is the opposite of order, making him a 1-7 duo (allayandra + anatau), but they state that a 1st ray has a conflict that happens with the 2nd ray energy, and so the 1st ray does not want to incorporate 2nd ray energy. I know this all too well because that is precisely what happened to me.
+
+I think I passed their "3rd initiation" a while back and so that made me capable of 1-7, but I still neglected the 2nd ray aspects, so it was important for me to incorporate the 2nd ray so I have the 1-2-7 triad inside of me (which is where I am now).
+
+to understand this we need to look at the capacities. a 3rd ray male (like ra) receives 5th ray and emits 3rd ray, the 3rd ray then expands out to 4, 5, 6, 7 energies. that's great but it's totally missing 1 (desire/fates) and 2 (connection to all) -- and so someone like this could eventually start to think they are all powerful and can control everything. it's also important to note that the 3rd ray starts from the top (logic, axiums, truth, facts, laws) and then works their way down to the physical.
+
+a 7th ray is just the opposite: they start with physical stuff like data, statistics, measurements, manifestations, ritual -- mechanical stuff -- and then work their way up to concept and harmony. the composition of all of these aspects together is what makes the 3rd ray stuff (logic, axiums, truth, facts, laws). it too, like the 3rd ray is missing 1 and 2.
+
+so when getting a handle on desire/fates/random aspect of life, it becomes really easy to manifest that desire into reality and try to order and confine it to the form of the creation (7th ray), so it's easy to neglect the 2nd ray aspect there by going around and trying to conform all aspects of random and chaos to the form of the creation -- so the aspect of connection to everything else is lost when trying to get everything to conform.
+
+the 2nd ray is important, because as as a female, she kinda needs a receiver of her ray type and since almost everyone is neglecting that someone like osiris is really good. as a first ray male, he receives 2nd ray and emits a 6th ray astral experience (just like the moon (+6) and the sun (-2)), and osiris is special because as a ground he emits and receives both 6 and 2.
+
+it's important to note again that 3rd ray has capacity for 3,4,5,6,7. a 2nd ray has capacity for all of that plus 2 (but not 1), and a 1st ray has capacity for all 7, but, like I said, a 1st ray will ignore or neglect the 2nd ray energy.
+
+I think it's for this reason that the 2nd ray aspect is so important to have a completed mun. I believe that it's when this energy is activated, the "nexus" the energy centre between the shoulder blades is activated.
+
+the 2nd ray energy can make for a giant "douchebag" because they can operate on every level except for the desire/fates level (hence the struggle for alalu), and so it's very easy for him to go around looking like selfish charismatic person that can bend all things to his will (except desire or fate). I believe that's the "bad" version of a 2nd ray and you'll see tons of these types of people in marketing and sales. the more people believe in them, the more influence they can exert.
+
+---
+
+going back now, what I was noticing there with the vulcan genxicat, and mars triad, is that assume that it's not the old "edin" one with mars (enlil), genxicat (probably ninmah) and vulcan (not sure yet), and that it's the new version now ... this time with mars/enlil in 1-2-7 combinaton.
+
+he's paired with a revere polarity vulcan, so probably female, which means it's a F-M-F triad now instead. vulcan (as a female) receives and transmits 5th ray energy, but I can't quite figure it out -- means she would then either emit or receive 3rd ray energy. I'm inclined to believe it's only receive (cause she's labeled as a male) -- but it could be both. so what I noticed is that mars/enlil is now a 1st ray male and he's with vulcan and genxicat, which is again a 1-3-7 combo with two ways to do it. genxicat, as a 7th ray, when she masters 4,5,6,7 will combine to gain mastery of the 3rd ray aspect.
+
+vulcan also receives on the 3rd ray as well. the (-5+) notation there really suggests to me that it's intentional that in female form, he/she is restricted from emitting 3rd ray (top-down) energy, and so that forces genxicat to accomplish 3rd ray energy from the bottom-up, instead. what I think is important about vulcan is that the top sublayer of the 5th is the "SOLAR ANGEL" and so the connection to the sun (-2). they say that once the 4th initiation has been completed (see lesson 7), the SOLAR ANGEL is released and now able to receive 2nd ray energy directly without needing it to be stepped down which is full connection. so it seems that this is the point of vulcan in this triad -- to learn to use the abstract/conceptual mind as a means to accessing this 2nd ray energy.
+
+so again, what I see is a 1-3-7 triad, sorta like the anu, enlil, and enki triad, and the point is for the 2nd ray to be acquired on a personal, individual level. the whole story seems to me telling me that physical control over the destinies, isn't what's desirable, as that leads to disaster because it's all attraction anyway, which is a conceptual (5) thing, so it's by one's own capablity that the 1-2-7 triad is accomplished[^1].
+
+---
+
+I'm glad I wrote this out because the last two days I had started to really feel that this same 1-3-7 triad was beginning to appear again (I play the 1st ray part), and so now that I understand what all of this means, it's pretty easy for me to see now that the direction to go is acquisition of the 2nd ray energy conceptually based on feeling, and not by douchebaggery and power structures -- and if that happens, that's totally cool too because I don't see any problems at all.
+
+you know when I started out the story, I had this weird sensation that I would begin to see enlil in a different light after reading it (still haven't got past 4th tablet yet) because earlier I watched "s02e02 - alone together" (weird that it's 2), where tick rubs the feet and makes friends with omnipotus (the enlil character). I could sense that the enlil in the story is not the same one that's presented in the epic of gilgamesh and generally how the snake-bros kinda paint him. sure, I know he's probably a real pain to be around, but no more of a pain to me that zaryn was. I think it's interesting that enki finally kinda makes friends with him at the end[^2].
+
+totally lost my train of thought. the end has come.
+
+[1]: the hidden story here is that anu, alalu, and enlil (1-2-7) blew stuff up and caused a bunch of problems because they didn't know yet that it's an inside job, not an external triad, so they bumped up attraction levels to very high power without having a knowledge of what they were attracting.
+
+[2]: once again a weird "reminder" so prepare to be offended... this part of enki making friends with enlil reminds me of the story that russ told in the "why" episode, where russ (enki) finally gave up trying to beat kyle (enlil) with physical force, so russ decided to instead make friends with kyle instead and found out that his left-handed (just like enlil is on left hand) approach has a unique way of using art, music and abstract/intuitive thinking to get around difficulty. I did the same thing with zaryn. I stopped trying to fight him to get what I wanted and then just learned from him, and adapted all of his techniques to suit my purposes. him and the sales team is basically where I learned 2nd ray energy.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
