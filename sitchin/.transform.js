@@ -83,6 +83,9 @@ word_replacements({
     'lgigi': 'Igigi',
     'surrey': 'survey',
     'Endu': 'Eridu',
+    'Thev': 'They',
+    // prolly wanna make a "match case" text replacement option
+    'thev': 'they',
 })
 
 dash_replacements([
