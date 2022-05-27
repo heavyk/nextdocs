@@ -119,6 +119,48 @@ in my thinking about this alalu guy, I'm beginning to realise I align a lot more
 
 [3]: this is probably why there are so many "OOPArts" that are under millions and millions of years of sediment, the weird artifacts in coal, etc.
 
+### 2022-05-27 04:34 - judging alalu at right hand of the father
+
+(written earlier, I moved it here, because it's less notes and more of an opinion peice)
+
+I noticed in the judging of alalu, enki is seated at the right of anu (the father), and enlil on the left.
+
+well, it's interesting considering the connection that I made between alalu and jeortau with the dove symbolism, because later on in the bible jesus says (mat 26:64)
+
+> hereafter, ye shall see the son of man seated at the right hand of power [father?] and coming in the clouds
+
+not the verse I was looking for. there's another in rom 8:33-34 that's intreresting. I'm not finding what I'm looking for so I'll just explain it:
+
+first of all, I think that alalu went and made a successful colony of humans that were superior to the annunaki, and so alalu got murdered and destroyed with the weapons of terror that they're so against using. that's why this story, if you read it with this lens is all about the "vengenance" of alalu for getting his planet blown up with weapons of terror. this is a cover story to hide a number of things.
+
+I think anu was already a girl, and so his biting off his malehood was just a cover story[^2] to explain away an assertive woman in power before a culture could accept it[^1].
+
+it's quite possible that enlil has a heavy hand in this story because the end of the has him and enki all super buddy-buddy and wondering if history will repeat itself.
+
+---
+
+so, in this judgment scene, they go to great lengths to judge alalu and condemn him (in this story) for (I believe) making a superior race of beings and planetary environment (compared to nibiru which is failing). basically, they're pissed that he isn't saving their atmosphere problem, and instead peaced out to make his own setup on another planet. if there are three habitable planets[^5], mars/nibiru, zyron/tiamat, and earth -- and alalu goes and makes a superior setup on tiamat instead of saving nibiru, he's essentially, *not* their saviour, and mars needs saving, so they destroy tiamat and alalu. the only planet remaining now is earth[^4] cause tiamat is gone and mars is in bad shape, so the annunaki saviour position goes to enki and the earth.
+
+I find further evidence of this is the ridiculous claims that alalu wanted to become the king of nibiru if he was going to save the planet. I think that's exactly the opposite of what I think happened -- which is that he peaced out of the mars/nibiru disaster and took off for zyron to do his own thing. he was probably very successful and so to watch someone else peace out of your situation and to thrive probably pissed them off further -- which then I believe they (probably enlil) felt they had no choice to use weapons of terror to destroy tiamat, so he gets judged and condemned for being successful instead of saving them. they need to condemn alalu's selfish behaviour.
+
+so then, in the bible when jesus is constantly presented at the one that is seated at the right hand of the father feels to me like a symbolic thing where he's equated with enki here.
+
+I believe that the reception of the dove after his baptism was the reception of this jeortau energy. so, to explain that, a 2nd ray has all of the qualities of a 3rd ray, but when a third ray (enki) approaches it from that perspective, the 3rd ray sees parts and pieces, and the 2nd ray sees the whole, and that we're all connected and each of our actions influence the other, so the scene there is kinda like enlil (who is clearly 7th ray), anu (1st), and enki (3rd) are judging a 2nd ray for being selfish.
+
+this is something like a the part of an organisation that's failing, condeming another organisation for being successful.
+
+it's hard to describe the concept that I received from this because let's just assume that enlil is a 7th ray -- so basically allayandra/mars -- well, jesus is basically enlil+anu (allayandra+anatau) combined with jeortau/alalu (ater the baptism). it's the progression from a 1-3-7 to a l-2-7, which is a big difference.
+
+[1]: seems this is a repeating occurance of dressing a woman up as a dude to allow her to have power. it feels very similar to hatshepsut and senmut, then again with akhenaten and nefertiti.
+
+[2]: it has all of the classic elements that assure you of its validity, because they wrestle naked, so in the mental image conveyed in the mind[^3] anu is a man and you combine it with the grotesque image of someone losing and getting poisoned by such a potent king's malehood. the graphic image impresses the mind and makes it more real. this is hollywood presentation of a narrative but for ancients.
+
+[3]: I think their language conjures images in the mind of the symbols presented -- cause that's what it does for me even reading the english translation of it. once I get into the mindset of the writer, the story is very visual for me.
+
+[4]: this cover story narrative I'm painting here totally changes the flooding event narrative, because the big problem for enlil is that earth is the only option remaining and it feels to me like he doesn't want to lose that only option  remaining (earth), but on the other side, he also feels no other option than to destroy the humans cause they threaten his only option (earth). so he is forced to decide between two "only options" (which I think is kinda funny because he doesn't have any options because its all attraction).
+
+[5]: see @[sitchin/thoughts](2022-05-27 02:53)
+
 ### 2022-05-27 02:53 - nibiru thoughts
 
 some reactions wondering then what I think nibiru planet actually is. it does seem there is evidence for something coming into the solar system and knocking a lot of planets over, and so I'm claiming that it was mars that did all of that?
@@ -176,3 +218,37 @@ basically, once you reach 7th ray, everything becomes effortless. that's why enk
 [1]: imagine if anyone in the world had access to power. it would greatly advantage the third-world countries and be a huge threat to maintain positions of superiority
 
 [2]: I've often wondered why jehovih calls "earth" the "red star" in so many places. it just occurred to me that this could be a technique that the transmitter of the oahspe information used to not confuse the channel -- to distinguishing between early humans origins on mars and later human origins on earth. I'd have to look at it more closely to look.
+
+### 2022-05-27 04:32 - 7th ray triad
+
+I ended the last entry saying that reaching 7th ray everything becomes effortless. I want to explain myself better. I also mentioned in @[sitchin/thoughts](2022-05-27 04:34) the concept of the progression from a 1-3-7 to a l-2-7 (which is a big difference).
+
+you see, enki is 3rd ray so he specialises in compartmentalisation, which aligns quite well with those sorts of power structures. a 2nd ray sees the big picture but they're so concerned with everyone else, they totally miss the point, because you're not trying to convince anyone else to attract for you. so, because the 2nd ray is so concerned about everyone else, this is why I believe it was ironic that they essentially condemned alalu for being so selfish and not saving them. instead enki, a 3rd ray is designated as the "saviour" being capable of comparmentalising things in a way which is compatible with their power structures.
+
+so really the enki, anu, enlil combo (1-3-7) isn't the saviour because its too compartmentalised. you really need to see the bigger picture to get more saviour-like (2-7, 2-3), but that's still not good enough because if you're looking at only the parts or only at the whole, you miss the "fates" aspect to it all (desire). so, really to get the complete creation (the 7-headed dragon), you need a 1-2-3 or a 1-2-7 approach.
+
+to accomplish this, they put mars (+7) in with vulcan (-5+) which emits and receives 2nd ray energy transmitted into the top sublayer of the 5th ray[^1]
+
+then, I noted that they had another hidden triad when they talked about jeortau and anatau are twins, allayandra was created along with those two and have interconnected minds -- ie 1-2-7 combo seems to be the goal. they mention elsewhere that if mars is working in the same energy domain as anatau, he becomes like a 1st ray male, able to emit bursts of 1st ray energy. as a 7th ray male he already receives 1st ray energy, so to become a "ground", he just needs to be able to receive 7th ray energy. well, like I said, he's also paired with genxicat (-7), so that's exactly what she does.
+
+so, if there's a 7th ray receiver, then there's a 7th ray emitter. that's thoth, and he's paired with venus, which is a (-3), but that's basically what vulcan is (receiver of 3rd and emitter of 5th because he's male, but also receiver of 5th because his ground positon)...
+
+---
+
+enough of that. what I'm trying to say is that mars, in the presence of anatau, if he can actually work in a 5th ray energy domain he becomes much more likely to actually be the saviour -- which is sorta weird. mars, in the case of being with anatau becomes a 1st ray, which a 1st ray is more similar to a 3rd ray in the technological aspect -- but, like I said, a 2nd ray perspective of everyone affecting everyone else doesn't really help. you have to be selfish (1st ray desire/fate) to attract what you want, but you have to also see the big picture to do it, because you're attracting what you feel (5th ray) and concepts that feel similar (2nd ray), so it's hard to sort that out really. the sirians say...
+
+> The SECOND RAY has within its equipment the active intelligence of the THIRD RAY. The FIRST RAY has within its equipment the quality of love and active intelligence, all of which is powered by the relentless pursuit of purpose. This means that the FIRST RAY has all the assets and liabilities of the other two. The quest of mental pursuits is strong within them; so is the desire of and for love but the THIRD RAY attribute harmonizes with the FIRST RAY better and is more useful in the pursuit of the purpose so the FIRST RAY hides and even tries to deny all of the SECOND RAY qualities. Of course, this does not work and creates conflict within.
+
+I dislike the word "love" -- so, what all of that means is that the 1st ray will look to material things/manifestations to fulfil that desire/purpose, and totally neglect that it's not the things -- the parts that make up the whole, but how everything feels as a whole (ie. what you're tuned to).
+
+and so, the idea that what you desire is a fate that you can get a different result than the predicted one by tuning to it. you don't have to endure the unalterable destiny that something is on. the destiny is the physical trajectory (which reflects the conceptual trajectory).
+
+the fate is the conceptual/emotional trajectory.
+
+---
+
+I'm really struggling to put all of this into words, but it totally all makes sense to me now. I'll keep hacking away at it, trying to explain it from more and more perspectives.
+
+mr. motor is very very upset right now. I think he's channeling enlil our saviour.
+
+[1]: according to the sirians, anyway -- and I think they're right, because the way things "connect" is the way they feel -- and all concepts are constantly attracting more things and affecting other concepts based on the way they feel
