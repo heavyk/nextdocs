@@ -17,7 +17,7 @@ it's quite possible that enlil has a heavy hand in this story because the end of
 
 ---
 
-so, in this judgment scene, they go to great lengths to judge alalu and condemn him (in this story) for (I believe) making a superior race of beings and planetary environment (compared to nibiru which is failing). basically, they're pissed that he isn't saving their atmosphere problem, and instead peaced out to make his own setup on another planet. if there are three habitable planets, mars/nibiru, zyron/tiamat, and earth -- and alalu goes and makes a superior setup on tiamat instead of saving nibiru, he's essentially, *not* their saviour, and mars needs saving, so they destroy tiamat and alalu. the only planet remaining now is earth[^4] cause tiamat is gone and mars is in bad shape, so the annunaki saviour position goes to enki and the earth.
+so, in this judgment scene, they go to great lengths to judge alalu and condemn him (in this story) for (I believe) making a superior race of beings and planetary environment (compared to nibiru which is failing). basically, they're pissed that he isn't saving their atmosphere problem, and instead peaced out to make his own setup on another planet. if there are three habitable planets[^5], mars/nibiru, zyron/tiamat, and earth -- and alalu goes and makes a superior setup on tiamat instead of saving nibiru, he's essentially, *not* their saviour, and mars needs saving, so they destroy tiamat and alalu. the only planet remaining now is earth[^4] cause tiamat is gone and mars is in bad shape, so the annunaki saviour position goes to enki and the earth.
 
 I find further evidence of this is the ridiculous claims that alalu wanted to become the king of nibiru if he was going to save the planet. I think that's exactly the opposite of what I think happened -- which is that he peaced out of the mars/nibiru disaster and took off for zyron to do his own thing. he was probably very successful and so to watch someone else peace out of your situation and to thrive probably pissed them off further -- which then I believe they (probably enlil) felt they had no choice to use weapons of terror to destroy tiamat, so he gets judged and condemned for being successful instead of saving them. they need to condemn alalu's selfish behaviour.
 
@@ -36,6 +36,8 @@ it's hard to describe the concept that I received from this because let's just a
 [3]: I think their language conjures images in the mind of the symbols presented -- cause that's what it does for me even reading the english translation of it. once I get into the mindset of the writer, the story is very visual for me.
 
 [4]: this cover story narrative I'm painting here totally changes the flooding event narrative, because the big problem for enlil is that earth is the only option remaining and it feels to me like he doesn't want to lose that only option  remaining (earth), but on the other side, he also feels no other option than to destroy the humans cause they threaten his only option (earth). so he is forced to decide between two "only options" (which I think is kinda funny because he doesn't have any options because its all attraction).
+
+[5]: see @[sitchin/thoughts](2022-05-27 02:53)
 
 ### conflict foreboding
 

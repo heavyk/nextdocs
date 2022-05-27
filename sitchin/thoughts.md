@@ -118,3 +118,61 @@ in my thinking about this alalu guy, I'm beginning to realise I align a lot more
 [2]: again, this book seems to be a commentary on the difference between fate/attraction vs destiny/cycles, where both appear certain, but both can be altered, one with mentality/emotion and the other with cycles/vibrations -- which is sorta looking at the same thing, considering mentality and emotions are also vibrations
 
 [3]: this is probably why there are so many "OOPArts" that are under millions and millions of years of sediment, the weird artifacts in coal, etc.
+
+### 2022-05-27 02:53 - nibiru thoughts
+
+some reactions wondering then what I think nibiru planet actually is. it does seem there is evidence for something coming into the solar system and knocking a lot of planets over, and so I'm claiming that it was mars that did all of that?
+
+well, I don't really know, but I do think that is a definite possibility. this book has two major emphasises that it makes: first, that a destiny is different than a fate, and second, that weapons of terror are not a good way to get rid of threats to superiority.
+
+I know because I've read the glossary (and I forget where else), that the "Tablets of Destinies" are used to track and control the orbits of things. they claim in the book that a destiny cannot be altered, but that seems to be a coverup that they have been altering the orbits of the planets, and just the same as the anatau/anu female ruler, this may have had a repetition in egypt with senmut, moses and hatshepsut, they may have gone about altering the orbits of planets (venus, as velikovski suggests?) and that ended disastrously with the bronze age collapse and the abrupt termination of the 18th dynasty.
+
+the idea here is that history repeats itself much like a "destiny" of a planet (its orbit), but that destiny can be altered, and in the process of altering a planet's destiny, it can lead to disastrous results. so, history repeats itself, so if you were to try and alter the destiny of history, like altering the destiny of a planet leads to disaster, so too does altering the destiny of history lead to disaster.
+
+therefore then, I think the emphasis goes toward "fates" -- which is something that is up to a person to choose, which, btw is an interesting thing because they draw lots to let "fate" decide...
+
+> Let us draw lots! Anu said. By the hand of fate let there be a decision!
+
+a lot of irony here...
+
+---
+
+first of all, the suggestion to try and heal the atmosphere was during the 8th ruler named lahma (which is basically lahmu/mars). they also suggested (and tried) using weapons of terror to get the volcanos to belch out more CO2 as well -- which sounds to me again, like a cover story. why would you use nukes on volcanos? maybe nukes were used, but not on volcanos. I find the name of the ruler to be a strange coincidence.
+
+I think it's quite possible that the technology that alalu used to make tiamat such a successful place eventually got implemented. that technology likely was gold, and while tiamat probably used it to enhance mental capacities, the martians wanted it to save their atmosphere only.
+
+I can't substantiate any of this, but I would imagine that this is likely a repeat of the "tower of babel" where the gold used likely benefitted everyone on the planet. that's not a suitable solution because then everyone gets improved conditions -- and again superiority cannot exist. on tiamat, it was likely created a really flat organisational structure, whereas the annunaki wanted titles, commands, positions, authority, etc. it feels to me that every technology that is ever created (like tesla's world system), it's rejected because it would flatten the structure[^1]. they probably wanted to figure out how to use the technology to fix the atmosphere and make the planet really energetic meanwhile maintaining their ridiculous power structures.
+
+I imagine that they probably did figure out how to use the technology, and prior to when this was written they probably pushed it to it's limits. after whatever happened enlil goes and constructs balbek, which is massive. they were definitely doing things in a big way. well, how big? I don't have a way to say, but some of the mud fossils found have absolutely enormous body parts that have been instantly turned into silica -- which, right before iron, is apparently the last stage of a fusion reaction -- so someone at sometime must have been using the massive amounts of gold laying around to produce environment capable of that much instananeous fusion.
+
+I find it very possible that the martians may have (in the era when nibiru fights tiamat -- the solar regime prior to enki going to earth as the saviour), used that technology to make their planet very very energetic.
+
+imagine for a moment that they were pumping this fusion technology to the max, where silica levels are surpassed and now they're into producing iron in high quantities. the upper atmosphere would be very radiant so it would look like a red star[^2]. it's quite possible that they used pyramids to alter the destiny of "nibiru" so that it takes on a superior orbit.
+
+when reading the cosmogeny of the solar system in the second tablet, I had a strong sense that nibiru has a superiority complex, getting called in to fight against tiamat and put her into her place, and has to have the most elevated and superior orbit.
+
+if mars had the technology to alter its destiny and the technology to turn the planet into a very strongly attracting red star, even though it's little, it could have a massive effect on the solar system. in fact, I think if the planet is going that hard, it wants resources -- badly, and the most plentiful source of neutrons/hydrogen (whatever it is) is the sun and these gas giants. it wouldn't have as much of an effect on the higher density ones like jupiter, but it would have a massive effect on the others if it's attracting that much.
+
+I really get the sense that mars would have been very very attractive having a massive magnetic field and a very strong desire for more hydrogen from anything nearby. this was probably disastrous.
+
+so, yeah, I think mars could have become "nibiru" and then through a series of superiority manouvers, elevated itself to top position in the solar system.
+
+remember, mars is 7th ray emitter, so he's the objective for creating the whole 7th day/ray thing anyway, so if you want to create a bunch of people that are actually superior/successful, but not because of conditions, but instead because of mentality -- you have to start out with unwanted form so you give birth to the wanted aspect.
+
+if mars were nibiru, it fits in perfectly with the way I see this whole thing playing out vibrationally. I can't confirm yet, but I feel it's very very likely because it tells the fate vs destiny thing in the perspective of human history, a person, a planet, or any people group: it's all attraction (there's probably a good reason why mars has such a large gash in its side -- totally not christ symbolism, btw).
+
+---
+
+to explain the vibrational thing, let's first look at the triads: mars is in a triad with vulcan and genxicat. I've given a lot of thought, and I think that genxicat is actually the planetary body of earth. if the thing that caused this whole thing was a corrupted 7th ray male, then the goal is to create a 7th ray female, or ground. since there are no 7th ray grounds, I figure the earth is genxicat. secondly, vulcan (-5+) is labeled like a female (so essentially like a 3rd ray), but with 5th ray output, which is what connects to the 2nd ray "SOLAR ANGEL".
+
+this story has a lot of difficulties with females in power, and I think again that's the same thing of producing the unwanted aspect so that we can give birth to the wanted aspect by *attracting it*, so for mars to essentially be paired with two females is a real problem in the context of gender inequality presented throughout history, started (according to this story) in the very origins of the annunaki firstborn and legal heir stuff.
+
+all of this completely fits with the create wanted by first identifying unwanted in the environment and then naturally desiring the wanted opposite, then finally *attracting* it.
+
+in short, the emitter gets you away from your source -- this is the birth and growing up process, but then after that you begin to return to your source -- which is the "death" process, but really, if you can keep up with it, you don't die. death is just enough of a physical desync from your source, so to stay alive, just stay synchronised with your source by not doing things that desynchronise you from it.
+
+basically, once you reach 7th ray, everything becomes effortless. that's why enki started from the moment he arrived to earth as the "saviour" he decided that the 7th day is a day of rest and effortless creation; a time to enjoy the creation.
+
+[1]: imagine if anyone in the world had access to power. it would greatly advantage the third-world countries and be a huge threat to maintain positions of superiority
+
+[2]: I've often wondered why jehovih calls "earth" the "red star" in so many places. it just occurred to me that this could be a technique that the transmitter of the oahspe information used to not confuse the channel -- to distinguishing between early humans origins on mars and later human origins on earth. I'd have to look at it more closely to look.
