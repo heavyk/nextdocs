@@ -3344,6 +3344,44 @@ totally lost my train of thought. the end has come.
 
 [2]: once again a weird "reminder" so prepare to be offended... this part of enki making friends with enlil reminds me of the story that russ told in the "why" episode, where russ (enki) finally gave up trying to beat kyle (enlil) with physical force, so russ decided to instead make friends with kyle instead and found out that his left-handed (just like enlil is on left hand) approach has a unique way of using art, music and abstract/intuitive thinking to get around difficulty. I did the same thing with zaryn. I stopped trying to fight him to get what I wanted and then just learned from him, and adapted all of his techniques to suit my purposes. him and the sales team is basically where I learned 2nd ray energy.
 
+### 2022-05-27 19:06 - should I stay or should I go
+
+it feels like there is this discussion going on about ... let me try another approach...
+
+I've been writing these things about the annunaki and it feels that my perspective on the writings seems to be very engaging to some people. also, I had a weird thing happen this morning that I don't know how to explain.
+
+I was looking out the window in the morning to see if new things had popped into view. I noticed that I can begin to see the white outline of the window wayyy down past the sleep centre, probably on the street that goes off of briargate. I've only seen the house from the front of the street when I walked down it and the back of it the other time I walked along the freeway to bonforte. so, it's kinda new to see like that. I can see it from the driveway if I look just the right way, but it hasn't "popped in" to my view yet.
+
+I noticed remi and paul's son's car in the driveway off to the side so I thought about how I probably won't do any yard work today. there was another thing that happened too which I can't remember now, but I started to feel a very strong projection of anger coming out -- probably from him. I know it wasn't me, and upon feeling that, all of a sudden I started to get a strong desire to go over there and do yard work anyway.
+
+so then I started to analyse the feeling, and I noticed that I probably attracted it because it was nearly the same feeling that I felt last night when thinking about alalu and how it felt to me like enlil was really pissed off at him being successful, and that the feeling that his superiority was threatened, was probably the real reason for the destruction of tiamat.
+
+the feeling felt the same. it felt very strongly that he didn't like the idea of someone so unsuitable or unfit (me) could be having so much success -- and I guess that may be why he might be here.
+
+the other thing is I keep feeling like there is something planned for tomorrow, too. I don't think it's me because I don't have any intention of doing anything tomorrow. I kinda want to keep working on myself and improving my skills. mom asked me what I wanted for my birthday, but she can't really give it to me. I wanted to be able to program shaders effortlessly like I can do with text parsing. I want the components of the display to appear to me like the words and text does when I'm parsing. obviously, she can't give that to me, and I have to figure out how to program shaders for myself.
+
+I also want greater understanding of random and chaos, so I talked about that -- and somehow that tangented off into a discussion about builders, cathedrals, and that I found it likely that probably the church paid for all of those to be built, probably because they thought that they would make a lot of money off of these amazing cathedrals where people can go to feel good. those two subjects are probably connected, but I don't know what that connection is.
+
+---
+
+you see I really like my life the way it is because I'm growing and expanding so much. I determined last night that if I was going to keep this going, I have to just drink alkaline water and no more coffee, so I've prepared already to get rid of that now too. I went to sleep.
+
+when I woke up, I had this strong sensation that I don't mind being watched, but *I don't want to perform*. I searched the feeling to find its origin and it's all wrapped up in the expectation stuff -- as in, I still don't know how to deal with people's expectations, so I kinda still avoid them (like I'm doing now), so I have to figure that out eventually.
+
+what I want to do is to get to my connected state as smoothely as possible. the last few days, there were a few mornings where I was very close to the kundalini rising, but it didn't at all feel pleasurable[^1]. when that happens, it doesn't at all feel like no resistance or pleasurable at all. it actually feels like I'm dying or am about to die if I let it keep going. that's a pretty serious indication of resistance, so I don't really want to let it go up until it actually feels smoothe.
+
+the image that I've had in my head about this event is one where I'm progressing along getting better and better at what I do, and when it's finally time for my kundalini to rise, I don't even really notice that it's happening. it feels so normal and there's not at all a big step to it at all -- so kinda like lucid dreaming, if you realise that you're in a dream it'll pull you out of it, so you have to find ways to feel normal and like it's no big deal at all or anything like that[^2]...
+
+so what I'm trying to say is that there have been enough indications to me that I'm still not ready. I shouldn't have been able to feel anger coming from remi and paul's son[^3] if I were actually ready.
+
+so no, I don't think I'm ready still, and I think I should continue to stay until it becomes so smoothe that it's like that empowering feeling when the lucid dream hits when you realise you can do whatever you want, and that feels totally normal, not weird -- and in no way should it be any other way: of course I have complete control over my reality. I am a "god" (@[blahblog](2022-05-25 21:32)).
+
+[1]: in snake-bros #042, the minethehive guys were saying that the kundalini rising should feel really really good, and they were describing it like an orgasm (or at least that was what they transmitted), so when russ talked about this guy who invuluntarily has the kundalini rise all the time, had to do some chakra cleaning cause it was causing him alements.
+
+[2]: huh, so the chat with the minethehive guys *was* "the answer" -- and I didn't even really understand it. interesting.
+
+[3]: I think his name may also be paul, too -- which is also interesting because the three pauls have all had very interesting reactions to me.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
