@@ -3382,6 +3382,24 @@ so no, I don't think I'm ready still, and I think I should continue to stay unti
 
 [3]: I think his name may also be paul, too -- which is also interesting because the three pauls have all had very interesting reactions to me.
 
+### 2022-05-28 13:48 - on reincarnation
+
+last night when talking to dad (great conversation, btw), he asked me if I believed in reincarnaton. I said that it seemed pretty plainly obvious to me that a lifetime is sorta just like another persective the planet, solar system, galaxy, universe, etc. is experiencing itself and so if I think of one day as one picture angle, a lifetime is sorta like many picture angles of the same thing over time. well, if you want to increase the detail and quality of that hologram, you want to have more perspectives from different times but also from different points in space. the more perspectives you get of the planet, solar system, galaxy, universe, etc., the higher detail the hologram becomes. it seems pretty obvious that these super structures are constantly abstracting away the details and finding higher and higher dimensional perception of itself or the world outside of it.
+
+the sleep and waking cycles seem to illustrate this the best. in one state you're looking inward and the other, outward. with time and better understanding, both of these become clearer.
+
+he then questioned if I believed in the idea that if you don't do certain things right, you'll reincarnate as a monkey or butterfly or something. I told him I thought that's complete BS, but I didn't explain why I.
+
+---
+
+I do not believe you can ever become less than you already are. it's potentially possible to find an interface to allow you to conceptualise your world like a human does in a cat's body, but you can't ever go go back to conceptualising your world like a cat does.
+
+I think the incarnating entity (the consciousness) seeks a body that is compatible with its perception. I belive that it also desires an environment where the consciousness can gain a wider perspective of itself, and so this desire acts on a lot of different forces which move things around and get the right people mating so that you can be born into a body with the most compatible environment and form of perception. something nearby to your perception, not something totally different. so, in that way, I find it essentiall impossible that you could ever reincarnate into a cat --
+
+unless, of course we could find a way to allow a human to conceptualise its world like a human does in a cat's body. that'd be cool right?
+
+I do think that both natural and unnatural hybrids allow for consciousness of compatible frequency to incarnate, and then stabilisation processes (evolution and "natural selection") improve upon the concept of that form so that the DNA is producing a hardy and viable lifeform for that consciousness to incarnate into.
+
 ### who/what/when vs why vs how
 ### corrections
 ### 54 and eclipse
