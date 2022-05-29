@@ -1,5 +1,54 @@
 
+### inconsistencies
 
+> Ea his bride-to-be by Anu's decree abandoned, a princess named Damkina he instead espoused; A son, an heir, to them was born; Marduk they named him, One in a Pure Pace Born it meant.
+
+> Imperishable Star: The Egyptian name for the planet from which Ra had come to Earth 
+
+I don't know where sitchin got this from but the sirians say that ra and venus are made from the same silica stuff. what I don't understand is how enki bore a son with damkina that had a different appearance than he did. I get the feeling that these sons and daughters narratives are sorta like a coverup.
+
+### time problems
+
+> On Lahmu construction was progressing; heroes for the Way Station were also arriving.
+> A Shar, two Shars were the preparations lasting; then Anu gave the word.
+> On Earth the seventh day it was, a day of resting by Enki at the beginning decreed.
+
+how did two shars (7200y) pass in a single day on earth?
+
+---
+
+> One day of Nibiru was a month of Earth for her, Two days, three days, four days of Nibiru like months of Earth they were, Five and six and seven and eight days of months were completed; The ninth count of motherhood was completed; Ninmah was in travail.
+
+> Fast was the newborn growing, what on Nibiru a day was, a month in the Abzu was.
+
+> The pregnancy, by an admixture conceived, how long will it last? to each other they wondered.
+> Will it be nine months of Nibiru, will it be nine months of Earth?
+
+if 1 nibiru day is 30 earth days, that means that the average pregnancy on nibiru would last 8100 earth days... that would be very unfortunate to be pregnant 22.5y. wow. time must go very very fast there -- so it was probably very high frequency existance there.
+
+
+
+### alalu and the adamu
+
+I noticed that enki called the primitive worker "lulu" -- which is like "alalu" -- when successful creating the first female, she is called "ti-amat" -- which is very similar to tiamat.
+
+I wonder if the first set of beings that were created was actually done prior to this by alalu on tiamat -- but alalu's beings weren't primitive workers, but instead geniuses.
+
+he then took alalu's recipe and combined it with the ape to get the adamu.
+
+I wonder if alalu's recipe first came from pigs?
+
+### ninmah and anu
+
+I keep noticing that anu has a lot of decisions that ninmah seems to be the one that relays the information. if nibiru is just a ficticious planet, the ruler of nibiru could also be ficticious as well. inotherwords, anu could be completely made up. ninmah is anu, but because everything is run by dudes, she could be just giving the words of anu (from nibiru which nobody in sumer has ever seen), running the show from earth.
+
+### the waystation on mars
+
+there's this weird thing where anu gives the word (which ninmah relays) that mars needs to become the waystation before sending the gold to nibiru. from the perspective of the people on earth, they're sending the gold to nibiru, but it has to go to mars (which is nibiru).
+
+### planets to the annunaki
+
+he calls the gas giants, "firm planets", saying that jupiter is the foremost, which is the opposite of mainstream *gas* giants, so why would he call gas "firm"?
 
 ### conflict foreboding
 
@@ -15,7 +64,25 @@ I get the sense that the word translated as "rocket" can probably be translated 
 
 "sky chamber" seems to be also an anti-gravity device -- something today we would associate with a UFO or flying saucer. it has the ability to scan, move around the planet, survey, and oversee things.
 
+netforce is gravity
+
+### ME and codes
+
+ME sounds to me like genetic code -- DNA. they seemed to have the ability to understand the formulas of the genetic code built into their own genetic code, and so they used genetic code (DNA) as a sort of computer capable of calculating orbits and recording data.
+
+what's interesting to me is they seem to interface with the genetic code directly -- seemingly by looking at it or touching it, and so the secrets stored on the ME needed to be stored in a safe place.
+
+another interesting thing is, assuming that ME is DNA, they don't seem to need to preserve it in any way -- and it's almost as if it won't degrade or deteriorate, which suggests to me that another basic knowledge they had is to create an environment where DNA doesn't seem to degrade.
+
+though they seemingly live very long lifespans, they do seem to die, and so therefore something is degrading the DNA associated with daily living, rather than an environmental degredation. if they were so knowledgeable of creating such a preservative environment, this may be the original reason for introducing telomeres as a sort of "programmed obsolesence"
+
+later on when the environment got worse, their size (they were giants apparently) decreased and they lived shorter lifespans. this may have also degraded the MEs that they stored their data and secrets on, too, which is why they had to seemingly start over after the major cataclysms.
+
+
 ---
 
-mercury
-Endu: 
+Mummu: the planet mercury
+
+### incredible quotes I want to memorise
+
+> With wisdom and understanding has the Creator of All our life essence filled, To whatever using of it we capable are, is it not that for which we have been destined?

@@ -49,6 +49,7 @@ const dash_replacements = (list, replacement = '--') => {
 //    config
 // ------------
 
+const transform_quotes = true
 
 txt_replacements([
     // remove dashes
@@ -61,12 +62,12 @@ txt_replacements([
     [/\n([0-9A-Z, ]+)\n/g, (line, t) => {
         if (!t.length) return ''
         console.log('title:', t)
-        return '\n\n### ' + t + '\n\n'
+        return '\n\n' + prefix('### ', t) + '\n\n'
     }],
 
     // chapter descriptions
     [/\n(Synopsis of the [A-Za-z]+ Tablet.*)\n([^]+?)(### .*)\n/g, (line, synopsis, contents, title) => {
-        return '\n\n' + title.trim() + '\n\n#### ' + synopsis.trim() + ':\n' + contents.trim() + '\n---\n\n'
+        return '\n\n' + title.trim() + '\n\n' + prefix('#### ', synopsis.trim()) + ':\n' + contents.trim() + '\n---\n\n'
     }],
 
     // too much whitespace
@@ -74,6 +75,26 @@ txt_replacements([
 
     // scanning errors
     [/ [l1] /g, ' I '],
+    [/, ,/g, ','],
+    [/\. [‘']/g, s => ', ' + s[2]],
+    [/[a-z]\. [a-z]/g, (str, idx) => {
+        // console.log('replacing', str, txt.substring(idx-20, idx+20))
+        return str[0] + ' ' + str[3]
+    }],
+
+    // contractions from one line to another
+    [/[a-z\.\-,;:] [\-\.][a-zA-Z]/g, (str, idx) => {
+        console.log('replacing', str, txt.substring(idx-20, idx+20))
+        return str[0] + ' ' + str[3]
+    }],
+
+    // incorrect until I have the glossary of all proper names accounted for
+    // [/[a-z],\n[A-Z]/g, (str, idx) => {
+    //     console.log('replacing', str, txt.substring(idx-20, idx+20))
+    //     if (~str.indexOf('said, If she')) debugger
+    //     return str.replace(',', '.')
+    // }],
+
 ])
 
 
@@ -83,9 +104,16 @@ word_replacements({
     'lgigi': 'Igigi',
     'surrey': 'survey',
     'Endu': 'Eridu',
+    'Inannn': 'Inanna',
+    'Ninrnah': 'Ninmah',
+    'Lahrnu': 'Lahmu',
     'Thev': 'They',
+    'teas': 'was',
     // prolly wanna make a "match case" text replacement option
     'thev': 'they',
+
+    // ancient words
+    'agog': 'eager',
 })
 
 dash_replacements([
@@ -123,6 +151,7 @@ const paragraph_exception = generate_txt_condition_fn([
 const should_join = generate_txt_conditions_fn('prev,next', [
     {prev: /[,;\-]$/},
     {prev: 'let volcanoes again erupt!', next: 'he then commanded.'},
+    {prev: 'as your spouse?', next: 'they her asked.'},
 ])
 
 const shouldnt_join = generate_txt_conditions_fn('prev,next', [
@@ -167,7 +196,6 @@ function generate_quote_section_fn (quote_sections) {
 
     fn += '}\n'
     fn += 'return false'
-    // return new Function('i,txt', fn)
     return (new Function('quoted, insert_line', 'return (i,txt) => {' + fn + '}'))(quoted, insert_line)
 }
 
@@ -211,9 +239,6 @@ function generate_txt_condition_fn (conditions, if_true = 'true', if_false = 'fa
     return new Function('txt', fn)
 }
 
-
-
-
 function replace_line (prev, next) {
     let joined = prev + ' ' + next
 
@@ -229,7 +254,8 @@ function replace_line (prev, next) {
         return joined
     }
 
-    if (/^[A-Z]/.test(next)) {
+    if ((!quoted.inside || (transform_quotes && /^([ >]+)/.test(quoted.inside)))
+      && /^[A-Z]/.test(next)) {
         if (/("?[!:\?\.]"|[,;:!\?\.])$/.test(prev)) {
             return paragraph_exception(next) ?
                 joined : [prev, '', next]
@@ -254,8 +280,7 @@ function do_quotes () {
                 insert_lines(quote.endl, type)
             } else if (/^([ >\-*]+)/.test(type)) {
                 for (let i = quote.startl; i < quote.endl; i++) {
-                    if (txt_lines[i] === '---') debugger
-                    if (txt_lines[i]) txt_lines[i] = type + txt_lines[i]
+                    if (txt_lines[i]) txt_lines[i] = prefix(type, txt_lines[i])
                 }
             } else {
                 console.error('unknown quote type:', quote.type)
@@ -300,9 +325,6 @@ while (i < txt_lines.length-1) {
     let next = txt_lines[i+1].trim()
 
     let replacement = replace_line(prev, next)
-    // change this to be a starting line idx,
-    // continue to transform until ending idx is found
-    // then, go back to each line until starting idx and add the prefix or ``` chars
     if (Array.isArray(replacement)) {
         insert_lines(i, replacement, 2)
         i += replacement.length-1
@@ -322,29 +344,11 @@ while (i < txt_lines.length-1) {
 
 do_quotes()
 
-
-// // scanning errors
-// txt = txt.replace(/, ,/g, ',')
-// txt = txt.replace(/\. [‘']/g, s => ', ' + s[2])
-// txt = txt.replace(/[a-z]\. [a-z]/g, (str, idx) => {
-//     // console.log('replacing', str, txt.substring(idx-20, idx+20))
-//     return str[0] + ' ' + str[3]
-// })
-
-// txt = txt.replace(/[a-z] [\-\.][a-z]/g, (str, idx) => {
-//     // console.log('replacing', str, txt.substring(idx-20, idx+20))
-//     return str[0] + ' ' + str[3]
-// })
-
-// // probably unnecessary cleanup
-// txt = txt.replace(/## ##/g, '##')
-// txt = txt.replace(/### ###/g, '###')
-// txt = txt.replace(/\n\n\n/g, '\n\n')
-// txt = txt.replace(/\*\*\*###(.*)\*\*\*/g, (_, inner) => prefix('###', inner))
+txt = txt_lines.join('\n')
+// this shouldn't be necessary
+txt = txt.replace(/\n\n\n/g, '\n\n')
 
 console.log('done', output_path)
-
-txt = txt_lines.join('\n')
 
 fs.writeFileSync(output_path, txt)
 

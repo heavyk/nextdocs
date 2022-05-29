@@ -5355,7 +5355,7 @@ Marduk's wife Sarpanit and his son Nabu plead for his life
 Ningishzidda, knowing the Mount's secrets, reaches Marduk 
 Marduk, his life spared, goes into exile 
 Enki and Enlil divide the Earth among their other sons 
-THE TENTH TABLET
+THE ELEVENTENTH TABLET
 242 
 Praise to Ninharsag, on Earth the Peacemaker! In Unison the Anunnaki proclaimed. 
 During the first Shar after the Deluge, Ninharsag to cool down tempers managed; 
