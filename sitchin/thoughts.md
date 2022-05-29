@@ -252,3 +252,32 @@ I'm really struggling to put all of this into words, but it totally all makes se
 mr. motor is very very upset right now. I think he's channeling enlil our saviour.
 
 [1]: according to the sirians, anyway -- and I think they're right, because the way things "connect" is the way they feel -- and all concepts are constantly attracting more things and affecting other concepts based on the way they feel
+
+### 2022-05-29 13:19 - helplessness
+
+last night I finished up the 9th tablet and then I lisnend to snake-bros "#045 - into nowhere", and the sense that the author presented was one of helplessness. interestingly it's the same feeling that I feel between the annunaki and the deluge and today's world leaders and the 411 stuff: @[blahblog](2022-05-29 13:33). I think it's a combination of coverup and helplessness.
+
+as I'm reading the tablet, I noticed that the first thing they did is keep the coming deluge a secret from people. the second thing I noticed is that they already had a series of things to blame. they said that sunspots were getting really big and dark (if you can see a dark spot on the sun, the sun's surface has an ENORMOUS vortex/sunspot on it), and they also said there were an accelerating number of earthquakes, it stopped raining, and the coming deluge is going to be caused by a glacier falling into the ocean. so, glacier was the CO2 of those times, huh? it's the same BS as modern science: they're identifying a problem and then rapidly jumping to blame all of these "climate extremes" on something may sound kinda maybe plausible, maybe.
+
+---
+
+it's pretty obvious to me that the annunaki have no idea what's causing the disturbances in the climate. I think this story is a retroperspective on the whole thing as dictated to the scribe, probably by enki himself, and essentially the conclusion there is analysing the difference between fate and destiny. enki doesn't say it specifically, but if we consider that alalu did have a successful thing going and likely enlil got pissed off and tried to destroy a creation that alalu made. well enki repeated the same performance on earth and he's kinda saying that history repeated itself.
+
+so how repeatable is history? he questioned. (lol) cause I think this is the first serious inquiry into what is attraction. enki seems to be starting to see that there is some other factor at work, and it isn't just physical conditions that are to blame for the catastrophes.
+
+I want to finish the book before I begin to talk seriously about it, but a destiny inspires a feeling of helplessness -- but he notices that you can alter a destiny in the sense of altering the orbit of the planet, but if I'm right, this is what they originally did to mars, and the large gash in the side is evidence that even with altering the physical trajectory, there's still another force at work here (which I believe is what caused the attraction to mars/nibiru) -- but he sees that even though there is a trajectory of a person, that trajectory isn't certain -- which is what he calls a "fate" -- and that alteration of trajectory *doesn't* seem to cause worse effects (like the alteration of a destiny does).
+
+so what is the mechanism that allows for the alteration of a fate? he seems to be tying in the dissatisfaction, but there's a subconflict which is identified by the word "satiated" -- where he keeps trying to satiate the dissatisfied annunaki and igigi, but it's to no avail. no matter how hard he tries, they're always pissed off and unhappy. what that tells me is he notices that dissatisfaction causes massive destructions and the planet to stop nurturing its inhabitants, but he can't figure out how to get others to stop being dissatisfied about stuff.
+
+it's a really interesting book because of all of the dynamics, and I kinda think that the conclusion to it has a much stronger emphasis on secrecy and illusions -- because I'm now reading the book with the assumption that the nibiru thing is just a story to continue to allow them to look like gods with a heavanly abode, when they're just as helpless as anyone else. if nibiru is a made-up story and they're just keeping up the charade because it legitamises their rulership, and without it, they're no different than the earthlings. enlil is very scared that the earthlings will "become like us" -- but more than that, he's scared that they'll become better than them (the very thing that I think he's scared of and has tried to get rid of since alalu). without nibiru, what makes them any more fit to rule than an earthling?
+
+if humans were to find a way to organise theirselves without the top-down rulership, that would be the ultimate disaster. there's no way to really remove their power structures without attracting our own problems. there's also no way to get them to stop being dissatisfied about everything; that's entirely their decision.
+
+at the end of this next cycle, I think that it's going to be global 411. when it happens, only the astral an the conceptual will remain, because physical will cease to have suitable support for human life in the traditional sense, and so will be "rebuilt" as a manifestation of our perception (I've considered this to be the most likely way that all of our attraction will begin to form into larger and larger structurs)
+
+until then, a feeling of helplessness will continue to grow, I'm sure. from their perspective, they'll be overrun by beings that are pretty similar to me.
+
+it's really cool man because this 411 stuff sounds really crazy and stuff, but it's just the next cataclysm. they have no idea how to prevent it, and this time only you can only save yourself (ie if you're outside of time and space, you're fine).
+
+sure self-organising humans is a pretty big disaster, but an accelerating number of leapfrogging-time-pickles is an even *bigger* disaster. I'm really excited to learn more. this book is really really inspiring.
+
