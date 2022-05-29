@@ -65,6 +65,11 @@ txt_replacements([
         return '\n\n' + prefix('### ', t) + '\n\n'
     }],
 
+    // subsection titles
+    // [/Now this is the account of/g, (line) => {
+    //     return prefix('\n#### ', line)
+    // }],
+
     // chapter descriptions
     [/\n(Synopsis of the [A-Za-z]+ Tablet.*)\n([^]+?)(### .*)\n/g, (line, synopsis, contents, title) => {
         return '\n\n' + title.trim() + '\n\n' + prefix('#### ', synopsis.trim()) + ':\n' + contents.trim() + '\n---\n\n'
@@ -76,7 +81,7 @@ txt_replacements([
     // scanning errors
     [/ [l1] /g, ' I '],
     [/, ,/g, ','],
-    [/\. [‘']/g, s => ', ' + s[2]],
+    [/[\.,] [‘'`]/g, s => ', '],
     [/[a-z]\. [a-z]/g, (str, idx) => {
         // console.log('replacing', str, txt.substring(idx-20, idx+20))
         return str[0] + ' ' + str[3]
@@ -84,6 +89,10 @@ txt_replacements([
 
     // contractions from one line to another
     [/[a-z\.\-,;:] [\-\.][a-zA-Z]/g, (str, idx) => {
+        console.log('replacing', str, txt.substring(idx-20, idx+20))
+        return str[0] + ' ' + str[3]
+    }],
+    [/[a-z\.\-,;:][\-\.] [a-zA-Z]/g, (str, idx) => {
         console.log('replacing', str, txt.substring(idx-20, idx+20))
         return str[0] + ' ' + str[3]
     }],
@@ -107,6 +116,10 @@ word_replacements({
     'Inannn': 'Inanna',
     'Ninrnah': 'Ninmah',
     'Lahrnu': 'Lahmu',
+    'Niburta': 'Ninurta',
+    'llabrat': 'Ilabrat',
+    'Iamb': 'lamb',
+    'corning': 'coming',
     'Thev': 'They',
     'teas': 'was',
     // prolly wanna make a "match case" text replacement option
@@ -151,6 +164,8 @@ const paragraph_exception = generate_txt_condition_fn([
 const should_join = generate_txt_conditions_fn('prev,next', [
     {prev: /[,;\-]$/},
     {prev: 'let volcanoes again erupt!', next: 'he then commanded.'},
+    {prev: 'Sati before me come!', next: 'Adapa said.'},
+    {prev: 'and age we are!', next: 'to her he said.'},
     {prev: 'as your spouse?', next: 'they her asked.'},
 ])
 
@@ -345,6 +360,7 @@ while (i < txt_lines.length-1) {
 do_quotes()
 
 txt = txt_lines.join('\n')
+
 // this shouldn't be necessary
 txt = txt.replace(/\n\n\n/g, '\n\n')
 

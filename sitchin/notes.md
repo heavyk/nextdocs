@@ -17,6 +17,13 @@ how did two shars (7200y) pass in a single day on earth?
 
 ---
 
+> Males with females among them were constantly mating, quick were their proliferations:
+> In one Shar, sometimes four, sometimes more, were their generations!
+
+it took them 3600y to make 4+ generations? that seems improbable to me. even the biblical patriarchs reproduced faster than this.
+
+---
+
 > One day of Nibiru was a month of Earth for her, Two days, three days, four days of Nibiru like months of Earth they were, Five and six and seven and eight days of months were completed; The ninth count of motherhood was completed; Ninmah was in travail.
 
 > Fast was the newborn growing, what on Nibiru a day was, a month in the Abzu was.
@@ -26,7 +33,19 @@ how did two shars (7200y) pass in a single day on earth?
 
 if 1 nibiru day is 30 earth days, that means that the average pregnancy on nibiru would last 8100 earth days... that would be very unfortunate to be pregnant 22.5y. wow. time must go very very fast there -- so it was probably very high frequency existance there.
 
+---
 
+> In the ninety-third Shar the two, by Enki fathered, in the Edin were born.
+> In the ninety-fifth Shar, a son Adapa and Titi finally had; Sati, He Who Life Binds Again, Titi him named; by him were the generations of Adapa counted.
+> In the ninety-seventh Shar, to Sati a son by his spouse Azura was born.
+
+that means that it took adapa and titi (adam and eve) 7200y to conceive seth after cain and abel. that's a long time. then, 7200y later seth gives birth.
+
+I get the feeling that the shar isn't 3600 *earth* years... I'm starting to get the sense that it may actually be a solar cycle, but I'm not sure. I would say that going by genesis numbers, the shar may be 36-72y -- I dunno.
+
+> In the midst of the ninety-third Shar was he born, by the end of the one hundred and eighth he died.
+
+he lived ~14.5 shars. if a shar is 64y, he lived 928y. 
 
 ### alalu and the adamu
 
@@ -57,6 +76,10 @@ A conflict that the obtainment of gold would endanger Anu was fearing; One of th
 so they cast lots...
 
 Anu to Nibiru to return, its ruler on the throne to remain
+
+### destiny and fate
+
+> So did Enlil in anger say. Now the lot is cast, destiny by fate is overtaken!
 
 ### words
 

@@ -3625,7 +3625,7 @@ Am I to fame and kingship fated, or again to humiliated be?
 In silence did Enki embrace his son, on the desolate Moon to him a promise made: 
 Of that of which I have been deprived your future lot shall be! 
 Your celestial time will come, a station mine adjoining yours shall be! 
-Now this is the account of Sippar, the Place of the Chariots in the Ed i n, 
+Now this is the account of Sippar, the Place of the Chariots in the Edin, 
 And how the Primitive Workers to the Edin were returned. 
 For many circuits of the Earth, from the Earth were father and son absent; 
 On Earth no plans were implemented, on Lahmu the lgigi were in turmoil. 
