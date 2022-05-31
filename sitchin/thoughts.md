@@ -281,3 +281,26 @@ it's really cool man because this 411 stuff sounds really crazy and stuff, but i
 
 sure self-organising humans is a pretty big disaster, but an accelerating number of leapfrogging-time-pickles is an even *bigger* disaster. I'm really excited to learn more. this book is really really inspiring.
 
+### 2022-05-31 14:32 - alalu, ninurta, and me
+
+during this whole time where I've been reading the [lost book of enki](/sitchin/lost-book-of-enki.md), I've noticed various reactions comparing me to enki.
+
+the thing is, I just don't really resonate that much with enki as I do with others. to explain I actually kind of need to explain how I see the story. first of all, I've actually felt the strongest resonance with alalu and I've also had this very strange fascination with ninurta as well.
+
+I explained the part about how I think that alalu early on said, to the martians that he wanted to do things his own way (I believe this is the "fire" path), so he peaced out and went to tiamat and started to do his own thing. I think he was successful and created quite a high society and "succeeded" in developing mental capacities capable of inserting himself into time and space at will.
+
+once he did that, I think he figured out that no matter how successful his endeavours are, it still doesn't fix the dissatisfaction brewing on mars. so he self-sabotaged (for many reasons I've stated in the past) because for him, this is actually the most energetic path (even more energetic in the long term than creating a successful high-minded society).
+
+he then reinserted himself into the timeline as enlil, and enlil self-sabotaged all of his accomplishments on tiamat/zyron. from then on out, he has been playing the "bad-guy" and influencing the timeline (remember, he's 2nd ray, so in his perspective everything is connected, and everything influences everything else) -- and has been inserting himself into the timeline in various ways to ensure that we get the opportunity to try and make things work by motivating with dissatisfacton focusing on what doesn't work.
+
+obviously, it doesn't work out, but you gatta try, right?
+
+---
+
+I haven't really got to the story when ninurta starts to take a more centre role, but I do know that him, marduk and nergal cause a bunch of problems, repeatedly destroying. I can't really say for certain cause I haven't read that far, but the sense of the book that I have already is that these events are self-sabotage as well. I think he's been repeatedly destroying his own creations by introducing characters into the timeline that cause focus and motivation through dissatisfaction.
+
+I also get the sense that ninurta is the precursor to the allayandra + anatau, thing. his mother is ninmah (anatau) and he's respnsible for destroying the great pyramid and a number of other things.
+
+it seems that these three: alalu, ninmah, and ninurta (jeortau, anatau, allayandra) have been destroying creations since forever. mankind finds another way to improve conditions, so jeortau produces another "bad-guy" to increase dissatisfaction and ninurta destroys the form.
+
+I think that's good for now.
