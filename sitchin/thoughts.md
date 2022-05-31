@@ -287,7 +287,7 @@ during this whole time where I've been reading the [lost book of enki](/sitchin/
 
 the thing is, I just don't really resonate that much with enki as I do with others. to explain I actually kind of need to explain how I see the story. first of all, I've actually felt the strongest resonance with alalu and I've also had this very strange fascination with ninurta as well.
 
-I explained the part about how I think that alalu early on said, to the martians that he wanted to do things his own way (I believe this is the "fire" path), so he peaced out and went to tiamat and started to do his own thing. I think he was successful and created quite a high society and "succeeded" in developing mental capacities capable of inserting himself into time and space at will.
+I explained the part about how I think that alalu early on said to the martians that he wanted to do things his own way (I believe this is the "fire" path), so he peaced out and went to tiamat and started to do his own thing. I think he was successful and created quite a high society and "succeeded" in developing mental capacities capable of inserting himself into time and space at will.
 
 once he did that, I think he figured out that no matter how successful his endeavours are, it still doesn't fix the dissatisfaction brewing on mars. so he self-sabotaged (for many reasons I've stated in the past) because for him, this is actually the most energetic path (even more energetic in the long term than creating a successful high-minded society).
 
@@ -303,4 +303,49 @@ I also get the sense that ninurta is the precursor to the allayandra + anatau, t
 
 it seems that these three: alalu, ninmah, and ninurta (jeortau, anatau, allayandra) have been destroying creations since forever. mankind finds another way to improve conditions, so jeortau produces another "bad-guy" to increase dissatisfaction and ninurta destroys the form.
 
-I think that's good for now.
+---
+
+so what I'm saying is, I align much more with alalu in that I'm totally fine with whatever anyone is doing or wants to do, cause I'd just rather go and do things my own way -- then, when I'm done of that form, just destroy it and start over. there's no reason to try and constantly preserve everything if you're a creator. just make things and then destroy them. have you ever seen how little kids play? they love to destroy the creation just as much as they love to create it. destruction isn't a bad thing, unless you think that creation is hard or it takes a lot of effort or something. if creation is easy, destruction isn't bothersome.
+
+when I was a kid, I lived in my imagination, and creation for me was only just a thought or two. I remember feeling like the things I created were real. as tesla said...
+
+> "I could picture them all as real in my mind. Thus I have been led unconsciously to evolve what I consider a new method of materializing inventive concepts and ideas, which is radically opposite to the purely experimental and is in my opinion ever so much more expeditious and efficient."
+
+... and so if one considers this in the larger scheme of things, I started from that top-down form of creation like tesla had (3rd or 2nd ray), but my brain haemorrhage caused me to no longer have an imagination anymore, and so with an inability to visualse anymore, now I had to work from the ground up (7th ray) and build my creations the "purely experimental" way. from time to time, I got glimpses into that capacity to materialise and interact with concepts as if they were real, but they were short-lived experiences, so I know I have the capacity to do what tesla talks about, but instead I've got the motorcade (a very enlil-esque entity) which is very insistant that I do not use that capacity -- so likely this is just another self-sabotage.
+
+---
+
+keeping all of that in mind, last night I read ahead a little bit about the part where ninurta dismantles the great pyramid.
+
+I was thinking about the various references that I made the last few days to the speed of light changing and how it would dramatically change lots and lots of things about our society (many electric things require the speed of light to be constant because EM field will propagate at a different speed which would change the timing of many components' interactions)
+
+well, in that discussion mom brought up leonardo da vinci and there's this weird thing about the renaissance period where he has to go and repair the pyramid (taurus mountain -- which btw, taurus is the symbol of enlil) and then sometime after that the calendars need to be changed (as recorded in a midsummer's night dream by shakespere), so it seems that some adjustments needed to by made to the speed of light and the rotation of the earth, which I believe da vinci is credited as having fixed.
+
+those thoughts reminded me of the sonnet 123 by shakespere:
+
+    No! Time, thou shalt not boast that I do change,
+    Thy pyramids built up with newer might
+    To me are nothing novel, nothing strange,
+    They are but dressings Of a former sight:
+    Our dates are brief, and therefore we admire,
+    What thou dost foist upon us that is old,
+    And rather make them born to our desire,
+    Than think that we before have heard them told:
+    Thy registers and thee I both defy,
+    Not wond’ring at the present, nor the past,
+    For thy records, and what we see doth lie,
+    Made more or less by thy continual haste:
+      This I do vow and this shall ever be,
+      I will be true despite thy scythe and thee.
+
+the reason why I bring that up is because I believe that de vere (I assume he was one of the primary authors of shakespere) must have known something about this, having encoded the speed of light on the cover(?) follio (the one with the dots)... anyway, I also believe that he (along with others like cervantes and many more) self-sabotaged in the renaissance and basically repeated the same thing that alalu did. that's probably why there's so much YHVH and christ symbolism[^1] (along with the "bath" sonnets)
+
+so what I think de vere was interacting with a concept (probably in visual form), which was designed by the self-sabotagers from the renaissance to reset the speed of light and and to introduce concepts into the collective consciousness which would further delay things.
+
+oops derailed... so imagine de vere is seeing this concept as a future event, and he's writing about it -- and in it, the enki symbol shows up and starts to make pyramids again... something doesn't feel right so I'm gonna have to think about how to present the idea better, so for now I'll just relate what I felt...
+
+that sonnet gave me the sense of someting like, "wow, more pyramids, different speed of light, and a slightly different rules, but cool story bro -- it's not even all that interesting. nothing new, nothing exciting; not impressed." -- and so the sense that I had was that pyramid story is the same old boring crap that we've been repeating over and over (like a destiny), and so since it's all built on a giant sham, this time we're gonna do it a little bit different.
+
+hopefully this comes out right: it almost has the feeling like, "you can create all of the great conditions that you want mr. enki but team enlil thinks you're still going to be dissatisfied and in a hurry."
+
+[1]: if I assume that this self-sabotage thing is a thing and that enlil was the first "bad-guy" character he created to sabotage himself, which is interesting because the isrealites are called actually "enlilites" and YHVH would be another self-sabotage, so likely rai ernon of suern potentially is, as well -- which makes gwauxln the enki symbol. 
