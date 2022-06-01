@@ -349,3 +349,65 @@ that sonnet gave me the sense of someting like, "wow, more pyramids, different s
 hopefully this comes out right: it almost has the feeling like, "you can create all of the great conditions that you want mr. enki but team enlil thinks you're still going to be dissatisfied and in a hurry."
 
 [1]: if I assume that this self-sabotage thing is a thing and that enlil was the first "bad-guy" character he created to sabotage himself, which is interesting because the isrealites are called actually "enlilites" and YHVH would be another self-sabotage, so likely rai ernon of suern potentially is, as well -- which makes gwauxln the enki symbol. 
+
+### 2022-06-01 04:44 - the allalu bird
+
+when reading about dumuzi going to visit anu with adapa, and anu tells him that (s)he wants him to stay on nibiru, I had this recognition pop into my head that this is joseph and "potiphar's wife" (hatshepsut) story all over again. I don't really know why I was thinking about it but it's part of the reason why I claim that anu may have been the same person as ninmah.
+
+today when I was reading about the epic of gilgamesh, I clicked on the wikipedia page for dumuzi[^1] and it says in the epic of gilgamesh references tammuz as the love of ishtar's youth who was turned into an allalu bird with a broken wing.
+
+he has a month named after him too, it's a "midsummer month of 29 days" -- supposedly the month of july (not sure of the months line up to the gregorian though) -- which reminded me *once again* of a "midsummer's night dream" (I probably should actually try to read the play). dumuzi/tammuz is also adonis (which is in another of shakespere's plays too)
+
+---
+
+I noticed that "allalu" is "alalu" without an "l", so it must have been a reference to the annunaki god of the same name. they both fit the reborn-deity archetype and everything, but my searches on google are not really finding much[^1] for "allalu bird". I searched that text and the english translation of that line is:
+
+> tammuz, the lover of your earliest youth, for him you have ordained lamentations [of him] year after year
+
+this sounds a lot to me like the celebrated sacrifice that alalu did in the lost-book-of-enki:
+
+> So did Ninmah say. Let him in peace for eternity rest! she was saying.
+> They the cave's entrance again with stones covered; The image of Alalu upon the great rock mountain with beams they carved.
+> They showed him wearing an Eagle's helmet; his face they made uncovered.
+> Let the image of Alalu forever gaze toward Nibiru that he ruled, Toward the Earth whose gold he discovered!
+> So Ninmah, Exalted Lady, in the name of her father Anu did declare.
+
+so here we have ninmah/anatau celebrating the death of someone -- and though gilgamesh is making the correlation between her presence and her lovers dying, I personally believe that alalu self-sabotaged and had himself killed (probably using enlil).
+
+what's interesting is that alalu scene on mars is the end of alalu, and so ninmah elevates anzu to the guy in charge of mars.
+
+> As for you, Anzu, to you Anu the king his promise shall be keeping!
+
+continuing on with gilgamesh enumerating ishtar's lovers...
+
+> tammuz, the lover of your earliest youth, for him you have ordained lamentations [of him] year after year
+> you loved the colourful 'Little Shepherd' [allalu] bird and then hit him, breaking his wing, so now he stands in the forest crying, 'My Wing'!
+> you loved the *supremely mighty lion*, yet you dug for him seven and seven again pits
+
+well, anzu is depicted as a lion headed eagle, and was destroyed by ninurta (aries). most interesting are the lines describing him (from lost-book-of-enki):
+
+> *A prince among the princes was Anzu*, of royal seed his ancestry he counted; Evil thoughts filled his heart when to the Bond Heaven-Earth he returned.
+> To take away the Tablets of Destinies was he scheming, Of the decrees of heaven and Earth to take control in his heart he was planning.
+> With evil purpose Anzu the Tablets of Destinies seized; In a sky chamber he flew away, to the mountain of the sky chambers he swiftly went; There, in the Landing Place, rebellious Igigi for him were waiting, *To declare Anzu king of Earth* and Lahmu they were preparing!
+
+so he's a prince of princes that tries to declare himself as "king of the earth" (enki's title), and so he goes to the great pyramid and takes over the control over the planets.
+
+this is really weird because I believe this may have been exactly what joseph/senmut did later on in egypt. he supposedly had a dream of "seven years of plenty" followed by "seven years of famine"[^2] -- well, if he was able to get into the great pyramid and adjust the "destinies" of the planets in there (the tablet of destinies), then he could adjust the planetary conditions so that some yeears had a good conditions (as if it had an unusually long springtime) and then followed by poor conditions (if the planet adjusted to be something more like a solstice configuration).
+
+he/they cashed in tremendously those 7 years of drout (see doug's presentation on this) and hatshepsut had a massive treasury since then. I postulate that the land reposessions that happened during the 7 years of drout may have been way that the pharoah (hatshepsut) gave them the "promised land". I also postulate that this was the beginning of the chaotic orbit of venus which allowed for the exodus (with the "tablet of destinies"[^3]) out into the "promised land"
+
+I put the "tablet of destinies" in quotes there because I've never heard of a "tablet" that, once anzu took it out of the great pyramid makes you invincible: "Anzu was mocking Ninurta from his hideout: The Tablets are my protection, I am invincible! Anzu directed Lightning darts at Ninurta; the arrows could not approach Anzu, they turned backward." -- that's a property sounding much more like the "ark of the covenant" than just a "tablet" -- but then again, isn't a "covenant" a "destiny" or a "promise" (like the promised land)?
+
+---
+
+well, I didn't plan to go into the joseph thing, but there it is (there must have been desire to see what I think about it). I just find it really weird that these temporal resonances keep happening over and over[^4]. it reminds me of a thing called a "timewave".
+
+this pattern really reminds me of a bird of fire called the phoenix bird. it's a fire bird that is consumed by its own fire and then rebirths itself out of its own ashes.
+
+[1]: I just want to complain about how much google sucks lately. I typed in the search, 'dumuzi "allalu" innana' and the wikipedia page didn't even come up. a search like that a decade or so back would have definitely reached that page effortlessly. google is really curating its results *a lot* lately. it's very hard to do searches for stuff like this in mythology now. I would have expected wikipedia to show up, since that's filled nearly to the brim with mainstream dribble and lots of "fact checking" -- so I would have expected mainstream wikipedia to show up, at least... sheesh.
+
+[2]: is this future prophetic resonance to the "you dug for him seven and seven again pits"
+
+[3]: in addition, if venus were put into a cometary orbit again and was dramatically affecting the positions of the planets, I suppose during that time, the erruption of the volcano and the other plagues would probably be the best time to erase a few hundred years or so for the time compression needed to make the 1000y-bloom possible.
+
+[4]: I've looked ahead and I know that osiris/asar gets destroyed again (another reborn-deity) cause he was going to inherit the throne. they kill him, and then to celebrate/commemorate his death, supposedly the sphinx was carved into a lion: "Ningishzidda as Tehuti, the Divine Measurer, was recalled; To erase his memory Ra on the Stone Lion his image with that of his son Asar replaced."
