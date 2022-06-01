@@ -3759,7 +3759,7 @@ On the river's bank, bathing and frolicking Earthlings he noticed;
 Two females among them were wild with beauty, firm were their breasts. 
 Their sight the phallus of Enki caused to water, a burning desire he had. 
 Shall I not kiss the young ones? Enki his vizier Isimud was asking. 
-I the boat will hither row, kiss the young ones! Isimud to Enki was saying. 
+I the boat will hither now, kiss the young ones! Isimud to Enki was saying. 
 The boat thereto Isimud directed, from the boat to dry land Enki stepped. 
 A young one to him Enki called, a tree fruit she to him offered. 
 Enki bent down, the young one lie embraced, on her lips he kissed her; 

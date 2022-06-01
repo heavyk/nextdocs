@@ -188,7 +188,7 @@ Lugal: Literally, "Great Man"; epithet for a chosen king
 Lulu: The genetically engineered hybrid, the Primitive Worker 
 Lu-Mach: Son of Matushal and Ednat, the biblical Lamech Magan: Ancient Egypt 
 Malalu: Son of Kunin and Mualit, the biblical Mahalalel 
-Marduk: Firstborn son and legal heir of Enki and Damkina; worshiped as Ka in Egypt; jealous of his brothers, unsatisfied with Egypt alone as his domain, claimed and after exiles and wars attained supremacy on Earth from his city Babylon 
+Marduk: Firstborn son and legal heir of Enki and Damkina; worshiped as Ra in Egypt; jealous of his brothers, unsatisfied with Egypt alone as his domain, claimed and after exiles and wars attained supremacy on Earth from his city Babylon 
 Matushal: Son of Enkime and Edinni, the biblical Methuselah 
 ME: Tiny objects encoded with formulas for all aspects of science and civilization 
 Meluhha: Ancient Nubia 
@@ -291,9 +291,7 @@ Uruk: Akkadian name for Unug-ki (the biblical Erech)
 Utu: "Shamash" in Akkadian; twin brother of Inanna; commander of the Spaceport of Sippar in pre-Diluvial times and of the one in the Sinai after the Deluge; giver of laws from his cult center in Sippar after the Deluge; Godfather of Gilgamesh 
 Water of Life: Used to revive Inanna and bring her back from the dead 
 Water of Youth: Promised by Ra to his followers in an Afterlife 
-Way of Anu: The central band of the celestial sphere containing the zodiacal 
-constellations; on Earth, the central band between the northern Way of Enlil and the 
-southern Way of Enki 
+Way of Anu: The central band of the celestial sphere containing the zodiacal constellations; on Earth, the central band between the northern Way of Enlil and the southern Way of Enki 
 Way of Enki: The celestial sphere below the 30th parallel south 
 Way of Enlil: The celestial sphere above the 30th parallel north 
 Weapons of Terror: Nuclear weapons, used at first on Nibiru and then finally on Earth 

@@ -106,3 +106,18 @@ quite frankly, I'm stumped by these 12 planets bit. above, they talk about these
 
 
 [at this point, I'm very confused, so I quit]
+
+tring again...
+
+- sun (isis, -2)
+- mercury (thoth, +7)
+- venus (unessa, -3)
+- earth (genxicat?, -7)
+- moon (osiris, +-6-+)
+- mars (allayandra, +7)
+- zyron/charon (jeortau, +2)
+- jupiter (ra, +3)
+- saturn (dwal quin, +-4)
+- uranus (anatau, -1)
+- neptune (sanatau, +-3-+)
+- pluto (vulcan? -5+)

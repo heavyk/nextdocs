@@ -170,6 +170,7 @@ const should_join = generate_txt_conditions_fn('prev,next', [
 ])
 
 const shouldnt_join = generate_txt_conditions_fn('prev,next', [
+    {next: /^Now this is the account/},
     {prev: '---'},
 ])
 
@@ -274,7 +275,7 @@ function replace_line (prev, next) {
         if (/("?[!:\?\.]"|[,;:!\?\.])$/.test(prev)) {
             return paragraph_exception(next) ?
                 joined : [prev, '', next]
-        } else if (!quoted.inside && /[a-z0-9\)"I]$/.test(prev)) {
+        } else if (!quoted.inside && /[a-z0-9\)"I]$/.test(prev) && !shouldnt_join(prev, next)) {
             return joined
         }
     }
