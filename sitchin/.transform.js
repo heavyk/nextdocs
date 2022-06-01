@@ -2,7 +2,7 @@ const fs = require('fs')
 const Path = require('path')
 
 const INPUT_TRANSFORMED = false
-const OVERWRITE_INPUT = false
+const OVERWRITE_INPUT = true
 
 const input_file = 'lost-book-of-enki.md'
 const input_dir = __dirname
@@ -92,7 +92,7 @@ txt_replacements([
         console.log('replacing', str, txt.substring(idx-20, idx+20))
         return str[0] + ' ' + str[3]
     }],
-    [/[a-z\.\-,;:][\-\.] [a-zA-Z]/g, (str, idx) => {
+    [/[a-z\.\-,;:][\-\.] [a-z]/g, (str, idx) => {
         console.log('replacing', str, txt.substring(idx-20, idx+20))
         return str[0] + ' ' + str[3]
     }],
