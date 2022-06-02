@@ -464,4 +464,20 @@ lol
 
 [1]: the narrative is just the sequential unfoldment of archetypes, symbols and their interactions.
 
+### 2022-06-02 01:52 - the ficticious book of enki (followup)
 
+I'm reading the book again and it totally has a completely different feel now. it's weird how my pointing out that the book is ficticious has changed the feeling of "realness" that it once had (before I wrote that). I think the major difference is the reactions that people had to that.
+
+for me, it doesn't really matter. I'm pretty naive and can believe just about anything, so it's not really a problem for me to continue to believe in it.
+
+in fact, whenever I'm taking on a new idea, I jump into it fully assuming that the concept is true and then continue to try to falsify it along the way. I just "blindly" accept what they're saying as "truth" so that I can capture their perspective with as few preconceived notions. this book remains the same in my mind. I continue to believe it as if it were real, and then try to find holes in the narrative (ie. falsify it). I'm kinda doing the same with this one too.
+
+it's hard to describe the difference between "truth" and "feels right". the reason why I say this is because they're not even related. a person can relate something to me that is truth for them, but it may not feel right to me. likewise a person can relate something that "feels right" but doesn't have a single bit of truth in it. this is basically sales in a nutshell. no salesperson reads a spec sheet to the customer they're trying to sell something to (unless of course they ask to know the specs); usually, they're trying to make the product feel as right as as they can to potential customer.
+
+we're sold ideas that are not "truth" all the time. the entire bit of science is based on this idea of "truth". there was a really groundbreaking film about truth by the inventor of the internet which established a narrative as "truth". so, what if that "inconvenient truth" were actually not at all "true"? would it then become bad-feeling just like this narrative that sitichin is spinning?
+
+the matter is, these things need to be falsified, and so to go about trying to falsify the individual conversations is 100% impossible. even if someone were to dig up the lost book of enki and falisfy some or most of this book, we *still* don't know if enki was making up a narrative. just cause it's written in clay or stone, doesn't make it more "true". in fact, as I've been reading this book, I'm realising that most everything written down is *not* what really happened.
+
+just take the 9/11 commission report as an example: do you really think that's what really happened? what if they wrote it in stone and buried it for future generations to dig up so they could know the "official" (written in stone, mind you) justification for why we went to iraq and destroyed all the evidence of anything that could possibly falisfy sitichin's fabrication?
+
+see what I mean? pretty hilarious irony. I'll end it there.

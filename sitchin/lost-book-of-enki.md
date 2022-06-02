@@ -5013,7 +5013,7 @@ What conditions on earth and on Lahmu were altering, they wondered.
 
 On the Sun flarings they observed, in the netforces of Earth and Lahmu there were disruptions.
 
-In the Abzu, at the tip the Whiteland facing, instruments far observing they installed; In the charge of Nergal, the son of Enki, and his spouse Ereshkigal the instruments ware put To the Land Beyond the Seas Ninurta was assigned, in the mauntainland a Band Heaven-Earth to establish.
+In the Abzu, at the tip the Whiteland facing, instruments far observing they installed; In the charge of Nergal, the son of Enki, and his spouse Ereshkigal the instruments ware put To the Land Beyond the Seas Ninurta was assigned, in the mauntainland a Bond Heaven-Earth to establish.
 
 On Lahmu the Igigi were restless; to pacify them Marduk was the task given:
 
