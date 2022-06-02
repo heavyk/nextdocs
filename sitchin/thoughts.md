@@ -411,3 +411,57 @@ this pattern really reminds me of a bird of fire called the phoenix bird. it's a
 [3]: in addition, if venus were put into a cometary orbit again and was dramatically affecting the positions of the planets, I suppose during that time, the erruption of the volcano and the other plagues would probably be the best time to erase a few hundred years or so for the time compression needed to make the 1000y-bloom possible.
 
 [4]: I've looked ahead and I know that osiris/asar gets destroyed again (another reborn-deity) cause he was going to inherit the throne. they kill him, and then to celebrate/commemorate his death, supposedly the sphinx was carved into a lion: "Ningishzidda as Tehuti, the Divine Measurer, was recalled; To erase his memory Ra on the Stone Lion his image with that of his son Asar replaced."
+
+### 2022-06-01 23:24 - the ficticious book of enki
+
+so I was looking up actual sumerian tablets on the internet to see what the original sources were, cause I wanted to actually *look* at some of the words sitchin is translating.
+
+I couldn't find the sources. apparently they don't really exist in tablet form. I was reminded of another book that he has: "divine encounters: a guide to visions, angels, and other emissaries" -- so it's pretty likely this book falls into the "channeled" category because I was thinking about it -- if this book is entirely fictional, that's a pretty incredible story. it says on the back cover (which wasn't available in the pdf I have) that the book was recreated from "scaffolding" from fragments.
+
+the other strange thing is that, like dtp, the book is pretty visual for me -- in that there is an accompanying visual aspect to the book which I can't really "see" but it is present while I'm reading the text.
+
+it's very similar to dtp (which is also "fiction") in that if it were purely fiction, it simply wouldn't capture so many vibrationally correct patterns. I don't find most of the fiction that hollywood puts out to be vibrationally very accurate, however I do find, for example the disney movies to have very interesting elements to them. some parts about them resonate quite well (like hunchback, beauty and the beast, etc.), and that's the kind of fiction that I like -- a fictional story which is vibrationally accurate.
+
+it seems to me that sitchin's method for writing this book must have something to do with -- I don't really know how to describe the feeling that I have when reading it, but it's very very interesting.
+
+I've expressed my ideas in previous entries regarding why I think this is a fantastic cover story where a lot of things were smoothed over pretty well. somehow it manages to very accurately capture the essence of these sorts of ancient rulers and how they did constantly smoothe things over to preserve a public image.
+
+even weirder is that when I was reading it, I was quite impressed by it for some details that seem very important, especially in today's society -- where enki shows his flaws and that the book kinda ends with a "we don't really know what's happening here" sorta thing (if you read a bit between the lines), which (again if reading between the lines) is a pretty big departure from the rest of the book which is trying to hold up a public image and lots of effort to do things the right way. the book really felt sincere and genuine to me -- which it wouldn't have if it were purely fiction.
+
+somehow sitchin managed to figure out how to capture the essence of enki in this text. I remember when I first started that enki himself must have actually dictated this text to the scribe, eridubsar and that the translation felt pretty legit to me.
+
+I don't think he invented this text from thin air, and I don't know how he got it -- maybe it was dictated to him, and his "true name" is eridubsar -- I don't know. this text has been blowing my mind though and I totally love it.
+
+---
+
+so this made me think of something: let's say for a moment that this text *is* a complete fabrication and that sitchin was just doing it to put more money in his bank account or something. maybe he was trying to stand up for enki and try to return society to ... I dunno ... I'm kinda struggling to come up with motives cause I don't really know sitchin very well -- but let's just say for a moment it's a complete forgery.
+
+if I resonate with the material, what ends up happening is that resonation begins to become a part of my world view and that is actually how I begin to see the past. it may not be "factual" -- but what exactly is "factual", anyway? all of anyone's memories are just a narrative based on your perception through which you viewed the events; that's why, when going back later and looking at the same thing with "these eyes", the same set of events have a different emotional/conceptual impact.
+
+what I'm saying is that there are infinite possible timelines extending out of the present into the future -- and there are likewise infinite possible timelines from the past arriving to the present. the only really thing that matters is "now" and how you got there is really largely inconsequential. we look at the trajectory (vector) through time we call "now" and extrapolate the trajectory into the past to explain the present. we say things like, "it's because of this, that, or the other thing that caused this circumstance to happen" -- and that may or may not have happened; that's just your narrative.
+
+I wake up in the morning and assume that yesterday for me was the same yesterday that mom, jaron, and greg experienced -- but that doesn't have to be so. they could have had an entirely different yesterday which tuned them to today than I did. since we don't go around asking someone everything that happened yesterday, we just assume it's true -- just like I don't ask for every word in the conversation that we're about to have to be defined using other words, and before we even begin the conversation we reinvent english, just to make sure we're talking about the same thing.
+
+what I'm saying is -- time is just wherever you're tuned to in the present and the events that need to transpire to tune you to the next thing, only taking into account the changes in environmental conditions -- and then if I deliberately focus on something or decide to feel a certain way, I'm causing an alteration of that "fate" (or "destiny", depending on how much astrology affects you).
+
+---
+
+so, it's kinda actually really funny to me that this book is fake, because, being vibrationally accurate, it's within the realm of possiblities for one of the infinite timelines of how I got to the present.
+
+so, what I'm saying is, "it's real enough for me to believe it" -- which is also really funny, because I don't actually believe what the text actually says. I believe that alalu had a very different role than the one that the text presents -- so I don't really "believe" the text for what it says on the surface, any more that I believe terrorists attacked the trade center on 9/11 event.
+
+9/11 is a real event that really happened, but the narrative is just a perception no more accurate than this book is. I'm perfectly free to believe that tesla style technology vapourised the towers and that nobody actually died in the entire event. it was a symbolic gesture that fortold (prophesied) the termination of the solomon brothers grip on the world trade and economics. to me it looks symbolic and a "sign of the times" and so therefore because I interpret the symbols the way I want to, I get to decide the way I see the narrative[^1] unfolding.
+
+so this got me thinking... actually I kinda want to double down a bit on this. if I can find other narratives which are vibratinally correct (but not necessarily factually correct), I'm willing to go ahead and take a look at them and integrate them into my narrative of how we arrived to the present moment. when I say vibrationally accurate, I mean they need to, like this "lost book of enki" does in taking the vibration of the surveyors out there and weaving a totally ridiculous cover story that accurately takes all of the elements and their interactions in the events, and then tries to explain them in a way which either makes sense and can be plausible, or is obviously a pretty fantastic story designed to smoothe over a few rough edges.
+
+from there, I'll take it and spin the narrative the way I see fit... there are infinite ways to look at the "facts" which brought me to the present.
+
+breaking the law...
+breaking the law...
+breaking the law...
+
+lol
+
+[1]: the narrative is just the sequential unfoldment of archetypes, symbols and their interactions.
+
+
