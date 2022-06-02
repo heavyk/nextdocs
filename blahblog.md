@@ -3432,8 +3432,61 @@ so, I think the FBI and other agencies do know a lot of things about this stuff,
 
 I offer an explanation as to what I think is happening, and I think that in a lot of these cases, with just a change in attitude, a lot of these "victims" can be found easier. they're just perceiving another dimension that is outside of time and space, so something like the prophesied "resurrection", you have to allow them to be able to return to the physical -- and they will.
 
+### 2022-06-02 10:35 - truthiness
+
+I don't really know what exactly happened this morning. I heard yesterday that jaron and mom had to leave really early to get to their appointemet up in the springs. however, mom spent a pretty long time this morning running water very loudly and making kitchen noises to wake me up. mr. motor was twitching parts of my body too every time I would start to fall back to sleep. the headphone port on my laptop is also broken too, so I have no idea what on earth happened between last night and this morning. seems someone is pretty upset about something.
+
+---
+
+dispite that, I woke up with a strong sense to write another bit about narratives and truthiness.
+
+I live in a world of narratives. so many of the reasons why they don't want me talking to other people is because some part of the conversation could upend some of their narrative.
+
+from my perspective, it's all narrative. most people don't really understand that "truth" is just a narrative as well. it's easy to see that my entire life is a narrative. it's highly unlikely that anything anyone tells me is actually "truth" (as most would think of the word). I hate to say it, but I just don't believe much of anything anymore.
+
+remi and paul came home and remi told me they went to oregon. I was a bit surprised by that. I had gone to oregon a long time ago when I was a kid to a place called "depoe bay" (I think) and I mentioned it to remi. she looked dumbfounded at my attempts to try and find common ground with her on oregon. by the end of the conversation, I wasn't so sure that they actually went to oregon or not -- but that's the narrative. mom had a confrence that same weekend on healing. I tried to talk to mom about healing because she was saying that some of the people there were not very receptive to the idea of healing -- so why on earth did they sign up to a class that they didn't want to actually go and listen to? it doesn't make sense -- but that's the narrative.
+
+---
+
+nothing in my life makes sense if I try to piece together the details. so, if I skip over the details and instead pay attention to how things feel, everything starts to make sense. a good example of this is jerrica: I don't know how much of what jerrica said was "truth" -- but it was something that fits the narrative, for sure.
+
+I started to put together the bits of information that I heard and combine them with the feelings (both emotional and conceptual) that I felt when she said them, and that's when it all started to make sense.
+
+even if somebody is completely fabricating something, the fabrication *still* comes from their vibrational point of attraction, and so no matter how "truthful" whatever it is, it still *feels* like they do, and so even their lies and deception will continue to feel like they do. they can't mask that. well, OK -- they can try; a person can act happy or act whatever, but it doesn't change how they really feel.
+
+in my perspective, the way that a person feels *is* the truth. jerrica, mom, jaron, remi, paul, whomever -- could say whatever they want to say, and I take their words to be true -- so, by automatically assuming that remi *did* go to oregon, it revealed that maybe that was just a narrative item. I don't try and fight the narrative. I just go with it, because it doesn't really matter to me *what* the narrative is -- but how I feel about it.
+
+there is no faster way to feel poorly than to try and fight a narrative. anyone's narrative that's built on dissatisfaction will always come back to bite them again with more dissatisfaction, so just let them attract their own dissatisfaction.
+
+---
+
+what I mean, is that every narrative has some interesting aspect to it. when mom talked about the healing stuff, undernieth my skin I know it's just a narrative, but I loved the idea of trying to figure out the desire to heal or to be healed, and so that's what I talked about.
+
+this book of enki is no different. I know it's a narrative, and it's obvious. I can't really figure out the motive for the narrative, but I *love* the idea of looking at the concept of fates and destiny from the sumerian perspective. somebody might say, "well, you can't alter a planet's orbit, so destiny is unalterable" -- and that's certainly a valid idea, but science has no way to describe orbits to falsify the sitchin's idea that a person and a population's destiny can be altered by adjusting the orbits of the planets. I personally believe that astrology *is* a thing, and the planets do influence the default (unconscious) reactions that people will have. I also believe that you can tune to what you want and adjust your trajectory through time -- so this narrative is very interesting to me.
+
+---
+
+a more modern example may be to evaluate the narratives presented on FOX/CNN to try and figure out what is the motive behind those. the narrative is easy to see -- but, "truth" it is not. it's no more "true" than anything in my life is "true". so then, what are their motives? you have to imagine that most of it is economic. these news stations are designed to spin a narrative that resonates with people *so they can make money*. if it doesn't resonate with people, nobody watches it, their ratings go down and is no longer economically viable. it's also possible that they're used as propaganda machines -- so let's just assume that's the case for a moment, and that only pushes the desire up the ladder a little higher.
+
+what then is the motive for those pushing propaganda? usually propaganda is pushed by those looking for power and control. they're so willing to do anything to get that power and control, they'll lie, cheat, steal, and kill to get that power. this pattern is reproduced quite faithfully in lbe (lost book of enki), and so this sets it apart from the FOX/CNN news narrative, which is much more "factual". they're definitely not reporting on all the deception and murder involved in establishing the power structures -- unless of course the narrative calls for that power structure to be replaced by another -- then, that's when the discrediting news comes out about the power structure that's designed to fall.
+
+---
+
+the last bit to address on the subject of truthiness is the subject of the astral. I mentioned that this book, like dtp, is very visual for me. like dtp, it comes with an astral image attached to it. that means that its target audience are the people with astral vision.
+
+those are the people that are running the show and spinning the narratives. I've noticed that almost all narratives come directly out of the astral. I think it's because it's so much higher definition than the physical, so just like a HD movie *looks* more believable, so too does the astral *look* more believable -- and the human race, but especially the ones running the show are people that *believe what they see*.
+
+I'm not. I believe what I feel and consider the concepts I receive, how I feel about them, to be more real than anything presented by the physical.
+
+try it. when you do, you'll start to see between the lines of code that the matrix of sensations the physical senses present you.
+
+
 ### who/what/when vs why vs how
 ### corrections
+figgins
+spriggs
+patricia
+1000y-bloom
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
