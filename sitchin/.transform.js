@@ -55,8 +55,12 @@ txt_replacements([
     // remove dashes
     [//g, '-'],
 
+    // convert CR -> LF
+    [/\r/g, '\n'],
+    [/\r\n/g, '\n'],
+
     // remove page numbers
-    [/\n([0-9 ]+)/g, ''],
+    [/\n([0-9]+)[ ]*\n/g, '\n'],
 
     // chapter titles
     [/\n([0-9A-Z, ]+)\n/g, (line, t) => {
@@ -180,7 +184,7 @@ const shouldnt_join = generate_txt_conditions_fn('prev,next', [
 
 
 function generate_quote_section_fn (quote_sections) {
-    let fn = 'if (quoted.inside === false) {'
+    let fn = 'if (quoted.inside === false) {\n'
     for (let {after, type} of quote_sections) {
         if (after) {
             if (typeof after === 'string') {
@@ -190,7 +194,7 @@ function generate_quote_section_fn (quote_sections) {
             } else {
                 console.error('unknown quote before:', after)
             }
-            fn += '\t\treturn quoted.inside = {startl: i'+(type != null ? ', type: '+JSON.stringify(type) : '')+'}\n'
+            fn += '\t\treturn quoted.inside = {startl: i+2'+(type != null ? ', type: '+JSON.stringify(type) : '')+'}\n'
         }
     }
 
@@ -206,13 +210,13 @@ function generate_quote_section_fn (quote_sections) {
                 console.error('unknown quote after:', before)
             }
         
-            fn += '\t\treturn insert_line(quoted.inside.endl = i-1, ""), quoted.sections.push(quoted.inside), quoted.inside = false\n'
+            fn += '\t\treturn insert_line(quoted.inside.endl = i, ""), quoted.sections.push(quoted.inside), quoted.inside = false\n'
         }
     }
 
     fn += '}\n'
     fn += 'return false'
-    return (new Function('quoted, insert_line', 'return (i,txt) => {' + fn + '}'))(quoted, insert_line)
+    return (new Function('quoted, insert_line', 'return (i,txt) => {\n' + fn + '\n}'))(quoted, insert_line)
 }
 
 function generate_txt_conditions_fn (args, conditions, if_true = 'true', if_false = 'false') {
@@ -340,6 +344,8 @@ while (i < txt_lines.length-1) {
     let prev = txt_lines[i].trim()
     let next = txt_lines[i+1].trim()
 
+    is_quote_section(i, prev)
+
     let replacement = replace_line(prev, next)
     if (Array.isArray(replacement)) {
         insert_lines(i, replacement, 2)
@@ -354,8 +360,6 @@ while (i < txt_lines.length-1) {
         }
         i++
     }
-
-    is_quote_section(i, prev)
 }
 
 do_quotes()
