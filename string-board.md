@@ -283,3 +283,40 @@ I've been trying to figure out what the little wooden boy represents, and so fol
 so let's say that's the wooden boy, right? that means that I have to burn the evolution-of-desire aspect allowing whatever to manifest so that I can have nosebook back as my sidekick?
 
 see how it just doesn't make sense? I've given up on the party LAN idea and I think it's totally cool if they use that technology to keep me "forever" held away from my connection, because I know that I'll eventually get to feeling so good (even without my connection), that I'll still feel really amazing and have a body to match.
+
+### 2022-06-01 17:27 - venus and adonis
+
+after writing @[sitchin/thoughts](2022-06-01 04:44), I've been thinking about the venus and adonis (dumuzi) play by shakespere. I haven't read it, but I did read its synopsis on wikipedia a while back. the jist of it is that adonis wants to work really badly and his work causes his own death because of his denial of venus.
+
+I think I used that allegory a while back to say that I don't deny venus or try to fight against her advances because that will backfire on me. I'll experience the unwanted aspect of my own concept of trying to fight her.
+
+---
+
+this time I would like to look at the story from a whole different angle... so, the sirians say that venus comes from the same material as ra/marduk/zeus/jupiter which is a silica based crystalline structure that glows -- and sure enough, if you look out in the morning a month ago venus and jupiter will be in the morning sky right next to each other glowing. venus is a little brighter because it's closer, but they look pretty similar.
+
+the sirians identify ra as a 3rd ray male emitter and venus as a 3rd ray female. the difference there is that ra takes in a concept (5) and outputs a structure, while venus takes in a structure and outputs another structure. this is pretty important because this will greatly influence their behaviour.
+
+I also haven't got to the part of the story where dumuzi is killed, but I did notice the parallels to the story with senmut and hatshepsut. I do know that dumuzi receives a dream (a symbolic interaction, structure) of things that fortell his future -- a "fate" -- and then after his interaction with innana/venus he falls right into the trap and that structure becomes a reality.
+
+I believe this is a very similar story to the "venus and adonis" story by shakespere.
+
+---
+
+the next thing that I want to talk about, is the form of perception of these reborn-deities. when looking over the pantheon outlined by the sirians, the females cover most of the primary layers of perception (1, 3, (not 5), and 7), with the only exception being isis (-2). the males fall into two basic categories: the ones that had a sacrficial/memorable death are: jeortau (+2), saturn (+-4), and osiris (+-6-+).
+
+I'm considering saturn to be roughly similar to saturn, but also is extremely similar to osiris. the place where they're similar is that their deaths happen around a celebration. if you'll remember, so is jesus' death as well. right after the celebrated entrance (palm sunday), he gets "betrayed" and then sentenced to death. both asar/osiris and dumuzi met their demise after a celebration, as well.
+
+---
+
+osiris (6) is betrayed by ra (3).
+dumuzi (4?) is betrayed by innana (3).
+jeortau (2) is betrayed(?) by anu (1).
+
+man, I'm really struggling here for some reason... I'll just explain what I see...
+
+a celebration is a time when you feel better than you normally do. what happens vibrationally is an image (6) gets created which makes a structure (3) during the celebration -- and because you feel better than you normally do, it's easy to see that structure optimistically. however later, when back to normal, that structure gets turned into reality.
+
+I really can't think here... I need to come back to this.
+
+breadmaster
+opposite 7th ray and 3rd ray interactions
