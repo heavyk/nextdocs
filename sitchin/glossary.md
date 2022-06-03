@@ -83,8 +83,7 @@ Du-Uru (Duuru): Seventh ruler on Nibiru
 E-A: "Whose home is water," the prototype Aquarius; firstborn son of Anu, half brother of Enlil; leader of the first group of Anunnaki to arrive on Earth; the fashioner of Mankind and its savior from the Deluge; given the epithets Nudimmud ("the Fashioner"), Ptah ("the Developer" in Egypt), Enki ("Lord Earth"); father of Marduk 
 Eanna: The seven-staged temple of Anu in Uruk, given by him as a present to Inanna 
 East Wind: A satellite (moon) of Nibiru 
-Edin: Location of the Anunnaki's first settlements, the biblical Eden, in southern 
-Mesopotamia; later the area of Shumer 
+Edin: Location of the Anunnaki's first settlements, the biblical Eden, in southern Mesopotamia; later the area of Shumer 
 Edinni: Spouse of Enkime, mother of Matushal (the biblical Enoch and Methuselah) 
 Ednat: Spouse of Matushal, mother of Lumach (the biblical Lamech) 
 Ekur: The tall structure in the pre-Diluvial Mission Control Center; the Great Pyramid (of Giza) after the Deluge 

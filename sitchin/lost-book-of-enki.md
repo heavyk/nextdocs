@@ -4849,7 +4849,7 @@ With the blessing of Enki, Adapa his spouse Titi knew again and again; One daugh
 
 In the ninety-fifth Shar, a son Adapa and Titi finally had; Sati, He Who Life Binds Again, Titi him named; by him were the generations of Adapa counted.
 
-In all, thirty sons and thirty daughters Adapa and Titi had, Of them tillers of the land and shepherds for the Anunnaki to]led, By them did satiation to Anunnaki and Civilized Earthlings come back.
+In all, thirty sons and thirty daughters Adapa and Titi had, Of them tillers of the land and shepherds for the Anunnaki toiled, By them did satiation to Anunnaki and Civilized Earthlings come back.
 
 In the ninety-seventh Shar, to Sati a son by his spouse Azura was born.
 

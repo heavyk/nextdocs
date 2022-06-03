@@ -87,7 +87,38 @@ I get the sense that the word translated as "rocket" can probably be translated 
 
 "sky chamber" seems to be also an anti-gravity device -- something today we would associate with a UFO or flying saucer. it has the ability to scan, move around the planet, survey, and oversee things.
 
-netforce is gravity
+netforce is a planet's attraction (gravity)
+
+### the winds
+
+nibiru has various "winds" that sitchtin identifies as moons of nibiru (which I think came originally from tiamat). enlil says they have a sacred mission to the winds in context to the igigi taking human females as wives.
+
+> One evil deed by another has been followed, fornication from Enki and Marduk the Igigi have adopted, *Our pride and sacred mission to the winds have been abandoned*, By our own hands this planet with Earthling multitudes shall be overrun!
+
+were the winds some sort of agreement that they made to maintain a genetic separation between the race of super beings that alalu made on tiamat?
+
+### tiamat as a small solar system
+
+tiamat supposedly had 11 moons, the foremost was kingu. this is a mirror of the solar system. the sun is a second ray, and jeortau/alalu also is a second ray. I believe his planetary identity was tiamat. so, just like the sun has 11 moons around it, so too would tiamat have 11 moons around it. he was trying to make a companion solar system or a copy or something.
+
+if kingu was the foremost, I wonder if that would correspond with the largest planet in our solar system, jupiter -- meaning that tiamat would be (proportionally) to the sun as our moon is to jupiter. it's kind of an interesting idea.
+
+### zodiac and the planetary gods
+
+> Of the family of the Sun and the twelve celestial gods Enki him was teaching, And how the months by the Moon were counted and the years by the Sun, And how by Nibiru the Shars were counted, and how the counts by Enki were combined, How the lord Enki *the circle of the heavens to twelve parts divided, A constellation to each one how Enki assigned, twelve stations in a grand circle he arranged, How to honor the twelve Anunnaki great leaders by names the stations were called.*
+
+- archer: 
+- scorpion: ninurta/mars?
+- scales: venus?
+- virgin: venus? ninmah/anatau?
+- lion: osiris?
+- crab: venus?
+- twins: 
+- bull: enlil
+- ram: ninurta/mars?
+- fish: ninmah?
+- aquahan: enki/sanatau
+- seagoat: dumuzi?/saturn
 
 ### ME and codes
 
