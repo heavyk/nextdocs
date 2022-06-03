@@ -3480,6 +3480,43 @@ I'm not. I believe what I feel and consider the concepts I receive, how I feel a
 
 try it. when you do, you'll start to see between the lines of code that the matrix of sensations the physical senses present you.
 
+### 2022-06-03 03:19 - the sitchin edit
+
+WARNING, CONSIRACY AHEAD!!
+
+I'm back to reading lbe again and I'm noticing some things I didn't notice before. first, when reading the [glossary](/sitchin/glossary.md), I noticed that there are definitely instances where he doesn't know what exactly he's looking at or how to translate it. this suggests to me that he's actually looking at a clay tablet and translating the text written on the tablet.
+
+I started to think about how he would have obtained the tablet, and it's likely a 3d tablet in his mental space which he can read and interact with. it would be a literal tablet with just like you would see any other sumerian tablet.
+
+this is completely genius, because imagine for a moment that you wanted to get symbolic information to me. the thing is, nosebook has access to tune into other moments in time and alter my trajectory through time, which means they can tune into the mind of the the amanuensis and alter the concepts that he would receive and then write down. then, because the original document has been altered, all future derivatives of that document are forever changed.
+
+I've mentioned how I *distinctly* remember reading a very different version of [tesla's autobiography](/tesla/my_inventions.md), and I also very distinctly remember one time that I was searching for the word "gwaulxn" in dtp and I arrived to @[dtp/dtp](chapter-3-7), where there's supposedly going to be a transfiguration, yet there wasn't any. it's a short chapter now with almost nothing in it and definitely no references to gwauxln -- yet, when I first saw it a long time ago, I definitely saw a whole section where gwauxln transfigured before his eyes into the probably the (perfected 7th ray) christ. there were other things in that book that were changed too, but I can't remember them now.
+
+I also remember the sirian-guide being different as well. I'm *sure* there was a section where they talked about how many do not choose to rise any further than the astral plane. I also remember parts where they were talking more about the 7th ray and 1st ray working together. that part is there and there's the part about the serpent biting the tail, too -- but I remember distinctly that they gave an example (and I remember it in reference to something about tesla) of a 1st ray being able to function as a 7th ray. they talk about a 7th ray being able to function like a 1st ray, but the opposite one is missing. that section in lesson 4 ends pretty abruptly talking about physical atoms.
+
+in more recent times, there's the example of the person that asked about the inner earth and abraham just flat out said something like, "that's not from your source" -- I really can't remember, but it was very abrupt and out of place ending. or, the one where they directed the questioner saying, "oh he's worth it" (probably in reference to me), and I flipped out because that was the first time I'd ever heard abraham tell someone they should use a condition as a reason to feel good.
+
+these are just anecdotes, but if I were them and I wanted to delete the concept that the amanuensis receives, I just subtract the one that's sent, so that it's silence and then add in the concept similar over the top... maybe tell them to burn some pages without looking at it. it's probably not that hard to edit the thoughts that a channeler receives, and I don't doubt that they're doing it[^1].
+
+---
+
+the reactions that I had which inspired me to write this were reactions regarding how I didn't seem to be *at all* affected by the revelation that these tablets that sitchin translated are not physical tablets, and I seem to be carrying on with my study of the symbols presented in his book with the same enthusiasm that I did in the beginning when I still thought they were real tablets. the reaction concept was something like "psychopathic" or something.
+
+I probably am a psychopath, actually. I don't use it to beileve my own lies, but instead to believe and feel the way I want to feel. from my perspective, it's totally ridiculous to use such a powerful capacity to control what one believes and feels at will, *to try and manipulate others*. what an enormous waste of a powerful capacity.
+
+like seriously... just think about it: I can believe my own lies so well that others think I'm telling the truth which allows me to manipulate them to get what I want ------- or, I can use that same capacity to beileve in myself so I can get what I want. which one is more easier? it takes *so much effort* to manipulate someone, and is nearly effortless to manipulate yourself. I really have no comprehension of the reasoning behind this.
+
+you do you man. go nuts trying to manipulate others to get what you want... lol
+
+---
+
+so yeah, I guess it's pretty difficult to edit the writings on sumerian clay tablets, even though they're only an image in the mind. who would have thought that sumerian clay tablets would be the most efficient way to transmit symbols to me about some of my questions that I have for the sirians about their triads.
+
+I wonder if that also applies to "the tick" as well cause I seem to see those episodes way differently than others do. it seems symbols embedded into visual media is difficult to perform edits on.
+
+anyway... these are great examples of what I was talking about where the symbols are chaotic, but the meaning is stable.
+
+[1]: that last part about abraham seemed to get a bit of a reaction. it feels like maybe this discussion is temporally relevant for some reason. anyway -- they said esther would be, "happy healthy, happy healthy, happy healthy, dead." -- which is weird I wanted to say that -- is she not? maybe, dragging a little? I dunno what's going on...
 
 ### who/what/when vs why vs how
 ### corrections
