@@ -320,3 +320,95 @@ I really can't think here... I need to come back to this.
 
 breadmaster
 opposite 7th ray and 3rd ray interactions
+
+### 2022-06-03 22:44 - the breadmaster and events
+
+I still need to finish up the previous thing on venus and adonis' connection to the breadmaster, but I was listening to snake-bros #059 - strangeness in the woods (I think) and there was a story about these two guys out in the woods that heard this sound of water running and it sounded really nice and he'd never thought that running water sounded so nice but it sounded so nice him and his buddy (without saying anything to each other) both decided to get up and start looking for the source of the water. he said that the sound started to get more and more playful sounding, really wanting them to go into the woods to look for it, but it kept getting fainter...
+
+he finally decided to get out of there because when he stopped and was trying to figure the thing out (with his logical mind) rather than just following his feelings/desire, suddenly he started to feel a sinister feeling rather than the pleasurable and playful water sound from before. when they finally decided to leave, playful water from before converted into a sinister feeling of being watched.
+
+I look at this two ways: I consider this the difference between rational and emotional thinking (perhaps right/left brain). there is this constant battle between the rational way of looking at things (something is trying to lure me into the forest) and the just having fun and being playful, so there's nothing to worry about. I tend to err on the side of emotional thinking. if I'm feeling something playful and fun, then that's what I'm attracting, and it's fine. if someone tries to convert that playful and fun feeling into something of terror, they'll have a different experience than I do. I'll seemingly walk away from the situation having had a fun time even though some weird stuff happened.
+
+what I'm saying is that, what I think happened in that event is that the guy and his buddy were having a really fun and playful time in the forest, and so that feeling started to manifest as a sound of running water that was really playful. however, then he started to try and begin to figure it out logically and that's when that feeling of awesome turned into something sinister. if he had of kept feeling more and more playful, he probably would have manifest something of that sort into reality. likewise, if, instead of noping out, he stayed to find out the sinister feeling that too would have manifested into more and more physical reality.
+
+---
+
+I brought that story up because it directly correlates with what I want to talk about. there's this idea that is very common that says that you can be lured into a bad situation with pleasure. I personally subscribe to this, and I've seen it happen over and over with drugs, sex, and party situations where -- when feeling better than normal, we're more inclined to believe someone or to be tricked by someone with ulterior motives.
+
+as such, I have spoken many times about the difference between genuine good-feeling because of perception and a temporary good-feeling because of pleasure. when feeling better than normal/usual, it's been my experience that if I keep that up for any length of time, a crash and burn is eminent.
+
+---
+
+so first let's look at the venus and adonis idea. he must know or have associated the concept of extended pleasure as being a prerequisite to crash and burn. dumuzi and many others have crashed and burned after venus turned up the speed of reality creation. this is very commonly the case with coke and other artificial means of causing one to feel better than normal[^1]. so, combatting this, adonis, learning from dumuzi's mistake goes the opposite direction and decides to engage himself in his work instead of engaging in pleasure which leads to rapid reality creation.
+
+this gives me the opportunity to talk about the differences between 3rd ray and 7th ray: venus was a 3rd ray, so that means she inputs perception and pathfinding logic toward desire and then outputs the same. if adonis' only desire is to hook up with a hot chick, then you can imagine his dismay when he finds out that it wasn't nearly all he had imagined it to be, and so now he's sorta left with nothing (OK, now what do I do? I just fulfilled my desire?) so, he engages himself in his work[^2] because work is stable (it doesn't leave you), and work doesn't talk back or critisise you (he's a self-employed hunter), and so work is a pretty stable source of good-feeling for him.
+
+I can't remember the story, but venus, because she didn't get her way with him, tells him he's going to die (structure), and so somehow he ends up believing her pathfinding logic rather than following his own feelings and follows the same path as dumuzi. so, dumuzi crashed and burned because of venus and pleasure and adonis crashed and burned because he believed her structure more than his own.
+
+that's a 3rd ray, though; a 7th ray is a bit different, and I haven't totally figured it out, but what I do know is that structure is arrived to by a 7th ray from the ground-up, as opposed to the 3th ray's top-down (prophetic) approach. the 3rd ray says the path and things have to extend outward in the intended form of creation. as an example enki and ninmah are constantly manipulating things from the top down to try and make things satisfying or pleasurable, but the 7th ray (like ningishzidda) takes current circumstances and then adjusts things so that they can conform to the requirements.
+
+it's kind of the opposite approach too. I think of this as strarting with a lot of data, use the imagination to figure out the concept (frequency/feeling) behind that data, and then from there try to figure out how to harmonise that with the rest of the creation. the 3rd ray approach is to create the things, and then set them out into the wild and just sorta let them figure out how to come into harmony with each other (often times leading to disastrous or "baffling" results).
+
+---
+
+so now, when looking at the breadmaster, let's look at the symbols and their progression.
+
+the bread that the breadmaster bakes tastes pretty good, but it causes tick to feel lethargy, sleepiness, and a desire to stay where he's at and give up.
+
+I haven't figured out the bread college thing, but the breadmaster is pissed off that he got expelled from the baking college. he places a loaf in there and the tick eats it. it seems to be something to do with getting expelled. I'm not the breadmaster, so I don't understand that part.
+
+the breadmaster decides he wants to bake a suffle that will entirely consume the city (presumably putting them in the same state as tick of lethargy, warmth and sleepiness). he orders some ingredients or else they're going to increase bread bombings. the mayor (US govt) of the city (nosebook) agrees to give him the ingredients he needs. it's pretty safe to say that the suffle has something to do with sex, with the goal being lethargy and sleepiness.
+
+the breadmaster can bake the suffle without sugar, and so he does in the munincipal pool. the suffle is expanding rapidly consuming the whole city, so they get human bullet to shoot tick out of the gun to destroy the suffle.
+
+the tick asks for a triple charge and the human bullet says that'll destroy a man. tick thinks he's not normal.
+
+well, those words of a triple charge have stuck in my head. a while back I noticed that the solar flares that register as c-class flares feel to me like m or x-class flares. I postulated that this along with other data that the GOES x-ray flux meter is registering a whole order of magnitude lower than it should (so a c-flare is really an m-flare). well, around the time of my birthday, it was constantly in the c-range. shortly thereafter, the flux went down to b-range (it's possible a sunspot rotated off of the disk -- didn't check), but the solar activity that's associated with the episodes where I leave my body and start to see images totally did not decrease, but actually have increased the last few days. the readout *says* b-range, but my body *feels* like it's in m or x-range. I also had the sensation that's what it meant by "double, no triple charge" -- so that means were on double charge now and we have to get to triple.
+
+the tick gets shot out of the cannon and explodes the suffle. so, the suffle which was previously consuming the city (nosebook), now has blanketed in suffle (it looks like snow) and tick says, "the city looks almost peaceful under a blanket of freshly fallen suffle" -- so sleep and lethargy are turned into "almost peaceful".
+
+---
+
+there is this part too when they figure out it's at the munincipal swimming pool. they go there and instead of just confronting him, the tick does an unusually large dive off of the diving board before capturing them. after being captured, they realise the suffle is self-baking and can't be stopped -- so that's why they go to the human bullet.
+
+what this seems to imply is that before the shooting of the gun, there is a pretty epic nosedive. this gives the impression that they have to find some way to do that thing that venus does where dumuzi is lured into venus' trap using a celebration of some sorts. this better than normal feeling is then used to cause him to destroy himself -- or, in this case, do a pretty epic nosedive.
+
+I don't really mind that they can try to attempt that all they want, but my goal is to just keep feeling "normal". and so, like adonis, I tend to keep my distance from anything that feels good.
+
+these sorts of things are one thing where if I go after it, or try to go at it logically, like the guys in the forest, that playful feeling will turn sinister pretty quickly.
+
+the solution to this is neither to push venus away or to go after her. both of those result in disaster. the only way to go about it is to just stick to myself and keep doing my own thing. she'll eventually find her way up to me. it's the law of attraction, not the law of running away. if I tried to attract venus using physical means or some other gimmick, it would definitely backfire because once the path to that desire is fulfilled (and it'll never be everything you wanted[^3]), so then what next?
+
+---
+
+so then the last thing is, I woke up this morning thinking about the concept of "going infinite" -- the idea where I continually self-sabotage infinitely and "never" get to the manifestation.
+
+it was in the context of this whole thing with nosebook. nobody can stop me from self-sabotaging. if I have too good of conditions, I get connected and so therefore can manipulate the timeline so that I sabotage myself, and it's kinda a bad idea (though they could if they wanted) to kill me -- but then again, what if I just reinserted myself? my point is, there's nobody that can stop me from self-sabotage. I can do it infinitely, so what that means is that you could eventually imagine that the manifestation would get so big that we're talking about much much more than just sex or something -- as in, if there isn't anything this planet, galaxy, or solar system can offer, what would happen then?
+
+I've postulated a lot about this idea because there are physical limitations, but then couldn't I sabotage myself by figuring out a technology which can surpass those physical limitations and then go back to sabotage again?
+
+it seems there's no limit to how much I can keep doing this, so why not just keep doing it? I don't actually have to make any movement.
+
+---
+
+this reminded me of a thing a long time ago, when I was thinking about effortless power and the idea of fighting using the technique, because you don't really want to make any movement because the opponent can always turn it against you. the most effortless is to always let them exert the effort. so, you would end up fighting others that also know this, and fights with them end in a stalemate. there would be no way for me to ever "win" if I fought someone who neither wanted to make the first move.
+
+fortunately, this isn't the case. nosebook is filled with the alpha types that want to make the first move, so I don't ever have to worry about them deciding to stop making the first move. I can just stay put forever. I don't need to go toward venus or away from her either, so I guess we'll have to see what ends up happening. she can try to define a structure, but that effort will just get amplified and reflected back[^4]. she's got to find her way into my structure instead trying to put me inside of hers.
+
+there's probably a limit somewhere, but I don't know where that would be -- as in, is this the beginnings of the creation of a new universe? ...they did say "matured". I just don't know...
+
+the conclusion that I came to this morning though is, if I'm hell-bent on trying to exploit myself in every possible way to ensure I "never" get the manifestation, then that means that you guys have to create what you want. don't wait for me to create what you want.
+
+well, I can tell you what'll happen: I'll keep finding my connection and self-sabotaging until eventually there won't be a way to self-sabotage anymore. I wonder if that's what "perfected 7th ray" means.
+
+---
+
+you wanted to undo the breadmaster symbols. how's that?
+
+[1]: which is why I think in the woods they were probably feeling pretty good and that's what caused the initial event
+
+[2]: or finds a hobby, as the pua guides suggest
+
+[3]: I can't really describe this concept very well, but my experience has shown me that whenever the goal is a woman, it leads to unhappiness. the most common sensation of it is that the physical manifestation was never as good as hoped for. it never meets expectations, and most guys come away usually kinda upset that she's so moody or whatever. I've also noticed that women are a pretty good reflection of their partner, so the objective to finding a good woman that won't turn into a disaster is to not be a disaster yourself. it never satisfies. you can only truly find satisfaction by yourself. trying to do it with another person always amplifies your own dissatisfaction (peaceful, *for now*).
+
+[4]: I want to talk about this more, but my brain is mush right now.

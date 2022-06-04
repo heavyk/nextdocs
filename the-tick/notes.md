@@ -14,11 +14,11 @@ s01e05 - the tick saves a dog
   - "arthur you've given me another shot at this thing called life"
   - tells stu (who has to rebuild his store), "here, you can rebuild with these: cottony swabs"
 - *second bread incident*, tick eats the whole thing
-- the breadmaster is annoyed that tick thwarted his efforts so he threatens to increase bread bombings if the city doesn't give him the ingredients he needs
+- the breadmaster is annoyed that tick thwarted his efforts so he threatens to increase bread bombings if the city doesn't give him the ingredients he needs to make a suffle that will consume the whole city
   - the mayor agrees (has an eagle on podium) and says it isn't an act of terrorism, just fast baking
   - also weird because the mayor is giving him the ingredients he needs to perform the act of terrorism.
 - tick and arthur try to stop them from getting the ingredients, when they get to the sugar (bread can be baked just fine without sugar)
-- *third bread incident* time they get stuck inside the bread roll and tick opens up a space that appears pretty feminine and arthur uses his wings to cut them out of the roll (reminded me of a womb)
+- *third bread incident* they get stuck inside the bread roll and tick opens up a space that appears pretty feminine and arthur uses his wings to cut them out of the roll (reminded me of a womb)
 - they go to the municipal pool where he's mixing his ingredients:
   - flour
   - eggs
