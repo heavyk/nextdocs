@@ -3518,6 +3518,79 @@ anyway... these are great examples of what I was talking about where the symbols
 
 [1]: that last part about abraham seemed to get a bit of a reaction. it feels like maybe this discussion is temporally relevant for some reason. anyway -- they said esther would be, "happy healthy, happy healthy, happy healthy, dead." -- which is weird I wanted to say that -- is she not? maybe, dragging a little? I dunno what's going on...
 
+### 2022-06-05 06:39 - random stuff: dissatisfaction, etc.
+
+so, I can't really sleep again so I decided I'd write. I have a lot to comment about lbe... I don't really know where to begin... first, it seems to me that anatau is totally manipulating everything from all sorts of angles, which makes it no longer a enlil vs enki sort of thing.
+
+for example, if she's anu, then she goes to earth and meets sees innana and falls in love with her instantly and bestows upon her the third region (indus valley), and then from there departs to the americas where she meets ninurta and marduk. she forgives marduk for trying to kill dumuzi (which she likely had a part in, if she's also playing innana) and then peaces out. marduk finds out that innana has been given the third region and gets pissed off. I find it fairly reasonable to assume that she's playing the part of innana, who keeps going to war, meanwhile playing "ninharsag the peacemaker" at the same time. she's a real troublemaker -- let me tell you.
+
+the next thing that I want to notice is that enki represents the side that is trying to satiate the dissatisfied igigi and annunaki with technology. enlil is the side that is constantly dissatisfied (except one time with ka-in and abael, he prasises both) and doesn't want to allow anyone access to technology or to any improvement. he's very certain that the humans will take over the earth and he'll be imprisoned on earth forever. these are your two extremes.
+
+well, I was thinking about it how things have changed a bit -- not completely flipped, just kinda rotated a little bit. the reason why I say is because the enlil symbol in modern times (no need to name names), actually has a bit of a problem on his hands if he doesn't try to satiate the humans.
+
+I'm likely to be blamed for most of this. contemplating yesterday's reactions, I noticed that the very last thing they can possibly have happen is to allow someone (who is not bound by secrets) to get connected. this would totally wreck their setup completely. so they're kinda stuck a bit because I'm totally not trying at all to get connected. in fact, I'm pretty much doing my best *not* to get connected, and that's kinda causing a stalemate because I don't really want to do the girls thing without having my connection, and they need the girls thing to happen to quench dissatisfaction (the munincipal pool explosion).
+
+so, they have to find a way to satiate the people, but at the same time as not letting anyone get connected or revealing their setup. it's kinda a similar setup anu/marduk setting up dumuzi's death, for which innana avenges, getting marduk in trouble saves him, then punishment and exile, only then to give a sector to his arch enemy (innana/herself) and then forgive marduk so he can wage war on innana again, and then innana can destroy memphis. in this marduk simply can't win. the only thing he can do would be to chill out and not be so power hungry, but he can't (for whatever reason), so he *has* to double down on it and declare himself the supreme.
+
+enlil gets a dream by the same mystery emissary that told enki to save the humans, about another destruction. he decides to keep it a secret though and his secret results in nuclear war.
+
+the thing is, I see the same exact thing playing out right now in the present day, but instead of with a war over supremacy, this time it's a war over secrecy. consider that this time enlil has kindof swapped places with marduk:
+
+anu falls in love with dumuzi, and then has marduk kill him off. marduk gets punished for his actions (same things; not sure how to transform these). then innana falls in love with dumuzi. anu has marduk kill dumuzi.
+
+---
+
+- anu/A falls in love with dumuzi/D.
+- anu/A then has marduk/B feel *inferiority* to dumuzi/D because he's going to be powerful with his lover innana/A.
+- anu/A has marduk/B kill dumuzi/D.
+- nergal/F has innana/A killed (this may be an illusion)
+- enki/C raises innana/A from the dead (but not dumuzi/D).
+- innana/A wants revenge on marduk/B.
+- innana/A has ninurta/G trap marduk/B in his own power structure.
+- ninharsag/A saves marduk/B from his power structure.
+- anu/A punishes marduk/B for his actions.
+- anu/A gives innana/A a region to control (which is what marduk wants)
+- marduk/B doubling down on not getting what he wants, marduk/B gets pissed and declares himself *supreme*.
+- marduk/B attacks innana/A.
+- anu/A has ninurta/G and nergal/F destroy all of enlil's setup.
+- enlil has abraham ready to lead the new enlilites
+
+... the story is kinda weird because we know from exodus that enlilites end up going to egypt (marduk's land) and get stuck there. ironically, the guy that leads them out, forbids them from worshipping the golden cow (innana as hathor, and she's userped his bull and turned him into a cow) and it's moses that declares a monothiestic religion (which is what ra tried to install himself as superior god) and this (probably all powered by a comet called venus)... lol
+
+---
+
+notice how often in this story they decide to keep a secret and it causes problems? well, the story ends with enlil saying that he wasn't sure if the emissary was real or a halucination, so he wanted to see what would happen and therefore kept it a secret, though he also told nergal and ninurta where the nukes were too, so he was definitely *not* seeing what would happen.
+
+enki also keeps a lot of secrets, but he's a lot more discrete about it -- such as the weird incident where innana is resurrected by clay robots, but dumuzi is not (there's a lie in there somewhere). there are more, but I can't remember them now. anyway...
+
+imagine the thing with marduk over power and superiority now happening to enlil, but with secrets -- it kinda feels pretty similar. enlil (whomever at nosebook and the various brotherhood networks that applies to) has found himself in a similar situation, it looks where power and control is replaced by secrets being revealed, and so he could just give it up, but when his enemy (the one he tried to defeat) gets a power structure, he feels he has to double-down on that now and declare himself supreme -- well, same thing -- they simply cannot reveal any secrets, so they have to double-down on the secret keeping.
+
+---
+
+so the funny thing about this is that there's this weird connection between jeortau and anatau -- and as far as I can tell, it seems like enlil is just a character of jeortau designed to sabotage himself. anatau seems also to be able to create characters at will, as well -- hence various versions that seem to be working together.
+
+the other weird thing, is that I feel much more aligned with ninurta/alalu/enlil than I do with enki at this point. let me explain...
+
+enki is all about creating well-suited human-beings, which are designed to satiate the complainers. I believe that alalu was also intrested in creating well-suited human-beings too, which is why his negative instantiation (enlil) hates the idea of the humans ever getting anything that could rival their superiority.
+
+in general, enki is very determined to satiate the complainers (he's the real peacemaker), but enlil/anu/innana are constantly desiring to go to war. his efforts to constantly try and placate the masses is exactly the opposite of me. I don't find it's a very good idea to try and constantly cater to others. if people want to be dissatisfied, I'll go do my own thing. forget them. they can work out their own dissatisfaction. in this sense, I'm much more like alalu. I also don't mind letting failing structures destroy theirselves, and to that end perhaps I'm even a bit like innana in that I'm totally cool with poking at the weaknesses (fuzzing) and exposing a weakness in the structure.
+
+to counteract this enjoyment that I get with pointing out weaknesses (or even exploiting them to allow the structure to collapse itself), I take the opposite angle myself. so, if it's secrets that are the weakness, then I won't have any secrets. if it's power and control that I want to expose, I won't have any power and control -- etc. and so you can see that my present situation is sort of like the result of what would happen if you were to put enlil (me) into a situation where he had no other choice than to figure out how to feel good when the nosebook enlil has complete capability to exploit me with all of my own exploits. I'm taking my own medicine, you might say.
+
+so, in that sense, I'm totally the "bad-guy" (enlil, ninurta, innana) but I subject myself to my own badness. inotherwords, I am my own "bad-guy", which means that all of the exploits that I'm doing to myself I ... let me explain like this. hang on.. I can't access the thought. it seems to be blocked. 
+
+can't get it... anyway, the thing was about me essentially becoming a mirror, and so the things that they're all exploiting me on, in some sense, I'll be able to do the same thing back to them.
+
+I don't really have any maliciousness in me though, so if they don't want to have me to push their buttons the way they push mine, that's fine. I've decided that they can't actually do anything to me anyway, so I've decided that the best way to go about it is to let them become part of me. they can do all of the looking at unwanted for me (cause I definitely don't want to exploit them, if what they want to do is look at unwanted), and I'll just concern myself with the looking at wanted, plus all of the great conditions they could possibly want. I'll find a way to give them the opportunity to be dissatisfied for as long as they want to be. we can just keep finding ways for them to escape their punishment.
+
+so it's kinda like they got theirselves into a marduk-like situation and I offer them the opportunity to continually escape "punishment" (ie their own attraction) and to be dissatisfied for as long as they want to be (forever) -- and, on top of that they have unlimited power to continue to exploit me and the good conditions that I create as much as they can.
+
+the secret to it is to self-sabotage forever. all I have to do is just keep giving them an infinitely long rope and they'll never hang theirselves with it until they finally want to (lol, funny reactions there). if they find it's starting to go too fast, any of them can choose to slow down the rate of acceleration by choosing to be satisfied (the more dissatisfaction they feel the faster we'll go -- as long as I can keep up with their dissatisfaction).
+
+the exception to that is the possibility that they transition to becoming more like enki (in the sense of wanting to satisfy others) than like enlil (wanting to hold everyone down). that may happen for some, but probably not for all...
+
+this book (I just finished it this morning) has really illuminated for me the situation that we're all in. I'm gonna have to let it digest a bit.
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
