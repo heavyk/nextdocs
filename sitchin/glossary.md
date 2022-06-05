@@ -147,7 +147,7 @@ House of Life: The biogenetic facilities of Enki in the Abzu
 Hurum: A mountain where the hero Banda died and came back to life 
 Ib: Third dynastic king on Nibiru, given the royal title An-Ib 
 Ibru: Grandson of Arbakad, the biblical Eber (forebear of Abraham) 
-Ibru-Um (Ibruurn): Scion of a priestly royal family from Nippur and Ur, the biblical Abraham 
+Ibru-Um (Ibruum): Scion of a priestly royal family from Nippur and Ur, the biblical Abraham 
 Igigi: The three hundred Anunnaki assigned to shuttlecraft and the way station on Mars; abducted female Earthlings as wives; frequent rebels 
 Ilabrat: A vizier and emissary of Anu; fetched Adapa for the journey to Nibiru 
 Imperishable Star: The Egyptian name for the planet from which Ra had come to Earth 

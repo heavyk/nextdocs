@@ -323,7 +323,7 @@ The two sons, full of glee, with quickened step from Enlil's chamber emerged, fo
 
 The other gods turned back to their cities; none of his own calamity had a foreboding!
 
-Now this is the account of the Prior Times, and of the Weapons of Terror.
+#### Now this is the account of the Prior Times, and of the Weapons of Terror.
 
 Before the Prior Times was the Beginning; after the Prior Times were the Olden Times.
 
@@ -499,7 +499,7 @@ Thus, the next king by the Law of the Seed for succession was proclaimed.
 
 To him the royal name An.Shar was granted. Fifth on the throne he was.
 
-Now this is the account of the reign of Anshar and the kings who followed.
+#### Now this is the account of the reign of Anshar and the kings who followed.
 
 When the law was changed, the other princes were contending. Words there were, rebellion there was not.
 
@@ -671,7 +671,7 @@ Without right or council, a king he himself pronounced.
 
 In the land unity was lost; some by the death of Lahma rejoiced, others by Alalu's deed were saddened.
 
-Now this is the account of the kingship of Alalu and of the going to Earth.
+#### Now this is the account of the kingship of Alalu and of the going to Earth.
 
 In the land unity was lost; about the kingship many were aggrieved.
 
@@ -1017,7 +1017,7 @@ Senseless from the shaking, stunned by the crash, Alalu was without moving.
 
 Then he opened his eyes and knew he was among the living; At the planet of gold he victoriously arrived.
 
-Now this is the account of the Earth and its gold; It is an account of the Beginning and how the celestial gods created were.
+#### Now this is the account of the Earth and its gold; It is an account of the Beginning and how the celestial gods created were.
 
 In the Beginning, When in the Above the gods in the heavens had not been called into being, And in the Below Ki, the Firm Ground, had not yet been named, Alone in the void there existed Apsu, their Primordial Begetter.
 
@@ -1163,7 +1163,7 @@ Kishar with a blazing flame filled his body, a net to enfold Tiamat therewith.
 
 Thus ready for battle, Nibiru toward Tiamat directly set his course.
 
-Now this is the account of the Celestial Battle, And how the Earth lead come to be, and of Nibiru's destiny.
+#### Now this is the account of the Celestial Battle, And how the Earth lead come to be, and of Nibiru's destiny.
 
 The lord went forth, his fated course he followed, Toward the raging Tiamat he set his face, a spell with his lips he uttered.
 
@@ -1305,7 +1305,7 @@ The gods shall cross over neither above nor below; He shall hold the central pos
 
 A Shar shall be his circuit; that his Destiny will forever be!
 
-Now this is the account of how the Olden Times began, And of the era that in the Annals the Golden Era by name was known, And how from Nibiru to Earth the missions went the gold to obtain.
+#### Now this is the account of how the Olden Times began, And of the era that in the Annals the Golden Era by name was known, And how from Nibiru to Earth the missions went the gold to obtain.
 
 The escape of Alalu from Nibiru was its beginning.
 
@@ -1644,7 +1644,7 @@ Enlil with his half brother locked arms. Be blessed, be successful! to him he sa
 
 With heavy heart Ea the chariot entered, to soar up the command he gave.
 
-Now this is the account of the journey to the seventh planet, And how the legend of the Fishgod who came from the waters was begun.
+#### Now this is the account of the journey to the seventh planet, And how the legend of the Fishgod who came from the waters was begun.
 
 With heavy heart Ea the chariot entered, to soar up the command he gave.
 
@@ -1805,7 +1805,7 @@ Alalu toward him came running; his son by marriage he powerfully embraced.
 
 Welcome to a different planet! Alalu to Ea said.
 
-Now this is the account of how Eridu on Earth was established, how the count of seven days was begun.
+#### Now this is the account of how Eridu on Earth was established, how the count of seven days was begun.
 
 In silence did Alalu Ea embrace, with tears of joy his eyes were filled.
 
@@ -1961,7 +1961,7 @@ In unison the heroes agreement announced.
 
 And it was evening and it was morning, the seventh day.
 
-Now this is the account of how the searching for gold was begun, And how the plans on Nibiru made to Nibiru salvation did not provide.
+#### Now this is the account of how the searching for gold was begun, And how the plans on Nibiru made to Nibiru salvation did not provide.
 
 After the encampment of Eridu was established and the heroes with food were satiated, Ea the task of gold from the waters obtaining started.
 
@@ -2251,7 +2251,7 @@ Who of the skyships and the landing place shall take command? So did Anzu inquir
 
 Let Anu come to Earth, let him decisions provide! Thus did Enlil say in answer.
 
-Now this is the account of how Anu to Earth came, How lots with Ea and Enlil were drawn, how Ea the title-name Enki was given, How Alalu for the second time with Anu wrestled.
+#### Now this is the account of how Anu to Earth came, How lots with Ea and Enlil were drawn, how Ea the title-name Enki was given, How Alalu for the second time with Anu wrestled.
 
 To Earth in a celestial chariot did Anu journey; the route by the planets it followed.
 
@@ -2395,7 +2395,7 @@ No! No! Enki fiercely shouted. Justice is within him, in his innards poison has 
 
 They took Alalu to a reed hut, his hands and feet as a prisoner they bound.
 
-Now this is the account of the judging of Alalu, And of the happenings thereafter on Earth and on Lahmu.
+#### Now this is the account of the judging of Alalu, And of the happenings thereafter on Earth and on Lahmu.
 
 In his reed hut Anu was hurting, in the reed hut to him Enki applied the healing.
 
@@ -2553,7 +2553,7 @@ For nine Shars was Alalu king on Nibiru, for eight Shars Eridu he commanded.
 
 In the ninth Shar, to die in exile on Lahmu was his fate.
 
-Now this is the account of the return of Anu to Nibiru, And how Alalu on Lahmu was buried, how Enlil on Earth the Landing Place built.
+#### Now this is the account of the return of Anu to Nibiru, And how Alalu on Lahmu was buried, how Enlil on Earth the Landing Place built.
 
 On Nibiru there was for Anu a joyous welcome.
 
@@ -2859,7 +2859,7 @@ Those who on Lahmu are, Igigi shall be named, Those Who Observe and See they sha
 
 All that is required is ready: Let the gold start coming, let Nibiru be saved!
 
-Now this is the account of Enki and Enlil and Ninmah, Their loves and espousals, and by their sons the rivalries.
+#### Now this is the account of Enki and Enlil and Ninmah, Their loves and espousals, and by their sons the rivalries.
 
 Offspring of Anu the three leaders were, by different mothers were they born.
 
@@ -3001,7 +3001,7 @@ Three sons in all did Enlil have, none by concubines were they born.
 
 Two clans were thus on Earth established; their rivalries to wars did lead.
 
-Now this is the account of the mutiny of the Igigi, And how Anzu to death was put, for stealing the Tablets of Destinies punished.
+#### Now this is the account of the mutiny of the Igigi, And how Anzu to death was put, for stealing the Tablets of Destinies punished.
 
 From the Abzu gold from Earth's veins to the Landing Place was carried, Thence Igigi in rocketships to the way station on Lahmu transported.
 
@@ -3141,7 +3141,7 @@ Let Marduk the body to Lahmu carry, let Marduk there as commander stay!
 
 So was Enki to the judges suggesting. Let it so be! Enlil said.
 
-Now this is the account of how Bad-Tibira, the Metal City, was established, And how in the fortieth Shar the Anunnaki in the Abzu mutinied.
+#### Now this is the account of how Bad-Tibira, the Metal City, was established, And how in the fortieth Shar the Anunnaki in the Abzu mutinied.
 
 In the twenty-fifth Shar was Anzu judged and executed, The unrest of the Igigi it subdued but left it simmering.
 
@@ -3449,7 +3449,7 @@ That we have tried, with failures it resulted! to her Enki responded.
 
 There was no conceiving, there was no birth!
 
-Now this is the account of how the Primitive Worker was created, How Enki and Ninmah, with Ningishzidda assisting, the Being fashioned.
+#### Now this is the account of how the Primitive Worker was created, How Enki and Ninmah, with Ningishzidda assisting, the Being fashioned.
 
 Another way the admixture of essences to attain must be tried, Ninmah was saying.
 
@@ -3592,7 +3592,7 @@ He handed the newborn to Ninmah; she held him up in her hands.
 
 My hands have made it! victoriously she shouted.
 
-Now this is the account of how Adamu by name was called, And how Ti-Amat as a counterpart female for him was fashioned.
+#### Now this is the account of how Adamu by name was called, And how Ti-Amat as a counterpart female for him was fashioned.
 
 The newborn's visage and limbs the leaders carefully examined:
 
@@ -3724,7 +3724,7 @@ Ti-Amat let her name be, the Mother of Life! Ninki was saying.
 
 Like the planet of old of which the Earth and the Moon were fashioned, let her be called, From her womb's life essences other birth-givers shall be molded, To a multitude of Primitive Workers she thereby life will be giving Thus was Ninki saying; the others words of concurring uttered.
 
-Now this is the account of Adamu and Ti-Amat in the Edin, And how they Knowing of procreation were given and to the Abzu expelled.
+#### Now this is the account of Adamu and Ti-Amat in the Edin, And how they Knowing of procreation were given and to the Abzu expelled.
 
 After Ti-Amat in the womb of Ninki was fashioned, In seven vessels of the clay of the Abzu made Ninmah ovals of the two-legged females placed.
 
@@ -4016,7 +4016,7 @@ The conveying from the Landing Place to the way station on Lahmu is no longer ce
 
 For the count since the first splashdown, the count of eighty Shars It was.
 
-Now this is the account of the journey to the Moon by Enki and Marduk, And how Enki the three Ways of Heaven and the constellations determined.
+#### Now this is the account of the journey to the Moon by Enki and Marduk, And how Enki the three Ways of Heaven and the constellations determined.
 
 Let the Place of the Chariots near Bad-Tibira, the Metal City, be established, Therefrom, let the gold from Earth to Nibiru in the chariots directly be carried!
 
@@ -4150,7 +4150,7 @@ Of that of which I have been deprived your future lot shall be!
 
 Your celestial time will come, a station mine adjoining yours shall be!
 
-Now this is the account of Sippar, the Place of the Chariots in the Edin, And how the Primitive Workers to the Edin were returned.
+#### Now this is the account of Sippar, the Place of the Chariots in the Edin, And how the Primitive Workers to the Edin were returned.
 
 For many circuits of the Earth, from the Earth were father and son absent; On Earth no plans were implemented, on Lahmu the Igigi were in turmoil.
 
@@ -4284,7 +4284,7 @@ About these matters, Enlil to Enki angry words was saying:
 
 By your doings confusion was created, by you let salvation be devised!
 
-Now this is the account of how Civilized Man was brought about, How by a secret of Enki Adapa and Titi in the Edin were brought forth.
+#### Now this is the account of how Civilized Man was brought about, How by a secret of Enki Adapa and Titi in the Edin were brought forth.
 
 By the proliferation of the Earthlings, Enki was pleased, Enki was worried; The lot of the Anunnaki was greatly eased, their discontent was diminished, By the proliferation the Anunnaki shunned toil, the workers as serfs were becoming.
 
@@ -4597,7 +4597,7 @@ He asked Ningishzidda. Perchance in this lies the answer! Ningishzidda to Anu sa
 
 The secret tablet that he carried hidden to Anu the king he then gave Puzzled was Anu, Anu was concerned; to his private chamber he went the tablet to decipher.
 
-Now this is the account of Adapa, of Civilized Mankind the progenitor, And how by his Sons Ka-in and Abael satiation on Earth was started.
+#### Now this is the account of Adapa, of Civilized Mankind the progenitor, And how by his Sons Ka-in and Abael satiation on Earth was started.
 
 In his private chamber Anu the tablet's seal broke open, Into the scanner the tablet he inserted, its message from Enki to decipher.
 
@@ -4723,7 +4723,7 @@ Enlil to the brothers gave a joyful blessing, their labors he extolled.
 
 Enki his son Marduk embraced, the lamb for all to see he raised, Meat for eating, wool for wearing to Earth have come! Enki said.
 
-Now this is the account of the generations of Adapa, And the killing of Abael by Ka-in, and what thereafter transpired.
+#### Now this is the account of the generations of Adapa, And the killing of Abael by Ka-in, and what thereafter transpired.
 
 After the Celebration of Firsts was over, sullen was Ka-in's face; By the lack of Enki's blessing greatly he was aggrieved.
 
@@ -4871,7 +4871,7 @@ For by Ninurta in Bad-Tibira he was tutored, of furnace and kiln there he learne
 
 In the ninety-eighth Shar did this matter come about.
 
-Now this is the account of the generations of Adapa after Ka-in was exiled, And the heavenly journeys of Enkime and the death of Adapa.
+#### Now this is the account of the generations of Adapa after Ka-in was exiled, And the heavenly journeys of Enkime and the death of Adapa.
 
 In the ninety-ninth Shar to Kunin a son was born, By Mualit, a half sister of Kunin, he was conceived.
 
@@ -5007,13 +5007,13 @@ In the days of Lu-Mach did Marduk and the Igigi with Earthlings intermarry.
 
 In those days on Earth the hardships were increasing, In those days on Lahmu with dryness and dust was the planet enveloped.
 
-The Anunnaki who decree the fates, Enlil and Enki and Ninmah, with each ether consulted.
+The Anunnaki who decree the fates, Enlil and Enki and Ninmah, with each other consulted.
 
 What conditions on earth and on Lahmu were altering, they wondered.
 
 On the Sun flarings they observed, in the netforces of Earth and Lahmu there were disruptions.
 
-In the Abzu, at the tip the Whiteland facing, instruments far observing they installed; In the charge of Nergal, the son of Enki, and his spouse Ereshkigal the instruments ware put To the Land Beyond the Seas Ninurta was assigned, in the mauntainland a Bond Heaven-Earth to establish.
+In the Abzu, at the tip the Whiteland facing, instruments far observing they installed; In the charge of Nergal, the son of Enki, and his spouse Ereshkigal the instruments ware put To the Land Beyond the Seas Ninurta was assigned, in the mountainland a Bond Heaven-Earth to establish.
 
 On Lahmu the Igigi were restless; to pacify them Marduk was the task given:
 
@@ -5163,7 +5163,7 @@ To celebrate our leader's wedding, of Nibiru and Earth a union, to witness we ca
 
 So did the Igigi their arrival in large numbers explain.
 
-Now this is the account of how the Igigi the daughters of the Earthlings abducted, And how afflictions followed and Ziusudra oddly was born.
+#### Now this is the account of how the Igigi the daughters of the Earthlings abducted, And how afflictions followed and Ziusudra oddly was born.
 
 In a great number did the Igigi from Lahmu to Earth come, Only one third of them on Lahmu stayed, to Earth came two hundred.
 
@@ -5235,7 +5235,9 @@ To the other side of Earth Ninurta went; the offspring of Ka-in he found.
 
 How tools to make and music to play he them taught, How in mining to engage and smelt and refine he showed them, How to build rafts of balsam trees he showed them, to cross a great sea he them guided.
 
-In a new land a domain they established, a city with twin towers there they built A domain beyond the seas it was, the mountainland of the new Bond Heaven-Earth it was not In the Edin Lu-Mach was the workmaster, quotas to enforce was his duty, The Earthlings' rations to reduce was his task.
+In a new land a domain they established, a city with twin towers there they built A domain beyond the seas it was, the mountainland of the new Bond Heaven-Earth it was not.
+
+In the Edin Lu-Mach was the workmaster, quotas to enforce was his duty, The Earthlings' rations to reduce was his task.
 
 His spouse was Batanash, the daughter of Lu-Mach's father's brother she was.
 
@@ -5263,7 +5265,7 @@ Matushal to Batanash came, the newborn boy he saw, by his likeness amazed he was
 
 Is one of the Igigi the boy's father? Of Batanash Matushal the truth demanded; To Lu-Mach your spouse whether this boy his son is, the truth reveal!
 
-None of the Igigi is the boy's father, of this upon my life I swear! So did Batanash him answer To his son Lu-Mach Matushal then turned, a calming arm on his shoulders he put A mystery the boy is, but in his oddness an omen to you is revealed, Unique he is, for a task unique by destiny he was chosen.
+None of the Igigi is the boy's father, of this upon my life I swear! So did Batanash him answer. To his son Lu-Mach Matushal then turned, a calming arm on his shoulders he put. A mystery the boy is, but in his oddness an omen to you is revealed, Unique he is, for a task unique by destiny he was chosen.
 
 What that task is, I know not; in time appropriate, known it shall become!
 
@@ -5287,7 +5289,7 @@ In the one hundred and tenth Shar was Ziusudra born, In Shurubak he grew up and 
 
 In his days the sufferings on Earth intensified; plagues and starvations the Earth afflicted.
 
-Now this is the account of Earth's tribulations before the Deluge, And how the mysterious Galzu decisions of life and death in secret guided.
+#### Now this is the account of Earth's tribulations before the Deluge, And how the mysterious Galzu decisions of life and death in secret guided.
 
 By the conjugations of Igigi and the Earthling daughters was Enlil greatly disturbed, By Marduk's espousal of an Earthling female Enlil was much distraught.
 
@@ -5417,7 +5419,7 @@ As for all the others, to depart for Nibiru forthwith they ready must be!
 
 So did Galzu Nibiru's commands to the leaders in secret reveal.
 
-Now this is the account of how the Anunnaki to abandon Earth decided, And how an oath they took Mankind to let in the Deluge perish.
+#### Now this is the account of how the Anunnaki to abandon Earth decided, And how an oath they took Mankind to let in the Deluge perish.
 
 In Nibru-ki Enlil a council of Anunnaki and Igigi commanders summoned, The leaders' sons and their children also were present.
 
@@ -5700,7 +5702,7 @@ Now Ninagal and Ziusudra in the boat the arrival of the seventh day awaited.
 
 In the one hundred and twentieth Shar was the Deluge awaited, In the tenth Shar in the life age of Ziusudra was the Deluge forthcoming, In the station of the Constellation of the Lion was the avalanche looming.
 
-Now this is the account of the Deluge that over the Earth swept And how the Anunnaki escaped, and how Ziusudra in the boat survived.
+#### Now this is the account of the Deluge that over the Earth swept And how the Anunnaki escaped, and how Ziusudra in the boat survived.
 
 For days before the Day of the Deluge the Earth was rumbling, groan as with pain it did; For nights before the calamity struck, in the heavens Nibiru as a glowing star was seen; Then there was darkness in daytime, and at night the Moon as though by a monster was swallowed.
 
@@ -5718,7 +5720,7 @@ In Shurubak, eighteen leagues away, the bright eruptions by Ninagal were seen:
 
 Button up! Button up the hatch! Ninagal to Ziusudra shouted.
 
-Together the trapdoor that the hatch concealed they pulled down; Watertight, enclosed completely, was the boat; inside riot a ray of light penetrated.
+Together the trapdoor that the hatch concealed they pulled down; Watertight, enclosed completely, was the boat; inside not a ray of light penetrated.
 
 On that day, on that unforgettable day, the Deluge with a roar began; In the Whiteland, at the Earth's bottom, the Earth's foundations were shaking; Then with a roar to a thousand thunders equal, off its foundations the icesheet slipped, By Nibiru's unseen netforce it was pulled away, into the south sea crashing.
 
@@ -5840,7 +5842,7 @@ Be fruitful and multiply, and the Earth replenish!
 
 Thus were the Olden Times ended.
 
-Now this is the account of how survival on Earth was restored, And how a new source of gold and other Earthlings beyond the oceans were found.
+#### Now this is the account of how survival on Earth was restored, And how a new source of gold and other Earthlings beyond the oceans were found.
 
 It was after the encounter at Arrata that the waters of the Deluge to recede continued, And the face of the Earth gradually from under the waters was showing.
 
@@ -5979,7 +5981,7 @@ For a new plain whose soil has dried and hardened they searched, In the proximit
 
 Flat as a quiet lake it was, by white mountains it was surrounded.
 
-Now this is the account of the new Place of the Celestial Chariots, And the artificed twin mounts and how the image of the lion by Marduk was usurped.
+#### Now this is the account of the new Place of the Celestial Chariots, And the artificed twin mounts and how the image of the lion by Marduk was usurped.
 
 In the peninsula by the Anunnaki chosen, the heavenly Ways of Anu and Enlil on Earth were reflected; Let the new Place of the Chariots precisely on that boundary be located, Let the heart of the plain the heavens reflect! So did Enlil to Enki suggest.
 
@@ -6031,15 +6033,24 @@ Inside eerie lights began to flicker, an enchanting hum the stillness broke; Out
 
 The multitude of assembled Anunnaki a great cry of joy uttered; Ninmah, by the occasion moved, a poem recited and sang:
 
-House that is like a mountain, house with a pointed peak, For Heaven-Earth it is equipped, the handiwork of the Anunnaki it is.
+    House that is like a mountain, house with a pointed peak,
+    For Heaven-Earth it is equipped, the handiwork of the Anunnaki it is.
 
-House bright and dark, house of heaven and Earth, For the celestial boats it was put together, by the Anunnaki built.
+    House bright and dark, house of heaven and Earth,
+    For the celestial boats it was put together, by the Anunnaki built.
 
-House whose interior with a reddish light of heaven glows, A pulsating beam that far and high reaches it emits; Lofty mountain of mountains, great and lofty fashioned, Beyond the understanding of Earthlings it is.
+    House whose interior with a reddish light of heaven glows,
+    A pulsating beam that far and high reaches it emits;
+    Lofty mountain of mountains, great and lofty fashioned,
+    Beyond the understanding of Earthlings it is.
 
-House of equipment, lofty house of eternity, Its foundation stones the waters touch, its great circumference in clay is set.
+    House of equipment, lofty house of eternity,
+    Its foundation stones the waters touch, its great circumference in clay is set.
 
-House whose parts are skilfully together woven, The great ones who in the skies circle to a resting make descent; House that for the rocketships is a landmark, with unfathomable insides, By Anu himself is the Ekur blessed.
+    House whose parts are skilfully together woven,
+    The great ones who in the skies circle to a resting make descent;
+    House that for the rocketships is a landmark, with unfathomable insides,
+    By Anu himself is the Ekur blessed.
 
 Thus did Ninmah at the celebration recite and sing.
 
@@ -6261,7 +6272,7 @@ Having lost both sons, in each other Marduk and Sarpanit solace sought.
 
 In time to them another son was born; Nabu, Prophecy Bearer, they named him.
 
-Now this is the account of why in the faraway a new chariot's place was built, And the love of Dumuzi and Inanna that Marduk by Dumuzi's death disrupted.
+#### Now this is the account of why in the faraway a new chariot's place was built, And the love of Dumuzi and Inanna that Marduk by Dumuzi's death disrupted.
 
 It was after the contesting of Horon and Satu, and their aerial battle over Tilmun, That Enlil his three sons to a council summoned.
 
@@ -6399,9 +6410,9 @@ To Utu, Inanna's brother, Help me! word he sent; the name of his father Enki as 
 
 Through the desert of Emush, the Snakes Desert, Dumuzi rushed to escape, To the place of mighty waterfalls from the evildoers he ran to hide.
 
-Where the gushing waters the rocks to slippery smoothness made, Dumuzi slipped and fell; The onrushing waters his lifeless body in a white froth swept away.
-evil emissaries to arrest you 
-Now this is the account of Inanna's descent to the Lower Abzu, And the Great Anunnaki War, and how Marduk in the Ekur alive was imprisoned.
+Where the gushing waters the rocks to slippery smoothness made, Dumuzi slipped and fell; The onrushing waters his lifeless body in a white froth swept away. evil emissaries to arrest you 
+
+#### Now this is the account of Inanna's descent to the Lower Abzu, And the Great Anunnaki War, and how Marduk in the Ekur alive was imprisoned.
 
 When the lifeless body of Dumuzi from the great lake's waters by Ninagal was retrieved, To the abode of Nergal and Ereshkigal in the Lower Abzu the body was brought.
 
@@ -6521,7 +6532,7 @@ Let slow death, by alive being buried, be Marduk's sentence! Inanna her consent 
 
 At the end of the gallery, the three the blocking stones let loose, Each one of them one stone for plugging slid down, Marduk as in a tomb to seal.
 
-Now this is the account of how Marduk was saved and to exile departed, And how the Ekur was dismantled and lordship over the lands rearranged.
+#### Now this is the account of how Marduk was saved and to exile departed, And how the Ekur was dismantled and lordship over the lands rearranged.
 
 Away from the Sun and light, without food or water, Marduk within the Ekur alive was entombed; By his imprisonment and punishment without trial Sarpanit, his spouse, a wailing raised.
 
@@ -6543,9 +6554,7 @@ Let Marduk in exile live, the succession on Earth to Ninurta submit!
 
 Enlil by her words was pleased and smiled: Ninurta was his son, of Ninurta she was the mother!
 
-If between succession and life the choice is, what can I, a father, say?
-
-So did Enki with heavy heart answer. In my lands widespread is the desolation, Warfare must end, for Dumuzi I am still in mourning; let Marduk live in exile!
+If between succession and life the choice is, what can I, a father, say? So did Enki with heavy heart answer. In my lands widespread is the desolation, Warfare must end, for Dumuzi I am still in mourning; let Marduk live in exile!
 
 If peace is to be returned and Marduk shall live, binding arrangements must be made!
 
@@ -6687,7 +6696,7 @@ Upon the newly dried soil the Anunnaki let them settle, food for all to provide.
 
 Where Eridu, Enki's first city, before the Deluge had stood, On top of the myriads of mud and silt a new Eridu was marked out.
 
-In its center, upon a raised platform, an abode for Enki and Ninki was built, House of tile Lord Whose Return Is trimphant it was called; With gold and silver and precious metals by Enki's sons provided it was adorned.
+In its center, upon a raised platform, an abode for Enki and Ninki was built, House of tile Lord Whose Return Is Trimphant it was called; With gold and silver and precious metals by Enki's sons provided it was adorned.
 
 Above in a circle skyward pointing, the twelve constellations by their signs were marked out.
 
@@ -6695,7 +6704,7 @@ Below, as in the Abzu, waters with swimming fishes flowed.
 
 In a sanctuary, a place that no uninvited can enter, Enki the ME formulas kept.
 
-For Enmil and Ninlil a next Nibru-ki atop the mud and silt was established; Amid its people's dwellings and cattlefolds and stalls a sacred precinct was walled off.
+For Enlil and Ninlil a next Nibru-ki atop the mud and silt was established; Amid its people's dwellings and cattlefolds and stalls a sacred precinct was walled off.
 
 An abode for Enlil and Ninlil therein was built, in seven stages it arose; A stairway, rising as to heaven, to the topmost platform led.
 
@@ -6745,7 +6754,7 @@ A great banquet was for Anu and Antu prepared, for the sign in the heavens its s
 
 On Enlil's instructions Zumul, who in matters of stars and planets was learned, The steps of the House of Anu ascended, the rising of the planets at evetime to announce.
 
-On the first step Kishar in the eastern skies appeared, Lahamu or the second step was seen, Mummu on the third step was announced, Anshar by the fourth step rose, Lahmu on the fifth step was seen, the Moon from the sixth step was announced.
+On the first step Kishar in the eastern skies appeared, Lahamu on the second step was seen, Mummu on the third step was announced, Anshar by the fourth step rose, Lahmu on the fifth step was seen, the Moon from the sixth step was announced.
 
 Then, on a signal from Zumul, the hymn The Planet of Anu in the Skies Rises began to be sung, For from the topmost step, the seventh, the red-haloed Nibiru into view came.
 
@@ -6788,7 +6797,6 @@ Was the creation of the Earthlings also destined, of that I must wonder!
 For a while the four of them were silent; each one past events in his heart recounted.
 
 While fates we decreed, the hand of destiny every step directed! So did Anu say.
-.
 
 The will of the Creator of All is clear to see: On Earth and for Earthlings, only emissaries we are The Earth to the Earthlings belongs, to preserve and advance them we were intended!
 
@@ -6802,13 +6810,13 @@ Secret knowledge to be taught, civilization to Mankind convey.
 
 To create four regions, three for Mankind, one restricted, the Anunnaki resolved:
 
-The first region in the olden Edin-land to establish, for Enlil and his sons to dominate; The second region in the Land of the Two Narrows thereafter to follow, for Enki and his sons to lord; The third region, with the other two not mingling, in a distant land to Inanna grant; The fourth region, for the Anunnaki alone consecrated, the peninsula of the Place of the Chariots will be.
+The First Region in the olden Edin-land to establish, for Enlil and his sons to dominate; The Second Region in the Land of the Two Narrows thereafter to follow, for Enki and his sons to lord; The Third Region, with the other two not mingling, in a distant land to Inanna grant; The Fourth Region, for the Anunnaki alone consecrated, the peninsula of the Place of the Chariots will be.
 
-Now this is the account of Anu's journey to the lands beyond the oceans, And how in the First Region for,the Anunnaki cities were reestablished.
+#### Now this is the account of Anu's journey to the lands beyond the oceans, And how in the First Region for,the Anunnaki cities were reestablished.
 
 Having the decision about the four regions and Mankind's civilizations made, Anu about his grandson Marduk inquired. I must see him again! to the leaders Anu said.
 
-Whether by Dumuzi and Ningishzidda to Nibiru inviting, Marduk's ire I myself have caused!
+Whether by Dumuzi and Ningishzidda to Nibiru inviting, Marduk's anger I myself have caused!
 
 So did Anu wonder; to reconsider the punishment of Marduk he wished.
 
@@ -6926,9 +6934,9 @@ For Nannar a city with straight streets, canals, and wharves was provided; Urim 
 
 Ishkur to the mountainlands of the north returned, the House of Seven Storms his abode was called; Inanna in Unug-ki resided, in the abode by Anu bequeathed to her she dwelt Marduk and Nabu in Eridu dwelt, in the Edin their own abodes they did not have.
 
-Now this is the account of the first City of Men and of kingship on Earth, And how Marduk to build a tower schemed and wherefor Inanna the ME's stole.
+#### Now this is the account of the first City of Men and of kingship on Earth, And how Marduk to build a tower schemed and wherefor Inanna the ME's stole.
 
-In the First Region, in the lands of Edin and in the cities with precincts, By their Anunnaki lords the Earthlings handiworks and crafts were taught Before long were the fields irrigated, on canal and river boats soon sailed; The sheepfolds and granaries were overflowing, prosperity the land filled.
+In the First Region, in the lands of Edin and in the cities with precincts, By their Anunnaki lords the Earthlings handiworks and crafts were taught. Before long were the fields irrigated, on canal and river boats soon sailed; The sheepfolds and granaries were overflowing, prosperity the land filled.
 
 Ki-Engi, Land of the Lofty Watchers, the First Region was called.
 
@@ -6944,7 +6952,7 @@ Properly attired, with respect Ninurta Eridu entered, for the ME of kingship he 
 
 Enki, the lord who all the ME's safeguards, fifty ME to Ninurta granted.
 
-In Kishi were the black headed people with numbers to calculate taught, Heavenly Nisaba writing them taught, heavenly Ninkashi beermaking them showed.
+In Kishi were the black-headed people with numbers to calculate taught, Heavenly Nisaba writing them taught, heavenly Ninkashi beermaking them showed.
 
 In Kishi, by Ninurta guided, kilnwork and smithing proliferated, Wheeled wagons, to male asses harnessed, craftily in Kishi first were fashioned.
 
@@ -7057,7 +7065,7 @@ In the four hundred and ninth year after the count of Earth years began, Kingshi
 
 As for Marduk, to the Land of the Two Narrows he went, To be the master of the Second Region, once established, he expected.
 
-Now this is the account of how the Second and Third Regions were established, And how Ningishzidda was exiled and Unug-ki Aratta threatened.
+#### Now this is the account of how the Second and Third Regions were established, And how Ningishzidda was exiled and Unug-ki Aratta threatened.
 
 When Marduk, after a long absence, to the Land of the Two Narrows returned, Ningishzidda as its master he there found, its Lofty Lord Ningishzidda was.
 
@@ -7213,7 +7221,7 @@ Journeying between Unug-ki and Aratta, Inanna restless and ungratified was; For 
 
 When she flew about, in the sunrays Dumuzi's image she saw shimmering and beckoning, In the nighttime in dream-visions he appeared; I will return! he was saying.
 
-The glories of his domain in the Lard of two Narrows to her he was promising.
+The glories of his domain in the Land of two Narrows to her he was promising.
 
 In the sacred precinct of Unug-ki, a House for Nighttime Pleasure she established.
 
@@ -7249,8 +7257,7 @@ On the throne of Unug-ki Banda his father Enmerkar succeeded; Lugal, Great Man, 
 
 The goddess Ninsun, of Enlil's seed, took him to be her spouse, The hero Gilgamesh, their son, on the throne of Unug-ki Lugal-Banda followed.
 
-As the years passed and Gilgamesh older grew, of life and death to his mother Ninsun he spoke, About the death of his forebears, though of Anunnaki descended, he wondered. Do gods die?
-his mother he asked.
+As the years passed and Gilgamesh older grew, of life and death to his mother Ninsun he spoke, About the death of his forebears, though of Anunnaki descended, he wondered. Do gods die? his mother he asked.
 
 Shall I too, though two thirds divine, as a mortal over the wall climb? So to her he said.
 
@@ -7290,7 +7297,7 @@ Unique of all the plants on Earth it was; by it a man full vigor can regain.
 
 Man at Old Age Is Young Again! This is the plant's name, Ziusudra to Gilgamesh said.
 
-A gift of Enki, with Enlil's blessing, on the Mount of Salvation to us was grantedl When Ziusudra and his spouse were asleep, Gilgamesh to his feet stones tied.
+A gift of Enki, with Enlil's blessing, on the Mount of Salvation to us was granted! When Ziusudra and his spouse were asleep, Gilgamesh to his feet stones tied.
 
 Into the well he dived, the plant of Being Young Again he grasped and uprooted.
 
@@ -7332,7 +7339,7 @@ Of the coming of the gods to Earth by Ra were the priests taught, Gold is the sp
 
 To make expeditions to the Abzu and the Lower Domain, gold to obtain, the kings he instructed.
 
-When by the force of weapons the kings of Ra lands not theirs conquer, His brothers' realms he invaded, their ire he caused to arise and grow:
+When by the force of weapons the kings of Ra lands not theirs conquer, His brothers' realms he invaded, their anger he caused to arise and grow:
 
 What is Marduk up to, the brothers each other asked, that over us he tramples?
 
@@ -7342,7 +7349,7 @@ To capture all adjoining lands the kings of Magan and Meluhha Ra directed, To be
 
 The Earth is mine to rule! So adamantly to his father he said.
 
-Now this is the account of how Marduk supreme himself declared and Babili built, And how Inanna, warrior kings commanding, blood made flow and sacrileges allowed.
+#### Now this is the account of how Marduk supreme himself declared and Babili built, And how Inanna, warrior kings commanding, blood made flow and sacrileges allowed.
 
 After kingship to Urim from Unug-ki was transferred, Nannar and Ningal on the people smiled.
 
@@ -7450,13 +7457,13 @@ To march against Magan and Meluhha, Marduk domains, Naram-Sin she instructed.
 
 The sacrilege of an Earthlings' army through the Fourth Region passing Naram-Sin committed, Magan he invaded, the sealed Ekur, House Which Like a Mountain Is, to enter he attempted.
 
-By the sacrileges and transgressions Enlil was infuriated; upon Naram-Sin and Agade a curse & put:
+By the sacrileges and transgressions Enlil was infuriated; upon Naram-Sin and Agade a curse he put:
 
 By a bite of a scorpion did Naram-Sin die, by the command of Enlil was Agade wiped out.
 
 At the count of a thousand and five hundred Earth years did this happen.
 
-Now this is the account of the prophecy by Galzu to Enlil in a vision given; About Marduk's supremacy it was, how a calamity to survive a man to choose.
+#### Now this is the account of the prophecy by Galzu to Enlil in a vision given; About Marduk's supremacy it was, how a calamity to survive a man to choose.
 
 After Marduk Amun became, kingship in the Second Region disintegrated, disorder and confusion reigned; After Agade was wiped out, in the First Region there was disorder, confusion reigned.
 
@@ -7544,11 +7551,11 @@ Of all the troubles Marduk is the fountainhead! Enlil to Enki retorted.
 
 Still the dream-vision to himself keeping, Enlil to Tirhu his attention turned.
 
-Upon lbru-Um, the eldest son of Tirhu, Enlil cast the choosing gaze.
+Upon Ibru-Um, the eldest son of Tirhu, Enlil cast the choosing gaze.
 
-A princely offspring, valiant and with priestly secrets acquainted Ibruum was; To protect the sacred places, the chariots' ascents and descents enable, Enlil lbruum to go commanded.
+A princely offspring, valiant and with priestly secrets acquainted Ibruum was; To protect the sacred places, the chariots' ascents and descents enable, Enlil Ibruum to go commanded.
 
-No sooner did lbruum from Harran depart than in that city Marduk arrived; The defilements he too had observed, as birth pangs of a New Order he them deemed.
+No sooner did Ibruum from Harran depart than in that city Marduk arrived; The defilements he too had observed, as birth pangs of a New Order he them deemed.
 
 From Harran, on the threshold of Shumer, his final thrust he planned, From Harran, at the edge of Ishkur's domains situated, the raising of armies he directed.
 
@@ -7594,7 +7601,7 @@ What was destined to be, by your decision to undo will fail! So did Enki say as 
 
 The evil thing to carry out Ninurta and Nergal were selected.
 
-Now this is the account of how Fate to Destiny did lead, How step by step, some in long forgotten times taken, the Great Calamity made happen!
+#### Now this is the account of how Fate to Destiny did lead, How step by step, some in long forgotten times taken, the Great Calamity made happen!
 
 Now let it for all time be recorded and remembered:
 
@@ -7624,13 +7631,13 @@ Before the two sons, one of Enlil, one of Enki, to the hiding place departed, En
 
 In his skyship Nergal to the hiding place soared, Ninurta by his father was delayed; A word to his son alone Enlil wished to say, a secret to him alone reveal:
 
-About the prophecy of Galzu and the choosing of lbruum to Ninurta he told.
+About the prophecy of Galzu and the choosing of Ibruum to Ninurta he told.
 
 Hot-headed is Nergal, make sure that the cities are spared, that Ibruum is forewarned! to Ninurta Enlil said.
 
 When Ninurta at the weapons' place arrived, Nergal from the cavity had already them brought out, As their ME's from the long slumber he awakened, to each one of the seven Nergal a taskname gave:
 
-The One Without Rival the first weapon he called, the Blazing Flame he named the second, The One Who with Terror Crumbles he called the third, Mountain Melter the fourth he called, Wind That the Rim of the World Seeks he named the fifth, the One Who Above and Below No One Spares was the sixth, The seventh with monstrous venom was filled, Vaporizer of Living Things he called it With Anu's blessing were the seven to Nergal and Ninurta given, therewith to destruction wreak.
+The One Without Rival the first weapon he called, the Blazing Flame he named the second, The One Who with Terror Crumbles he called the third, Mountain Melter the fourth he called, Wind That the Rim of the World Seeks he named the fifth, the One Who Above and Below No One Spares was the sixth, The seventh with monstrous venom was filled, Vaporizer of Living Things he called it. With Anu's blessing were the seven to Nergal and Ninurta given, therewith to destruction wreak.
 
 When Ninurta at the place of the Weapons of Terror arrived, to destroy and annihilate was Nergal ready.
 
