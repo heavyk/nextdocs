@@ -3591,6 +3591,51 @@ the exception to that is the possibility that they transition to becoming more l
 
 this book (I just finished it this morning) has really illuminated for me the situation that we're all in. I'm gonna have to let it digest a bit.
 
+### 2022-06-06 15:48 - buncha stuff
+
+I had a few reactions to the thing in the last entry where I postulated that atlantis was at the south pole. there are some problems with it because they definitely had a day-night cycle, which would mean that the planet was rotating about like uranus, but much faster. my point in all of that is that I believe that the chestahedron exists inside of the earth, even if the magnetic south pole was located over the island of atlantis ... wait. that seems wrong too. I really can't visualise it well enough in my head to get a good idea of what happened... something (perhaps the great pyramid) is locking the axis of rotation of the earth, and so perhaps even if the crust shifted, it would lock into one of the *six* (I think I said 4 last time) orientations that aligns with the cardinal directions.
+
+however it is, I can't be sure, but what I was seeing is the tip of the chestahedron was pointing right at atlantis, so it would be something like living on antarctica today. lbe says the "lower world" is the place where nergal is in charge and that's where they're recording all of the earthquakes before the deluge.
+
+> In the Lower World, the snow white-hued place, the Earth was grumbling; At the tip of the Abzu, Enki a place for observing established, To his son Nergal and his spouse Ereshkigal command thereof he entrusted.
+
+nergal is the sirian saturn/dwal quin and ereshkigal is unnessa, so that makes this the most likely location for atlantis. one can also imagine that if it's locatad at the point of the vortex (the south pole), and thoth is the emitter in that triad, and accoring to this text, thoth built the great pyramid, this perfectly fits saturn/atlantis being the ground and thoth being up at the emitter (equator).
+
+it just occurred to me that the different triads they're talking about may refer to different stages in earth's development, where the ground (potentially the female as well) are located at the south pole. I don't have enough information to say one way or another.
+
+anyway, the whole point I was making about that is that if the south pole there controls the rising of the kundalini of the planet and the antarctica breakaway civilisation is down there, they probably have the that "under control" just like atlantis did in the last catastrophe. almost certainly atlantis regulated the rising of that energy, and tried to prevent its rise. eventually though,
+
+> Ninurta to the mountainlands beyond the oceans Enlil directed on Earth's rumblings to report; To Nergal and Ereshkigal, the task the Whiteland to watch Enlil assigned.
+> At that time word from Ninurta came: Earth's rumblings ominous are!
+> At that time word from Nergal and Ereshkigal came: The Whiteland is shaken!
+> In Sippar all the Anunnaki gathered, the Day of the Deluge they awaited.
+
+so they knew the deluge was coming when the whitelands earthquakes started to get out of control. there's another really weird (I think cover story) about the dismantling of the pyramid after the deluge which I haven't figured out yet, but I think there is an obvious energetic connection between the south pole and the equator. I know the great pyramid isn't exactly on the equator -- so the 30(degrees) thing must mean something as the emission happens at the polar regions (like saturn), so maybe what is happening is that the emission is being directed out of the 30(degrees) area similar to the sun, because if the emission would happen at the equator, it would be really big.
+
+I really don't know all of this stuff, but it'd be fun to figure it out. my only point is that I think the antarctic civilisation have the equatorial emission under control (for now)
+
+---
+
+the other thing that I've been noticing a lot of is this feeling like ... "we don't want you to become superior or have better stuff; we want you to be lower than us." and this is exactly the feeling I get when I talk about the antarctic civ, because I think that they have the solution to not letting the planetary kundalini rise, but there's this aprehension like they don't want them to be right or to have the right way.
+
+it really reminds me of the alalu thing where they can't allow someone to do something better and be successful at it. I think that may be the reason for the standoff. the US govt wants to do things their way, which would cause catastrophe because they probably don't really understand the planet and are just looking to try and control things. so the antarctic civ is down there doing the regulating to ensure the kundalini doesn't rise for the planet. there simply isn't a way that they can ever decide to stop making decisions based on dissatisfaction, so they've installed a regime of power (as in, don't mess with us). so there's not really anything anyone can do about it.
+
+probably what the whole 2038 thing is about is that's likely the time when my effects on the planet will be too great for them to regulate effectively. I believe, there's not much anyone can do about it, because they're the power structure that has all of the control (they're probably considerably more advanced than anything that the US govt has).
+
+hmmm, I really didn't mean to talk that much about so many things.. it just sorta happened.
+
+---
+
+this morning, for a very brief moment I think the kundalini got very close and I had this whitish-blue very soft feeling energy pass through my body and for a brief moment everything felt really good. it ended and I went back to sleep, but this morning was especially high geomagnetic activity but the sun was in b-range. the feeling this morning with the geomagnetic activity felt so much better than the times when the kundalini is rising when the sun is flaring. like I said, it felt soft and also very natural. so, I think what I'm looking to do is to wait for the impact rather than for flare, because its so much nicer of an experience.
+
+anyway, the last thing I wanted to talk about is that I had this dream yesterday night where tim (friend since elementary school) was showing me that pluto is basically a very earth-like planet. so much of that dream is gone now, but I remember I missed the sun (the was no blue sky) and it was night-time all the time (cause no blue sky), but it's not like it was pitch black either... the sky was black (cept for the stars and planets) and the ground was illuminated with no source of light (I guess it just glowed), so there wasn't really any need for sunlight -- but I did really miss the blue sky.
+
+anyway, I woke up with that same feeling that I was describing the antarctic civ -- where they felt as if out there (on pluto) I would be successful and that would jeapordise (not the right word) their feeling of superiority.
+
+I started to think about all sorts of stuff because -- I totally lost my train of thought because the internet started working again.
+
+I'll talk about the other stuff later
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
