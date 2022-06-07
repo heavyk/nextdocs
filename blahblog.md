@@ -3636,6 +3636,38 @@ I started to think about all sorts of stuff because -- I totally lost my train o
 
 I'll talk about the other stuff later
 
+
+### 2022-06-06 23:43 - the other stuff later
+
+so after waking up from that dream where tim was showing me that pluto is a earth-like planet, I started to think about the idea of how it would all work out because afterward I was thinking about the implementation of such a thing. that day there were two major feelings: the first was that I should be captured by someone unknown and this felt pretty exciting -- or, I should just go with a pre-planned sort of thing (this didn't feel as exciting).
+
+personally, I'm in the business of constantly going toward the thing that doesn't feel too much better than I already do. I talked a little bit about how it's the common thing for someone on drugs or whatever to get to feeling really good and then crash and burn pretty hard because they're attracting from that good-feeling place -- and then later, when they don't feel so good, suddenly it falls apart (buyers remorse). it's for this reason that I've learned to do drugs by myself or in a pretty controlled environment if I'm going to feel too much better than I normally do. the comedown is definitely noticable[^1].
+
+as a result, I definitely have been learned over the years to not try and go so big and try to feel so good anymore. I like to feel normal, and have noticed that feeling too much better than I normally do isn't really a good idea. therefore, in that sense, I'm definitely leaning more toward the less exciting (pre-planned) thing. I simply don't want a manifestation that feels too much better than how I normally feel -- and if at most possible, I want it to feel just like any other day -- meaning whatever it is that manifests is just everyday sort of stuff.
+
+---
+
+this reminded me of a thing today that I was thinking about when pulling weeds. I was thinking about the difference between 3rd ray and 7th ray again. I was noticing how the 3rd ray has the creation/objective already planned out and then has to manipulate conditions/variables to get to that objective -- whereas the 7th ray starts with the data/conditions, and then figures out how with that data to conform the creation/objective to those conditions/variables.
+
+I was remembering patricia, and one of the things that I didn't really know what to about with her is that she wanted to try and make a appealing appearance -- and I just didn't really know what to do with that. I didn't really have an imagination anyway, so all of it was kinda in vain anyway. later on, with raquel I felt much more comfortable because I was looking mostly for just a very plain and ordinary girl that wanted to work on stuff. obviously that didn't work either but for the opposite reason -- however, I was constantly reminded of the desire that I've always had just to do things plainly. I don't really like celebrations. I don't really want to make a big deal out of anything. I don't want to feel special. I don't need a big objective or anything. I just like to create things, so I want to just do normal and natural things (for a creative person, that is).
+
+I don't really know how long that'll take, but it's OK however long it takes. so, in that sense, I really much prefer the pre-planned way of doing things -- simply because it's far less excitement.
+
+---
+
+then, I was thinking more about the party-LAN project, and it's come a bit further, especially since my thinking about the MEs (see @[sitchin/thoughts](2022-06-06 22:51)), and this too could become a thing, as I find it would be kind of a pretty cool idea if each person had their own MEs that they projected out into their environment.
+
+anyway, speaking about the party-LAN project, I saw it simultaneously really far into the future, yet also really nearby in time, too. the way it looked is that the earth had become filled with lots and lots of dudes that had everything setup just the way they wanted it -- the right conditons, the right technology, etc. and it seemed like the planet was becoming filled more and more with everything that they wanted. I don't know how many or what, but I assumed that a lot of the girls were hanging out with me and we were just going our own separate ways.
+
+it seemed to me like there was a need for males (probably for them to transfer their consciousnesses into), and I there was also a constant influx of females in my direction as well. it seemed to me like they were being exchanged for something (I assumed it was some sort of shares or something that was valuable -- not sure). it felt like we were producing something that is valuable and this was desirable thing to obtain because we weren't going toward a catastrophe at all actually, and were expanding into creating more planets, creating new species and all sorts of things like that -- and whatever it was that we were creating is sorta like a resource that greatly eases the creation of wanted (probably something like that bright object or something that outputs energy -- dunno).
+
+---
+
+it's kinda hard to put all of this into words, but the thing that I have to say about all of it is that the whole goal is to *not* try and go fast, there won't be a cataclysm, and just start creating what's wanted -- and, finally, don't worry about dissatisfaction, because that can be smoothed over -- and, in the end it'll fuel us more anyway, so it's not even a problem. dissatisfaction is what creates wanted anyway, and we don't want stagnation.
+
+[1]: this was most noticeable when I would drink. it would activate that super good feeling moment -- and I would just go nuts. I woke up often times the next morning with a feeling of regret (even though I didn't regret anything) and a sense of depression as well, becasuse the contrast to how good I felt the night before made me feel like present reality kinda sucks.
+
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
