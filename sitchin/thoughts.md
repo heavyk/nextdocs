@@ -481,3 +481,72 @@ the matter is, these things need to be falsified, and so to go about trying to f
 just take the 9/11 commission report as an example: do you really think that's what really happened? what if they wrote it in stone and buried it for future generations to dig up so they could know the "official" (written in stone, mind you) justification for why we went to iraq and destroyed all the evidence of anything that could possibly falisfy sitichin's fabrication?
 
 see what I mean? pretty hilarious irony. I'll end it there.
+
+### 2022-06-06 22:51 - thinking a bit more on the MEs
+
+there's this weird story where innana wants the MEs and so I thought about this story. for context, first enlil complains to anu about enki keeping all of the MEs:
+
+    In Eridu Enlil about Enki complained: The ME formulas to himself Enki is keeping!
+
+    Anu, on the seat of honor seated, words of praise to Enki said:
+
+    My son for himself a magnificent house built, beautifully on a platform it is raised.
+
+    To the people that the House surround and serve, great knowledge will Enki give; Now, the knowledge that in the ME's is secreted, with other Anunnaki must be shared!
+    
+    Embarrassed was Enki; to share with all the divine formulas to Anu he promised.
+
+that's the start of the story. ninharsag has the MEs of how the humans were fashioned, but to make a city (kish) they supposedly need MEs for kingship:
+
+    Then to let the black-headed people a city of their own possess it was decided; Kishi, Scepter City, it was called, in Kishi did the kingship of Man begin.
+
+    Therein, in consecrated soil, Anu and Enlil the Heavenly Bright Object implanted.
+
+    In it Ninurta the first king appointed, Mighty Man was his royal title.
+
+    To make it a center for Civilized Mankind, Ninurta to Eridu journeyed, The ME tablets that for kingship divine formulas hold from Enki to obtain.
+
+    Properly attired, with respect Ninurta Eridu entered, for the ME of kingship he asked:
+
+    Enki, the lord who all the ME's safeguards, fifty ME to Ninurta granted.
+
+so they have some sort of bright object that they turn on, but it won't be ready as a city for kingship until they have kingship MEs (DNA). this didn't make sense to me, but it's repeated again when innana wants to make her city setup:
+
+    Having seen how Ninurta to Eridu journeyed, how the ME of kingship he obtained, Inanna in her heart a plan devised, to obtain ME from Enki she schemed.
+
+    [...]
+
+    Show me the ME's, Inanna to Enki playfully said; let me ME in my hand hold!
+
+    Seven, times in the course of the competition Enki to Inanna ME's to hold gave, The divine formulas for lordship and kingship, for priesthood and scribeship, For lovedressing and for warring ME's to Inanna Enki to hold gave; For music and singing, woodworking and metals and precious stones, Ninety-four ME's that for civilized kingdoms are needed Enki to Inanna gave.
+
+The divine formulas for:
+- lordship
+- kingship
+- priesthood
+- scribeship
+- lovedressing
+- warring
+- music
+- singing
+- woodworking
+- metals
+- precious stones
+
+these all appear to be technology, so here's this bright object that somehow enables a city (and its inhabitants?) to gain the mental capacity for performing these things?
+
+I thought about it a while and what I think it is, is a bit hard to explain but it goes something like this -- this bright object seems to affect consciousness in a local area around it, and the basic consciousness "instinct" must be tuned to by this DNA.
+
+I imagine DNA to be a constatly changing state machine, and so each state is a frequency, and so you then get a sequence of frequencies that are transmitted as the DNA chages from state to state.
+
+in this machine, these sequences must be static -- something like a program which performs the same set of operations -- so this bright object must be setting that frequency (the clock) for these sequences and then amplifying those frequencies. inotherwords, it's not a continuous spectrum amplifer, but an amplifier of a very specific set of frequencies over time.
+
+---
+
+I'm reminded now by a thing that kyle was talking about (I think it was the snake-bros where they were talking about the scanpyramids project), how in the great pyramid, every time the scientists would go in there with their tapes to try and record something, they would turn to static -- and so he didn't think it was just static and he wanted to record it and see what it was. they don't allow you to record anything in the great pyramid, so he'd have to find a way around their rules, but I postulate that the frequency pattern would probably repeat over and over, as the great pyramid is one of these "bright objects" that's amplifying these DNA codes, making it more likely for people with resonant DNA to get those frequencies amplified (box-consciousness).
+
+anyway, that's not what I wanted to talk about because, I postulate that this clock frequency that the DNA runs at, in this device must be powered by some set of stabilising mechanisms (probably why it's so important for light speed to remain constant), but inside of the human, it's our mood and emotions that regulates this frequency, and so the better you feel, the more access to different parts of the genome are possible.
+
+OK, so, I'll just assume that I'm right here and that the great pyramid is a "bright object" that is transmitting a constant DNA signal outward. obviously, the speed of light matters. if the speed of light were to change, all of these ME formulas would be slightly different. so, if we wanted to upgrade the speed of light, someone (thoth, I guess) would need to come and recalculate the MEs to operate at the new speed of light.
+
+that's really all I have for that now. I think it's fascinating that they had some kind of visual interface into the genome and to these annunaki gods, it was very important to have the spatial dimensions calibrated just perfectly, so that the consciousness that their towers emitted would be operating precisely. it's a kind of digital computer that we have no real concept of at all.

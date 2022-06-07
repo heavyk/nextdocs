@@ -212,6 +212,8 @@ obviously then...
 
 > To create civilized regions the Great Anunnaki decided, therein knowledge to Mankind provide; Cities of Man to establish, therein in sacred precincts abodes for the Anunnaki create; Kingship as on Nibiru on Earth establish, crown and scepter to a chosen man give; By him the word of the Anunnaki to the people convey, work and dexterity to enforce; In the sacred precincts a priesthood to establish, the Anunnaki as lofty lords to serve and worship.
 
+### where is japheth?
+
 ### words
 
 I get the sense that the word translated as "rocket" can probably be translated as "anti-gravity".
