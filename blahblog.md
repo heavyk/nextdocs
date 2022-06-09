@@ -3697,6 +3697,63 @@ you could then imagine that as the AI gains better and better control over its b
 
 I'll stop there.
 
+### 2022-06-09 12:03 - desire
+
+I want to talk a moment on desire because I woke up from a few weird dreams where it felt like desire was out of control and immediately upon waking up I was reminded of two things. 
+
+the first was a thing I said to mom about how the two extremes of desire are (remember the circle that looks like a corkscrew):
+
+on one side you if you've had an authority figure (like a parent) punish you for wanting something, or have grown up with strong religious beliefs, you may think that if you want something you'll get punished for wanting it -- so you start to learn to not want things to avoid punishment.
+
+now go all the way around the circle and you arrive to the idea that you should suppress desire because desire is such a powerful force it can cause you to make actions you didn't perhaps want to make.
+
+I was reminded strongly of buddhism when I said that and I got some reactions about it at the the time, too -- so I'd like to take a look at that.
+
+---
+
+desire is a very strong motivating force, but over the years, I've found that everything I want comes to me without me ever having to go out and try to get it, so I believe it's the going out and *trying to get the manifestation* of the desire which is the problem -- and that's what the buddhists are trying to avoid -- which I completely agree with. 
+
+I've found that if I need a manfestation or want a manifestation, it's because I think that -- whatever it is -- will make me feel good; and so you can see that implies right away that I don't feel good. so I just don't worry about trying to get any desire. you will attract it naturally without having to do anything.
+
+---
+
+the second thing I was reminded of this morning was a thing that russ talked about in snake-bros #68? where japanese people would just dissappear theirselves because they had brought dishonour or shame to their family's name by doing something (I can't really remember how it went because I don't know the system), and I noticed immediately that this is just another social structure built upon expectations. anyway all of that other stuff I talked about aside, I want to talk now about the desire aspect of social structures.
+
+in most social structures you're expected to perform the desire of the group rather than the individual desire (like in a military unit, the desire of the group is to conquer some objective -- or maybe a corporate one is to accomplish a product or technology). it's easy to jump on the desire of the group when it aligns with your own, but it becomes increasingly more difficult to remain a part of the group if you're continually unable to experinece your own desires -- and I think that's the real reason for these people that disappear theirselves. here's why:
+
+expectation is a concept that's part belief and part desire. when someone expects something of you, they *want* you to do something for them (usually because they feel incapable), and then there's a belief, logic, or structure associated with it -- such as, "this is the way it's done", "this is the policy", "this is the way that God wants it" etc. -- and that gets combined with the leader of that expectation's belief or perspective of how it should be done and things like that (3rd ray perspective).
+
+so when someone is continually expected to manifest the desire of someone else or the group, based upon a (social, religious, political, ethical, or whatever) structure, they're obliged to follow that structure so much as they too believe in that structure. for them, it's much easier to try and leave the structure than to stop believing in it.
+
+---
+
+my advice for the thing about the expectations is not really to try and go against any of their expectations. it's usually the case that they expect it because they feel incapable theirselves or whatever -- it's all based on need (incapable) or want (usually to make them feel better) or fear (most cases for the military, decisions are made out of fear) -- and so you can look to see from what feeling place they're attracting from.
+
+then, I just *find a way* (any way really, but perception is the easiest) to feel at least a little bit better than whatever they're feeling when they're attracting. this will put you ahead of the others speed-wise and so you you'll either get promoted to a higher position or you'll start to desync with the whole thing and naturally start to drift away. I definitely wouldn't fight the structure itself because most of these structures are designed to withstand opposition to the desire of the group, so in almost all cases, the social structure itself won't topple (basically because so many others believe in it still[^1])
+
+I really don't recommend trying to topple a structure of any kind, even if it's as silly as your boyfriend/wife/mate's ideas of what things you should be doing. those too have deep roots of belief in why those things are right, and most people will fight much harder to prove their beliefs (which all their structures are founded upon) right, rather than just feeling good.
+
+just feel good[^2] and you'll naturally desync with the problems and begin attracting all of the solutions without any effort. you don't need to try and *get* any desires, either because you're already attracting them. they'll come effortlessly[^3] if you let them.
+
+---
+
+there was a reaction to all of this in reference to me, but it's the same thing I said. nosebook is a structure and there's a lot of belief and expectation wrapped up into that structure. they need me and my perspective to feel good, so they definitely don't want me to get connected cause they'll lose that -- and I personally really like the idea of them exhausing every possible way to keep me disconnected. I *want* them to run all known exploits on me, which is the fastest way to become "perfect" (not really, I'll still have flaws, just nothing external will bother me anymore because I can feel how I want to feel).
+
+so, it's the same thing. I definitely don't want to fight their structure because destroying their structure isn't something that I want to do. many people believe in and find value in the nosebook structure, so I'm not going to come against their beliefs and ideas. if I were in japan, I wouldn't fight their honour system either because it's not like I'll ever be able to change a whole country. I just simply wouldn't participate in it. I'd just do my own thing and go about attracting things the way I want to and let everyone else do their own thing.
+
+you know, it's something like how mom wants me to leave a note on the fridge saying where I went if I leave -- which is obviously really silly because *everyone* knows where I am. it doesn't make any sense, but in the end I'm not going to change her. she apparently thinks she has no idea where I am, and that's fine for her to keep believing that; that's her choice.
+
+ah -- so like I *need* to do something (like write where I'm going on the fridge) because that's the honourable (or expected) thing for me to do? it's the same thing. mom *needs* me to write my location on the board and so that's expected of me. I'd rather not get into a fight over why it's silly to put my location on the board -- cause I'd rather feel good and it doesn't really make me feel bad to write it either -- so I just write it because it's expected of me. I don't care what she's beiliving or whatever. not my problem. my *only* problem is how I feel.
+
+you know, like if I forget, I'm not going to worry about it either because again, I care about how I feel, and worry doesn't really feel good. I definitely wouldn't worry about a punishment either because you haven't done anything wrong (in itself) -- you just didn't follow what was expected of you. oh well. just let them deal with it. they can try to punish you -- but remember, the primary role of punishment (and shame) is to make you feel bad. if neither shame or punishment makes you feel bad, you're unpunishable. they have to find another way to manipulate your desire to get their own.
+
+nosebook is the same way. I'll be "free" when they can no longer make me feel bad.
+
+
+[1]: if it's work, people need the money and don't want to be unemployed. if it's sports team or military, that's wrapped up in belonging to something and identity. all sorts of reasons people have for believing in the group.
+
+[2]: I learned this by doing drugs. I would be pissed off and frustrater at work or whatever and I take the drug and it goes away. well, the only thing that changed was how I looked at the situation and how I felt. I do recommend trying drugs and then integrating that good-feeling perspective into sober state.
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
