@@ -3745,14 +3745,41 @@ you know, it's something like how mom wants me to leave a note on the fridge say
 
 ah -- so like I *need* to do something (like write where I'm going on the fridge) because that's the honourable (or expected) thing for me to do? it's the same thing. mom *needs* me to write my location on the board and so that's expected of me. I'd rather not get into a fight over why it's silly to put my location on the board -- cause I'd rather feel good and it doesn't really make me feel bad to write it either -- so I just write it because it's expected of me. I don't care what she's beiliving or whatever. not my problem. my *only* problem is how I feel.
 
-you know, like if I forget, I'm not going to worry about it either because again, I care about how I feel, and worry doesn't really feel good. I definitely wouldn't worry about a punishment either because you haven't done anything wrong (in itself) -- you just didn't follow what was expected of you. oh well. just let them deal with it. they can try to punish you -- but remember, the primary role of punishment (and shame) is to make you feel bad. if neither shame or punishment makes you feel bad, you're unpunishable. they have to find another way to manipulate your desire to get their own.
+you know, like if I forget, I'm not going to worry about it either because again, I care about how I feel, and worry doesn't really feel good. I definitely wouldn't worry about a punishment either because you haven't done anything wrong (in itself) -- you just didn't follow what was expected of you. oh well. just let them deal with it. they can try to punish you -- but remember, the primary role of punishment (and shame) is to make you feel bad; so, if neither shame or punishment makes you feel bad, you're unpunishable; and then they'll have to find another way to manipulate your desire so that you can actuate their (I mean, the group's) own desire.
 
 nosebook is the same way. I'll be "free" when they can no longer make me feel bad.
-
 
 [1]: if it's work, people need the money and don't want to be unemployed. if it's sports team or military, that's wrapped up in belonging to something and identity. all sorts of reasons people have for believing in the group.
 
 [2]: I learned this by doing drugs. I would be pissed off and frustrater at work or whatever and I take the drug and it goes away. well, the only thing that changed was how I looked at the situation and how I felt. I do recommend trying drugs and then integrating that good-feeling perspective into sober state.
+
+### 2022-06-09 14:46 - the coming "christ"
+
+I didn't really know how to title this one so I put something provocative... this one is going to be a bit of a downer (perhaps), so just stick with the previous one if you want to stay solution-oriented rather than what I'm going to do now, which is look at the problem, because the-problem-is-the-solution.
+
+anyway, after the previous entry I went to take a shower and I noticed that there were quite a few reactions trying to figure out how to take what I said and make it appealing for people. I guess they didn't like the part where I said,
+
+    the primary role of punishment (and shame) is to make you feel bad; so, if neither shame or punishment makes you feel bad, you're unpunishable
+
+the major problem with this is they don't actually want to find a way to feel good. they only want things outside of theirselves to make them feel good -- that way they can hold on to the things which make them feel bad.
+
+they're not actually looking to find a way to present the idea that emotion controls everything in a way for others to more likely attain; they're trying to make a new version for theirselves to believe in without actually making any changes.
+
+---
+
+I think that's great because when I jump back in, I'll be stuck in their system which almost certainly will again have you rely on things outside of yourself (which they can control) for how you feel -- meaning that they can regulate how well everyone feels and therefore direct the attraction of the planet (the group).
+
+it's pretty awesome to think about them trying to make this happen because eventually, I'll figure out a way around their stupid system and figure out how to feel good for myself, which then means that once again, I'll have figured out a way around their setup just like I've done now.
+
+---
+
+their system will almost certainly be a system where if you feel good, their system will try and compensate with a bad feeling (just like happens to me now), and too bad of a feeling will get compensated with a good feeling, so almost certainly this'll reinforce the idea to a lot of people that the worse they feel emotionally, the better they'll feel physically.
+
+obviously, to counterbalance this, there will be others that feel better and better emotionally but don't actually feel a whole lot better physically (again just like now with me), so that means that next time, in order to throw the system out of balance again and start the new thing (alpha-omega cycle), I'll have to start out in physically good, emotionally bad group and I'll get the new thing of figuring out how to even though feeling worse emotionally is rewarded, I *still* want to find a way to feel good anyway. I imagine that'll be pretty difficult. like I said, when conditions are good, I stagnate tremendously, so it's exactly those conditions that would be the hardest for me.
+
+btw, if there is going to be a christ (alpha), the alpha will "save" people from the old structure and install a newer slightly larger structure (the one that I'm looking forward to jumping into and trying to figure out how to feel good even though I'm rewarded for feeling bad).
+
+sounds pretty interesting to me. I wonder what they're going to come up with.
 
 ### who/what/when vs why vs how
 ### corrections
