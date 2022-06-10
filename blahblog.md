@@ -3829,7 +3829,29 @@ everything is coming along just fine. I've made more progress lately than I ever
 
 [1]: I mean, I'll sing in church and I'll participate in the healings and stuff like that, but really for me, I prefer to do my own self-discovery, rather than the perscribed order
 
+### 2022-06-10 13:55 - another angle to look at it
 
+really, the last few entries should be looked at together, because I'm essentially illustrating what the difference between 3-7 and 1-5 is.
+
+desire usually appears in contradiction to structure (belief), and it's when those align (your belief and your desire) is when manifestation happens.
+
+nosebook has a structure and they have their way of doing things, which I won't fight. I the network has a lot of opinions on what I should be doing to try and continue to placate people (that's what power structures and governments do, ya know). as such, they think the best way for people to be placated will be to give them something to distract themselves from the problems (ie. sex).
+
+I don't hold such beliefs. I know that dissatisfaction cannot be solved with sex. sex, like drugs can allow you a moment to feel better and in that state, it's easier to make a decision to be satisfied with what you have (which is like saying I'll quit smoking with a cigarette in your hand), but you have to actually do it (stop smoking).
+
+so what I'm saying is that their solution won't work, and it won't work with me either, because you can't find satisfaction from a place of dissatisfaction -- meaning that no matter how hard they try (they're all very dissatisfied and worried people), they can't get satisfaction from there. it simply won't manifest.
+
+---
+
+I'm on a quest to figure out how to get the 1-2-7 (opposite 1st ray) combo inside of myself, meaning that I'll have full perception of and access to all 7 rays. that's obviously really awesome, and that makes me not just a 1st ray male, but much more than that. it's basically "perfection" in the sense that everything that I perceive, "is"; and everything is a "perfect" manifestation/reflection of my perception.
+
+so, my solution to the dissatisfaction problem is not to try and placate or distract anyone with anything. I know that satisfaction is a choice and so often times perception needs to be altered to make that choice, and nosebook *could* alter that perception for you (in fact, I think they probably sell that), but really if you're not one of the ones paying for them to do it for you, only *you* can really make that decision to see things in a way that doesn't feel bad (it doesn't have to feel good -- just stop feeling bad).
+
+I also know that sex will basically is a 100% certain cataclysm. you may think it's what you want, but because *any* manifestation from a state of dissatisfaction will just make more dissatisfaction, and that's what attracts the bad stuff.
+
+my solution is obvious and simple: I'm fine hanging around and talking with people just fine because I can offer ways to adjust perception, but I'm going toward 100% perfect satisfaction OR someone else finds a way to actually feel satisfied and meets me where I am, and we can go off satisfied together.
+
+I personally think that what everyone *really* wants is to actually be able to feel satisfied even if the conditions are oppressive.
 
 ### who/what/when vs why vs how
 ### corrections
@@ -3837,6 +3859,7 @@ figgins
 spriggs
 patricia
 1000y-bloom
+3.5
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
