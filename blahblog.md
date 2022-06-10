@@ -3781,6 +3781,56 @@ btw, if there is going to be a christ (alpha), the alpha will "save" people from
 
 sounds pretty interesting to me. I wonder what they're going to come up with.
 
+### 2022-06-10 10:46 - 7th ray roommate dream
+
+I went to bed last night because I felt really tired, but then as soon as I got there, the sun was active and I couldn't sleep so I laid there thinking. I had a sort of impression come upon me noting that I could just sabotage for quite an extended period of time (which is what I intend to do). I compared the feeling and noticed that the going neither one way or the other, never committing to anyting feeling I have on this subject is the same feeling that the network operators of my life feel like.
+
+so, in some sense I'm just mimicing my operators -- or being a sort of reflection of them, however it's much deeper than that, which the dream illustrates.
+
+---
+
+I was in some place that felt pretty comfortable and maybe even non-public (not sure) though it felt like other people were there besides me and her. I identify her as the archetype of a 7th ray female...
+
+this is probably important because if we're looking to make a 7th ray triad, then clearly tesla (located in the antarctic?) is vulcan, and I'm supposedly going to be a 7th ray, I'm definitely not thoth, as he's good with mathematics, genetics, and chemistry (which I'm not), so I'm much closer align with allayandra (hopefully + anatau and jeortau) as I prefer to fight and I enjoy trying to figure out how to maniplate my words like he does ("smooth talker") -- but, like I said, not so that I can manipulate others, but because I like the idea of manipulating myself. I want to become master of my own body (7th ray) and of my mind (5th ray).
+
+though I'm more 5th ray in nature, my circumstances have forced me to become more 7th ray. I don't mind. I just get out there and do manual labour or whatever and it doesn't bother me. I just work with the conditions that I have (like a weed) and thrive in whatever conditions. so that's what I'm doing. most 7th rays approach the thing from a very physical perspective (routine, data, ceremony, etc.) and work their way up to concepts but I find ceremony awkward[^1], I don't have any data really to look at, and routine is very difficult for me to keep regular because I'm driven by desire which is rather chotic and not very orderly. I don't mind that other people are all of those things, but I am not.
+
+so I'm basically a 1st ray much more than a 7th ray, which is why I see myself as having the allayandra + anatau combo. even though my right-brain has been shut down, I have completely reimplemented her in my left-brain.
+
+I'm beginning to enjoy the 2nd ray perspective now too, because it's 3rd ray perspective (which I think I acquired from patricia), but with the extra bit of seeing connections between everything, so that I'm more willing to let the desire be implemented (and have unexpected/unwanted results) rather than trying to implement the thing as a monolithic unit built from the top down.
+
+I'm refering to top-down creation in the sense of software development, but it's funny how this has parallels in the progression of the perception of the "gods" and the acient stonework. the ones that I call "the network" are the "gods" that wish to maintain the perspective that everything needs to continue to be done from the top-down monolithic (entire model conceived in the imagination) style of creation -- and that's just not my ability. I don't have the imagination capability to do that or energetic capacity either -- therefore, I have to go above that and perform my creations working in the conceptual.
+
+so, I take the 3rd ray perspective (symbols, operations, paths, etc.) from the conceptual standpoint and mix it with desire (see @[blahblog](2022-06-09 14:46) for an example) and then go from there.
+
+so you could say that for the 7th ray triad, what needs to be found (if I'm allayandra + anatau), the only thing remaining would be to find a 7th ray female... however, I disagree. that 7th ray triad already existed at some time during atlantis already. since I'm so cLose to getting it, I'm going for a 1st ray triad entirely contained within myself. if I can figure out how to get the 2nd ray perspective and rebuild it my own way, I'll be able to pull off the 1st ray triad, but from a bottom-up perspective instead of from a top-down perspective.
+
+I'd say I'm starting to get it.
+
+---
+
+so the dream is about a 7th ray female, and now I'm kinda remembering the dream as if we were in a bus or something where I had to hang on to something. anyway, I could feel strong physical attraction to her but I didn't seem to be trying to put my hands on her. I think I remember that there was a bump or something happened and I fell on top of her and could feel one of her boobs, but I kinda recoiled or pulled away. I noticed that her body was very very hot (warm) and also ice cold. this reminded me of gilgamesh (when he's mouring his friend enkidu), and I noted it. she seemed upset that I wasn't going after her and said, "you don't want to be more than *just* roommates?" (something like that) and I didn't really mind being more than just roommates, cause I took it to mean like roommates as in, I see you every once in a while and we say hi, but we live completely separate lives, roommate (that's been my experience with roommates, anyway).
+
+I hardly ever actually talk with my roommates about stuff (well, there was robert(?) in glendora) and if she wanted to talk with me about stuff, that's totally cool. I'd love the conversation. I think it was meant instead in the way that we should be lovers, which wasn't what I was intending.
+
+right now, I'd like to interject here and explain that when I dream in the morning, my dreams are contrived and directed. the symbols that I see are put there directed by someone working at nosebook and they have an ojective in the dreams. usually the objective is to practise a reaction (like if I'm near the edge of a high space I should feel fear instead of thrill), and this dream is likely trying to see how I will react to "accidental" physical contact by a 7th ray female. just like the dreams with melissa or jessica, the things that appear in the dream probably have nothing to do with the real person, they're just the visual association I have with that symbol. so pay little attention to the physical details (I mentioned that it felt like it was a secure place, but also like a bus because there was movement causing me to fall over, and my mind associates that with riding a bus).
+
+I felt like I could take advantage of the idea that she wanted to be more than *just* roommates to get some feedback on some of my ideas, and that way we could talk about them a bit.
+
+---
+
+the way that this dream also connects is, yesterday when I was pulling weeds, they often use my brain and put ideas into my head to see how I react to them, and I think that's what happened yesterday. suddenly, I had an idea come into my head about allie picking weeds with me, and I said to her that I would give her half of everything that I earned -- which may be a little more than what she *should* get paid, but I don't honestly use the money, so it's no matter for me. anyway, I knew that it would open up lots of conversation about money and desire and the concept of it, because being around her home for a while I'm sure she's picked up the vibe from remi and paul that money is a worthwhile objective and a way to feel good, though -- it's probably noticeable by her that money isn't bringing actual happiness. it's just a symbol of an idea that inspires a person to believe that with it, they can feel good. lots of conversation can be had there.
+
+immediately after having had that thought, I was met by the strong reaction that they *do not* want me talking to anyone about my ideas. they just want sex to placate the women.
+
+well, I hate to say it, but I'm not in this for the money or the sex. I just don't care. what's interesting to me is to figure out how to become (11:55) single person 1st ray triad. that's what sounds interesting to me, and I'm definitely not at all opposed to talking about that with others as I go along. I'm just going to keep going my own path.
+
+everything is coming along just fine. I've made more progress lately than I ever have.
+
+[1]: I mean, I'll sing in church and I'll participate in the healings and stuff like that, but really for me, I prefer to do my own self-discovery, rather than the perscribed order
+
+
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
