@@ -3853,6 +3853,28 @@ my solution is obvious and simple: I'm fine hanging around and talking with peop
 
 I personally think that what everyone *really* wants is to actually be able to feel satisfied even if the conditions are oppressive.
 
+### 2022-06-10 16:26 - 1-5 vs 3-7 (take two)
+
+in the car jerrica asked me what I was writing. I didn't really know where to begin so I started at the beginning just kind of defining the layers of perception, and then we went into the dollar tree to buy fathers day cards. when we came out again, I sensed that jerrica didn't want to hear the rest of my story -- and it kinda worked out better that way too -- because I came up with a new way of presenting the idea, which is what I'll do here.
+
+most all of top-down creation is done with a 3-7 approach, which is simply to imagine (6) the whole creation working together, and out of that complete picture, break the whole creation down into parts which you believe will perform the function necessary for it to fit into the existing structure. the physical implementation is then created with the idea that each of the parts will be essential or instrumental to the functioning of the whole.
+
+after (or during) the creation of the parts, each one is analysed to see if it's working properly and then adjusted to try and get the desired result (maybe I need a redhead instead of a blonde, or maybe new wizz-bang superproduct will do it, or maybe I just need a new wife, a new convertable and a new job). the pieces are swapped out infinitely in order to try and see what is the perfect combination of parts which will satisfy the desire of the structure.
+
+that's a top-down approach, but with all of the parts and comparmentalisation, you may think it's bottom-up as in, "I have these parts; let's see what we can make out of them". so for "whole into parts" vs "parts into whole", it could be bottom-up, but when I say "bottom-up" I'm meaning that I start with the only thing I can really control, which is how I feel.
+
+the 3-7 approach completely negelects the aspect of emotion by saying that I'm just creating the implementation of a math or science principle, and so its function can just be divided into parts, completely ignoring that it doesn't matter how perfect the science or math is, if the creation is made from dissatisfaction, it makes more dissatisfaction. therefore, because it's impossible to avoid the concept/emotion factor, 1-5 approach takes the opposite direction.
+
+the 1-5 approach says that whatever I create will just amplify my own emotion. no machine can ever change how I feel or how I perceive life, so I start there and then I know that the way I feel and how I conceptualise (5) reality is what I'm attracting, so then I see what manifests (or what is created), and then how that makes me feel. if it makes me feel better, I desire more of it. if it makes me feel worse, then I change how I feel about it or how I conceptualise the problem and go at it again.
+
+eventually, with the 1-5 technique, I will find a way to tune into what I desire, and it'll feel good. the 3-7 technique has to keep trying to find better and better science to compensate for ill-conceptualised perception.
+
+an example of ill-conceptualised perception is the desire to try and control someone. nobody can actually be controlled because it's all attraction, so this perception is what motivates the creation of a number of different parts to a system which, togther they believe will be able to control people. so, they set out to create better and better science in order to control things, but the ill-conceptualised perception is one of losing control, so having the idea that things are heading toward a more and more "out of control" state, all science will reflect this, and anything new that comes in will be "baffling" and unpredicted because the concept that's started the whole search is one of uncontrol (so more unpredicted results will continue to manifest which then need to be controlled). you can't ever find control from a feeling of uncontrol[^1].
+
+I prefer the 1-5 method as conceptual/perceptual/emotional control is what leads to the 1-2-7 combo, but I think it's perfectly fine to let them try and see if they can break the "law" of attraction. it's no problem for me really, as I don't have to feel the way they do. you could say -- "but you should care, because we're all connected, so what they do affects everyone". I say they'll figure out what they really want eventually. until then, I want to let them explore the limits of infinity by continually trying to get me under their control. who knows, maybe I'm wrong and one day they'll actually figure out how to control me. 
+
+[1]: so, no matter how big of stone boxes, lasers, or whatever they can create to produce a coherent controlled frequency which can tune a person temporarily to a certain emotion, they'll never gain control of how they feel. science will never fix their control problem (which is *really*, things that I don't have any control over can cause me to feel something that I can't control)
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
