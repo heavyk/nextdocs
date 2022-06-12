@@ -3954,6 +3954,36 @@ so anyway, the sense that I had when I woke up is that these two systems would c
 
 it'll be kind of like a competition, and I think that eventually, there *will* be more people that actually figure out how to feel the way they want to feel -- and I think those with experience will say that my system will feel more fun, compared to nosebook's more pleasureable feeling. we'll see though.
 
+### 2022-06-12 14:19 - the parable of the weeds
+
+as I've been pulling weeds, I've been thinking about the parable of the weeds (it comes right after the parable of the sower). in it, the enemy plants weeds and they begin to grow up amongst the wheat. the servants ask to master if they should pull up the weeds. he replies no, they're intermixed like the white-flowered vines where with the ugly wheat-looking grass. the inversion of these two symbols greatly reminded me of this parable, because this time it's the wheat that is ugly and unwanted, but the weeds are have white flowers and smell nice.
+
+the master says don't pull the weeds because you'll damage the roots of the wheat so just let them grow together. then when it comes time for the harvest (of jehovih?), the weeds and wheat will be harvested together, the wheat kept (some yielding 30, some 60, and some 100 fold) -- but the weeds will be thrown into the fire.
+
+I was completely "baffled" by this parable because I know after pulling weeds for a while now that if you let the weeds grow to full term, they spread so much seed, next year that whole field will be completely filled with weeds. I have no idea what the master is doing. it sounds like he's trying to grow weeds because the next year that field will be unplantable (though the weeds will return a lot of the nutrients to the field by letting it go fallow like that).
+
+so I got to thinking more and more about this parable. it has so many interesting parallels, because I don't see weeds as this awful thing anymore. they're completely vibrationally dependent so they're much more conceptual, and their physical appearance will be a reflection of the vibration in their environment (just like a 5d person would). weeds also appear to grow in the most inhospitable places too.
+
+I've also been thinking that weeds must be serving an electrical purpose too because very very often when I reach down to pull a weed, it gives me a static electricity shock meaning that I'm at a different electrical potential than the weed (and probably the ground around it) so they feel to me like plant amplifiers -- they are what I would call a 1st ray plant.. very chaotic -- they're making hybrids with everything they come into contact with (very much like me) and constantly reflecting the vibration of their environment so, they're clearly 1-5 plants to me.
+
+wheat however is a cultivated plant, and according to sitchin, these plants and a lot of the other ones that appear in south america were designed by thoth (+7) identified by the natives as viracocha/quetzacoatl. they took existing plants and modified their ME so that they would serve the purpose of the inhabitants there, removing toxins, etc. (see "magicians of the gods" by graham hancock) I think enki (+-3-+) also did a lot of these plants too when they first arrived to sumer as well.
+
+now whether you believe that story or the mainstream story that wheat is a steady process of genetic selection through years and years of breeding iteratons, the result is the same, wheat is clearly a 3-7 plant.
+
+---
+
+so what we're looking at in this parable is this weird thing where jesus basically foretells that later on there will be a time when the 1-5 and 3-7 types will grow up at the same time, and at the end of it all of the 1-5 types will be thrown into the fire.
+
+I didn't really understand the fire part until this morning when I was thinking about the leapfrogging-time-pickles idea. in it, I stated that once the 1-5 guys have made it through to find our connection, we'll be able to reinsert ourselves back into the timeline wherever we want to. I figure there are two paths: one of good conditions (deired path) and one of fuzzing (undesirable path) where you continually try to defeat yourself by creating more and more difficult conditions and oppressions for yourself -- and you know because you take the 1-5 path, that those conditions and oppressions can never conquer you.
+
+I stated that in order to continue on the 1-5 path, you have to going really really fast, much faster than your first time through ("end of time" for you), and then when you reach the end of time, you'll have to go down to the speed you were at in your "end of time". so if you're going 4000mph and you go down to 200mph, you didn't crash, but that's a tremendous deacceleration that has to be put for you to get back to the speed you had at your end of time, which means a lot of friction -- which means a lot of fire. fire doesn't mean complete destruction (shadrach, mishack, abednigo?, alalu, etc didn't completely vanish) -- fire never means the end -- it's just the rapid disentigration of the physical exterior so that the phoenix bird can rebirth into a new physical form (ie. baptism of fire).
+
+so I didn't really think about it that way until this morning, but the whole baptism of fire that some of the christians want is for the weeds, not for the wheat. inotherwords, the 1-5 (fuzzing-time-pickles) are using the 3-7 (conditional-time-straighteners) to continually reach faster and faster speeds then let the crash to burn away the undesirable and desirable physical form so that they can be rebirth into something even more desirable.
+
+like I said, whoever that master is trying to preserve his wheat crop is completly nuts. next year, his wheat field will look like our backyard where we let the weeds grow last year.
+
+but who knows that'll probably inspire them to come up with a new even more powerful pesticide. go technology :)
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
