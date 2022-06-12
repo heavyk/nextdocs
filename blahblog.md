@@ -3913,6 +3913,47 @@ so, because I can't really find an esther anymore, I think in a lot of ways, I'm
 
 [1]: that was a weird synchro because jaron showed me a facebook image right before about a guy that's says "huh?" -- and then while they're repeating theirself, he answers them beacause his brain is lagging like a 1990's dell computer. 
 
+### 2022-06-12 13:13 - why can't I just have fun?
+
+one of the reactions that I had in response to the previous entry went something like,
+
+    we (girls) don't want to figure stuff out.
+    we want to have fun.
+    why do you have to figure stuff out?
+    why can't you just have fun?
+
+I can and do just have fun. I'm actually so good at it, I don't really need other people to have fun. I'm not saying that I don't want other people, because I think other people are fine -- and so I put up my materialistic interaction exterior and interact with people all the time. every chance I get, I try to talk about something that I want to talk about, but I don't really force it (like the last conversation with jerrica -- she was clearly having none of it). so really, what I'm looking for are people who are on my frequency already or have questions that I feel like I want to find the answers to, also.
+
+right now, I've been getting so good at finding the answers to my own questions so easily (or figuring out that I'm asking the wrong question - see @[blahblog](2022-06-10 16:26))so I'm really gaining an understanding of everything I want very quickly. I'm pretty good at finding the answers to my own questions, and I'm good at that so I want to continue that.
+
+obviously, the network doesn't really want anyone figuring anything out, because that reveals the things they're trying to hide. well, in general, anyone who is trying to hide something wants the people they're hiding it from to remain ignorant. if they were able to gain the knowing of whatever, the hidden thing would be revealed. that's really what all of this is about.
+
+however, I would say that people in general want me to remain as ignorant as possible, because the more I know, the more it illuminates whatever they're hiding. I've found zero people so far who aren't actually interested in keeping things hidden, so I'm pretty incompatible with quite a lot of people.
+
+in conclusion, I *can* just have fun.
+why do you need someone else or something else to have fun?
+why can't *you* just have fun?
+
+### 2022-06-12 13:31 - thinking about the future
+
+I woke this morning with a sense that I was going to take technology a new way and do things a bit differeently ... let me go back a bit. yesterday I talked about the reflexes game that you pick the colour as soon as it goes on the screen, and it *felt* to me like I knew what colour was coming next. this is the beginning of a new set of 1-5 technology that interacts with random (1) and your emotions (5). I believe this new style of technology will be completely different than the other stuff. I plan on only using external devices (nothing internal like nosebook's tech)
+
+you see, I was getting reactions about this process of typing and stuff. it's slow and I make a lot of mistakes and because it's so uncomfortable, I prefer to just make mistakes rather than trying to correct them. it's true that if correcting mistakes were as easy as thinking about them, then I would do the corrections -- but I don't so it's fine. I'm prefectly fine just making due with what I have. when I finally want more, my desire will rise to a level where I'll figure out a way to make my own system.
+
+one of the reactions was about giving me the ability to type this blog with only thinking about it (probably similar to the nosebook interface that people already use -- though for manipulating text). there are a number of difficulties with that. whatever their system is, I'm sure it'll be limited, and I'll want to use it to control everything (which they probably won't be able to allow) and I'll probably want to extend it and modify its source to my liking to continue to expand it so I can get faster and faster with it (again, something they probably don't want to allow). then, there's the problem of -- if I have it, then other people will want it too, and I'll probably look pretty down upon the noobs still trying to type -- pfft what losers -- get the brain interface -- and they won't be able to tell me why they can't or don't have access. it's just a poo-poo-platter all around.
+
+you see the nosebook technology is all 3-7 technology. its input/output is physical signals (7) and it transforms those signals into symbols (3). it's exactly the *opposite* of what I want to do. I don't want anything to do with their system.
+
+---
+
+my goal is to make a system that isn't interfacing with physical sensation, but with random/desire (1) and concept/emotion (5). it's a whole different type of technology and I believe that mine is actually superior -- though it'll have a much longer buildup because my system requires numbers (parallel users/minds/instances) rather than machine speed. it uses composition of diverse things (a noisy or chaotic signal) rather than a structured and static symbols. the other goal I have is to design the thing 100% externally (screes, phones, buttons, handheld devices), so that as things get faster, there is a barrier between the user and the machine and so, like the guy in the squirrel suit, it starts to become impossible for the physical body to be receiving the signals, and instead you get into the "zone" and interact with the system entirely in on abstract/conceptual level. 
+
+it's kinda difficult to explain the system in its entirety because I don't honestly have the full picture. I just sorta know where to start and how the 1 and 5 layers work pretty well, so I just implement a reflection of my own understanding of that.
+
+so anyway, the sense that I had when I woke up is that these two systems would compete. obviously everything would work on the nosebook backbone (ie. they would still have their whole system in place) and I won't be trying to bring theirs down at all.
+
+it'll be kind of like a competition, and I think that eventually, there *will* be more people that actually figure out how to feel the way they want to feel -- and I think those with experience will say that my system will feel more fun, compared to nosebook's more pleasureable feeling. we'll see though.
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
