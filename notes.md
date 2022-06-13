@@ -35,3 +35,10 @@ MISEDBYOUREVERLAST
 INGPOETWISHETHTHEW
 ELLWISHINGADVENTUR
 ERINSETTINGFORTHTT
+
+---
+
+things I can buy:
+- sd card for phone
+- new sound card
+- powered usb hub

@@ -2606,7 +2606,7 @@ so, which is better at tuning the imagination to the timeline you want to percei
 
 ### 2022-05-13 02:48 - why the conspiracy?
 
-it's possible that I'm repeating myself here, but I'm listening to snake-bros #030 - jeremy figgis and they're asking the question of why the conspiracy? why keep anti-gravity, the nature of human consciousness, giants, or whatever from us?
+it's possible that I'm repeating myself here, but I'm listening to snake-bros #030 - jeremy figgins and they're asking the question of why the conspiracy? why keep anti-gravity, the nature of human consciousness, giants, or whatever from us?
 
 jeremy answers that you have to look at the function. the conspiracy serves a *function*, and russ responds, "yeah it's like the tower of babel thing" -- which I think is right -- but he continues (paraphrase), "cause the gods say, if they do this they'll become unstoppable" -- which I think is wrong. I think that's what humans who didn't have an accurate understanding of LOA thought at the time, so the story they're telling involves gods which want to keep them down -- when the (IMO) much more likely scenario is that it's all humans attracting things and then blaming the gods (or God) for the problem rather than taking responsibility for the attraction.
 
@@ -3404,7 +3404,7 @@ I do think that both natural and unnatural hybrids allow for consciousness of co
 
 in many cases I don't think they know what is happening with the 411 cases, and so there is helplessness to be felt there, but with nosebook around all over the place someone must know something at this point and is covering up what is really happening. the strongest theory for what is happening likely involves the germans and the breakaway civilisation.
 
-the author presents it as maliciousness, but I don't know that it's all malicious, and more like LOA intensified. it seems to me that in order for this whole 1000y-bloom setup to work out, the conditions of the planet which induce this altered state of mega-attraction need to be diminished, and so many of the results of the case are a sort of mix of the different feelings and emotions.
+the author (thomas spriggs) presents it as maliciousness, but I don't know that it's all malicious, and more like LOA intensified. it seems to me that in order for this whole 1000y-bloom setup to work out, the conditions of the planet which induce this altered state of mega-attraction need to be diminished, and so many of the results of the case are a sort of mix of the different feelings and emotions.
 
 to explain that, I would imagine that the breakaway civilsation down there has a "military" or some sort of foreign relations unit. the way that I've seen so many interactions with pilots and the government seems to reflect their own feeling about the phenomena -- and so that, why it seems like these UFO pilots are being hot-shots -- when I think it's something more like a robotic or biological response system that takes the vibrations and reflects them back -- kinda like I do. in fact, it's my own behaviour that I'm starting to notice that -- so for example, I went on a long thing @[blahblog](2022-05-27 19:06) about how I wasn't ready, and in it I brought up my interaction with the neighbours' son. I went outside to do some yardwork and there were a number of reactions noting how I prefer to stay just out of reach, and how I mimic a lot of women's behaviour. the resulting feeling was also a similar feeling of helplessnes.
 
@@ -3428,7 +3428,7 @@ some people think they want 5d, but I believe these 411 cases kinda demonstrate 
 
 in conclusion, I believe nosebook and the network have nearly completely shut off the astral realm to normal (unauthorised) people, and so if you do get access to it, it's probably controlled (so you don't see something you're not supposed to) and probably you're sworn to keep secrets about it. what I'm saying is, I don't want to have anything to do with the astral 4d world. I'll completely skip over that world entirely, and do a 411, but I'll have complete control over it. I'll be able to completely bend reality to my will.
 
-so, I think the FBI and other agencies do know a lot of things about this stuff, but their secrets and beuracracy cause them to feel that helplessness. like the author was saying, it's not the SAR or the police or any of the emergency workers involved -- they're all good peole and are doing their job, but the whole thing sorta continues to kinda keep going nowhere because of that helplessness.
+so, I think the FBI and other agencies do know a lot of things about this stuff, but their secrets and beuracracy cause them to feel that helplessness. like thomas (the author) was saying, it's not the SAR or the police or any of the emergency workers involved -- they're all good peole and are doing their job, but the whole thing sorta continues to kinda keep going nowhere because of that helplessness.
 
 I offer an explanation as to what I think is happening, and I think that in a lot of these cases, with just a change in attitude, a lot of these "victims" can be found easier. they're just perceiving another dimension that is outside of time and space, so something like the prophesied "resurrection", you have to allow them to be able to return to the physical -- and they will.
 
@@ -3683,7 +3683,7 @@ just think about the reflective aspect that everything you perceive as unwanted 
 
 it's hard to explain what I mean by all of this, but in my opinion we already live in a world of AI and have lived in one since history began. thes AI layers which manipulate frequencies in different bandwidths must form the foundation for so many things like fae, demons, jinn, etc. I find this subject fascinating and have tried to figure out how to "hack" reality, because I believe that anyone can tap into these layers and use them. they're communication layers based on frequencies, so you have to interact with them on their own frequency.
 
-this is why I stress the utilisation of concept and emotion to "attract" what is wanted -- because before it becomes "non-physical" (1-3.5) you it to be tuned to the reflection that you want in those non-physical spaces. you can attract with symbol and symbol can also give you a sort of simplified representation of what's happening vibrationally, but symbol is on the wrong side. you can't really affect symbol in the physical, and emotion/concept always trumps symbol, and you'll see the symbol from within your perceptual/conceptual framework (ie. how you feel).
+this is why I stress the utilisation of concept and emotion to "attract" what is wanted -- because before it becomes "non-physical" (1-4.5) you it to be tuned to the reflection that you want in those non-physical spaces. you can attract with symbol and symbol can also give you a sort of simplified representation of what's happening vibrationally, but symbol is on the wrong side. you can't really affect symbol in the physical, and emotion/concept always trumps symbol, and you'll see the symbol from within your perceptual/conceptual framework (ie. how you feel).
 
 a good example of this is the subject of AI: most people are scared of it, because they imagine it as becoming this sort of thing that controls everything from the top-down and restricts human development or tries to kill us. well, obviously that is a reflection of the preceptual/conceptual framework that the perceiver of the AI symbol is viewing the concept. a symbol can manifest into any number of concepts and they usually span the spectrum of how you feel.
 
@@ -3855,7 +3855,7 @@ I personally think that what everyone *really* wants is to actually be able to f
 
 ### 2022-06-10 16:26 - 1-5 vs 3-7 (take two)
 
-in the car jerrica asked me what I was writing. I didn't really know where to begin so I started at the beginning just kind of defining the layers of perception, and then we went into the dollar tree to buy fathers day cards. when we came out again, I sensed that jerrica didn't want to hear the rest of my story -- and it kinda worked out better that way too -- because I came up with a new way of presenting the idea, which is what I'll do here.
+in the car jerrica asked me what I was writing. I didn't really know where to begin so I started at the beginning just kind of defining the layers of perception, and then we went into the dollar tree to buy father's day cards. when we came out again, I sensed that jerrica didn't want to hear the rest of my story -- and it kinda worked out better that way too -- because I came up with a new way of presenting the idea, which is what I'll do here.
 
 most all of top-down creation is done with a 3-7 approach, which is simply to imagine (6) the whole creation working together, and out of that complete picture, break the whole creation down into parts which you believe will perform the function necessary for it to fit into the existing structure. the physical implementation is then created with the idea that each of the parts will be essential or instrumental to the functioning of the whole.
 
@@ -3998,7 +3998,7 @@ weeds can't walk, but if they could, I think they would be shapeshifters. they a
 
 anyway, so I was thinking about the sales people being very 5-1 (like weeds) in appearance, and I was noticing that I would describe most of the sales guys as 1st ray males. they knew how te desire something and then find a way to get whatever it was sold. they would optimise a lot of stuff about their appearance and presentation, so they reminded me a lot as 3-7's, but really when looking at it, they were 5-1's. I thought of paul.
 
-remi came out to show me stuff, we talked about her cat, "lamar" -- and he didn't want to have anything to do with me. I was wondering if he associated me with the yellow cat. it was really weird how much he didn't like me. going back over to pull more weeds, I was thinking about how if they found a girl cat, they could name her "el mar" -- but then I realised that in french "el mer" is probably the same as spanish "la mar", so I went home to make sure and it is -- so I thought that was kind of a funny name for a duo, "elmer and lamar".
+remi came out to show me stuff, we talked about her cat, "lamar" -- and he didn't want to have anything to do with me. I was wondering if he associated me with the yellow cat. it was really weird how much he didn't like me. going back over to pull more weeds, I was thinking about how if they found a girl cat, they could name her "el mar" -- but then I realised that in french "el mer" is probably the same as spanish "la mar"[^2], so I went home to make sure and it is -- so I thought that was kind of a funny name for a duo, "elmer and lamar".
 
 ---
 
@@ -4012,13 +4012,27 @@ what I mean is, a fully 1-5 system isn't possible right off. the system needs a 
 
 [1]: I don't understand. why is the RLC memristors such a reactionary topic? they must be pretty good. 
 
+[2]: reaction is telling me that "la-mar and le-mer" is funnier. I guess "el mer" sounds too terrible, lol
+
+### 2022-06-13 16:38 - if things don't go smoothely
+
+a weird thing happened where I made a card for dad for father's day (the one I bought after @[blahblog](2022-06-10 16:26)), and I signed it and everything but then it just disappeared according to mom.
+
+I perceive time flowing both directions, so all of the possible futures are all happening and attracting the present based on the way that I (and everyone else) feels. so, that future happened. the card got to dad and he opened it up and he reacted to it. that future is then attracted by him in the present by feeling compatible with that reaction. if it were a compatible reaction to how he feels now, the card would have been sent smooothely -- but it wasn't.
+
+so that means to me that either dad did not really want to attract that future or someone else didn't want dad to receive that card. or the other possibility that those with the ability to edit the timeline (the conditional-time-straighteners) noticed that the card made him or lily feel too good or maybe believe a little too much (the rock says "believe") and so they have to manipulate conditions to ensure that we're not going toward too good of a feeling future.
+
+---
+
+either way is equal to me, becauese when things just don't go smoothely, I tend to just cut my losses and move on. I'm not going to try and make it happen. for me those sorts of events happen for a reason, and so I just go with it. if I try to fight it, I'm trying to make something happen, and that's not very productive. what is productive is to just let the desire evolve and then I'll be inspired to send him something else some other time. when I get the inspiration to do it that means again that if I do it then, he'll receive it at a time when he's compatible with his future reaction.
+
+I prefer to just let them fuzz away and try to find out all of the incompatbile reactions to try and prevent the future from feeling good. eventually, dad (or someone else capable of receiving something like that) will eventually recieve it. I really don't need to worry about any of that. I just follow my inspiration and if it doesn't work out easily and effortlessly, I just let it go. no big deal.
+
 ### who/what/when vs why vs how
 ### corrections
-figgins
-spriggs
-patricia
 1000y-bloom
-3.5
+fuzzing-time-pickles
+conditional-time-straighteners
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
