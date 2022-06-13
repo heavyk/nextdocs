@@ -3984,6 +3984,34 @@ like I said, whoever that master is trying to preserve his wheat crop is complet
 
 but who knows that'll probably inspire them to come up with a new even more powerful pesticide. go technology :)
 
+### 2022-06-12 20:15 - more getting off into the weeds
+
+after I left to go do more weeds, I remembered something I wrote in @[blahblog](2022-06-12 14:19) about weeds, being more 5-1, they seem to amplify the vibration that is present in the area -- and so probably what the whole "punishment" thing was nothing more than if those white flowers grew up out of good feeling are amplifying it, after pulling them, she may have to start over again. that whole starting over thing (great song, btw -- one of my favourites) is typical in the realm of chaos. it's more like start over as many times as necessary and eventually one of the times things will line up just right so it works out.
+
+then later when I was thinking about this, it suddenly started to rain. I had noticed that paul had just washed his truck and it was all shiny right as I walked up too. as soon as I left, it stopped raining. I couldn't figure out why it rained, but I concluded it was probably to get the girl playing basketball to go inside. I have no reason why to think that, but she's loud and probably pretty 1st ray in nature, so that's probably perceived somehow as a problem. I dunno. just that's the conclusion I came to -- but let's just say I'm right. her desire matched with paul's desire (fear/memory of his truck getting rained on last time I showed up) and that created a reality where he got his truck rained on again. a *perfect* example of chaos becoming ordered by concept/emotion.
+
+so then later I came home and I was talking with jaron about his shirt, giving him suggestions to make it more napoleon dynamite-like by ironing on an elementary school picture with the text "merry christmas" or something like that. I then launched off into talking about how I loved the shirt I made that said, "real men wear this shirt" and started to talk about how I modified where I wore that shirt because of all of the weird reactions that it gave. people didn't really know what to think about me because I didn't look like a guy that had something to prove (that I'm a "real man") but they did feel kinda frustrated at my apparent extroverted shirt but very geeky appearance. I was somewhere between confusing and enraging with that shirt on.
+
+mom comes down somewhat hurriedly and so I start talking to her about the parable of the weeds -- but as usual, I say it differently depending on who I'm talking to. I said basically all the same thing as @[blahblog](2022-06-12 14:19) about the weeds, but my conclusion was different because I told her how I noticed that the weeds are a lot like the tuenti sales team where they would be just the perfect appearance for the meeting, but then walk outside and completely change appearances, cursing and rough talking. it was notable to me how dramatic the shift in their appearance is.
+
+weeds can't walk, but if they could, I think they would be shapeshifters. they appear really unpredictable, but if one could figure out the vibrational variables which cause a weed to grow up one way vs another, a "landscape architect" could control the conditions of the places he plants the weeds, so they grow up to be the type of weed that he wants to have there.
+
+anyway, so I was thinking about the sales people being very 5-1 (like weeds) in appearance, and I was noticing that I would describe most of the sales guys as 1st ray males. they knew how te desire something and then find a way to get whatever it was sold. they would optimise a lot of stuff about their appearance and presentation, so they reminded me a lot as 3-7's, but really when looking at it, they were 5-1's. I thought of paul.
+
+remi came out to show me stuff, we talked about her cat, "lamar" -- and he didn't want to have anything to do with me. I was wondering if he associated me with the yellow cat. it was really weird how much he didn't like me. going back over to pull more weeds, I was thinking about how if they found a girl cat, they could name her "el mar" -- but then I realised that in french "el mer" is probably the same as spanish "la mar", so I went home to make sure and it is -- so I thought that was kind of a funny name for a duo, "elmer and lamar".
+
+---
+
+the other reaction that I had (not related to the previous stories) was when I was telling mom about how a weed will completely change its appearance based on circumstance, I noticed a strong reaction to it. I translated the reaction into a memory of when I was a child, often times mom would be yelling at us and the phone would ring and she would completely change her tone of voice, posture, every thing and answer the phone, "hello?" as if nothing had been happening. seems that this sort of conditionally appearance is attributed by a lot of people to be a feminine attribute, as there felt like there was some bitterness over the utilisation of desire and and manipulation of feelings.
+
+all in all, I know for certain that 1-5 and 3-7 are opposite polarities of each other. you could say that whatever opposite polarity of you is doing the opposite -- because it's the same thing, just approached from oppsite directions.
+
+to illustrate that, there were reactions to the kinds of 1-5 technology I was wanting to produce, because in @[blahblog](2022-06-12 13:31) I mentioned that it will input/output concept emotion just like nosebook's system input/output physical signals. well, obviously the most ideal thing to do would be to talk eventually to hp and ask them to produce memristor type technology with RLC circuits[^1] -- but that's eventually. for now, we'll just use random number generators (1) and plain old digital hardware. I really think it woould be very awesome to do something like the annunaki where we program our own MEs and use genetics instead of RLC circuits but you have to use what's available.
+
+what I mean is, a fully 1-5 system isn't possible right off. the system needs a lot of 3-7 to get to where it's eventually going to go. just because I'm choosing the way I feel and influencing my computer with "random" -- I'm still producing something rigid. sure, it's be awesome to have the ability that the annunaki have to directly perceive, edit, and instantiate MEs, but that's not possible yet. I'm pretty sure that nosebook has lots of 5 stuff (they probably have those RLC arrays), but they probably try to get rid of as much 1 as possible and start from a 3 or 7 perspective. I prefer to start with 1 or 5 and then implement 7 or 3 as a reflection of that.
+
+[1]: I don't understand. why is the RLC memristors such a reactionary topic? they must be pretty good. 
+
 ### who/what/when vs why vs how
 ### corrections
 figgins
