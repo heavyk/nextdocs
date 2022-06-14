@@ -4028,6 +4028,42 @@ either way is equal to me, becauese when things just don't go smoothely, I tend 
 
 I prefer to just let them fuzz away and try to find out all of the incompatbile reactions to try and prevent the future from feeling good. eventually, dad (or someone else capable of receiving something like that) will eventually recieve it. I really don't need to worry about any of that. I just follow my inspiration and if it doesn't work out easily and effortlessly, I just let it go. no big deal.
 
+### 2022-06-14 14:30 - digital
+
+I decided to try and replicate that one colour program in kotlin and libgdx for the mobile replicating the Unciv structure. pretty standard stuff and it shouldn't be too difficult at all, but as I was getting into programming, I notciced that just looking through github and stuff, different languages *felt* very different from each other. it's hard to describe this, but I wanted to try because I noticed all of a sudden I got a lot more objective oriented which means there is a lot of objective-motivation going on there (a week or so ago, I talked to mom about this while walking through the park with jaron).
+
+I was strongly reminded of how I used to motivate myself previously. I don't think that it's anything detrimental to me, but being as sensitive as I am now, I noticed it very strongly. almost all of coding is very 3-7 oriented, and I was thinking about why that is outside, and so I wanted to relate some of my thoughts.
+
+the nice thing about digital is that it doesn't change.
+the undesirable thing about digital is that it doesn't change.
+
+I noticed that code feels a certain way, and I was thinking about how the old code that I used to use feels, and there are some really good things that I like about it, but there are also a lot of really not so good feeling aspects about that code, too. I'm going to rewrite a lot of the ideas that I used to use in kotlin and see how that goes, and I think that will completely change how I feel about that code (deletes the bad-feeling parts).
+
+however, I noticed too that some parts that I used to feel really good about now don't feel quite as good anymore, and that's not because the code has changed, but I've changed. if I were to go back and look at that code, it would tune me back to where I was when I wrote that code, and since I'm so different now, that's partly why it feels uncomfortable or bad. I actually think that my/our change through time is actually what produces more than 50% of "code rot" -- and it's not just dependencies getting outdated -- I think there is also a psychological and emotional aspect to code rot, as well.
+
+in nature, there are so many cycles, everything is constantly changing, so nothing is ever exactly how it always was. code, however that has been sitting around for a while, is. a long time ago, I wanted to write this other type of program for building interfaces which I'll describe here. it's kinda not very well thought out, but here goes...
+
+the idea is that you have lots and lots of "random" data streams coming in and those data streams are identified as something meaningful -- think like arduino inputs a hash of the last 10 urls your browser has loaded or whatever. these data streams correspond to some randomised sampling of data from the environment that is scrambled but meaningful.
+
+these provide the *only* inputs to the application which is just a 2d set of pixels or voxels or some uniform space. then some sort of logic is used to turn those random data streams into visuals. the idea is that the display is always moving, so you could write code that takes certain random combinations of things and paints certain boxes when those inputs are noticed, but that's not very interesting. a box is just a box. the point is to try and do something interesting with the data -- transform it in some way and render it into the uniform space provided.
+
+there was a second phase to this as well: I envisioned all of this rendering to be done by a bytecode system such that any one of the bytecodes performed an operation on the pixel/voxel space (think advanced BF[^1]) depending on the state of the registers/pointers and the random data stream coming in.
+
+there could be any number of those BF units editing the space, but probably you'd want to have at least some BF unit removing pixels while the others are adding.
+
+once the bytecode is well-formed, you'll get you a pretty stqble pattern. this will be done at first by hand programming the bytecode, but later, what I want is a second bytecode that outputs bytecode. that bytecode will then be fed back into the BF (which has the random inputs).
+
+there is a fourth subsection that I don't really see right now, but the idea is that it performs some sort of feedback to the screen BF so that the input BF is constantly improving (and retains its base functionality). I honestly don't see this last subsection very well and it's always been the problem for creating this idea.
+
+one of the other constraints of the BF bytecode is that there should be no reserved bytes (or maybe a series of them can be for detecting errors), but the idea is that the BF can be generated randomly -- meaning any random bytes (minus any reserved bytes) will be a valid program (though maybe not useful).
+
+you can see that this system will eventually create a self-healing feedback mechanism so various of these systems can be put in series or in parallel to have a system which is constantly changing and resiliant to random mutations in its code.
+
+I still want to think on this more. digital is a whole different world from my new perspective. :)
+
+[1]: lol, I've been listening to snake-bros too much. instead of calling it "brain fart" I'll call it "butt flap"
+
+
 ### who/what/when vs why vs how
 ### corrections
 1000y-bloom
