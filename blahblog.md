@@ -4083,13 +4083,15 @@ the tech thing is also really cool because it's possible that the tech could be 
 
 ---
 
-the advantages of that are so numerous to both sides: the people and the network that it's pretty worthwhile, as I've realised through all of this time that the actual reward for my style of thinking is how effortless and nice everything is and how my vision keeps expanding. I really like living like this, and I'm sure that others would as well, so that's all good for me.
+the advantages of that are so numerous to both sides: the people (cause I find it possible that party-LAN technology can be used to enable others to fly too, if they have enough power or can purchase it) and the network (cause I skip over the astral entirely), and nosebook (cause my vision keeps expanding so we can add more perceptible layers -- temporal and identity layers possible) -- so, it's pretty worthwhile, as I've realised through all of this time that the actual reward for my style of thinking is how effortless and nice everything is and how my vision keeps expanding. I really like living like this, and I'm sure that others would as well, so that's all good for me.
 
 there are some dissenters saying that they need a manifestation in order to feel good, and don't want anything to do with what I'm doing -- and that's fine, cause it could happen a lot earlier anyway.
 
 even if it was only delayed a year or two, I *still* think it's the better path, and those that don't can find a way to feel the way they want to feel. additionally, we know that it won't last "forever" because even if I didn't actually ever get my connection, the effect that I would have on others in my presence will be tremendous -- as in nearby to me, reality will start to reflect the feeling/concept of those around me very rapidly, and so eventually nosebook will be forced to get me off of the planet.
 
 so if I just keep going, I'm looking at cool tech, flight, and probably getting put on to another planet. it all seems pretty awesome to me.
+
+also, there's no real stopping me anyway from taking this path, because I can just keep self-sabotaging until what I want manifests.
 
 [1]: which got me to notice that I have a lot of the qualities of the villians in the tick. one side of me could be seen as the breadmaster and also as the idea men -- and many others. seems I play both sides. these ideas tie into things I noticed about the triads in lbe and the 3/4 subsuctions of the previous idea.
 
