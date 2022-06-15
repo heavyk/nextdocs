@@ -4063,6 +4063,35 @@ I still want to think on this more. digital is a whole different world from my n
 
 [1]: lol, I've been listening to snake-bros too much. instead of calling it "brain fart" I'll call it "butt flap"
 
+### 2022-06-15 13:20 - tech path
+
+after writing that last entry, I thought a *lot* about jon (from thekla). I used to watch a lot of his videos on jai and stuff. he has a lot of bytecode stuff already done. the other one I thought about was demitri from mass, which also has a very similar thing to what I'm looking for. the whole idea of working on some of this tech felt pretty good.
+
+so then later on when night came around (maybe around 9-10pm my time) the idea stopped feeling nearly as good. at the very end, I introduced a lot of "practical" ideas into the mix like how I seem to do nothing other than produce ideas[^1], and that a real product has to be made that makes money and stuff. I've expanded the idea, so I'll probably make a second revision of it. so along with monetisation possibilities (which I think there are millions I'll revise the idea a bit further and focus it better). that's not the focus of this entry.
+
+---
+
+in the snake-bros ep I listened to (#089) they read a news story about how "neutron" radiation is higher in a flight (and also during a flare -- all the white dots hitting the coronagraph, but they didn't mention that), and I think that may be correlated with the phenomena I experience of the kundalini rising suring solar flares and geomagnetic storms. so a plane is higher neutrons, but not *that* much more. I wonder how similar a plane is to a normal flare -- because I seem to be doing pretty good now that I don't drink anymore coffee. I only get minor things but they seem to be associated with geomagnetic events now.
+
+so, it's actually quite possible now that I don't drink coffee to take a plane flight. also, after having noticed how much solar activity was happening yesterday (baseline c-range, many m-flares), and the only thing I noticed visuals starting to appear in my eyes during a geomagnetic storm (probably an impact -- which was also a subject of the snake-bros and ezekiel). I think I may actually be able to go a year or two more at least. so I have time to spare again.
+
+so, here's the thing: I want to go all the way until I'm connected, because I've been thinking about what it is that I *really* want, and girls are all really great and tech stuff is pretty cool, but I think that flight would probably be the thing that I want, so I want to keep powering up for that.
+
+that means that I have time before I get connected and flight kicks in. so, I was thinking that I kinda actually do really like the idea of working on some tech until that happens.
+
+the tech thing is also really cool because it's possible that the tech could be used to hold me out even further -- as in, it's my goal to not only work on 1-5 tech, but I also want to work on the party-LAN project, too -- and if that could provide a way for me to sell my energy to others, I could potentially hold that off for even longer than previously thought.
+
+---
+
+the advantages of that are so numerous to both sides: the people and the network that it's pretty worthwhile, as I've realised through all of this time that the actual reward for my style of thinking is how effortless and nice everything is and how my vision keeps expanding. I really like living like this, and I'm sure that others would as well, so that's all good for me.
+
+there are some dissenters saying that they need a manifestation in order to feel good, and don't want anything to do with what I'm doing -- and that's fine, cause it could happen a lot earlier anyway.
+
+even if it was only delayed a year or two, I *still* think it's the better path, and those that don't can find a way to feel the way they want to feel. additionally, we know that it won't last "forever" because even if I didn't actually ever get my connection, the effect that I would have on others in my presence will be tremendous -- as in nearby to me, reality will start to reflect the feeling/concept of those around me very rapidly, and so eventually nosebook will be forced to get me off of the planet.
+
+so if I just keep going, I'm looking at cool tech, flight, and probably getting put on to another planet. it all seems pretty awesome to me.
+
+[1]: which got me to notice that I have a lot of the qualities of the villians in the tick. one side of me could be seen as the breadmaster and also as the idea men -- and many others. seems I play both sides. these ideas tie into things I noticed about the triads in lbe and the 3/4 subsuctions of the previous idea.
 
 ### who/what/when vs why vs how
 ### corrections
