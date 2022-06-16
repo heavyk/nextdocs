@@ -550,3 +550,25 @@ anyway, that's not what I wanted to talk about because, I postulate that this cl
 OK, so, I'll just assume that I'm right here and that the great pyramid is a "bright object" that is transmitting a constant DNA signal outward. obviously, the speed of light matters. if the speed of light were to change, all of these ME formulas would be slightly different. so, if we wanted to upgrade the speed of light, someone (thoth, I guess) would need to come and recalculate the MEs to operate at the new speed of light.
 
 that's really all I have for that now. I think it's fascinating that they had some kind of visual interface into the genome and to these annunaki gods, it was very important to have the spatial dimensions calibrated just perfectly, so that the consciousness that their towers emitted would be operating precisely. it's a kind of digital computer that we have no real concept of at all.
+
+### 2022-06-16 12:19 - the origin of weeds
+
+as I've been pulling weeds, I've been thinking about how weeds could have come to exist and here's a working hypthesis.
+
+in sumer, they had these things called "Bright Objects" which pumped out whatever it is that a ME produces, like a frequency enabling civilised consciousness.
+
+later on after the deluge and stuff, I think the sumerian empire got split into a few pieces (well, dtp identifies 3 superpowers of the time: atl, suren, necropan), but I'll divide them into two major differences: the sumerian empire gets turned into the enlilites (suern), then ninshizidda/thoth and ninurta/aries go to the americas (atl), and marduk/ra leaves a power vaccum in egypt, allowing the the dynastic egyptian to take form, and then suern/enlilites, stays in the middle eastern area but divides many times because of much infighting (each clan has the "right way") and this splits off into the scythians, babyonians, akkadians, isrealites, welsh, etc.
+
+anyway... I think that probably some people retained the capacity to edit the MEs (I think this was done perceptually -- as they had a visual interface that allowed them to inspect the ME and modify it). this is how I believe in the americas, there was so much domestication of plants in the americas (ref: magicians of the gods).
+
+in the americas, ninshizidda took the plants that were already there (cause it was a hostile environment), removed the toxins and made them suitable for consumption, then in parallel, soil and other things were created which improved the conditions for those plants to grow in (terra preta).
+
+the enlilites took a different route: I believe they created plants that at a certain frequency produced one thing (like say cedar trees), and then at anther frequency produced another super crop -- etc, and so they had one seed/ME for all of their plants, and then the Bright Object pumped out the frequency of whatever they wanted to grow.
+
+then, I imagine your first commercial aggriculture system was invented -- so just like how here in the states, you have to buy the GMO seeds that work with just the right pesticide, to keep the competitors (cause suern had a lot of infighting) from just getting all the greatness from a single seed, they were probably designed to grow undesirable plants (weeds) at non-optimum frequencies.
+
+---
+
+what's interesting is that because each of the weed plants has so much DNA in it for creating so many different things, not only are they very dynamic in their appearance, but they also adapt very very easily because they resonate with so many other plants. so, for example if the weed, resonates with 80% of a given domesicated flower, it can easily adopt that plant's DNA in a hybrid situaton -- where a normal hybrid would only be getting 50% (max) of the cross plant's DNA, it's viability would be low -- instead, a weed, because it already has such a large library, it could be a lot more viable because say if 80% of the DNA is native, it only needs a little more to become a 90% hybrid (I don't know how to explain this).
+
+weeds are very interesting, let me tell you.
