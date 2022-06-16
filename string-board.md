@@ -414,3 +414,32 @@ you wanted to undo the breadmaster symbols. how's that?
 [3]: I can't really describe this concept very well, but my experience has shown me that whenever the goal is a woman, it leads to unhappiness. the most common sensation of it is that the physical manifestation was never as good as hoped for. it never meets expectations, and most guys come away usually kinda upset that she's so moody or whatever. I've also noticed that women are a pretty good reflection of their partner, so the objective to finding a good woman that won't turn into a disaster is to not be a disaster yourself. it never satisfies. you can only truly find satisfaction by yourself. trying to do it with another person always amplifies your own dissatisfaction (peaceful, *for now*).
 
 [4]: I want to talk about this more, but my brain is mush right now.
+
+### 2022-06-15 18:37 - the parent improvement push and pull
+
+I noticed another resonance between conversations. at becky's house she said that her mom was some way, which she also said she was the same way (can't remember what it was now), so I asked if she was like her mom. she explained to me that she was as different from her mom as something is to another very distant thing.
+
+I could feel what she was saying and it reminded me of my father and me. I thought myself to be very different from him, but in reality we're quite alike. at some point I stopped trying to be different than him and accepted that we were pretty similar, and then along with that I decided I wanted to improve on all of the aspects that we share, adapt them and do them better.
+
+---
+
+later on in the car, I was talking with mom about dani and how I realised that he wanted for me to be constante/consistent, but that wasn't actually what he really wanted, because it was sorta the thing of drinking around sober people -- even while drunk, I can see my own ridiculousness through their eyes, so because I don't want to see myself as ridiculous, I want them to get drunk with me so we're on the same level. in reality, neither dani or I wanted to actually be sober or lucid.
+
+I then talked with mom about how we think we want something, but then we don't actually want it because we don't contemplate the reality change to make that happen.
+
+I didn't really correlate the conversations, but it's the same thing. parents want their kids to be better than them and to do better (just like dani wanted me to be constant), but they don't *actually* want it, in a lot of cases, because it means their kid will actually be better at it.
+
+so then I warped back to the conversation with becky and I was thinking about how that parents interact with their kids and want the kids to be *different* because they don't want them to be *better*. so I constructed an example: imagine that sarah wanted her daughters to make it through adolescence without all of the problems and stuff, so she wants them to take a different path than she did -- and so she wants her kids to be *different* than she is, but not necessarily better.
+
+what if her kids were to find a way to get through all of their adolescence without all of the regret[^1] and to improve on their trajectory *without* doing it differently. what if they just figured out how to the same thing, better?
+
+---
+
+my point is, we want things for other people, but we don't actually think about what the future would be like if that were actually true.
+
+this whole thing is also a resonance to the father's day card as well. it's kinda funny how that kicked this whole thing off.
+
+[1]: I can't say for sure this is what she felt, but as I was carrying becky's[^2] dresses, I was feeling sarah and it felt like lots of mistakes, bad decisions, underappreciation for her beauty, and stuff like that. hard to put it all into words.
+
+[2]: I don't know how this happened because I was carrying becky's dresses, but one of them she mentioned sarah and the dress she bought for prom or something and I caught the feeling as she said that. I don't know where the feelings come from. anyway, somewhere in there, I felt the same feeling of her mom wanting becky to be different from her, and she was, but there seemed like there was also a "this is what I had to go through so this is why I'm the way I am, and when you go through it, you'll see and be just like I am, even though I want you to be different" -- sorta feeling.
+
