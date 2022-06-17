@@ -4095,6 +4095,26 @@ also, there's no real stopping me anyway from taking this path, because I can ju
 
 [1]: which got me to notice that I have a lot of the qualities of the villians in the tick. one side of me could be seen as the breadmaster and also as the idea men -- and many others. seems I play both sides. these ideas tie into things I noticed about the triads in lbe and the 3/4 subsuctions of the previous idea.
 
+### 2022-06-17 11:51 - magnetic fields and polarised light
+
+yesterday I listened to snake-bros #091 - brian keating. I'd never heard of him and I was surprised to hear him explain the cosmic microwave background (CMB) with the example of a microwave oven where microwaves heat up water in your food by exciting those molecules -- and then goes on to explain a whole bunch of really outlandish ideas about figuring out the first microsecond (and smaller) of the big bang -- when I thought that maybe he was going to correlate that water may have something to do with the big bang and the CMB. I hope he's seen dr. robitaille's presentation in the CMB. -- but anyway, that's not what I wanted to talk about.
+
+he was explaining that his investigation involves the study of the polarisation of the light the CMB emits "right after the big bang" -- the theory being that the polarisation of the light present in the CMB is going to represent the primordial polarisation right after the big bang. kyle asks him to explain what polarisation was and I forget now what his explanation was, but he brought up magnets in it and how if you take a magnet and cut it in half you don't just get a north half and a south half -- but two smaller magnets. I found that explanation to be pretty confusing.
+
+---
+
+so, I thought I would write down how I see the EM field and give my explanation on polarised light.
+
+I think of all magnets as a monopole -- so let's say that iron spins CW, so the N pole is coming *out* CW -- well, then the S pole is coming *in* CW also, and so when you have coming out CW next to coming in it experiences attraction. if it's coming out CW and it's next to a coming in CW, it experiences repulsion, much like two fans facing each other would repel each other, but a fan behind another fan will get pulled toward the first fan.
+
+so then when iron is not magnetised all of the iron atoms are all facing random directions. however, when a large magnet influences all of those atoms to face the same direction, then iron becomes magnetised. that's ferro magnetism.
+
+diamagntism is the exact opposite: imagine for a moment that iron spins CW and gold spins CCW -- when gold gets near to magnetised iron, then the spin is opposite, so experiences repulsion -- or diamagnetism.
+
+finally, polarisation of light is just the orientation of the spin of the wave propagating through the medium. I would imagine that polarisers are essentially aligned magnets allowing only same direction rotating waves to pass through.
+
+
+
 ### who/what/when vs why vs how
 ### corrections
 1000y-bloom
