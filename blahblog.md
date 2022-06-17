@@ -4113,6 +4113,46 @@ diamagntism is the exact opposite: imagine for a moment that iron spins CW and g
 
 finally, polarisation of light is just the orientation of the spin of the wave propagating through the medium. I would imagine that polarisers are essentially aligned magnets allowing only same direction rotating waves to pass through.
 
+### 2022-06-17 14:14 - more on EM fields
+
+after writing the last entry, I was reminded of a proposal that veritassium had about explaining a scientific concept in 2m or something like that. upload the video and put a hashtag or something. anyway, the idea is pretty good for a video like that. there are things that I haven't really thought about much with that idea because I don't really know how to approach it without experimentation...
+
+first of all, I *assume* a medium because if a magnet is a monopole, and something is spinning in a direction, then the magnetic field is the movement of this medium -- just like in the example of the two fans as magnets, the magnetic field is the wind displacement. that's kinda kicking the can down the road because I don't really know how to explain the medium, but I think that the whole thing is a fractal, so the medium/ether is just higher frequency EM waves as well, so that medium too will have a medium -- hence the fractal. I don't think there's a smallest size and so a biger particle collider will just start to reveal artifacts of the medium of the ether (and so on).
+
+the second thing I haven't given much thought to is, I say that gold (diamagnetic materials) simply rotate CCW, but I provide no explanation of why that's so, and we know about electromagnets, but those all produce normal magnetism, not diamagnetism, so I don't know yet how one would go about creating diaelectromagnet.
+
+I may have figured out a small answer to my own question about diaelectromagnet, because right after that I was thinking about what I would tell people about why I'm missing teeth.
+
+---
+
+I started out by explaining that my girlfriend told me that flouride is bad for us so I stopped brushing my teeth. and so, whether it is bad or isn't, I can't really say, but I ate tons of it as a kid and nowadays, if I ingest some, it produces visuals in my imagination.
+
+I then started to explain how if I were to ask someone to imagine a cat, they'll picture a cat in their mind and it'll probably look similar to whatever the most significant cat they know or have last seen. I don't see anything. it's black, but I *know* there's a cat there. I can feel the cat even though I can't see it.
+
+so what happens for me is all of the words that most people associate with emotion (knowing, sensing, feeling), this is my "imagination" and it's how I perceive things *visually* (though there's no image to see). I process emotions visually, and I look at emotions and "see" abstract things that most people would normally associate with feeling.
+
+so, to explain this in the reverse: if I talk about love or hate, these don't have any visuals associated for me; it's just a feeling. I can then manifest that feeling into an image and that image, though I don't see it has a lot of qualities of real life. it feels like I'm doing something -- like killing someone or destroying something, and that's the way that I manifest that concept into something visual.
+
+if I were to talk to someone else about an abstract concept such getting a reward for doing something (or rewards in general), they would almost certainly feel a feeling and that feeling would feel like the reward (validation, love, acceptance, approval), and that feeling would be manfested into an image of receiving an symbol which represents that (award, sex, accepting/approving body language). I don't see those things so I just feel the emotion. I have to then translate that emotion into a thought...
+
+OK, what I'm talking about is thought and emotion. thought and emotion are kind of like electromagnetism in that you can't have one without the other. I suppose that when you're in "alignment" the thought and the emotion are happening at the same time, but for most of us there is a delay between the two. when I think, an emotion nearly immediately follows (small delay). think of this in term of a AC waveform where current (emotion) trails voltage (thought). an strong impulse of one will produce a strong impulse of the other.
+
+so the same is true -- I don't know how to do this in an experiment, but imagine you have a pulse of current -- well, wait until it goes all the way around (or see it as time flowing backwards), and you'll get a similar spike in voltage that follows the currunt in the reverse direction. I think of this reverse action acts as a sort of vacuum. the emotion that I feel creates a vacuum that then attracts a similar[^1] sort of thought.
+
+so if I wanted to make a diaelectromagnet, I'd need to figure out how to to make it go the opposite direction -- as in voltage that follows current -- which is attraction.
+
+maybe to explain this, I imagine electricity as the emission part -- the part where it's going out from its source, and the attractive or "night-side" is the other half of the emanation where it's returning back to its source. to illustrate, the stuff going out of the power station (or the sun) is electricity, and then there's a whole nother part where the electricity wants to go back to the source and so this is the stuff that flows out of the appliance and into the ground and into the planet. the power station is just creating a potential by doing some work, that's electricity, but then it gets transformed into opposite work in the appliance, and then ... hold on
+
+I just can't quite get my head around it yet, so I'll just explain what I see. at first, it seemed to me like the electricity is just a potential at the station. every potential is created by either by rotating a lever (like a teeter-totter) or by doing work (pushing a swing), so I was seeing that the power station creates a potential by doing work which then goes out into the power lines to the appliance. the appliance then converts that potential back into work, so if work is flowing only one direction, you would think that you only need one wire. the thing is that the appliance is also doing work, and so that's also creating a potential as well, which then flows out of the appliance and into the earth.
+
+I sill don't understand what I see there. anyway, after I saw it that I saw another picture where in this one, there was an ether around the sun, and there's another ether around the earth. the earth wants to get the sun's something (ether?) but the earth repels the sun's invasions, and so for the earth to receive the sun's stuff, it has to pass through the earth's atmospheric layers which protect itself. I can see that this is the original reason for the pyramids (Bond-Heaven-Earth) because they create a vertical pathway for that energy from the sun to get into the earth, and the earth likes this the plants and animals don't like zero atmosphere, so it's sort of a struggle.
+
+for example: mercury, having virtually zero atmosphere, is a near perfect receiver of the sun's energy. however, as the planet starts to grow up, like a kids, it starts to separate itself from its parent and begins to grow an atmosphere to distinguish the way it feels (planet's ether) from the way the parent's feel (sun's ether). these are running at different speeds and so a planet with a lot of atmosphere has a lot of self-identity (very different from the sun)
+
+these atmospheric planets like earth want to collect the sun's energy, but it also wants to maintain its self-identity, so it has to find a way to get the sun's energy down to the planet but also maintain the way that life on the planet wants to do things.
+
+[1]: when I say similar, I mean, "similarly vibrating" so the thought and the emotion will have a harmonious frequency (they go the same way for most of the time) between them. that compliates the example though.
+
 
 
 ### who/what/when vs why vs how
