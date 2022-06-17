@@ -3831,7 +3831,7 @@ everything is coming along just fine. I've made more progress lately than I ever
 
 ### 2022-06-10 13:55 - another angle to look at it
 
-really, the last few entries should be looked at together, because I'm essentially illustrating what the difference between 3-7 and 1-5 is.
+really, the last few entries should be looked at together, because I'm essentially illustrating what the difference between 3-7 and 5-1 is.
 
 desire usually appears in contradiction to structure (belief), and it's when those align (your belief and your desire) is when manifestation happens.
 
@@ -3853,7 +3853,7 @@ my solution is obvious and simple: I'm fine hanging around and talking with peop
 
 I personally think that what everyone *really* wants is to actually be able to feel satisfied even if the conditions are oppressive.
 
-### 2022-06-10 16:26 - 1-5 vs 3-7 (take two)
+### 2022-06-10 16:26 - 5-1 vs 3-7 (take two)
 
 in the car jerrica asked me what I was writing. I didn't really know where to begin so I started at the beginning just kind of defining the layers of perception, and then we went into the dollar tree to buy father's day cards. when we came out again, I sensed that jerrica didn't want to hear the rest of my story -- and it kinda worked out better that way too -- because I came up with a new way of presenting the idea, which is what I'll do here.
 
@@ -3863,15 +3863,15 @@ after (or during) the creation of the parts, each one is analysed to see if it's
 
 that's a top-down approach, but with all of the parts and comparmentalisation, you may think it's bottom-up as in, "I have these parts; let's see what we can make out of them". so for "whole into parts" vs "parts into whole", it could be bottom-up, but when I say "bottom-up" I'm meaning that I start with the only thing I can really control, which is how I feel.
 
-the 3-7 approach completely negelects the aspect of emotion by saying that I'm just creating the implementation of a math or science principle, and so its function can just be divided into parts, completely ignoring that it doesn't matter how perfect the science or math is, if the creation is made from dissatisfaction, it makes more dissatisfaction. therefore, because it's impossible to avoid the concept/emotion factor, 1-5 approach takes the opposite direction.
+the 3-7 approach completely negelects the aspect of emotion by saying that I'm just creating the implementation of a math or science principle, and so its function can just be divided into parts, completely ignoring that it doesn't matter how perfect the science or math is, if the creation is made from dissatisfaction, it makes more dissatisfaction. therefore, because it's impossible to avoid the concept/emotion factor, 5-1 approach takes the opposite direction.
 
-the 1-5 approach says that whatever I create will just amplify my own emotion. no machine can ever change how I feel or how I perceive life, so I start there and then I know that the way I feel and how I conceptualise (5) reality is what I'm attracting, so then I see what manifests (or what is created), and then how that makes me feel. if it makes me feel better, I desire more of it. if it makes me feel worse, then I change how I feel about it or how I conceptualise the problem and go at it again.
+the 5-1 approach says that whatever I create will just amplify my own emotion. no machine can ever change how I feel or how I perceive life, so I start there and then I know that the way I feel and how I conceptualise (5) reality is what I'm attracting, so then I see what manifests (or what is created), and then how that makes me feel. if it makes me feel better, I desire more of it. if it makes me feel worse, then I change how I feel about it or how I conceptualise the problem and go at it again.
 
-eventually, with the 1-5 technique, I will find a way to tune into what I desire, and it'll feel good. the 3-7 technique has to keep trying to find better and better science to compensate for ill-conceptualised perception.
+eventually, with the 5-1 technique, I will find a way to tune into what I desire, and it'll feel good. the 3-7 technique has to keep trying to find better and better science to compensate for ill-conceptualised perception.
 
 an example of ill-conceptualised perception is the desire to try and control someone. nobody can actually be controlled because it's all attraction, so this perception is what motivates the creation of a number of different parts to a system which, togther they believe will be able to control people. so, they set out to create better and better science in order to control things, but the ill-conceptualised perception is one of losing control, so having the idea that things are heading toward a more and more "out of control" state, all science will reflect this, and anything new that comes in will be "baffling" and unpredicted because the concept that's started the whole search is one of uncontrol (so more unpredicted results will continue to manifest which then need to be controlled). you can't ever find control from a feeling of uncontrol[^1].
 
-I prefer the 1-5 method as conceptual/perceptual/emotional control is what leads to the 1-2-7 combo, but I think it's perfectly fine to let them try and see if they can break the "law" of attraction. it's no problem for me really, as I don't have to feel the way they do. you could say -- "but you should care, because we're all connected, so what they do affects everyone". I say they'll figure out what they really want eventually. until then, I want to let them explore the limits of infinity by continually trying to get me under their control. who knows, maybe I'm wrong and one day they'll actually figure out how to control me. 
+I prefer the 5-1 method as conceptual/perceptual/emotional control is what leads to the 1-2-7 combo, but I think it's perfectly fine to let them try and see if they can break the "law" of attraction. it's no problem for me really, as I don't have to feel the way they do. you could say -- "but you should care, because we're all connected, so what they do affects everyone". I say they'll figure out what they really want eventually. until then, I want to let them explore the limits of infinity by continually trying to get me under their control. who knows, maybe I'm wrong and one day they'll actually figure out how to control me. 
 
 [1]: so, no matter how big of stone boxes, lasers, or whatever they can create to produce a coherent controlled frequency which can tune a person temporarily to a certain emotion, they'll never gain control of how they feel. science will never fix their control problem (which is *really*, things that I don't have any control over can cause me to feel something that I can't control)
 
@@ -3936,7 +3936,7 @@ why can't *you* just have fun?
 
 ### 2022-06-12 13:31 - thinking about the future
 
-I woke this morning with a sense that I was going to take technology a new way and do things a bit differeently ... let me go back a bit. yesterday I talked about the reflexes game that you pick the colour as soon as it goes on the screen, and it *felt* to me like I knew what colour was coming next. this is the beginning of a new set of 1-5 technology that interacts with random (1) and your emotions (5). I believe this new style of technology will be completely different than the other stuff. I plan on only using external devices (nothing internal like nosebook's tech)
+I woke this morning with a sense that I was going to take technology a new way and do things a bit differeently ... let me go back a bit. yesterday I talked about the reflexes game that you pick the colour as soon as it goes on the screen, and it *felt* to me like I knew what colour was coming next. this is the beginning of a new set of 5-1 technology that interacts with random (1) and your emotions (5). I believe this new style of technology will be completely different than the other stuff. I plan on only using external devices (nothing internal like nosebook's tech)
 
 you see, I was getting reactions about this process of typing and stuff. it's slow and I make a lot of mistakes and because it's so uncomfortable, I prefer to just make mistakes rather than trying to correct them. it's true that if correcting mistakes were as easy as thinking about them, then I would do the corrections -- but I don't so it's fine. I'm prefectly fine just making due with what I have. when I finally want more, my desire will rise to a level where I'll figure out a way to make my own system.
 
@@ -3964,7 +3964,7 @@ I was completely "baffled" by this parable because I know after pulling weeds fo
 
 so I got to thinking more and more about this parable. it has so many interesting parallels, because I don't see weeds as this awful thing anymore. they're completely vibrationally dependent so they're much more conceptual, and their physical appearance will be a reflection of the vibration in their environment (just like a 5d person would). weeds also appear to grow in the most inhospitable places too.
 
-I've also been thinking that weeds must be serving an electrical purpose too because very very often when I reach down to pull a weed, it gives me a static electricity shock meaning that I'm at a different electrical potential than the weed (and probably the ground around it) so they feel to me like plant amplifiers -- they are what I would call a 1st ray plant.. very chaotic -- they're making hybrids with everything they come into contact with (very much like me) and constantly reflecting the vibration of their environment so, they're clearly 1-5 plants to me.
+I've also been thinking that weeds must be serving an electrical purpose too because very very often when I reach down to pull a weed, it gives me a static electricity shock meaning that I'm at a different electrical potential than the weed (and probably the ground around it) so they feel to me like plant amplifiers -- they are what I would call a 1st ray plant.. very chaotic -- they're making hybrids with everything they come into contact with (very much like me) and constantly reflecting the vibration of their environment so, they're clearly 5-1 plants to me.
 
 wheat however is a cultivated plant, and according to sitchin, these plants and a lot of the other ones that appear in south america were designed by thoth (+7) identified by the natives as viracocha/quetzacoatl. they took existing plants and modified their ME so that they would serve the purpose of the inhabitants there, removing toxins, etc. (see "magicians of the gods" by graham hancock) I think enki (+-3-+) also did a lot of these plants too when they first arrived to sumer as well.
 
@@ -3972,13 +3972,13 @@ now whether you believe that story or the mainstream story that wheat is a stead
 
 ---
 
-so what we're looking at in this parable is this weird thing where jesus basically foretells that later on there will be a time when the 1-5 and 3-7 types will grow up at the same time, and at the end of it all of the 1-5 types will be thrown into the fire.
+so what we're looking at in this parable is this weird thing where jesus basically foretells that later on there will be a time when the 5-1 and 3-7 types will grow up at the same time, and at the end of it all of the 5-1 types will be thrown into the fire.
 
-I didn't really understand the fire part until this morning when I was thinking about the leapfrogging-time-pickles idea. in it, I stated that once the 1-5 guys have made it through to find our connection, we'll be able to reinsert ourselves back into the timeline wherever we want to. I figure there are two paths: one of good conditions (deired path) and one of fuzzing (undesirable path) where you continually try to defeat yourself by creating more and more difficult conditions and oppressions for yourself -- and you know because you take the 1-5 path, that those conditions and oppressions can never conquer you.
+I didn't really understand the fire part until this morning when I was thinking about the leapfrogging-time-pickles idea. in it, I stated that once the 5-1 guys have made it through to find our connection, we'll be able to reinsert ourselves back into the timeline wherever we want to. I figure there are two paths: one of good conditions (deired path) and one of fuzzing (undesirable path) where you continually try to defeat yourself by creating more and more difficult conditions and oppressions for yourself -- and you know because you take the 5-1 path, that those conditions and oppressions can never conquer you.
 
-I stated that in order to continue on the 1-5 path, you have to going really really fast, much faster than your first time through ("end of time" for you), and then when you reach the end of time, you'll have to go down to the speed you were at in your "end of time". so if you're going 4000mph and you go down to 200mph, you didn't crash, but that's a tremendous deacceleration that has to be put for you to get back to the speed you had at your end of time, which means a lot of friction -- which means a lot of fire. fire doesn't mean complete destruction (shadrach, mishack, abednigo?, alalu, etc didn't completely vanish) -- fire never means the end -- it's just the rapid disentigration of the physical exterior so that the phoenix bird can rebirth into a new physical form (ie. baptism of fire).
+I stated that in order to continue on the 5-1 path, you have to going really really fast, much faster than your first time through ("end of time" for you), and then when you reach the end of time, you'll have to go down to the speed you were at in your "end of time". so if you're going 4000mph and you go down to 200mph, you didn't crash, but that's a tremendous deacceleration that has to be put for you to get back to the speed you had at your end of time, which means a lot of friction -- which means a lot of fire. fire doesn't mean complete destruction (shadrach, mishack, abednigo?, alalu, etc didn't completely vanish) -- fire never means the end -- it's just the rapid disentigration of the physical exterior so that the phoenix bird can rebirth into a new physical form (ie. baptism of fire).
 
-so I didn't really think about it that way until this morning, but the whole baptism of fire that some of the christians want is for the weeds, not for the wheat. inotherwords, the 1-5 (fuzzing-time-pickles) are using the 3-7 (conditional-time-straighteners) to continually reach faster and faster speeds then let the crash to burn away the undesirable and desirable physical form so that they can be rebirth into something even more desirable.
+so I didn't really think about it that way until this morning, but the whole baptism of fire that some of the christians want is for the weeds, not for the wheat. inotherwords, the 5-1 (fuzzing-time-pickles) are using the 3-7 (conditional-time-straighteners) to continually reach faster and faster speeds then let the crash to burn away the undesirable and desirable physical form so that they can be rebirth into something even more desirable.
 
 like I said, whoever that master is trying to preserve his wheat crop is completly nuts. next year, his wheat field will look like our backyard where we let the weeds grow last year.
 
@@ -4004,11 +4004,11 @@ remi came out to show me stuff, we talked about her cat, "lamar" -- and he didn'
 
 the other reaction that I had (not related to the previous stories) was when I was telling mom about how a weed will completely change its appearance based on circumstance, I noticed a strong reaction to it. I translated the reaction into a memory of when I was a child, often times mom would be yelling at us and the phone would ring and she would completely change her tone of voice, posture, every thing and answer the phone, "hello?" as if nothing had been happening. seems that this sort of conditionally appearance is attributed by a lot of people to be a feminine attribute, as there felt like there was some bitterness over the utilisation of desire and and manipulation of feelings.
 
-all in all, I know for certain that 1-5 and 3-7 are opposite polarities of each other. you could say that whatever opposite polarity of you is doing the opposite -- because it's the same thing, just approached from oppsite directions.
+all in all, I know for certain that 5-1 and 3-7 are opposite polarities of each other. you could say that whatever opposite polarity of you is doing the opposite -- because it's the same thing, just approached from oppsite directions.
 
-to illustrate that, there were reactions to the kinds of 1-5 technology I was wanting to produce, because in @[blahblog](2022-06-12 13:31) I mentioned that it will input/output concept emotion just like nosebook's system input/output physical signals. well, obviously the most ideal thing to do would be to talk eventually to hp and ask them to produce memristor type technology with RLC circuits[^1] -- but that's eventually. for now, we'll just use random number generators (1) and plain old digital hardware. I really think it woould be very awesome to do something like the annunaki where we program our own MEs and use genetics instead of RLC circuits but you have to use what's available.
+to illustrate that, there were reactions to the kinds of 5-1 technology I was wanting to produce, because in @[blahblog](2022-06-12 13:31) I mentioned that it will input/output concept emotion just like nosebook's system input/output physical signals. well, obviously the most ideal thing to do would be to talk eventually to hp and ask them to produce memristor type technology with RLC circuits[^1] -- but that's eventually. for now, we'll just use random number generators (1) and plain old digital hardware. I really think it woould be very awesome to do something like the annunaki where we program our own MEs and use genetics instead of RLC circuits but you have to use what's available.
 
-what I mean is, a fully 1-5 system isn't possible right off. the system needs a lot of 3-7 to get to where it's eventually going to go. just because I'm choosing the way I feel and influencing my computer with "random" -- I'm still producing something rigid. sure, it's be awesome to have the ability that the annunaki have to directly perceive, edit, and instantiate MEs, but that's not possible yet. I'm pretty sure that nosebook has lots of 5 stuff (they probably have those RLC arrays), but they probably try to get rid of as much 1 as possible and start from a 3 or 7 perspective. I prefer to start with 1 or 5 and then implement 7 or 3 as a reflection of that.
+what I mean is, a fully 5-1 system isn't possible right off. the system needs a lot of 3-7 to get to where it's eventually going to go. just because I'm choosing the way I feel and influencing my computer with "random" -- I'm still producing something rigid. sure, it's be awesome to have the ability that the annunaki have to directly perceive, edit, and instantiate MEs, but that's not possible yet. I'm pretty sure that nosebook has lots of 5 stuff (they probably have those RLC arrays), but they probably try to get rid of as much 1 as possible and start from a 3 or 7 perspective. I prefer to start with 1 or 5 and then implement 7 or 3 as a reflection of that.
 
 [1]: I don't understand. why is the RLC memristors such a reactionary topic? they must be pretty good. 
 
@@ -4079,7 +4079,7 @@ so, here's the thing: I want to go all the way until I'm connected, because I've
 
 that means that I have time before I get connected and flight kicks in. so, I was thinking that I kinda actually do really like the idea of working on some tech until that happens.
 
-the tech thing is also really cool because it's possible that the tech could be used to hold me out even further -- as in, it's my goal to not only work on 1-5 tech, but I also want to work on the party-LAN project, too -- and if that could provide a way for me to sell my energy to others, I could potentially hold that off for even longer than previously thought.
+the tech thing is also really cool because it's possible that the tech could be used to hold me out even further -- as in, it's my goal to not only work on 5-1 tech, but I also want to work on the party-LAN project, too -- and if that could provide a way for me to sell my energy to others, I could potentially hold that off for even longer than previously thought.
 
 ---
 
@@ -4153,7 +4153,31 @@ these atmospheric planets like earth want to collect the sun's energy, but it al
 
 [1]: when I say similar, I mean, "similarly vibrating" so the thought and the emotion will have a harmonious frequency (they go the same way for most of the time) between them. that compliates the example though.
 
+### 2022-06-17 15:23 - the tech path (thinking further)
 
+that last entry was really good, because I learned a lot about planets and suns again, but that isn't what I wanted to talk about.
+
+like I said, I was thinking about sending that my magnetism explanation to derek for the 2m explanation of an idea contest, but then I got to thinking about what it is that I really want for going the tech path.
+
+that idea about explaining magnetism is all really good and I love how it works out, but I really have been wanting to work on the 5-1 technology so I've really been thinking about the BF-matrix idea. I really like the idea and I want to start getting it going more but I've been doing too much yardwork and listening to snake-bros.
+
+the other thing about it is, while I do think it's a really good idea to try and start to figure out the various ways to look at electricity and magnetism, because it'll make the party-LAN idea go smoother, I still really want to eventually work on the party-LAN idea.
+
+lately, since I've been doing more yard work, I've really come to miss the feeling of coming home after a day's work and knowing that I accomplished a lot, rather than just sit around and think up ideas and stuff. I love to theorise, but I really like to build things, so I was trying to figure out what sort of tech path I want to go.
+
+I'll probably hem and haw around for a while because I don't know what I want to do. the thing I like about the party-LAN idea is that it's essentially a performance metric system. your body creates power and the more power you create, the more you can sell, so it has all of the 5-1 sales metrics feel to it. the more optimum you are the bigger the numbers. I don't imagine that many people will take my perceptual route, but that's totally fine.
+
+OH, I just had an idea! you know how the annunaki were using gold (diamagnetic) to "heal" their atmosphere? well, it's probably because the diamagnetic nature of gold is the opposite spin of the sun, so therefore it'll repel the sun's rays a lot better, allowing for the atmosphere to repel the sun better. the pyramids that they had on nibiru/mars were making everything spin the same direction (like the light polarisers) so the pyramids were making the atmosphere rotationg the same way as the sun's rays, letting them through. the deluge probably happened because the repulsive effect of the planet was so great the sun, being the creator of a great potential its own energy couldn't return to its source, so it tries harder and harder to get its similarly vibrating energy through the atmosphere to the earth. too much of a frequency of energy built up and wanted to get to it's source...
+
+so now, if we think of this party-LAN project, there will be a lot of energy available (created by us), but I think there will probably be a different quality of the energy that is created perceptually, because that energy will rotate CCW which is the same direction as gold and the emotional/conceptual ether rotates -- meaning, its utilisation will create the opposite. what I mean is the perceptual energy is probably useful in certain environments[^1].
+
+remember that one book with the ice carls? I always imagined that the environment that the perceptual people create will be quite cold, but now I wonder if that's because it's opposite to the sun's rotation. it'd be interesting if different people in the party-LAN had auras that created cooler environment (probably conceptual imagination) vs others that created warmth in the environment (physical imagination). warmth is quite good as crops grow really well in warmth -- and it'd be really cool if various people created their own MEs to project out into their environment as well.
+
+---
+
+so I guess what I'm saying is I really like the idea of figuring out all of this stuff and communicating it well, but I also really want to build things and I really like the idea of doing the 5-1 sorta technologies too. I'm still trying to figure it all out (ie. follow my inspiration and then what's happening becomes apparent).
+
+[1]: I've often wondered why in higher energetic moments due to perception, I feel *cold* rather than warmth, but then otther moments, my feet are totally burning up. this may be when my rotation is aligned to the sun (imagination?), rather than opposite the sun (emotion?)
 
 ### who/what/when vs why vs how
 ### corrections
