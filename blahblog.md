@@ -4179,6 +4179,37 @@ so I guess what I'm saying is I really like the idea of figuring out all of this
 
 [1]: I've often wondered why in higher energetic moments due to perception, I feel *cold* rather than warmth, but then otther moments, my feet are totally burning up. this may be when my rotation is aligned to the sun (imagination?), rather than opposite the sun (emotion?)
 
+### 2022-06-17 18:28 - conceptual imagination in the context of present reality
+
+I went over to pull weeds at remi's house. I decided I was going to pull the weeds in the back, as I was opening the gate, I noticed a whole bunch of new goatheads that were growing. I decided I could start there and pick those. I then moved over to the grass, but along the way I was thinking about some of the reactions to my comments on the conceptual imagination.
+
+what I have to say which answers so many of the questions is that *all* of us have a conceptual imagination and a physical (visual) imagination, but the difference between me and most others is my physical/visual imagination doesn't show up. like I've said before, drugs, flouride, and sex seems to open up my imagination and I start to see visual images -- other than that, I just see black. I have noticed others see an image inside of their head (their mind's eye), and that happens sometimes for me too, but it's not really very clear. I see all my images inside of my eyes -- as if I were looking right at it (for drugs, these are called "open eye visuals"), and they sperimpose theirself inside of my vision. if I were to teach myself to control it, I could conjure a motor and have it run or do whatever inventing in my mind, but the thing is, I don't really want that.
+
+I like how I am now with a non-visual imagination because it gets me to focus on the feeling instead of the visuals. *everyone* has both, but usually people get consumed by the visuals -- and I would be no exception. if I had an imagination, I would spend all day there just like I used to do on drugs. it's a whole lot more fun to just think about creating something than to actually create something.
+
+the few times that I could see with astral perception, I basically just walked around with my mouth hanging open and especially daniel thougtht that was annoying. I just kept saying how beautiful everything is.
+
+that was back when I was much more conditional and so I liked the idea of everything being beautiful because that would make me feel good. nowadays, I don't think that way. most of what you see is an illusion. everyone is trying to make visual communications that appear a certain way -- but I find all of that to be worthless. I like my world where I just feel instead of see. by only feeling, I don't see the illusion.
+
+---
+
+going back to picking weeds, I was explaining that the reason why I'm not actually interested in a girlfriend or anything that's actually really attractive (I talked about this in the context of patricia and venus) is because I don't like the idea of constantly being pulled by someone visually. I have enough of a difficulty being pulled by someone emotionally, I just don't like the idea of being around really hot girls -- and if I can, I prefer to be around them where I'm basically blind. visually pleasing to me isn't something that I want too much of. I like functionality. I like actual productivity and stuff like that than the illusion of beauty.
+
+so it's obvious why I dislike the idea of being stuck with girls. sure it sounds good, but I'd prefer to keep my distance, especially from the beautiful ones. then, after paul left with the girls, there was a feeling like "girls should just be pretty but men are going to do all of the *real* work" -- and so I was trying to figure out the feeling, because it probably had something to do with paul.
+
+I looked into it and I noticed that I keep trying to go toward doing something like a project or more than one project -- and the sense that I get is that for eva paul wanted her to be really beautiful and so therefore from eva's perspective she's looking for someone that can appreciate her visually -- which is definitely not me -- so that's what she has to look for. allie feels to me like an accident, and so to some extent she doesn't ever feel desired like eva was, so she was always perceived as dumb and an annoyance -- again, not for me, because I'm looking for girls that are *not hot* (or maybe a little is fine -- but it's not their defining quality) and can do *real work* -- and I don't mean like the highy-motivated men do (which is fixing things that are broken or don't like), I mean actually creating things that are desired.
+
+girls unfortunately don't usually know what they want, other than to be pretty and to feel some sort of pleasure in being valued -- to be quite honest, I still haven't figured this one out, but it feels to me like they constantly need good conditions in order to feel good. again, I'm not interested in that. I'm interested in those that actually can find a way to feel good for no other reason than they want to. andrea was like this when I knew her, but she's probably not really like that now.
+
+anyway, I don't really mind what others want to do. they're welcome to desire beauty and vanity all they want. I'm just not interested in that. antoher thing is, when I/we get to 5d, it's not going to matter what any of us look like, because you could be stunning visually, but if you feel terrible, I'll see you how you feel, rather than how you look anyway. visuals mean very little to me. I prefer not to have them.
+
+---
+
+in some ways, I remind myself of those arabs that blame beautiful girls for their "sin" and force them to wear a hajib. I definitely don't want to tell anyone what to do or not to do, so I'm not really like that -- just I'm saying that I would *prefer* not to have a visual imagination, and prefer to continue to have a conceptual one. if I wanted to see pictures, I'd eat flouride toothpaste. instead, I stay away from visuals, and like I said, sex is kinda one of those things that turns on my imagination -- so I prefer to get to 5d, so I see you how you feel and/or how I want to see you. there's *no way* I want to get stuck in the miserable world of imagination and beauty like you guys are all stuck in.
+
+I think that it's quite possible to have a conceptual imagination and still see pictures, 
+
+
 ### who/what/when vs why vs how
 ### corrections
 1000y-bloom
