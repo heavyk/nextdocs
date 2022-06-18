@@ -4207,7 +4207,41 @@ anyway, I don't really mind what others want to do. they're welcome to desire be
 
 in some ways, I remind myself of those arabs that blame beautiful girls for their "sin" and force them to wear a hajib. I definitely don't want to tell anyone what to do or not to do, so I'm not really like that -- just I'm saying that I would *prefer* not to have a visual imagination, and prefer to continue to have a conceptual one. if I wanted to see pictures, I'd eat flouride toothpaste. instead, I stay away from visuals, and like I said, sex is kinda one of those things that turns on my imagination -- so I prefer to get to 5d, so I see you how you feel and/or how I want to see you. there's *no way* I want to get stuck in the miserable world of imagination and beauty like you guys are all stuck in.
 
-I think that it's quite possible to have a conceptual imagination and still see pictures, 
+### 2022-06-17 21:33 - why so much emphasis on beauty?
+
+one of the reactions is wondering if I'm saying that I don't want girls to be pretty.. well, I can't really say one way or another -- but you can feel that behind that phrase there is a bit of desparation wondering, "if we're not beautiful, then how will we get what we want?" -- as if beauty were the *only* thing that women are capable of doing.
+
+if I were to say, "I want girls to be pretty", then that's what I value them for. I might as well say "you're nice as a decoration", and I don't think I'm saying that I want them to be ugly either, because ugliness is can be a visual indicator of self-loathing (the same with beauty). if I hate myself, I either want people to look at my outward appearance (beautiful or ugly) so that they don't notice how I feel about myself. it's often times an illusion to divert attention away from what's underneith. you'll see people that are very hurt be very ugly (usually acting very nice) because they don't want people to recognise how wounded and invalid they feel theirself to be. beauty is the same way -- if I can just get you to look at my perfect tits and ass, then you won't notice how awful of a person I am -- etc. (it's the same thing)
+
+---
+
+another thing that I just don't understand is why men who have been hurt by women (remember it's all attraction) will often times want their daughters to be really pretty, so they can then rely on their beauty to try and get what they want. it just doesn't make any sense to me.
+
+---
+
+so if beauty is an external reflection of how one feels about theirself, I've noticed that often times girls that their fathers expect them to be beautiful tend to feel better about theirselves and so therefore tend to be more beautiful, but they also grow up with the idea that men are the source of their beauty, too. many of them need the next guy who's not their father to see her as beautiful so she can keep getting beautiful.
+
+there's another interesting thing that I don't really know how to quantify too, but it's common that married men tend to no longer see their wife as beautful after some time too, so now she's usually left with no way to continue her only value which is to be beautiful, and some seek other men to try and fill in that "I want others to see me as beautiful" void.
+
+there's also a weird thing too where some prostitutes are extremely beautiful and others are really ugly -- and I think this has a lot to do with self-value, as well. I postulate that the beautiful ones are able to find clients that see them as beautiful and so continue that on, but the ones that are ugly are in a self-perpetuating feedback loop.
+
+again, like I said, I don't really know how to quantify it, so I just let it be the way it is.
+
+---
+
+personally, I don't really care if someone is out looking for someone to see them as beautiful, because that's their excuse to feel good about theirselves.
+
+beauty, in itself isn't bad. if it's acquired through one's own self-perception, that's amazing. I have no problem with that because that means that person is much more than just their exterior. they're beautiful inside and out. however, if a person needs someone or something else to be beautiful, that *usually* a sign that they're not so beautiful on their own self-perception.
+
+---
+
+I get a lot of reactions to why I conjure myself to look at so often when my imagination works, and it's because when I feel good (usually this is the state I'm in when my imagination works), I want to see what I look like. I don't usually shy away from my own self-perception. I rarely look in a mirror and think to myself, "wow, I look magestic!!" or "I'm really captivated by the way I look" but this happens every single time that I conjure myself in my imagination. I've never had my presence last for more than a few seconds, but I imagine that I'm also pretty knowledgeable, too.
+
+I'm still working on getting this human body up to speed with that guy that looks like me in my imagination, but I imagine when I figure out how to feel like that guy does, I AM that guy.
+
+---
+
+if I were to give a recommendation to others (I'm a living example of it), I would recommend not trying to be either beautiful or ugly. I would just be as normal and natural as I could be, doing things that interest me and feeling the way I want to feel. that serenity, really is the ultimate serenity, because nothing really needs to change -- I don't need to be anything else for anyone else -- I just AM.
 
 
 ### who/what/when vs why vs how
