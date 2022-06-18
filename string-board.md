@@ -443,3 +443,4 @@ this whole thing is also a resonance to the father's day card as well. it's kind
 
 [2]: I don't know how this happened because I was carrying becky's dresses, but one of them she mentioned sarah and the dress she bought for prom or something and I caught the feeling as she said that. I don't know where the feelings come from. anyway, somewhere in there, I felt the same feeling of her mom wanting becky to be different from her, and she was, but there seemed like there was also a "this is what I had to go through so this is why I'm the way I am, and when you go through it, you'll see and be just like I am, even though I want you to be different" -- sorta feeling.
 
+### the-tick: both good and bad guys
