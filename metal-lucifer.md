@@ -73,3 +73,43 @@ so, maybe the first one isn't possible either -- but it seems to me like a reall
 ---
 
 OK, I'm done. my resume of this is, I definitely have a lot of distortion in my thoughts when listening to metal -- and I feel really weird the whole way too. I'll probably do it again cause it's so fascinating. I'm writing about the nature of consciousness and then seriah comes on and gives the other guy in the studio a bit about how he needs a lap dance and how much porno everyone should have. it's a total mind trip. anyway...
+
+### 2022-06-19 00:00 - one more thing about metal lucifer
+
+I totally derailed my original idea for the entry (I don't really know why it keeps happening -- I'll get better at this) because I didn't talk about the reaction to @[random-thoughts](2022-06-18 11:31).
+
+there were various reactions to it and the one that felt most from nosebook was a feeling of unknowing what to do -- because they're so used to pushing against people, what on earth are they going to do if I keep self-sabotaging? what I mean is, if I'm focused on unwanted and if they too are focused on unwanted, they need an offset. they're only able to focus on unwanted because many humans are uaually trying to figure out how to get wanted stuff, so that kind of puts them into a weird spot where they have to find a way to get people to look at wanted to offset their own perception of unwanted.
+
+it's a good thing that compartmentalisation exists because I think it's going to be hard for them to look at unwanted and wanted at the same time.
+
+---
+
+the other reaction that was present is so hard to get to with this music playing it's nearly impossible. I remember it had something to do with the idea of ... OH, that's right. I wrote about how in the story of alalu, the martians couldn't allow alalu to do so well, so they tried to be the superior and were forced to destroy lucifer/alalu.
+
+so, the story of lucifer that's in dtp is that he's a magnificent being of light but he was too ambitious and his over ambition is what caused his destruction. that's kinda the opposite of the story I told.
+
+the other story of lucifer that I've heard is the one where he's very proud and wants to elevate himself above "God" and so because of his pride, "God" (enlil) had to put him down to a more humble level.
+
+this is the story that I was getting reactions to, because I'm essentially proposing that alalu just wanted to do his own thing but he lives in a reality with others that can't allow him to create anything that he wants, so they choose to bring him down to his level.
+
+---
+
+well, like I said, I don't really think that's the case. I think that enlil was created by alalu. also, like tesla and also jesus, I believe he was successful in his creation, but realised that unwanted is the same as wanted, so instead of trying to destroy the opponent or prevent the creation from being destroyed, why not continually make more and more formidable opponents that he designs to defeat himself? each iteration he'll get more and more powerful and each and every time he defeats himself, he benefits by gaining more power.
+
+either lucifer really is a super arrogant power-hungry guy and he's in an infinite loop trying to defeat himself, or it's quite possible that there's something bigger going on here.
+
+the channeled "et view of creation" by kuthumi has an interesting tidbit in part one:
+
+> This prior Universe that existed and grew and matured and then passed through the transition. And so, *just as now*, we of the hierarchy of this planet, joined with the hierarchies of other planets and the cosmic council, are working for *the maturation of this Universe*.
+
+the channeler here (the same one telling the story about the "INFECTED ONES") is claiming that this universe is getting so big that it's ready to get this universe ready for its maturation, death and rebirth. the way he explains the "rebirth of the universe" is like this:
+
+> When you think of the transition, a small scale of that transition would be what you refer to as a super nova. You can imagine a super nova multiplied by a factor of ten to the trillion; you will have the magnitude of the transition energy of the prior Universe.
+
+so you thought the younger dryas was a big catastrophe, wait till you see the one that causes the rebirth of the universe. the way I see this happening is basically the same setup that the atlantians had going on. you get a bunch of people dissatisfied with current conditions with the technology to try and prevent the catastrophe for as long as possible. they'll setup a system that creates the conditions that they want, but with the continuing dissatisfaction, it'll eventually create a nova that is very large.
+
+you can see that in order to do that, you'll need something much larger than just a single star and planet. what I postulate that needs to happen to make such a large supernova would probably be a whole galaxy or a cluster of galaxies. if a normal star is going supernova is 10^1000000000000 times weaker, then that means that every star in an average galaxy needs to nova 10^10000 times larger than it normally does ... that's pretty big. I have no idea what could possibly do this, but I think you just take the basic "american way" of doing things to this galaxy idea -- just replicate it on a galactic scale and then replicate that. compartmentalise and conquer.
+
+so what I mean is, I believe that we don't just need one lucifer, but hundreds of billions of lucifers. we've got to figure out a way to pump out lucifers -- guys that are willing to self-sabotage theirselves until they run up against physical limits. we'll just keep creating more opponents for ourselves until the whole universe can no longer hold it back anymore -- max disaster.
+
+that's my theory on what's happening
