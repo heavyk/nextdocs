@@ -4243,6 +4243,43 @@ I'm still working on getting this human body up to speed with that guy that look
 
 if I were to give a recommendation to others (I'm a living example of it), I would recommend not trying to be either beautiful or ugly. I would just be as normal and natural as I could be, doing things that interest me and feeling the way I want to feel. that serenity, really is the ultimate serenity, because nothing really needs to change -- I don't need to be anything else for anyone else -- I just AM.
 
+### 2022-06-20 15:19 - attitude vs conceptualisation
+
+yesterday I talked with dad about a lot of stuff, but one of the topics that I covered (near to the end) was about attitude vs conceptualisation.
+
+I was trying to explain to dad that once I realised that it's ALL attraction, I began to take full responsibility for my reality. *it doesn't matter how I got here* (cause I'm here and I can't change that), so now everything around me is a reflction of my conceptualisation of reality.
+
+he brought up the example of (forgot his name) in the concentration camps, and said that attitude is everything. I agreed that attitude does have a large effect on reality, but conceptualisation is every more effective than attitude.
+
+to understand this, imagine a person that is annoying. usually when I find people annoying it's because I don't feel good or I was already annoyed by something else -- but let's say that wasn't the case. I was in the middle of feeling really good (like I'm at the spa or some nice event) and they come up and they're really annoying still. attitude doesn't really help in that situation because I already find them annoying. I can try to do the "I'm stronger than this" or try self-deception, "they're not bothering me" -- but that will likely *still* not work to well. they'll still be annoying and they'll probably wreck the whole rest of the day for you.
+
+---
+
+conceptualisation is the identification of things and feelings as concepts. so you look out into the world and there are a bunch of concepts out there. you see some people trying to be helpful, all sorts of different definitions of people and things. these things interact, and when they interact, they become symbols or archetypes in your mind, and that's what creates the expectation of their future annoying behaviour. you *know* that whenever a person like *that* comes up in that way, it's going to be annoying.
+
+whatever happens, you can almost always trace back the expectation for that thing happening, and whatever that is that caused you to expect it, is the conceptualisation. perhaps you believe that somebody on the LA freeway is inevitably going to cut you off on your drive to work because it's always happened before and so obviously you expect it to keep happening. attitude doesn't really change those expectations -- they just inspire you to push through it and try not to let it bother you too much.
+
+---
+
+changing conceptualisations is pretty easy but we don't really do it because we don't really want to let the other person off of the hook. the idea that people are doing things to me, is already a victim concept of reality.
+
+changing conceptualisations is easiest when everything is attracted. I know that because I think they're a hurt and whatever person, they'll behave like my version of that archetype behaves, and so naturally, that is what I expect from them, duh.
+
+so really, all there is to it is just finding a way to give others a little more space. things like, "well, they're figuring it out" or "sorry, I totally expected that" or maybe, "seems like the natural response from someone like that" or "yep, that's about right" -- stuff like that, just to affirm to yourself that you *were right about them* and so that's exactly how it turned out.
+
+---
+
+earlier on in my childhood, I tried to figure out how to predict everything that was going to be happening in my life, and I started to get pretty good that almost everything I expected turned out how I expected it to. this caused problems and I shut that down because I was quite the pessimist.
+
+I later figured out that even though I shut it down for others, I still had those same expectations for myself. for a while, I found myself completely justified in how I felt. I had all of the exact reasons that would cause a person to feel the way I do, and so it was obvious that's how I should feel considering what happened to me.
+
+it took a while before I started to want to feel good and wanted to start to expect good things to happen to me. I had to overcome a lot of things because what if I couldn't meet my own expectations and cause myself disappointment -- stuff like that, so I took a step back from the *doing* aspect of expectations, and made my expectations about how I can feel.
+
+"I can find a way to feel good about this. it's still wrong and I hate it, but I can just allow it to be without needing it to change" -- stuff like that.
+
+there are at least 3-8 different times where I "fell off the horse again" on that, and it took me a while to get back to believing that everything in my present is attracted by me. it's hard and it can take some practise. *it gets easier each time though*, which is probably the best attitude to have.
+
+attitude feels to me like "self-should-feel" (but more motive).
 
 ### who/what/when vs why vs how
 ### corrections
