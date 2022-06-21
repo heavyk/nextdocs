@@ -4281,6 +4281,42 @@ there are at least 3-8 different times where I "fell off the horse again" on tha
 
 attitude feels to me like "self-should-feel" (but more motive).
 
+### 2022-06-20 20:46 - conceptualisation and opposites
+
+after writing the last one there were a number of reactions in the form of memories where someone expected something to be one way and it turned out the opposite. I've had the same thing happen to me, so this time I'd like to talk about attracting opposites.
+
+I've said for a while now that unwanted-and-wanted-are-same. the reason for this is the perspective, so instead of rehashing that, I'll try and put this into a different perspective. we think of unwanted and wanted as synonymous with bad and good, but they are very distant. many things that would appear to be bad are actually wanted. my life is full of these examples so I won't belabour the point there.
+
+when I started to learn about conceptualisation, I noticed that a concept had an association with good or bad, and I had to get rid of that association pretty quickly because I was finding that both bad and good can be unwanted (or wanted), so it's not really the goodness or the badness of it, but rather how wanted it is.
+
+try convincing yourself that a bad concept is really a good concept. it's pretty difficult. now try turning an unwanted thing into a wanted thing. see how much easier it is? it's easier because *everything*, even the "bad" stuff, can turn into something wanted. this is so because everything vibrates, so naturally it has both polarities to it.
+
+---
+
+now, let's look at expectation in the context of trying to change something by expecting it to be different.
+
+    you can't conceptualise something to be different than how it already is. you *can* conceptualise it so that causes a different reaction in you, though.
+
+usually the concepts out in the world aren't going to be changing, so don't really try to change them, cause it's fruitless. you can't really force anything to be different. instead you can change how you feel about those things so you attract something different next time. or, you can change how you feel about it so that whatever it is no longer bothers you.
+
+as you can imagine, this takes practise. we're usually pretty valid in our reasons for why we feel a certain way, but it takes practise to choose to redefine the thing in your mind so that you can feel good, instead. (it usually means letting them off of the hook for whatever it is)
+
+in short, this process won't go very far if you don't want to feel good. the better you feel, the more rapidly those conditions will change, though you'll want to feel better for your sake rather than to try and change the circumstances. the way you feel is what you're attracting.
+ 
+---
+
+now let's take an example of something turning out different than expected. in my own life I've noticed there are a few main situations going on when this is happening.
+
+the first and most obvious is that that I don't actually believe/expect it -- I just kinda hope or want it, but I don't actually think that something that good can actually happen to me.
+
+the second and most common for me (there may be more) is that I don't actually feel as good as I thought I did, or there are still some triggers that can cause me to feel bad, so I'm not really very steady at feeling the way I want to feel. so then, because feeling bad (going away from wanted) and feeling good (going toward wanted) are basically the same thing, just looked at from opposite directions, it's pretty easy for them to flip-flop.
+
+I just started to pay attention (literally while typing this) that feeling unwanted and feeling wanted have a totally different feel to me, and so again, if I look at something "bad" that's happening, I can always find a wanted aspect to it.
+
+I have some reactions disagreeing with me. for example, just imagine how good it'll feel to be feeling good around a bunch a of bad-feeling people. imagine you're a "court jester" and you just get to run around making jokes all the time while everyone else is really hard at work feeling terrible. or, imagine you're stuck with someone who doesn't want to feel good, ever -- so then just imagine how much fun it would be to have things working out for you all the time and things constantly running smoothely because you feel good while the other guy has consant car trouble and difficulties all of the time. I don't want to be mean, but it's honestly pretty funny to watch others get really bent out of shape endlessly over conditions. I suppose I could feel bad for them, but I know that *it's all attraction*. that's a pretty wanted aspect to a situation.
+
+I personally love this sort of stuff because I get to jump into a bad-feeling situation and make a bunch of jokes and prove that it's all not a very big deal and everyone is taking everything wayy too seriously. just have fun and enjoy their pity and self-loathing with them if that's fun to you and then come back to being who you are. no big deal.
+
 ### who/what/when vs why vs how
 ### corrections
 1000y-bloom
