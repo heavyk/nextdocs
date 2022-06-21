@@ -4317,6 +4317,52 @@ I have some reactions disagreeing with me. for example, just imagine how good it
 
 I personally love this sort of stuff because I get to jump into a bad-feeling situation and make a bunch of jokes and prove that it's all not a very big deal and everyone is taking everything wayy too seriously. just have fun and enjoy their pity and self-loathing with them if that's fun to you and then come back to being who you are. no big deal.
 
+### 2022-06-21 04:07 - solstice update
+
+about an hour ago I laid down to see if I could experience the solstice energy. I've felt equinox energy very strongly but I've never felt solstice energy before, so this was a first.
+
+I felt the kundalini rising energy in my feet and also in my entire chest area, but this time it was much softer than ever previous (even with the solar/geomagnetic events). I feel really good about that, and I can imagine that some time in the future it'll feel so good and normal that I'll essentially forget to stop it, kinda like peeing the bed dreams I had when I was little -- I knew what was happening, but I was too tired and it felt too good to stop it from happening (lol).
+
+also I had a sense of weightlessness come over my body and a really light feeling that was quite nice. same thing as before, a large improvment over previous when it felt like it was rising really really fast and it felt like if I let it keep going, it would be painful. this rose very gradually and even was a bit of a pleasant sensation.
+
+so all really good stuff there.
+
+---
+
+previous to this, I was thinking a lot about the previous entries on conceptualisation, because it felt to me like a lot of people think that I'll sabotage forever. as I mentioned in @[metal-lucifer](2022-06-18 22:18), I don't think it's possible to self-sabotage *forever*, as I belive that there are eventual physical limits that are reached, however in that one I did explore the idea that it's possible that the goal of all of this is to make nearly instant manifestation of ideas into the physical realm possible and also normal.
+
+the overwhelming sense that I have is that this whole exercise in yielding is trying out the opposite end of the spectrum. what I mean is, first, there are a lot of institutions that kinda *need* a cataclysm. they simply cannot keep operating the way they're operating now. these institutions are founded on a lot of ideas (like keeping secrets) that don't really stand the test of time.
+
+I think in the past, the institutions based on these secrets and things need a level of secrecy to continue to operate, but in order to keep a secret, they have to keep the people ignorant. that ignorance eventually manifests itself as codependence on a structure that is interested only in its own well-being. this causes an inequality and out of that inequality, dissatisfaction grows because most people are conditional about things[^1]. 
+
+I'm not trying to get rid of the instituions at all. they're all fine. instead, I'm only trying to illustrate that they can have all of their conditions and stuff, but it's not necessary to feel dissatisfaction over anything that anyone else is doing, no matter how powerful they are.
+
+what this turns out in reality is an extension of time for them. since I don't want to do anything to destroy their setup, they'll continue on with their setup for as long as it can keep going. normally, you would try to destroy something unwanted, but I say there's no need to destroy it -- just let them figure out how to keep it going for an extended period of time.
+
+when I say extended, the context of the rate of change should be taken into account. a year today is not the same at all as a year 12kya. a year today has so much more going on with it. so, for example we have the dyanstic egyptians lasting nearly 4ky, but just try and imagine to yourself what the USA will look like in 30y from now. what about 50? these empires are not even comparable.
+
+to make a more applicable example, let's compare the USA to the roman empire. I'll round the duration of the empire to 400y (after that it split), and so even though our years contain a lot more stuff happening than theirs, let's say that some magical force came down from the sky and magically gave rome all the capability to hold on to power by ensuring that nobody attacked them and unlimited resources.
+
+under these circumstances, how long do you think the roman empire would actually last? it's an interesting thought experiment, because they had so much internal conflict, I would give it only about 500y or so. honestly, if I had a time machine, I would totally love to try that experiment and see how long it would last. what would it transform into? would it just endlessly change hands from one emperor to the next?
+
+---
+
+another example of this is the idea of pushing things too far is something that abraham always bothered my thoughts with when they would say, "soon we'll be having demanifestation workshops" -- and it got me thinkng about this a lot, because for a similar thought experiment, what if there was a way to make nearly instant manifestation of anyone's desires?
+
+as I began to figure out how the conceptual realm works, I began to imagine a device kinda like a 3d printer where anyone could design things in their imagination (including living beings and organisms) and then walk over to the machine and get the thing out (I brainstormed this idea with jaron outside with the green lantern rechargable ring). a person could output a new girl/boyfriend for theirself every time they got bored of the last one, or make whatever thing show up in real life. you could design new technology as fast as your mind could think of it, etc.
+
+you would think that an idea like this would want to have a limited release until they're going through some sort of approval proccess to ensure that people aren't printing weapons and killing others, I suppose -- but then, why not? what would happen to people in that situation?
+
+there would be a whole lot of stuff, so someone will have to design something to recycle all of that crap -- or maybe launch it into space and create a new planet from the discarded desires of the human race.
+
+see what I mean about this plan to just let them have all of their secrets and all of that stuff? I honstly want to see what'll happen if something like this were possible.
+
+think about how crazy that would be! I guarantee it won't solve the dissatisfaction problem.
+
+anyway, I still want to push this to its limit, and go for unlimited awesome, no cataclysm setup and see what they do with their institutional structure.
+
+[1]: to say it another way: from their perspective, the dissatisfied people that they have power over are just a reflection of their dissatisfaction. everything under that heierarchy will tend toward dissatisfaction *by default*.
+
 ### who/what/when vs why vs how
 ### corrections
 1000y-bloom
