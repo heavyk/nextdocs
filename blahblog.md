@@ -4364,9 +4364,8 @@ anyway, I still want to push this to its limit, and go for unlimited awesome, no
 [1]: to say it another way: from their perspective, the dissatisfied people that they have power over are just a reflection of their dissatisfaction. everything under that heierarchy will tend toward dissatisfaction *by default*.
 
 ### who/what/when vs why vs how
-### corrections
-1000y-bloom
-fuzzing-time-pickles
+### corrections and things to do
+alpha-omega-cycle
 conditional-time-straighteners
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
