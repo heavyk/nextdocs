@@ -4363,10 +4363,65 @@ anyway, I still want to push this to its limit, and go for unlimited awesome, no
 
 [1]: to say it another way: from their perspective, the dissatisfied people that they have power over are just a reflection of their dissatisfaction. everything under that heierarchy will tend toward dissatisfaction *by default*.
 
+### 2022-06-22 12:27 - shakespere and stuff
+
+yesterday I listened to grimerica #209 - alan green, where he gave his life story and how he came to look at the shakespere stuff. it was a really cool listen. he goes pretty deep into the backstory to illuminate all of the synchros, and that's actually what made it cool. I'd heard almost all of the other stuff before in various other presentations by him, anyway.
+
+below, I have this section that I was going to write on 54 and the lunar eclipse that happened on may 15-16th 2022. when looking at those dates, I noticed that between april 4th and may 28th, there are 54 days, and those appeared to me in sections of 3x18 (3x3x6).
+
+first of all, right before I listened to that episode, I looked right at that note to write that section, noticed that it was outdated and figured I probably wouldn't write about it. so as alan is telling his story, he talked about how his presentation that he gave was on the 10th of april and that stuck out at me. because it's 6 days after april 4th.
+
+---
+
+later on when going to sleep, I decided to figure out what the distances were between the various dates, and I noticed something wierd again because the sonnet that he played his alter presentation to was sonnet 18, and in it I remembered the line:
+
+    Rough winds do shake the darling buds of May,
+
+turns out there are 27 days between april 4th and may 1st, then 27 more days till may 28, then 27 more days till his magical 24th of june day.
+
+- 04-04
+  - 04-10
+  - 04-16
+  - 04-22
+  - 04-28 (+3) 
+- 05-01 (27)
+  - 05-04
+  - 05-10
+  - 05-16
+  - 05-22
+- 05-28 (54)
+  - 06-03
+  - 06-09
+  - 06-15
+  - 06-21 (+3)
+- 06-24 (81)
+
+I thought that was weird and went to sleep on it. anyway, I noticed that the there are 6s and 9s, 12s, 18s and 27s, and I can't really see the image very well in my mind but it seems to me like there's there's a progression there, but I can't see it.
+
+the other thing that he was talking about how 153 is a pyramid number, so 1+2+3...17=153, but there are two pyramidians on the pyramid there and they're both talking about this cupid guy, and have the word "bath" in them. I'd heard about the "bath sonnets" before and I thought I wrote something about it... I remember having done so, but it turns out there is only a reference in @[noseblog](2021-05-04 16:21) (a very interesting read in this context[^1]) to 06-24 being the birthdate of john the baptist.
+
+alan talks about how one of the sonnets (only skimmed them last night and don't remember them) is about fire baptism and the other about water baptism. in the interview he talks about how here there are two Is on the top of the pyramid, but that eye is like the pineal, "when thy eyes become single thy body will be filled with light" (something like that). even the sirians talk about the conflict of the second ray (which I've identified as the rebirthing fire bird) has with the 3rd ray (which I've identified as aquarius, the water bringer). so john the (water) baptist is supposedly born on 6-24... I wonder if john has a son -- a johnson[^1].
+
+anyway, this is partitcularly pertinent to me because I've been carrying on for a while now that that I want to go the 1-2-7 route, but clearly that has to be balanced there with the 3rd ray (water) stuff.
+
+well, 3rd ray water stuff is the *technological* and physical implementation of something in the form of mentation and compartmentalisation in the form of what I've been calling 3-7 creation.
+
+---
+
+somehow all of these items kinda fit together in my head, but I don't honestly see it yet. the feeling I have is that in order to make a proper placenta, I want to probably focus on 3-7 (water) stuff for a while. I'm not at all against it. it is true that I do tend to lean a lot more heavily toward the perceptual than the physical, so we'll see what this starts to produce.
+
+I feel like something new has started to open, but I totally can't see it very well at all. I'll probably have a look at the bath sonnets a little bit in the meantime. 
+
+[1]: I'm analysing a play by ben jonson, called magnetic woman (I think), and in it there is a lady lodestone (magnetic woman) and a mr compass who is quite a good reference point for the women. anyway, the magnetic woman is trying to get her neice married to all of these buffoons, the most significant of them is mothman. I thought this was originally a reference to "storing your treasures (on earth) where moths and rust can destroy them" but in the context of the tick, this is pretty close reference to carmelita (which also reads as "little brown" -- another section of the sonnets), making the magnetic woman mr vatos(??? I dunno). anyway, in the context of sanke-bros, "jonson" is the generic word for a failure[^2] and I'm talking about producing my tragedy in that one by building a feminocentric structure that's designed to go away after some time -- like a placenta.
+
+[2]: cept that archer points out that a "johanson block" is actually this really cool herwmetically sealed precision thing in an episode I haven't got to yet (#117, I believe). 
+
 ### who/what/when vs why vs how
 ### corrections and things to do
 alpha-omega-cycle
 conditional-time-straighteners
+400y-bloom
+anti-christ
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
