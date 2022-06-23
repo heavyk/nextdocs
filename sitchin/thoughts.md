@@ -572,3 +572,23 @@ then, I imagine your first commercial aggriculture system was invented -- so jus
 what's interesting is that because each of the weed plants has so much DNA in it for creating so many different things, not only are they very dynamic in their appearance, but they also adapt very very easily because they resonate with so many other plants. so, for example if the weed, resonates with 80% of a given domesicated flower, it can easily adopt that plant's DNA in a hybrid situaton -- where a normal hybrid would only be getting 50% (max) of the cross plant's DNA, it's viability would be low -- instead, a weed, because it already has such a large library, it could be a lot more viable because say if 80% of the DNA is native, it only needs a little more to become a 90% hybrid (I don't know how to explain this).
 
 weeds are very interesting, let me tell you.
+
+### 2022-06-23 13:21 - reborn dieties
+
+in the story, there are three major deaths: alalu (jeortau +2), dumuzi (saturn +-4), asar (osiris +-6-+).
+
+each of these correspond to the 3 transition layers. because of my work into self-sabotage, I think it quite possible that the ones that defeated each of these, is theirselves.
+
+satu is probably just the dual of osiris/asar. enlil is probably the dual of alalu/jeortau, and nergal is probably the dual of dumuzi/saturn.
+
+their consorts seem to be pretty well aligned too...
+
+asar's consort is asta/isis and satu's consort is nebat/nephtys. 
+
+dumuzi's consort was inanna and nergal's consort was erishkigal
+
+it doesn't say alalu's consort, but we know from the sirians that it was anatau (anu). enlil's first consort was ninmah.
+
+---
+
+so it seems that these are the opposite sided figures of the same people. I believe that each of them were succesful in their operation, but then eventually self-sabotaged and killed theirselves with their own duals.

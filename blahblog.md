@@ -4460,8 +4460,6 @@ so, in that sense, I would imagine that the the process of the death and rebirth
 ### corrections and things to do
 alpha-omega-cycle
 conditional-time-straighteners
-400y-bloom
-anti-christ
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
