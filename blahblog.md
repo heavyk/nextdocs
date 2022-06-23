@@ -4416,6 +4416,44 @@ I feel like something new has started to open, but I totally can't see it very w
 
 [2]: cept that archer points out that a "johanson block" is actually this really cool herwmetically sealed precision thing in an episode I haven't got to yet (#117, I believe). 
 
+### 2022-06-23 11:34 - the logistics of it
+
+a few days ago I finally typed out the 1000y-bloom idea, and I still have a lot more to go on it, but the basic idea is out there. there will probably be some neutral zones, but the way I outline it, the majority of the population (nearly everyone except for the lucifers, ie fuzzing-time-pickles) will be experiencing dissatisfaction.
+
+I believe that the population of this earth -- that is those incarnated into bodies here have been filtered throughout the ages to be the ones that cannot find a way to be satisfied even with good conditions.
+
+these unconditionally dissatisfied people are precisely the ones I'm looking for because no matter what, they're going to keep "putting more in the vortex" (as abraham says it). for every unit of unwanted/bad/dissatisfaction felt, they put in an equal amount of wanted/good/satisfaction, so all of these people are "instrumental" in creating something big. all they have to do is to feel tons of dissatisfaction and then someone else (that's me and who wants to join) can look at all of that unwanted/bad/dissatisfaction the opposite direction.
+
+so I predict that 99.999% of adults will be quite dissatisfied even though many of them may have good conditions. this is intentional.
+
+so go ahead and follow your dissatisfaction; it's actually what's wanted.
+
+it's possible that they may remain dissatisfied even with the new thing that's created -- and that's totally fine too. there's no problem with any of that because they'll be the ones that create the next new thing.
+
+I understand that this is kinda bifricating the population (dividing the path you might say) into two groups: those perpetually dissatisfied with the new creation and those satisfied with whatever and constantly improving the new creation.
+
+---
+
+the other thing that I woke up with a reaction to was [my notes on venus and adonis](/shakespere/venus-and-adonis.md).many of the sonnets and many of the lines that venus tries to use to seduce adonis are all rooted in preservation or continuation of something that's deteriorating and decaying (beauty, youth, etc), and so therefore because this is deteriorating, one needs to make an heir -- a memory of oneself so that one can continue to live on through the heir. besides the fact that it sounds a lot like the "fallen-angels" idea, I don't actually believe in this idea of perpetuating a memory or a legacy of oneself.
+
+personally, I believe in the death and rebirth idea. I *want* to die so that I can be reborn into the improvement. I haven't really got to this explanation yet because I wanted a break, but the alpha is the 7th ray and the omega is the 1st ray (destroyer and creator of the new).
+
+so, in this case, venus is clearly the omega and mars is the alpha, so it fits in perfectly that venus will destroy the old and create the new one. I believe in the story venus is doing something similar to don quixote where in that one chivalry was killed. my instinct says that it has to do with something similar -- the idea of having a saviour cause venus wanted to be saved by adonis, but he refuses so the sun keeps getting hotter. mars started the idea of war and smoothe-talking being the way to get what's wanted, but adonis taught mars how to have fun and stuff, so that's what the point is there. I'm probably off on that so I'll have to see how the story develops, but either way, the whole point is the death and the rebirth.
+
+it's probably framed in the story that adonis' death is a terrible thing, but I claim that's precisely the goal. we only see the death here and think that's the end, but when you're an eternal being, it's hardly the end, and instead more like the beginning.
+
+because of what I stated in @[metal-lucifer](2022-06-19 00:00) about how I believe this eventually going to lead to the death and rebirth of the universe, the 1000y-bloom is just the extension of that, so the goal of that is the death and rebirth of mars+adonis. each new concept in the death and rebirth cycle grows up for a time until it grows enough dissatisfaction and a need for preservation, then it's destroyed and comes into something new.
+
+so, think of me kind of like that in that I don't mind joking and playing around and stuff -- that's all well and good for me, but the new concept now isn't to dance, joke, and play (actions) -- but instead to *feel* the way one wants to without needing the action to feel that way.
+
+like adonis, the goal is for my own misconceptions of this new concept to eventually kill me so that I can be reborn. each time that happens, I can come back with the improvement that I couldn't quite get the last time because I still hung on to outdated ideas.
+
+if the universe was created the way that kuthumi said it was created, the universe was created and had a lifetime something similar to vere's. he started out with all of these perfect conditions, but someone came in and sowed a bunch of tares into the perfectly cultivated field of wheat. it sounds like they found a way to isolate the tares (INFECTED ONES) to this galaxy and continue on cultivating wheat elsewhere in the universe, but the problem here with the tares is getting so far out of control, that eventually a complete death will eventually happen.
+
+you can look at the trajectory of a life of someone alive as going toward more and more unwanted and dissatisfaction as they get older and more decrepit. beauty and youth are fleeting and need to be "used" before they go away -- because eventually all of that unwanted will eventually consume the whole creation (the whole body) and becomes pure unwanted. that unwanted body gets left behind and transitions into the opposite phase where the emphasis goes back to pure wanted. this is the devachan/heaven experience and then the body eventually gets reborn again. I believe the universe does somethting similar.
+
+so, in that sense, I would imagine that the the process of the death and rebirth of the universe is the same as the deterioration of the physical body. unwanted and dissatisfaction will continue to increase until finally the body can no longer survive that quantity of dissatisfaction.
+
 ### who/what/when vs why vs how
 ### corrections and things to do
 alpha-omega-cycle
