@@ -4454,6 +4454,8 @@ you can look at the trajectory of a life of someone alive as going toward more a
 
 so, in that sense, I would imagine that the the process of the death and rebirth of the universe is the same as the deterioration of the physical body. unwanted and dissatisfaction will continue to increase until finally the body can no longer survive that quantity of dissatisfaction.
 
+[ironically, the song "dogma - land of utopia" was on for the entire last 35m of that entry. I just noticed the title. kinda funny.]
+
 ### who/what/when vs why vs how
 ### corrections and things to do
 alpha-omega-cycle
