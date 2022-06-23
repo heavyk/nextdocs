@@ -3,7 +3,6 @@
 casi-modo
 01-14
 
-https://www.sacred-texts.com/eso/um/um.txt.gz <-- try
 download aslan faction / industrial mixes
 
 figure out how to trim trailing whitespace on save
