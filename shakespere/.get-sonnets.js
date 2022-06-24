@@ -18,6 +18,7 @@ import { join } from 'path'
 import { get } from 'https'
 import HttpsProxyAgent from 'https-proxy-agent'
 import { readFile, writeFile, mkdir } from 'fs/promises'
+import { fstat } from 'fs'
 
 const throttle_dl = pthrottle({ limit: 2, interval: 2000 })
 
@@ -27,9 +28,29 @@ const data_dir = join(process.cwd(), 'data')
 
 try { await mkdir(data_dir) } catch (e) { if (e.code !== 'EEXIST') throw e }
 
+let md = ['# sonnets', '']
+
 for (let i = 1; i <= 156; i++) {
-    await get_sonnet(i)
+    let sonnet = await get_sonnet(i)
+    md.push(
+        '### sonnet-'+i,
+        '',
+        // '...',
+        // '',
+        '#### sonnet-'+i+' - modern',
+        '',
+        ...sonnet.modern.map(t => '    ' + t),
+        '',
+        '#### sonnet-'+i+' - 1609 quarto',
+        '',
+        ...sonnet.quarto.map(t => '    ' + t),
+        '',
+    )
 }
+
+await writeFile('sonnets.md', md.join('\n'))
+console.log('done')
+
 
 
 async function load (num) {
