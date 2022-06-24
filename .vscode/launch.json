@@ -4,10 +4,21 @@
         {
             "type": "pwa-node",
             "request": "launch",
+            "name": "shakespere - sonnets",
+            "skipFiles": [
+                "<node_internals>/**"
+            ],
+            "cwd": "${workspaceFolder}/shakespere",
+            "program": "${workspaceFolder}/shakespere/.get-sonnets.js"
+        },
+        {
+            "type": "pwa-node",
+            "request": "launch",
             "name": "sitchin - enki",
             "skipFiles": [
                 "<node_internals>/**"
             ],
+            "cwd": "${workspaceFolder}/sitchin",
             "program": "${workspaceFolder}/sitchin/.transform.js"
         },
         {
@@ -17,6 +28,7 @@
             "skipFiles": [
                 "<node_internals>/**"
             ],
+            "cwd": "${workspaceFolder}/eog",
             "program": "${workspaceFolder}/eog/.transform.js"
         }
     ]
