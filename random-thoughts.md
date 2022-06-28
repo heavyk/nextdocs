@@ -53,3 +53,43 @@ I say "unwanted" because all accounts of cyrptids I've heard of, they're terrifi
 [3]: so, if you'll recall my exploration into the 36/72y cycles of males and females, I noted that I've noticed most girls are on a 36y cycle, where they start off fully mom's X, then go more toward dad's X and reach full at 36 and then start to go back toward mom's X and reach peak of that at 72y again. I noticed that I have a similar cycle, and for example when I turned 36, I noticed a weird change where I went from going toward wanted, to suddenly wanting to start self-sabotaging. that was right in the time when I started to go toward max disaster, and continually heading toward unwanted. as this cycle continues to strengthen, I notice that my proposed time to leave is 2038, which is around 54y (18x3), which is when I would be at peak unwanted (Y) and starting to head back into wanted (X) territory again.
 
 [4]: when I say evolved, I don't mean technologically evolved cause all the guys with the tech had the biggest beards and stuff. I mean, *emotionally* evolved. in lbe, after ka-in kills abael after a strong emotional outburst (I know that one), ninshizidda "adjusts his ME" so that he no longer has a beard and sends him to wander in asia and americas. this obviously is a cover story, but the assocaition is clear that the emotionally/conceptually more potent ones typically have less facial hair (like women).
+
+### 2022-06-27 21:18 - younger dryas
+
+yesterday I listened to snake-bros #107 - dabblers den, followed by the interview with randall for #108. I woke up thinking about the impact hypothesis, because in the interview chris cotrell got really excited about the comment to george howard that the carolina bays, though it's the "kooky caboose", could turn out to be the thing that's kinda driving the whole younger dryas event. over the years of listening to these guys talk about it, an image has formed in my mind of the event, so I thought I'd relate that here.
+
+chris said that you have to look at the world like it's a sphere, not a flat map, and so looking at the carolina bays crater angles, the asteroid/comet (whatever) seems to have clearly impacted the top of the ice sheet. I've heard claims that the pieces of ice went up ridiculously high and then came back down, but if the ice is already a mile up, you just need a low angle impact on the top of the ice sheet to blow all of that ice out in a pretty horizontal trajectory; it doesn't need to go so high up to go that far.
+
+so, I do think that the carolina bays are pretty important to the younger dryas event and I think that zamorra's work explains the ellipse features the best, too. however, a cometary impact like that doesn't explain a mamoth being flash frozen, and dying of asphyxiation.
+
+---
+
+the image I get in my mind about the asphyxiation is that at that time earth had a very thick atmosphere with lots and lots of oxygen. I think they were arficially creating this atmosphere with the technology they acquired from tiamat.
+
+the only way that you can turn that much oxygen into that much water is with A LOT of hydrogen. the sun has lots and lots of hydrogen (+), and the earth has a lot of oxygen (-) and then the artificial firmament that they were creating with that technology creates a dielectric insulator -- so it's something like a capacitor.
+
+we also see that everywhere around the world, when this thing happened, everybody just downed tools and walked away from the massive stones they were moving around. I think there's a direct correlation between how much oxygen is in the atmosphere and how enhanced our superhuman powers are, and there's good reason for forests to have been a place where so many people's fears become reality (and all kinds of other weirdness).
+
+when the comet came in, it did blow a massive hole in the top of the ice, but more importantly, it punctured a hole in the atmosphere and that began to start leaking oxygen out into space. in modern terms, this is just "dielectric breakdown" of the insulator in the capacitor -- and then the sun had been storing up quite a bit of charge for a while (as long as they've been running the firmament tech), so the sun has built up a lot of hydrogen (like a large amount of electrons on one plate) and is waiting for a path to be able to make the connection and neutralise the imbalance.
+
+so, I just see the coment as the catalyst, which set off a chain of events, when the sun sent massive amounts of hydrogen our way to neutralise the massive oxygen buildup we had accumulated on the planet.
+
+I explain the incongruence of the flood myths around the globe owing to the fact that the CME must have impacted the places where the flood myths are, and there, they would have experienced an extremely low pressure system. a sudden drop in pressure like that (from all of the oxygen turning into water), would instantly freeze stuff and cause asphyxiation.
+
+so I don't know if it the carolina bays are the "driver" of the younger dryas event any more that the fuse is the "driver" to the bomb, but I do think that if it hadn't of happened, the sun would have never exploded -- but it was bound to happen some day.
+
+---
+
+since I'm on the subect, I think that comets are *attracted* to places with lots of oxygen because I've been thinking about how there are so many "spontaneous" fires that just seem to break out when comets come close to the earth causing the chicago fires and stuff (oct 8-10th I believe were the big ones) -- so the comets must interact with the oxygen causing it to spontaneously combust and cause those massive pillars of fire and other strange phenomena associated with those unexplained conflagrations.
+
+obviously some research needs to be done to find out why exactly comets are attracted to and interact with oxygen, because I tihnk these are just the minutia of what's happening in a much larger system -- and so if it is the case that oxygen is an attractor of comets, then we don't really understand comets very well, but if right after the younger dryas event, we rebuilt the firmament system, a lot more oxygen would accomulate again, and so my hypothesis is that we attracted another comet again a second time and the process repeated, explaining the second spike in the greenland ice cores.
+
+---
+
+my last prediction is that, though I do believe that comets do seem attracted to oxygen, I think that oxygen is a highly vibratory element, and so we think of things in very simple ways right now with volts and potentials and stuff, but what I'm saying is that I think that those potentials are all manifestations of the same thing -- so a voltage potential is just two vibrations vibrating in opposite directions ways (think of the two fans from the magnetic monopole again), so hydrogen is one frequency and oxygen is another frequency, and so they appear to be separate because of a difference in frequency, but sometimes oxygen can vibrate in a way that is more attractive to similarly vibrating comets, and so out there in a nearly resistance-free environment of space, they do get attracted to earth.
+
+I wonder if it's the spin of the asteroid/comet that's causing this frequency -- or if it's the orbit.
+
+anyway, what I was meaning is I don't think all oxygen is created the same. when I was in spain, I noticed that the hospital oxygen all felt damp and flat, as if all of its life (vibration) had been sucked out of it. I also noticed quite a change in the oxygen between madrid and colorado, too. then after my first year here, the oxygen in colorado changed again and corresponding with this change, all of the really big and tall clouds that I saw went away and were replaced with those wispy thin (CO2) clouds the airplanes put in the sky, hence the origin of my theory on how those planes turning O2 into CO2 and the result is the trail.
+
+so, in conclusion, I do think it's possible to have an oxygen-rich environment, but I do also think that we're also causing attraction to happen faster in places with more oxygen, so depending on how that oxygen is vibrating is what we're attracting.
