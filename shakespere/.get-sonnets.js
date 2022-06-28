@@ -1,26 +1,23 @@
 
 // next up, parse the commentary and turn it into markdown
 
-// later, download the 1609 scans here
-// https://www.bl.uk/collection-items/first-edition-of-shakespeares-sonnets-1609
-// https://www.bl.uk/britishlibrary/~/media/bl/global/dl shakespeare/shakespeare collection items/first-edition-of-shakespeares-c_21_c_44_fb1r.jpg
-// https://www.bl.uk/britishlibrary/~/media/bl/global/dl shakespeare/shakespeare collection items/first-edition-of-shakespeares-c_21_c_44_fb1v.jpg
-// https://www.bl.uk/britishlibrary/~/media/bl/global/dl shakespeare/shakespeare collection items/first-edition-of-shakespeares-c_21_c_44_fb2r.jpg
-// https://www.bl.uk/britishlibrary/~/media/bl/global/dl shakespeare/shakespeare collection items/first-edition-of-shakespeares-c_21_c_44_fb2v.jpg
-// r = right side, v = left side (remember to ask for the spaces)
-
 // import transform from '../txt-xform.js'
 
+import 'hard-rejection/register.js'
 import { decode } from 'html-entities'
 import pthrottle from 'p-throttle'
 import { parse } from 'url'
-import { join } from 'path'
+import { hostname } from 'os'
+import { join, basename, extname } from 'path'
 import { get } from 'https'
 import HttpsProxyAgent from 'https-proxy-agent'
-import { readFile, writeFile, mkdir } from 'fs/promises'
-import { fstat } from 'fs'
+import { readFile, writeFile, mkdir, stat } from 'fs/promises'
+import { createWriteStream } from 'fs'
 
-const throttle_dl = pthrottle({ limit: 2, interval: 2000 })
+console.log('running on', hostname())
+const IS_KENNY = hostname() === 'DESKTOP-M5TUMQB'
+
+const throttle_dl = pthrottle({ limit: 1, interval: 2000 })
 
 const url = 'https://shakespeares-sonnets.com/sonnet/'
 const proxy = process.env.http_proxy || 'http://192.0.0.4:8080'
@@ -49,11 +46,12 @@ for (let i = 1; i <= 156; i++) {
 }
 
 await writeFile('sonnets.md', md.join('\n'))
+
 console.log('done')
 
 
 
-async function load (num) {
+async function load_sonnet (num) {
     let path = join(data_dir, 'sonnet-'+num+'.json')
     let data = await readFile(path, 'utf-8')
     data = JSON.parse(data)
@@ -65,7 +63,7 @@ async function load (num) {
     return data
 }
 
-async function save (sonnet) {
+async function save_sonnet (sonnet) {
     const num = sonnet.num
     if (!num) return
     const path = join(data_dir, 'sonnet-'+num+'.json')
@@ -74,7 +72,7 @@ async function save (sonnet) {
     await writeFile(path, data)
 }
 
-function txt_between(txt, start_txt, end_txt) {
+function txt_betwixt(txt, start_txt, end_txt) {
     let ps, pe
     return decode((
         ~(ps = txt.indexOf(start_txt)) &&
@@ -83,7 +81,7 @@ function txt_between(txt, start_txt, end_txt) {
 }
 
 function clean_html_lines (html, start_txt, end_txt) {
-    return txt_between(html.replace(/[\n\r]/g, ''), start_txt, end_txt)
+    return txt_betwixt(html.replace(/[\n\r]/g, ''), start_txt, end_txt)
         .replace(/<(\/?)em>/g, '')
         .replace(/<br \/>/g, '\n')
         .trim().split('\n')
@@ -95,7 +93,7 @@ function clean_sonnet (sonnet) {
     let quarto = clean_html_lines(sonnet.html, "<p id='quartotext'>", "</p>")
 
     if (quarto[0][0] === 'W') {
-        // console.log('transform to VV')
+        // I'm actually not 100% sure all starting W's are VV.
         quarto[0] = 'VV' + quarto[0].substring(1)
     }
 
@@ -104,6 +102,7 @@ function clean_sonnet (sonnet) {
     return sonnet 
 }
 
+
 const dl_sonnet = throttle_dl(async (num) => {
     let options = parse(url+num)
     options.agent = new HttpsProxyAgent(proxy)
@@ -111,18 +110,18 @@ const dl_sonnet = throttle_dl(async (num) => {
     get(options, res => {
         let html = ''
         res.on('data', d => { html += d })
-        res.on('end', async () => { await save({ num, html }) })
+        res.on('end', async () => { await save_sonnet({ num, html }) })
     })
 })
 
 async function get_sonnet (num) {
     try {
-        let sonnet = await load(num)
+        let sonnet = await load_sonnet(num)
         if (sonnet) {
             if (sonnet.html) {
                 clean_sonnet(sonnet)
-                delete sonnet.html
-                await save(sonnet)
+                if (!IS_KENNY) delete sonnet.html
+                await save_sonnet(sonnet)
             }
 
             if (sonnet.modern && sonnet.quarto) {
@@ -139,3 +138,61 @@ async function get_sonnet (num) {
 
     await dl_sonnet(num)
 }
+
+
+// -------------- testing ----------
+
+
+
+const img_url = 'https://www.bl.uk/britishlibrary/~/media/bl/global/dl%20shakespeare/shakespeare%20collection%20items/'
+const dl_img2 = async (i, img) => {
+    // first-edition-of-shakespeares-c_21_c_44_fb1r.jpg
+    const outfile = (i+'').padStart(2, '0') + extname(img)
+    const outpath = join(data_dir, outfile)
+    const stats = await stat(outpath).catch(() =>{}) || {}
+    if (stats.size > 1000000) {
+        console.log('skipping', img)
+        return Promise.resolve()
+    }
+    return new Promise((resolve, reject) => {
+        let options = parse(img_url+'/'+img)
+        options.agent = new HttpsProxyAgent(proxy)
+        console.log('downloading:', img)
+        get(options, async (res) => {
+            // console.log('get', res.headers['content-length'], stats.size)
+            
+            if (res.headers['content-length'] == stats.size) {
+                console.log('already downloaded!', img)
+                res.destroy()
+                return resolve()
+            }
+            let file = createWriteStream(outpath)
+            res.pipe(file)
+            file.once('finish', () => {
+                file.close()
+                console.log('downloaded:', img)
+            })
+            // let html = ''
+            // res.on('data', d => { html += d })
+            // res.on('end', async () => { await save({ num, html }) })
+        }).once('error', (err) => {
+            console.log('error downloading', err)
+            reject(err)
+        })
+    })
+}
+const dl_img = throttle_dl(dl_img2)
+
+let json = await readFile('britishlibrary.json', 'utf8')
+
+json = JSON.parse(json)
+
+let imgs = json.sitecore.route.placeholders["container-ph"]['0'].fields.images
+for (let i = 0; i < imgs.length; i++) {
+    let img = basename(imgs[i].src)
+    dl_img(i, img)
+}
+
+process.on('exit', (code) => {
+    console.log('exiting', code)
+})

@@ -2,10 +2,11 @@
     "name": "nextdocs",
     "type": "module",
     "dependencies": {
-        "axios": "^0.27.2",
+        "hard-rejection": "^2.1.0",
         "html-entities": "^2.3.3",
         "https-proxy-agent": "^5.0.1",
         "p-limit": "^4.0.0",
-        "p-throttle": "^5.0.0"
+        "p-throttle": "^5.0.0",
+        "p-timeout": "^5.1.0"
     }
 }
