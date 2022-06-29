@@ -113,3 +113,123 @@ you can see that in order to do that, you'll need something much larger than jus
 so what I mean is, I believe that we don't just need one lucifer, but hundreds of billions of lucifers. we've got to figure out a way to pump out lucifers -- guys that are willing to self-sabotage theirselves until they run up against physical limits. we'll just keep creating more opponents for ourselves until the whole universe can no longer hold it back anymore -- max disaster.
 
 that's my theory on what's happening
+
+### 2022-06-29 00:54 - felt like listening to seriah again
+
+I don't really have anything specific I want to talk about here. when I was taking a shower I had a topic come to mind where I was thinking about in the sun while picking weeds -- about randall and his measurements and stuff. of I remember what it was now... anyway, I got done with the previous podcast with scottie baldwino and I felt like listening to seriah so I put on another "last exit for the lost" mix on the phone and laid down to start listening. I decided I want to write, so here I am.
+
+---
+
+when I was thinking about randall out while pulling weeds, I was reminded of a previous reaction that I had where I said something about randall -- dunno what it was now -- but I remember very specifically a reaction from kyle, something to the effect of like "don't get mad or try to fight at whatever it is, because it's all attraction and it'll just get worse. he's just just reflecting/manifesting your anxieties" -- it's hard to translate that one into english, so I got it kinda wrong, I'm sure but the sense was that I turn out to be this really dynamically transforming thing, so I end up kinda flip-flopping between the extremes for people -- they've always said that I'm very charismatic but you'll either love me or hate me. I don't usually get a "wow, that guy is boring or uninteresting" response.
+
+anyway, that had a resonance to it because I thought of right nearby to that moment a joke I told this morning to jaron about jim lucas getting "the final frontier thing wrong" -- a joke from kyle I repurposed for the moment.
+
+the other resonance that it had was later when I was listening to the scottie baldwin analyse a little bit the success of their show, and at ep #110, they were still probably not nearly as well known as they are now -- and they were explaining their technique to making the show, which was they had these conversations already, so it was just a way to get out there and make the conversations available for others to listen to.
+
+scottie praised them multiple times for allowing people to kinda lis
+
+[break to listen to songs and interview]
+
+scottie praised them multiple times for just getting out there and thinking it through out loud. he explained that one of the most tantalsing things that a person is if you can watch them thinking about and processing something that interests them -- and he thinks it's their out-loud thinking process which is so compelling for people to listen to. we've already heard the mainstream "we already know how it works (but not really)" explanation, so it's good to listen to interesting questions and insightful takes on modern mysteries[^1].
+
+I'm sorta like that, and I was really thinking about how nice it must be for people to watch me process things. that's really all I'm good at. it's so hard for me to fill people's expectations, and I don't really pretend to have all of the right answers -- I just collect a lot of things, think about it for a while and then just talk. a lot of the things that scottie was praising randall about, I can kinda apply to myself as well -- cept for the "hyper competency" -- as I seem to not really have any specific thing I'm really good at. I'm sorta bad, average, or kinda good -- but nothing I'm like a superstar at doing.
+
+---
+
+anyway, so I was listening to one of the songs at the beginning and the screaming reminded me vaguely of the sound that pigs make and that reminded me of the reaction...
+
+in @[dreamlog](2022-06-28 12:12), I mentioned the idea that I am the "bad guys" -- and that all of the "bad guys" that are trying to keep everyone away from all of the good conditions are mostly extensions of me. I was reminded of the one passage in the bible where jesus drove out the demons into the pigs and said something to the effect of -- "we're not legion yet" -- with the idea that jesus would be returning in the form of many demons. the reactions are telling me that I have that waaaayyy off. I don't mind. I'm listening to metal.
+
+> having fun is what it's all about.
+> everybody come along, we're on our way to the church of fun
+> everybody come along, we're on our way to the church of fun
+> everybody come along, we're on our way to the church of fun
+> church of fun
+> church of fun
+> church of fun
+> church of fun
+> waaaaahhh!!!
+(lol - song by gang green)
+
+@[youtube](https://www.youtube.com/watch?v=hCJQ_0xP0Zg)
+
+---
+
+OK, that was an interesting blending of what I was writing with the music. it's always really weird when that happens. anyway, that thought mixed with the idea my speculation of what *really* happened to the 5th planet (tiamat), because I postulate that this was the planet where lucifer (alalu) setup a really cool setup and the really good conditions that environment had attracted a lot of astral entities. the power hungry ones went to mars and the good-condition loving ones went to tiamat. the mars guys with a superiority complex had to put such a proud person down, so they likely infiltrated his setup, ran it into the ground and then had it destroyed. the legends say that the demise of lucifer resulted in a lot of "angels" (both good and bad) -- which I believe to be astral entites that took on physical form, and then after taking on physical form are now stuck in a reincarnation cycle to similar DNA. those early humans may have even been something like the neanderthals, -- but the extra effort the martian "gods" went to to ensure that the humans had a different bloodline point to the fact (at least for me) that they wanted to ensure that the angels coming over from tiamat continue to retain their affinity to earth-like DNA and bodies.
+
+obviously intermixing happened, which is why it was such a big deal for marduk to take on a human wife, but the point is that I believe that in addition to the many "good" angels (there isn't really any bad or good -- just wanted and unwanted) became the many benevolent people that have appeared through the ages. I believe the astral realm has been kept a secret and a lot of those that interact with that realm have their oaths of secrecy (see @[letters-to-russ](2022-05-19 14:19)), but I don't have any such obligations -- so I talk about it openly. I claim in that letter to russ there that I believe my open talking about it is why "the book is open".
+
+you see, randall makes a lot of very interesting remarks in words directly out of the book of revelation. scottie noticed this too and remarked that words, and the order you put them in, matters. so, when randall says, "the book has been opened" this a very symbolic reference.
+
+I was also reminded of the first time that I saw him (can't remember what it was but there was a green board behind him) -- and it blew my mind that he went into the metrology of the book of revelation. another time he was talking about the furlongs of the new earth and I went on a search for planetary bodies in this solar system that match the size of his furlongs (I wrote something about it in nosedocs too I believe), and I determined that it had to be the planet pluto, but I didn't really know what to do with that -- cept that it's the god of the underworld, and various gods are said to go there. I didn't think much more about it though.
+
+[another break]
+
+anyway, I think I remember writing about the "new earth" a while back, and I don't really remember all of what it's about, but one of my goals for a long time now has been to try and make it possible for the ones who like good conditions to get the conditions that they want -- and the realisation of this effort is finding out a way to make the "new earth" possible. in my "I want to make a galaxy" mindset, I see this as a perfect setup because in my desired setup for the galaxy, I need two planet like objects in orbit with each other and both planets will have strong attraction to eachother.
+
+pluto is the planet that will contain all of these guys that like the geometry and good conditions and stuff like that (the tech civs), but my planet (charon) will be the ones that are not quite as interested in the realisation of feeling good through technology, but perceptually (or maybe "spiritually" -- but I hate that word).
+
+I see this as a perfect setup because I believe that pluto/gaga (+-4) comes from saturn and the moon/kingu (+-6-+) and charon (+2) come from tiamat, so you can see that this is a perfect setup for the astral entities there. saturn is a solumn god that likes to have everything in order and having all of the laws kept. you could consider him to be the god of "karma" in the sense that he desires that everything have a system of "compensation" -- so when I think about him, I immediately think of mol lang and his law of compensation and talking of karma...
+
+---
+
+the reaction that came with my thinking about the pluto and the 1000y-bloom was another passage in dtp where he talks about how all of the angels are able to make their own decison about how they want to operate, and then at the end of some period, everyone not in agreement with that will get thrown into the fire (vis mortus) and consumed. it's my belief that all of these "angels" (the ones that have been produced since then and the ones still extent since the original "casting out of heaven/mars") have been mostly avoiding a full death, and have been transferring from body to body -- so a forced dose of vis mortus (something like a nova event they can't avoid, which puts out so much energy, the astral vibrations which compose their astral body are no longer coherent, forcing their entrance into 5d/devachan) -- and I think that they have a pretty big fear of death.
+
+along with this idea came the acknowledement reaction to the legends that supposedly lucifer created a lot of "bad" angels after that. it's my personal opinion that many of these enitites that all did the self-sabotage
+
+[another break]
+
+it's interesing how in the interview they were talking about wanting to live eternally. they both decided they didn't want to live forever because you would see loved ones die and things like that -- but imagine you did live for a very very long time, just transferring your consciousness from body to body -- I don't think you'd be too concerned about your "loved ones" anymore -- you'd be pretty calculating and self-centred. I also believe you would become exclusively materialistic, because there's no way to think about anything else, either. the "spirit realm" is just a hierarcy of power looking to take control of the resources in planes below them.
+
+it would be miserable, I agree, but I don't think they would be too concerned with family or friends. my wife is going to die, so just get a new one -- friends go away too, so just get a new ones. so, since everyone is only a transient entity passing through my experience, I optimise my presentation to those temporary passer-bys to ensure that I get the most out of them as they pass through my experience. this means I'm very concerned about what everyone else thinks, and I don't have any real meaningful relations -- everyone is just a temporary thing for me to use.
+
+though I don't think I would mind living eternally, I also don't find it a big deal because I know the art of releasing resistance, and so I imagine that life (for me at least) would be a continually improving experience the longer it is. neither do I believe that I would *actually* live forever, because if I'm constantly improving, then I'm getting more energetic, and so just the same as death, I would just transition into another thing. or, I would be low enough resistance to be able to release my consciousness and die because I wanted to. I believe that even if a machine were pumping energy into my body to keep me alive forever, I would be able to consciously make my transition in the form of releasing enough resistance to "die" -- or to transition into something more energetic (something like a transfiguration but more powerful).
+
+what they're talking about though, is the "vis nature" -- which is where something is neither becoming more or less energetic -- and that is *not* something that I want to ever have. I prefer death myself, but I don't mind the idea of living for a very long period of time. I also don't really believe that I would see it as a curse to watch my "loved ones" die, either. I think I may be calculating and stuff too -- and I know that I have a very offensive view of death to a lot of people because I don't find it a problem. I find "preservation" to be a much bigger problem.
+
+death means new. preservation means same.
+
+---
+
+OK, back to where I was... I was talking about how the legend is that lucifer *created* a lot of bad angels -- which fits right in line with my idea that those that have self-sabotaged, created dual versions of theirselves which project down into the astral (angels). so yeah, I do believe that this legion of bad angels and demons were created by those that have self-sabotaged -- starting with jeortau/alalu.
+
+notice also that the three gods that are said to have self-sacrificied (saturn (+-4), osiris (+-6-+), and jeortau (+2)) are all the transiton regions, which created 
+
+[another break]
+
+OK, so this time I noticed another resonance. he's interviewing addienne cowen in the episode I'm listening to (19-04-2020). I was going to talk about this later but I guess I'll do it now.
+
+while I was contemplating these reactions and pulling weeds, the remi's son, luke is washing his car. I was out there thinking about the final really abstract part about this morning's dream (@[dreamlog](2022-06-28 12:12)) where I was talking about how I see girls the way I want to see them instead of the way they think they look. it's a pretty good quality to have, I guess... so then, to throw a wrench into that idea, he heads out in his car and comes back with a really tall girl that I thought was probably some girl from his highschool that he stayed in contact with and he brought her home to take advantage of the house being empty. I hadn't realised yet that it was probably eva (I can't see that far away and even if I could, I don't really know what she looks like anyway) -- and so I just assumed her to be this really magnificently hot girl that luke had picked up and took home.
+
+I then flashed over to my thoughts on the venus and adonis thinking about how venus didn't think she was very hot and my discussion of patricia. I noted how much I really don't like extremely hot girls because I feel a lot of intimidation around them -- but then I thought about it -- because there have been many instances where I've been around hot girls and felt no intimidation at all -- I was just me. I couldn't really figure out what was the difference and why sometimes I really don't feel at all natural around them.
+
+so then in this interview adrienne is talking about how she's going to go do a tour with this band avantasia, and during the experience she's describing how it's totally a dream come true for her but her insecurities are totally going full effect.
+
+so to explain this, I originally started to listen to a different episode from seriah, and I saw her picture and it really attracted me so I went to read the text of the show, but instead of pulling up the show's page, it started to play the show. I decided to leave it, because it felt like my finger was influenced to press in the wrong spot. I start listening to it and I feel really excited to listen to it, but then a minute or so into it, it turns into a strong feeling of insecurity and disinterest.
+
+it started to wane as I kept listening. I didn't really understand what that was all about until that last bit about avantasia because I again felt the same thing again... it's weird how she talks about everything being such a dream-like experience but at the same time totally terrifying.
+
+she's a strong attractor, that's for sure -- and it really reminded me too about the episode this morning when I was thinking about how much I really dislike hot girls because it bothers me all of the expectations. I think there's something to it... breaktime again.
+
+[another break]
+
+so the synchronicities are all very often while I'm listening to this. she says, "we all love gothic architecture" and I have a desire to look at the clock and it says 04:32 -- crazy.
+
+so back to where I was about the venus and her insecurities and how I think that's related to expectations. I think it has to do with the imagination. dreams are experienced in the astral (they're singing about dreams) and so the dreamlike experience is an extension of that. it's the mixture of concept and physical, so it's no wonder that concepts get manifested into a reality like that. I really hope that she can overcome some of her insecurities and stuff and just try to be the way she wants to feel, rather than the way she thinks people want her to be (I purposefully worded that with a "should" for irony).
+
+so another thing in the interview was he was asking about the name for the band, "seven spires" and she said that 7 is like an important number and stuff.. as she's talking about it, I get a "picture" in my head about my 7 layers of perception, and each of the spires are these sorts of levels that you climb up on this -- it's hard to describe -- they looked like floating islands asending up and up into fantasy worlds.
+
+anyway, she's a visual musician like chris is, so I get what she's talking about (resonance with scottie's interview -- I'm not 100% synesthetic because I don't "see" the things, but the image is "there" for me -- and I do see music as colours but also as fantasy or imagination experiences too, especially with chris). really cool.
+
+---
+
+OK, back to where I was. I was explaining how the three (she said 7 is cool but 3 is also cool too) self-sabotaging guys are the 2-4-6, and this is the path that energy passes to get to the astral (6) -- and I'd also like to point out that there is a progression between them too -- jeortau (+2) is just an emitter, so he receives astral (6) and emits relational (2), saturn emits and receivces on the midpoint (4), while osiris (+-6-+) emits and receives on both the relational and the astral. so, what we're looking at is a sort of upgrading -- going from assertion to reception.
+
+OK, now I'm thinking about the reactions to the idea that these guys are all making their own "bad guys" and how I'm sorta saying that I can continue to do the same.
+
+[break time]
+
+man adrienne, it's been a really fun show so far (4h in), and I'm gonna go do something else now. this has been a pretty good ramble, but I know that it seeded a lot of future thoughts.. until next time!
+
+[1]: I realise that's a resonance in the "future" of that reaction, but you'll begin to notice that every one of my days has a sort of "theme" to it now and every single thing that happens has a resonance with something that happens earlier and also later on in the day. resonances span between days too, but they're less noticeable to me, and I think of those more as "trends", as there seems to be a lot that happens while I sleep.
+
