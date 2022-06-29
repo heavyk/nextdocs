@@ -4456,10 +4456,60 @@ so, in that sense, I would imagine that the the process of the death and rebirth
 
 [ironically, the song "dogma - land of utopia" was on for the entire last 35m of that entry. I just noticed the title. kinda funny.]
 
+### 2022-06-29 16:26 - visuals and astral
+
+last night I wrote quite a ramble (@[blahblog](2022-06-29 00:54)), and there are some things that I'd like to respond to. they are seemingly contradictory, but you'll see that they aren't at the end.
+
+when I talk about hot girls and the visual aspect being not important and even kinda annoying to me is because I have a really difficult time with anything visual. it's become increasingly more clear the more I live that I *do not* see things like others see them, and this creates a lot of conflict.
+
+if a guy sees a hot girl, it's often the case that she inspires him (robert sepehr talks about this a lot), and so what is usually the case is that a woman's beauty *motivates* a guy to take an action. I completely reject this.
+
+I just do what I want to do, and often times my desire resonates with other people's desire. for example, last night after working, I was going to program in kotlin, but I really wanted to listen to snake-bros -- so I heard scottie baldwin. I was going to write about the randall related reactions after the shower but it went away really quickly. I then really wanted to listen to seriah... laying there, I wanted to start writing and I noticed that the pigs sounding metal reminded me of the legion of demons, angels and lucifer stuff so I started to write about that. that morphed into a lot of synchronicities and other stuff so I just kept going with it. I had a very enjoyable time.
+
+a few times during the night, I felt "wow, she's hot so I should do ..." and every time I stopped myself because I don't like that kind of motivation. I like to follow my inspiration.
+
+another example of my difficulties with the visual aspect is like I said, I described eva as really tall and very hot high school girl cause that's how she appeared to me. I have no idea if she's really that tall, and I can't describe why she felt like a high schooler to me either -- just that's the sense that I get. I *see* the things that I feel from a person.
+
+another example is later remi came out to talk to me and she had glasses on, and I noticed that she was looking a lot more attractive and vibrant than normal. however, when I brought up the conversation about the weeds, she suddenly lost all of her attractiveness and she looked upset to me. I have no way of knowing what she *actually* looks like, because I don't think her physical form actually transformed in those few seconds, but who knows -- maybe she's a shapeshifter too.
+
+all in all, the visual aspect is very confusing and difficult for me to reason about. when I see a girl that's hot, I can't do anything with that. I can give her a high-five and tell her she looks nice, but that's as far as I go. I tried to figure out a subject in common with remi that doesn't involve sport because I don't really know how to deal with sport either.
+
+I got a lot of ideas listening to scottie because I realised I shouldn't try and bring that out of her -- I find things curious, and I could try to figure out how to work my audience by figuring out their demographics (like I was attempting with remi), OR -- I could just be like the snake-bros and just talk about what I want to talk about, and the people who join me in the party are my audience.
+
+this is what I used to do in spain really, which is why I drank alone so much and all of my "friends" were the people that would listen to me in the bars.
+
+---
+
+in contrary to what I just said above, you'll also notice from yesterday that I exhibit exceptional jeortau (2nd ray) qualities, where I take in astral (physical and conceptual) and I output it again as something relatable (desire and structure). I have a pretty brilliant balance between my desire and logic that I was noticing as a reaction to the part where I said I don't have any "hyper competency"
+
+that process of turning astral into desire and logic/structure is what I've been doing with randall. he talks about the new earth and its furlongs in the form of desire. I recognise this because he conveys the entire presentation, presenting mostly on the astral plane (hence russ' supposition that being around randall is like being around a master or enlightened being -- don't remember the quote) and so because I can't "see" the geology porn he's pumping out, I feel what he's saying and that creates a picture in my mind that I can't "see" yet -- but it's there -- and then after some time of processing its aspects, I can turn it into something I can convey with logic and structure.
+
+this process of turning astral into structure and desire was what chris really liked me for. he would draw pictures and convey feelings and concepts that I could then turn into structure and desire. this usually resulted in another song because he too is a visual musican. same thing with randall, I figured out how to get him to produce the thing that he wanted to make by giving him bad ideas (to inspire him (when you know what you don't want, you know what you do want)) and also good ideas -- some of which he also didn't think were that good, but it didn't matter because he's doing the production, so I stopped telling him me ideas are better than he thought they were.
+
+this process of learning how to turn astral into something relational came in really handy when I got to spain to work on tuenti. when I was just converting imagination into something structured, it worked out really well, but when the imagination got clouded by all of the meetings, it was the end of that. I knew it was over when felix had his imagination for coca-cola, I turned it into structure ando and we (mostly dani) turned it into reality -- I knew that my time was done. like with chris, I'm not going to try and tell him that my idea is better than it is. I found that with chris, the reason why he didn't like my idea is because it was at a different frequency than the one that's in his imagination -- so I got better at "seeing" what he saw -- empathy, essentially.
+
+---
+
+now, it may seem like those two subjects are contradictary, but they're not. I've paid a lot of attention over the years to figure out why sometimes the image gets turned into reality and why it doesn't. it has to do with things feeling "normal".
+
+when what we were creating felt really big (like a dream come true), it never worked out or had serious problems -- but when I knew they/we could do it and it was totally a doable thing then it worked out effortlessly.
+
+you know, yesterday I was talking with remi about this exact subject because I was telling her that I noticed that when I start getting more motivated, I also notice that she's is also more motivated too. I wasn't telling her that to say that I'm influencing her motivation -- but that I see more and more of what I'm paying attention to. I doubt that she had dramatic fluctuations in her behaviour based on my motivation just like I doubt her physical form completely rearranged itself when I started talking about the weeds. the reality is, I just can't trust what I see as anything emperical because I *only* notice what resonates with me. very rarely now do I notice stuff that doesn't resonate with me.
+
+I talked with dad about this around father's day when I told him that my entire world is becoming a complete reflection of the way I conceptualise reality.
+
+I turn your imagination into reality because I don't "see" what you see, and so by not seeing the image, I don't see the implied limitations... scottie said it better in snake-bros #110, but here's a similar quote from off of his website:
+
+    Some of the best lessons I've learned in life have nothing to do with the related experience, but everything to do with the application of the experience into another endeavor. For example, I once knew a junior national champion pool player. I noticed him intensely watching two inexperienced people just having fun shooting a game of pool. When I questioned him later about why he would waste time watching them play, he said that the *people who seemingly know the least about something sometimes come up with the best and most creative solutions, as they know no bounds or rules as to what can be applied.* -Scottie Baldwin
+
+scottie, like josh (in #097), seriah, and adrienne, must all have strong astral capacities :) pay attention to the resonations.
+
 ### who/what/when vs why vs how
 ### corrections and things to do
+keyboard
 alpha-omega-cycle
 conditional-time-straighteners
+not-good-enoughness
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
