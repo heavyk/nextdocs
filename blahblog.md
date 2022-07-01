@@ -4552,9 +4552,36 @@ though, I do still enjoy from time to time a good joint[^1] and really enjoy som
 
 [1]: this was also a big problem for daniel because he liked to just smoke a joint and turn his mind off, so it was really annoying for him to smoke with me because my visual capacity started to turn on and I started making a big deal out of everything. he just wanted to sit around and do some linkedin or something... I found it appalling to waste such a magnificent mental moment in a corporate pissing contest. ah, I see -- probably linkedin fueled his imagination of making more money and doing more cool things... weird.
 
+### 2022-07-01 16:17 - my beauty determines my mood (and some more logistics)
+
+after writing @[dreamlog](2022-07-01 11:38), I fell asleep and had another dream where I was in a supermarket for little girls (or at least stuff like their diapers or something). there was one person pushing a cart where there was two babies in it one was light-skinned and the other dark. I remember thinking, that can only happen if they adopted the children. I thought it was a good idea of adoption. this wasn't the desired response from me and the scene changed again. I don't really remember it all, but mom was in the supermarket high up and I couldn't reach her. also every time that I was supposed to select a little girl, I did this thing where I turned inside out and then things abruptly changed again. obviously, I wasn't giving them the response they wanted. it was weird.
+
+when I woke up, I was going over the dreams again... the part about the skin colour bothered me probably because I would look like a racist or for always noticing the white girls, and they kept getting my attention and stuff so I couldn't really do much. nosebook wants me to constantly be distracted by everything around and not have the capability to go inside of myself, and the white girls are just far more distracting than the dark ones. there's nothing I can do about that. it's probably because in general white people are much more distracted by so much stuff around them, so I'm on their frequency (and I'm white).
+
+I've constantly tried all of my life to get inside of myself, but I constantly have distractions. even right now someone is twitching the bottom of my foot. if I could get less distracted all of the time I will be able to see the ones that are not so distracting, but for now that's how I am.
+
+it became pretty apparent to me that they want to keep the little girls thing going because they can control it. they must know that little girls will basically never happen. logistically speaking, I'd have to spend some amount of time with them -- and really all of that feels very uncomfortable to me. I much prefer to be around adults so I can have intelligible conversations about things that actually matter. with little girls I can't really because they don't really know what they don't want yet.
+
+so then I was thinking about who is actually most likely to find their alignment. I think it would most likely be a girl that's probably past her teens, probably an adult so she's doing things for herself and not reliant on others for her good-feeling. I also imagine she won't be increidbly pretty either, because most girls only know how to feel good when they look good.
+
+I started to think about this a lot more and noticed that, in general, most men seem to associate a girl's ugliness with her temperment. the uglier she is, the more likely she will be to be nasty. I know that's not always true because some of the nastiest ones are the prettiest ones.
+
+I started to think about that, and I think it's the same thing. if she feels pretty, she can feel really good about herself, but if she doesn't feel pretty, she gets an automatic excuse to act "like a bitch" -- and so I noticed that this correlation goes both ways: if I feel terrible, then I'm ugly, and if I'm ugly than I can feel terrible.
+
+I noticed that this concept had the feeling that paul's father paul had when he said something about it being a miracle that he could be with his wife for half a century. I looked into it and I think she was probably somewhat "pija" in a younger age (having money and conditions to rely on), and so when she looked good, she felt pretty good. paul probably complimented her and they did pretty well for a while, but as she got older, she no longer felt herself to be pretty anymore and so therefore had her excuse to feel really bad and ensure others around her feel the same.
+
+---
+
+the next thing I wanted to notice is the opposite end of this spectrum because I was thinking about wang leehom's audience and was considering how when I listened to the song I felt a strong sense of technical capability (like adding in an extra snare or something) was giving the emotion of beauty -- and I think it may be related to this.
+
+asians all tend to look pretty similar and there isn't nearly as wide of a variation between people as there is in the western world, so the concept of "if I'm beautiful, then I can feel good" doesn't work nearly as well, because there are less defining characteristics. it really came to me that technical capacity is actually what is admired and so that becomes the new version of beauty.
+
+you see I would really fall pretty flat in asian culture because I struggle to do anything technical. the asians that I know which are trump and (can't remember her name right now) but type at insane speeds and are good at playing games technically. they think through their moves and can process large amounts of data rapidly -- neither of which I can do. I play mostly based on feeling and often don't know why I'm even doing something -- but after a while I get a full concept of the game and all of its structure. I noticed this difference in personalities between david (dog) and (can't remember her name) too.
+
+ugh, OK. I'm going to end it there. there's more I wanted to say on that, but I can't get it to the front anymore.
+
 ### who/what/when vs why vs how
 ### corrections and things to do
-keyboard
 alpha-omega-cycle
 conditional-time-straighteners
 not-good-enoughness
