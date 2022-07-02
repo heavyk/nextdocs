@@ -443,4 +443,44 @@ this whole thing is also a resonance to the father's day card as well. it's kind
 
 [2]: I don't know how this happened because I was carrying becky's dresses, but one of them she mentioned sarah and the dress she bought for prom or something and I caught the feeling as she said that. I don't know where the feelings come from. anyway, somewhere in there, I felt the same feeling of her mom wanting becky to be different from her, and she was, but there seemed like there was also a "this is what I had to go through so this is why I'm the way I am, and when you go through it, you'll see and be just like I am, even though I want you to be different" -- sorta feeling.
 
+### 2022-07-02 12:12 - the emperor's new groove
+
+two days ago I watched the emperor's new groove and it resonated a lot with me. I absolutely love that movie and have seen it probably about 10-15 earlier on in my childhood.
+
+anyway, last night after writing about pluto in @[metal-lucifer](2022-06-29 00:54), it kinda struck me that the story there may have some resonances. I have decided that I want to make pluto+charon the centre of the new galaxy. simultaneous to this, randall (I'm pretty sure) has identified his location for "the new earth" as pluto.
+
+OK, so in the story kuzco wants to place his waterpark "kuzcotopia" on the hill where pacha is living with his wife and two kids. I assume this resonates because of my plans to make pluto the one side where basically me, the girls that can figure out how to feel the way they want to feel, and probably anyone else who can do the same (hence the waterpark). well, at the end of the story, kuzco decides that the hills don't actually sing and so he'll settle for putting his park on the hill next to it (ie charon).
+
+well, I was never really married to the idea of pluto exactly. that was just the same of the duo in the sky. even when I discussed the idea with jaron a while back, I didn't really have a preference one way or another what one it was going to be, but I did visualise it as going in the direction of being similar to sirius A/B -- where the smaller, denser, higher frequency one (sirius B) would be us.
+
+the whole plan was that opposite us, the other one would be a planet that is very conditionally oriented -- meaning they need large stone structures and magnificent stuff to feel good -- which we'll make possible for them. their whole objective for us will be to constantly be more and more dissatisfied with their conditions, no matter how good they get.
+
+so, if I view the good-condition-lovers as the pacha hill, the symbols checks out. I clearly represent kuzco, but at the same time, I'm also very much kronk, because I'm cheerful to continue to help yzma, who's trying to kill me. yzma is most probably symbolic of the US govt, and or the ones that are trying to constantly manipulate and take over any power that I have. she can't kill me completely because I carry her around on her back and do whatever she commands me to do (mostly, cept for important stuff like killing kuzco).
+
+pacha likes the good conditions of his hill, and the family heritage (preservation of sacred geometry and other ceremony/ritual things passed down through the generations). this for me is the snake-bros -- not any one of them specifically, the enki side of things. I am the opposition to pacha's desire to preserve his good conditions, and so I fit the proud egotistical punk that just wants what he wants and doesn't matter if it interfere's with the "good guys" plans -- so alalu/phoenix.
+
+in the story pacha has to try and make friends with kuzco to preserve his good conditions and family heritage, and they do that through a journey through the jungle (difficult and dangerous -- physical) conditions, and have to save eachother's lives a few times each and work together.
+
+I think that working together stuff is all great, and it reminded me of a video on navy submarines that I saw on smartereverday. cool stuff, but not my kind of thing. give commands and help each other out all you want "grab my hand!" "we can do this!" "dive submarine whatever" -- all really awesome stuff, and it feels good to get stuff done with people's lives on the line, but not my thing. I like effortless.
+
+---
+
+so I don't really think that the story is very symbolic in the sense of actually working together and helping eachother out -- because that's not my thing. I'm waiting until I'm connected -- period, because then everything is effortless. getting transportation and everything won't be that hard, and then I have to setup the thing where the vibration of pluto is linked to charon and they can worry about hooking into our transformed vibration somehow -- which suggests to me that they're going to need to figure out how to work together with the US govt, not me. 
+
+I'm not really against their plan. my plan *includes* heritage and good-condition-lovers. if anything, their kuzco may actually be the US govt more than anything.
+
+---
+
+as for the rest of the planet, I don't really know or care. none of that is really my problem. the snake-bros are the ones that will figure out how to run the show. their dissatisfaction with what's happening on the planet, will -- instead of causing a micronova -- fuel us to create more energy.
+
+once the system is setup, there will be such an abundance of good energy and good conditions on earth and in the whole system, nobody will really notice how dissatisfied they are with everything. if anyone thinks the amount of dissatisfaction projected my direction is a lot, it's going to be much much much more by the time all of this happen, so anyone can come to charon with me, but I don't think anyone without the capability to transform bad-feeling perceptually will have a very miserable time.
+
+in fact, I will postulate that the amount of dissatisfaction will continue to rise very rapidly because populations will continue to grow and fertility rates will continue to increase as well because of the better and better conditions. more people = more energy and it's unlikely that anyone of those people will actually figure out how to transform that energy.
+
+it's also going to create another problem too because as our planet begins to vibrate stronger and stronger with dissatisfaction, it'll basically become impossible for anyone to come and join us on our planet[^1], as our planet will be a veritable hell -- pure hatred and dissatisfaction to be felt anywhere near to the planet. this will constantly get transformed by us, and I think we'll become something like sirius B, but perhaps even higher frequency than that. very inhospitable.
+
+so that's how I take that story... lol.
+
+[1]: not 100% sure about this, because maybe if they were to have some setup that could cancel the signal or something, they could visit, but I doubt it would be a very comfortable place for them to stay.
+
 ### the-tick: both good and bad guys
