@@ -4580,11 +4580,55 @@ you see I would really fall pretty flat in asian culture because I struggle to d
 
 ugh, OK. I'm going to end it there. there's more I wanted to say on that, but I can't get it to the front anymore.
 
+### 2022-07-01 20:13 - a relevant thing to relate
+
+as I was sitting outside, this felt like a revant thing to relate..
+
+when I was in spain, I don't believe that I was actually attracted to andrea (or her to me). if you'll remember right, at that time I had decided to go the "asexual" route. I had collected enough data to realise that I didn't really want to be responsible for how others feel -- or the opposite which is making someone else responsible for how I feel. I wanted to find a way to feel the way I wanted to feel -- and that must have been attractive because according to marcos, andrea got some idea that she wanted to make me her boyfriend or something -- marcos was obviously against the idea. she seemed pretty heart-set on the idea, so eventually I caved in and decided that it was an OK thing to try. it didn't help that felt that abraham was seemingly coveying the message that if I just find a way to feel good, not because I want some manifestation, but because I actually wanted to feel good, then something would manifest.
+
+those two things happening simultaneously (along with a few other "signs") gave me the impression that somehow that was supposed to happen or something. when things started to fall apart, I fought it a bit but really I knew that I shouldn't really make her the reason for why I feel good. instead, I made star-watching my reason for feeling good and did a lot of that instead. obviously, later on I had to stop using star-watching as my reason for feeling good... in general, the whole trajectory of my life has not been one of using conditions, no matter how great they are, as my reason for feeling good.
+
+like, for example today I didn't go out and pick weeds because it was raining, and I noticed that have somehow even made pulling weeds a reason to feel good. I don't really want to do that because if I do, then it'll go away. every single thing that I've figured out how to turn into something I feel good about, goes away. it's just how it works for me, and I think to a large extent (if not all), this is self-sabotage. in my theory of fuzzing-time-pickles, the way that I exploit myself is to constantly affect the way that I'm attracting to remove any and all conditions I can possibly use as a reason to feel good.
+
+as an example of this, I started programming kotlin again, and I started to have too much fun with it. I got done with it and I would feel really good, so then one day I go out to do weeds and the neighbour louis comes over and helps me to pull weeds. in the process, I showed a little bit of the idea that I was working on, and you know how "keep your ideas to yourself until they're fully developed" works which I think nosebook capitalises on a lot with me -- and so since then I haven't felt the motivation to program in kotlin.
+
+basically, I manifested something that will come and remove the condition that I was using to feel good. so now, if I want to get back into programming, I don't want to make it the reason for my feeling good again. I'll just do it and no big deal. you'll notice that the most present concept in my life right now is one of not making something a big deal. everything that's a big deal has to go. it's the same really as using a condition to feel good. if it's not a big deal, it doesn't make me feel really good and so it's not a condition that I can use.
+
+---
+
+so going back to the andrea thing -- I don't really think that it was actual attraction because I wasn't actually capable of feeling the way I wanted to feel. I was attracting her in the negative sense (unwanted-and-wanted-are-same) because the illusion of her was the fastest way for me to start getting some practise to feel the way I wanted to feel without the conditions.
+
+because marcos was constantly fighting her, I believe that is what made her want it more and what actually made it start to manifest. it was his fear, and he fought it because it didn't feel good to him. I explained to him a few times over drinks[^1] that the reason why he was feeling bad is because he was looking at it the wrong way -- not because it was actually bad. I believe the main resistance that he had was over what his friends would think and say about him. the sense that I got is that he thought his friends were going to think that he was using his daughter as a sort of prize (cause he wasn't really paying me anything) to get affinaty off of the ground.
+
+so really, what I'm saying is that it actually worked out perfectly. I wasn't actually looking to find another condition to use to feel good, and he didn't want to be seen whatever way. so the attraction actually was spot on.
+
+---
+
+the other thing that I'd like to say is that I'm not actually all that hard to catch up to. I'm going really really slow right now. anyone who invests any amount of time star-watching (and then releasing resistace so their accelerated life doesn't fall apart) can *easily* catch up to me.
+
+there are so many really great conditions that can be utilised to do it. for example, in LA, when I was star-watching on the side of the mountain there, I couldn't hear the city but I could still feel its energy it was especially powerful and almost effortless. LA is a great place because there is a lot of energy all over the place because of such a dense population that it would go really fast. another really amazing place to star-watch would be would be russ's tower. I've always found the top of hills to be very energetic[^2] and elevated places like rooftops are also better too, and also it sounds like he's kinda out in the middle of nowhere, so litting the mind begin to wander so you can leave your body is a lot easier than doing it next to a road or something.
+
+another thing that I was thinking of is one of those asian super technical guys could *easily* get way better at watching-stars than I ever did in a shorter period of time. it's just focus and then releasing resistance after the energy is faster. in fact one of those buddhist monks could get there waaaaay quicker than with meditation, because watching-stars *is* meditation, so they're already good at that -- then, just add in the releasing of resistance to maintain the state and you're there.
+
+if you want to try it, *releasing resistance is the most important thing* -- even with someone with as bad of technique as me doing it next to loud traffic I can get there, I'm very certain that others can get much better results. if you stagnate and can't get any higher (meditating or star-watching), that means you're not releasing resistance, and so your own resistance is preventing you from going higher.
+
+all I'm saying is, it's not that hard to catch me.
+
+I'd stay away from secret societies though because they'll make you take an oath to keep stuff a secret, and that'll basically keep you distant from me. I'll probably never meet randall or robert grant, for example, because I can't keep a secret -- and I intend on asking lots of questions about subjects they won't be able to talk about -- and that sucks, so don't do it. if everything interesting has to be kept a secret, what on earth would we talk about? maybe the weather (CO2 and stuff?). that's probably taboo also.
+
+I think maybe "real self-sacrifice" is knowing that every condition I use as a reason to feel good, has to go.
+
+[1]: bad idea because every time he forgot it the next morning.
+
+[2]: you can imagine how powerful it would be to watch-stars on the apex of the great pyramid -- forget the kings chamber -- the apex is where all the energy is.
+
+### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
 alpha-omega-cycle
 conditional-time-straighteners
 not-good-enoughness
+star-watching
 ### 54 and eclipse
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
