@@ -4622,6 +4622,48 @@ I think maybe "real self-sacrifice" is knowing that every condition I use as a r
 
 [2]: you can imagine how powerful it would be to watch-stars on the apex of the great pyramid -- forget the kings chamber -- the apex is where all the energy is.
 
+### 2022-07-03 12:22 - preservation
+
+I noticed some reactions to @[string-board](2022-07-02 12:12) where I (probably unfairly) lumped all of those that want to preserve ancient knowledge into the group of the "skake-bros" (ie the "brotherhood of the serpent") -- the group of people which were interested in injecting knowledge into a civilisation to kinda give it a boost (or direct it -- it's unclear).
+
+on one hand, the injection of knowledge looks a lot like a way to control and steer the society, but on the other hand, it does look to me like an adult will do with a kid where they show them "the right way" to do things. I don't know how I feel about injections of knowledge, personally.
+
+however, when it comes to preservation, I've noticed that for me preservation has never been a good thing. for example, my old code for the "observable" and all of that stuff was lost on my mac when that stopped turning on for longer than a second or two. the result is that when I started programming the other day, I decided to go the route of learning kotlin (a decision I very much enjoyed) and also I rewrote the library in the new language. I would say that overall it was quite a beneficial experience for me. I'm even thinking that I may want to rewrite it again because I learned so much about kotlin in the process.
+
+---
+
+the other thing that sparked the thought is that I was listening to conspirinormal #413 where seriah talks about the seth material. much of what he talks about seth saying, I've deduced from my own investigations into what I call the conceptual realm or maybe as plato would say, the "realm of ideas" -- the place where we translate those vibrations as knowing, feeling, emotion, and idea/concepts. it's also the place where dead people are and though you can communicate with ghosts via channeling or visions, this is the same field out of which "you" (who you really are) is operating this meat automaton that you *think* is you.
+
+I've never really looked too much at the death part and I've described my "near death experiences" in other places, but they're nothing like others' NDEs. I appear to bypass the astral plane entirely, and go right to the top of the conceptual plane where there is no time (in the linear fashion that we know it) and "you" are multiple personalities projecting down into the physical. seriah's explanation of what seth talks about with the oversoul and the different parallel incarnations is most similar to what I've experienced -- though for me it's a very non-visual experience.
+
+he's totally right about the personality continuing beyond death, but it does change because you don't need some of the personality traits developed to navigate certain things in life.
+
+another weird thing that he said is that souls incarnate in groups and you purposefully create "enemies" for other people (though I think he means yourself) to experience difficulty so that new can be created -- a view I feel very close to as it's part of the whole self-sabotage idea.
+
+now, earlier last night I was talking to mom about the UFOs stuff and I mentioned that I believe that they're created beings (golems), and they have been used to get knowledge and technologies (and genetics in the case of the longheads) to the ruling elite.
+
+the ruling elite, I believe are the ones that I have called the "fallen-angels" -- and these guys are very interested in preservation. in @[metal-lucifer](2022-06-29 00:54) I talked about how I thought it would be to live forever, just transferring from body to body (the opposite of the "death" experience that I've encountered where I see interesting things and jump back into the physical).
+
+    imagine you did live for a very very long time, just transferring your consciousness from body to body -- I don't think you'd be too concerned about your "loved ones" anymore -- you'd be pretty calculating and self-centred. I also believe you would become exclusively materialistic, because there's no way to think about anything else, either. the "spirit realm" is just a hierarcy of power looking to take control of the resources in planes below them.
+
+    it would be miserable, I agree, but I don't think they would be too concerned with family or friends. my wife is going to die, so just get a new one -- friends go away too, so just get a new ones. so, since everyone is only a transient entity passing through my experience, I optimise my presentation to those temporary passer-bys to ensure that I get the most out of them as they pass through my experience. this means I'm very concerned about what everyone else thinks, and I don't have any real meaningful relations -- everyone is just a temporary thing for me to use.
+
+if I'm going to go from body to body and never die, and because of mounting resistance, things are getting more difficult, I can imagine the desire to try and preserve knowledge and improvements so as to reduce the time it takes to reinvent those things. in fact, from their perspective the more prefab consciousness they could preserve between body transfer, the faster it would be to get back up to speed controlling things again. 
+
+so, for me the whole origin of preservation is in the astral -> physical, astral -> physical incarnation cycle, because they try to keep as far away from the world of ideas as possible, because that's where manifestation is instant (we then see those changes in vibration expand out into events which coalesce into a meaningful timeline which transforms the vibration from one to another).
+
+personally, I prefer the idea of death, and I've come to appreciate doing things over again and finding a new less-resistant way to do the same thing rather than to carry the old knowledge forward. especially now that I've released so much resistance to so many things. knowledge does not seem like something I need to hold on to. I've written a lot of things about electricity and magnetism, but I don't remember any one of those things specifically -- instead, whenever I want to know more about it or new data comes up, I just look at the concept after I've added the new data into the vibration, and I can see more.
+
+I don't know of a way that I can "preserve" that concept, other than, just don't conceptualise my reality in a way which makes it difficult for me to tune into it in the first place.
+
+---
+
+I'm not against preserving anything as I think it's fine -- though it does carry the vibration of the past forward each time it's preserved. I woke up this morning thinking about what it would be like if I were to make a civilisation of people on a planet that I made it very difficult to have any "memory" at all in the physical/visual/sensation sense and so all reality is formed on a foundation of concepts rather than memories. sure the world would be a lot more liquid, as everyone would have their own version of reality, and everything would be as you feel it to be, with preservation, essentially impossible.
+
+it's a tantalising idea for me, and a resonance to that is scottie baldwin's description of what he actually "makes" -- because he said everything he creates vanishes into thin air and is not preserved at all. his only way to preserve something is a "digital asset" (a recording) and that's only as good as your storage system is. it also reminded me of his own definition of himself as well. he said he used to have "eidetic memory" where he could see the image in his minds eye, but now later on in his life his memory has transformed to be held in the form of concepts that have stuck with him over the years rather than visual memories. so what he makes now is nothing ephemeral, but a feeling that's felt in the moment and enjoyed by many then vanishes. I thought that was a pretty good description of communication by concepts and the transition that one makes from a visual to a conceptual memory.
+
+hrmmmm, interesting. I'll leave that there.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
