@@ -110,3 +110,41 @@ the only time I have ever suggested that I wanted to do anything like DC is in t
 so even if the goal of all of the good conditions is to crash and burn really hard, why would I slow myself down by going too soon with a manifestation? it doesn't make sense! like I've said previously, I want to try and extend this out for as long as I possibly can to ensure as much speed as possible. more speed = more crash and burn at the end (obviously).
 
 so, maybe it is a good thing to delay the whole thing by involving myself in more subjects that little girls may not appreciate. I'm sure that nosebook will be able to figure out how to keep the little girls busy. they'll want to figure out how to not rely on me, because when I'm finally ready to go, only those with astral vision will be able to see me. 
+
+### 2022-07-04 11:55 - starting over dream
+
+I woke up this morning with a dream where I don't remember much of it, but I was definitely working with kyle and russ. there was something about allen (their last name) and another thing that I remember is that we were refiguring out color space and stuff. the sense that I had in the dream and once awoken is that we had kinda decided to start over entirely.
+
+the idea is, instead of waiting until a catalcysm forces us to start over, why not throw out the entire "standard model" and start over now; just assume that we know nothing and rediscover everything.
+
+I liked the idea, but it didn't really feel all that good to me, especially once I started to write about it here. so I'll give some background.
+
+---
+
+yesterday I did a bit of a different day in that I listened to conspirinormal with seriah about seth, and a where did the road go episode with tamra lucid and her stories about manly p. hall. finally, another where did the road go show about 5d, magick and death. anyway, between the shows there was a resonance about how manly "freestyles" these lengthy presentations without notes, or how manly told ronnie to only talk about something once he knew it so well he didn't need to use notes.
+
+I'm kinda that way about the world of ideas (the conceptual world). I don't have direct 5d perception at the moment, but I do feel comfortable with my understanding of the world that I'm willing to talk about it without any hesitations.
+
+later on when I wrote down my ideas about @[blahblog](2022-07-03 12:22), I used the example of not feeling like I need to preserve things because I've found that the fundamental concept of how these things work is sorta like part of my personality, and so my ability to tune into that technology is limited by how I conceptualise my reality.
+
+OK, an example of this may be for example, that if I feel that everything is under constant decay, I'll see that all systems are closed systems, and that there's no input and output from another -- unseen -- world. or, for example if I feel I need to keep everything compartmentalised, I'll likely look at all of the parts, but never see the whole. or, if I believe that all consciousness is calculating and trying always to get a power position over its adversaries (the idea behind the "fallen-angels" idea) -- then, I would perceive all interactions in nature as being one of assertion (explosions, impacts, etc) and not of mutual-back-scratching. or, if I see everything as mutual-back-scratching, I may not believe that everything has a resonance structure to it and is therefore *attracting* the things around it that it needs to sustain itself.
+
+in my world the conceptualisation process of the human determines the way that the science is discovered. I believe it was also in #113 or #114 that russ's "snake thoughts" was wondering what mind control is all about -- and then they came to the idea of what if you told something that a steel ball is alien tech and so by getting people to believe that, they discovered new things about the steel ball that they didn't previously know about -- and it was in the framework that the steel ball is alien tech instead of just a steel ball that we all know how a steel ball works (duh), that we discovered new things about the steel ball by believing it's alien tech.
+
+that's kinda what I'm talking about... it's been shown[^1] that our assumptions and expectations of something limit the manifestation of it, and so by opening up the "standard model" and assuming we know nothing allows new facets of the manifestation to appear which were previously held out of manifestation because of our assumptions[^2].
+
+color may be like this as well. I experience color a little bit differently than most, so I may be predisposed to finding new ideas. for example, I heard from joseph brown (I think) that different colors manifest in different directions -- so when the wave is coming toward you it shows green and purple but going away shows red and something else. I can't remember how it went now, but the idea is we may have some of the most basic concepts about the continuous (blackbody) spectrum that our sun emits.
+
+---
+
+almost certainly there will be resistance to the idea, but I do think it's kind of a neat idea to perhaps just assume we know nothing and start over completely. we don't need to use sticks and stones to perform our measurements, just like when I want to rewrite my code, I don't have to reinvint the operating system, a text editor, and compiler before I begin.
+
+I do think it's a worthwhile effort, and I do think that it should all be done in the open and stuff so that all experiments can be repeated.
+
+it's pretty clear that it'll eventually succomb to the same thing that science has now, and we'll need to start over again in the future, because you can imagine that if a person's concept of reality influences the result of the experiment, if someone else repeats the experiment and gets a different result, and everything is open and documented, it'll only illustrate the difference in conceptualisation of reality between the previous experimenter and the future one. it's even possible that it could go the opposite way and some experimenters won't want to have their name pinned to the discovery, for it'll illustrate their conceptualisation of reality. statistically speaking, for groups of experimenters, it'll be pretty easy to tease out who is the most allowing of new discoveries and who is the most presumptuous.
+
+all every interesting ideas. cool dream.
+
+[1]: not sure how much of it, but I think this is what sigils in chaos magic is about, and I've talked extensively on the idea of how your (symbolic, not verbal) "expectation" of an idea limits its manifestation -- so in terms of random, it begins to appear like you're "controlling" the random by expecting a thing out of it, but in reality this is just a limitation of manifestation potential. it's sorta like using doubt to "predict" something, and so then you're using something that was previously counterproductive to your advantage.
+
+[2]: an example of this might be that we don't *actually* know what copper is really capable of, so it's quite possible that we don't really understand the copper chisels and weapons because we're looking at copper with the standard model of assumptions and expectations, when the ancients may have had an entirely different conception of copper, and so therefore, for them it behaved differently.
