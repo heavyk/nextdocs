@@ -148,3 +148,57 @@ all every interesting ideas. cool dream.
 [1]: not sure how much of it, but I think this is what sigils in chaos magic is about, and I've talked extensively on the idea of how your (symbolic, not verbal) "expectation" of an idea limits its manifestation -- so in terms of random, it begins to appear like you're "controlling" the random by expecting a thing out of it, but in reality this is just a limitation of manifestation potential. it's sorta like using doubt to "predict" something, and so then you're using something that was previously counterproductive to your advantage.
 
 [2]: an example of this might be that we don't *actually* know what copper is really capable of, so it's quite possible that we don't really understand the copper chisels and weapons because we're looking at copper with the standard model of assumptions and expectations, when the ancients may have had an entirely different conception of copper, and so therefore, for them it behaved differently.
+
+### 2022-07-04 18:06 - the ancient serpent and an old dream I had
+
+@[youtube](https://www.youtube.com/watch?v=K_x03O1-MHI)
+
+huh, interesting ... I just noticed that the timestamp is the same day that they recorded the show: 06:06 (PM). I'm also reminded of an old (apocalyptic) dream that I had probably around 2004-5 or so (I've mentioned it before). I was drowning in the ocean and I saw that the united states was falling apart. I could see an a fighter jet painting the words "SOS" in the sky. I took this to be a signal that bad things were going to happen. my father rescued me from the water, and I was laying on the sand looking at the "SOS" in the sky, and when I opened my eyes, it was my red LED alarm clock flashing "6:06" (I guess the power had gone out). it was weird.
+
+---
+
+anyway, I wanted to talk about the second half of that episode because he starts to talk about the garden of eden and the serpent in the OT. in the NT he is the last book of the bible, rev 12 where the ancient serpent that *deceived* mankind is once again deceiving and this *deception* is what causes the michael and his angels to cast fire and rocks toward the earth (censer imagery and everything)...
+
+OK, so kyle brought up that the serpent is a symbol for knowledge, and randall brought up that YHVH didn't want their *eyes to be opened*, and so it was their opening of the eyes that was the problem.
+
+OK, so just track with me. in various places around the bible, the serpent is the kundalini rising ... it's the spiraling/rotating energy that rises up the spine and then the whole head gets filled with light. this is when crazy attraction starts to happen very rapidly. that explains the knowledge and the eyes being opened part.
+
+now, once the kundalini has risen, then you become very attractive and reality happens very fast, and so you could imagine that if a whole bunch of people were to have their kundalini to rise up, it would spell disaster really quickly. inotherwords, when the ancient serpent (kundalini) begins to rise again, this is what attracts these projectiles that pierce the earth's atmosphere (comets, etc.).
+
+so the serpent of old is not really any exterior character in particular, but actually a condition. to explain this, randall delves into the word, "deceive" -- and that is to wander, to stray away from, or to go the unorthodox way.
+
+orthodoxy is the "mainstream" or "standard model" of perception, and when people had their kundalini rising up, everyone had their own way of perceiving reality become real to each of them personally. this creates conflict and it's that conflict that causes dissatisfaction.
+
+sure, if everyone were on the same page and believing the same thing, then supposedly all would go well... I disagree.
+
+---
+
+OK, earlier today I had a discussion with jeri about DMT, serotonin, and melatonin. I was explaining to her that serotonin is mostly produced in the gut in response to your emotion (that's what gut feelings are). that serotonin gets then synthesised (I believe) in the pineal gland into DMT and melotonin. so, when you don't feel very good, your body will turn that serotonin into melotonin which will cause you to sleep. the serotonin now converted into melotonin still contains the vibration of the emotion and so when you sleep you stop thinking for a while, so your vibration wanes and you become less resistant. then upon coming back into consciousness, you begin to dream and those dreams are created from the vibration of your previous emotions (serotonin->melotonin), so the symbols, images, and feelings that you experience in the dream come about as the vibrational difference between your now less-resistant state (from sleeping) and the vibration of your melotonin.
+
+the result is the perception of that emotion from a much less resistant state, and so the emotion is perceived very symbolically. obviously those symbols create a new emotion and that's the emotion that you start your day with.
+
+---
+
+OK, so you can probably see that process as happening pretty well in the waking phase of life, but imagine for a moment that your kundalini has risen and your pineal is producing DMT instead of melatonin. well, those symbols are going to start taking shape just like they are in your dream state, but without having lowered resistance -- sorta like a nightmare -- which is just not having released resistance (ie holding on to an emotionally troubling thing) so those symbols trigger some deep emotions in you and they turn into bigger problems.
+
+basically, when the serpent "deceived" everyone, our kundalini's rose, some people experienced amazing things and others a complete nightmare. the catastrophe is the result of the nightmare.
+
+personally, I believe that when that happens, there is an automatic split that happens, because if I'm living a really nice reality and someone else is living a nightmare, they're incompatible, so I wouldn't really worry too much about all of that if you're good at attracting what you want.
+
+---
+
+so now I want to remind you of the deceiver part -- the staying from the orthodox perception of reality. I've contended in various places that the whole goal of nosebook is to ensure that the unauthorised people don't get their kundalini to rise. I'd have to check with randall on this, but it's very likely that the secret societies that teach this stuff have strict guidelines on how to operate (IMO, very limiting) to prevent doing too much damage to yourself and to others. this is probably ensured through a merit system and so only once you've proven your ability not to cause serious problems, then you can have it. whatever it is, it's the "you gatta earn it" vibe. what I'm trying to say here is that their system is setup and designed not to cause a lot of problems -- so they're the "orthodox", and we're the hotshots that are going to start going a different way from the orthodox and attracting a cataclysm[^1].
+
+what my dream this morning was about was the idea of going the wayward (unorthodox) way *without* the kundalini (serpent of old) opening our eyes and "deceiving" us.
+
+---
+
+there are a number of implications to this idea, and the major one that I contend is that we're all going to go for a very long time without our "eyes being opened". personally, I don't really find this to be a problem as I'm totally cool without having all of the visuals. if I never get the "eyes opening" bit, that's totally fine with me. it just means my attraction speed is going to be a lot slower than it would otherwise be. however, given the current acceleration of my attraction, this seems perfectly fine to me.
+
+the other major problem with this is the space problem. what I mean is, "they" (the people running the show) don't want us getting out into space because once we go to mars, then we have all of this stuff there and what if there is archeology that's done there, etc. it's a big problem for them, and they'll likely have to get rid of a lot of the stuff that's present on mars that they may be trying to get rid of[^2]. this doesn't have to be solved now because
+
+[brb]
+
+[1]: yes, of course this is a very generalised view, and I can feel the reactions wondering why these secret societies often cause problems on earth (starting wars, etc. ref: bramley, gods of eden) -- but just for the sake of argument, let's assume that all of them are the same and they're all following the laws which minimise risk of catastrophe -- unlikely to be true, but just go with it.
+
+[2]: who knows what they're doing up there, and I've noticed that the planet is much less red, meaning that their planet probably isn't running the pyramids at full speed anymore, so the red (iron oxide) is going out of the atmosphere. iron is the final stage in the fusion process, and I believe this is why OAHSPE calls earth the "red star" because we had a very red atmosphere because of the high fusion happening in the atmosphere.

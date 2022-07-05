@@ -229,7 +229,7 @@ OK, now I'm thinking about the reactions to the idea that these guys are all mak
 
 [break time]
 
-man adrienne, it's been a really fun show so far (4h in), and I'm gonna go do something else now. this has been a pretty good ramble, but I know that it seeded a lot of future thoughts.. until next time!
+man adrienne, it's been a really fun show so far (4h in), and I'm gonna go do something else now. this has been a pretty good ramble, but I know that it seeded a lot of future thoughts.. until next time! [4:44:54]
 
 [1]: I realise that's a resonance in the "future" of that reaction, but you'll begin to notice that every one of my days has a sort of "theme" to it now and every single thing that happens has a resonance with something that happens earlier and also later on in the day. resonances span between days too, but they're less noticeable to me, and I think of those more as "trends", as there seems to be a lot that happens while I sleep.
 
