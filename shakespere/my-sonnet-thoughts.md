@@ -56,7 +56,7 @@ I was laying down thinking about it and there's this parallel with the sonnets a
 
 vere is writing as the "I am that I am" (ie YHVH). the interesting thing is that the garden of eden has various names for "God" (@[youtube](https://youtu.be/K_x03O1-MHI?t=3196)) and the one that is discouraging adam and eve from eating from the fruit is YHVH.
 
-OK, now in the @[sonnets](sonnet-11), he essentially says that once you reach 40yo, you'll surely die -- just like YHVH said to the woman in the garden, he's also saying, to me?
+OK, now in the @[shakespere/sonnets](sonnet-11), he essentially says that once you reach 40yo, you'll surely die -- just like YHVH said to the woman in the garden, he's also saying, to me?
 
 in the garden of eden, YHVH is saying that if they eat, then their eyes will be opened. eyes are a very common theme in the sonnets (at least the first 17 of them) and the very first one talks about the eyes in the opposite way:
 
