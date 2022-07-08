@@ -4843,6 +4843,28 @@ that's just my ideas there... I forget to talk more directly about dissatisfacti
 
 [1]: yesterday when I talked about the externalisation of the imagination being capable of modifying the chemical properties of something like mainin turning lolix to stone. the reactions to why a "bad guy" had such a capability -- and it seems that stuff was not impossible because ernon was producing food out of thin air with jehova technology. then further reactions about the "perfected 7th ray" -- and the idea here is that I find it possible that mainin is also pretty likely a created entity inserted into that timeline designed to produce certain events. again -- this is the YHVH (5.2) perception where you can create entites and insert them (or yourself) into the timeline. they're all "you" but different aspects of yourself just like the universe is all of us -- and we're all some combinations of aspects of the universe -- because if we weren't, we would no longer reaonate with this universe. in fact, nosebook is probably compose of many created entities of my own self with the express purpose of pushing me to get that that cool stuff.
 
+### 2022-07-08 16:45 - indecision
+
+today I was at walmart and -- well, first of all, it was a good example of being low resistance, because I mirrored the people I interacted with.
+
+I started out the experince when jerrica asked me if I wanted to go and I didn't really feel like it was pulling me strongly (I felt indecision) so I went and asked the random coin flipper if I should go or not. it said no, but jerrica seemed to want me to go so I conceded and went with them to walmart.
+
+she said we were just there to pick up salt and for the calendar we were going to go to the dollar tree. I have the common way of doing things where I know what I want, so I get in there and I get my stuff and I get out. I don't really like to spend a lot of time just hanging out feeling indecision about what I want to buy. I wanted a bag of salt but they just had small containers of it. so I got two, but jerrica thought I should get 4. I didn't think it was necessary but again I conceded (I didn't really want to argue; I just wanted to make the decision and go).
+
+she then starts to "window shop"? -- I don't know how to call it but she was looking at shoes she clearly wasn't going to buy and kept asking if jaron liked them. I think jaron is predisposed to trying "help" her, so he got sucked right into it. I started asking her if she is feeling indecision in the isle because I really didn't want to stand there and look at shoes she's clearly not going to buy. I wanted to just get the calendar and get out.
+
+so when asking jerrica if she's feeling indecision, I said something like indecision is what happens when you feel dissatisfaction (see last night's entry for more examples of "split-energy" and dissatisfaction) and then I wanted to try to get to the bottom of what's dissatisfying (keep in mind that I'm also feeling dissatisfaction because she's trying to get jaron to help her with shoes she's not going to buy). I just want to find a way to lessen the dissatisfaction so that we can buy our stuff and get out.
+
+after saying the part about the dissatisfaction, a women decided to stand up for jerrica by saying that all women feel indecision. I strongly contested this idea saying that there's no way that *all* women are feeling dissatisfaction when they shop. that's completely impossible. nature optimises for diversity, so these sorts of binary statments are never true -- even though it feels that way. "all" and "none" feel true because of LOA, so it would be like a magnet saying that "all" iron is attracted to it -- which is true. she's just telling me that she's a strong attractor and that "all" of the people around her are the way she perceives them to be. inotherwords, "all" women in her reality conform to her conceptualisation of women.
+
+her reality is how she conceptualises it to be.
+
+---
+
+so then I get home and I was thinking about how this whole trip had a foundation on indecision (I started it), and it carried itself all the way through -- which was, itself an extension of last night's discussion on dissatisfaction.
+
+I had a lot of indecison and dissatisfaction going through all of it the whole way, and so I was thinking about how I select to do things based on "random" (like flipping a coin). you know... I'll have to come back to this second concept here about making "random" decisions to avoid dissatisfaction.  
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
