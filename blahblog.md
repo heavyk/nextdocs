@@ -4787,6 +4787,62 @@ the next part is hard to figure out, but it seems like they want to go in the di
 
 [2]: it may not be that awesome for other really imaginative people to have this capacity because everything they imagine would become reality. there's also the problem of others being able to see and physical evidence of everything imagined. it'll require quite a temperance of imagination.
 
+### 2022-07-08 01:51 - imprecise thoughts about externalising my imagination
+
+I just got done watching snake-bros #117 - history of precision, where archer is talking about machines and precision and stuff like that. there's a moment in there where he's describing his 3d printer and the machine at his work with the numbered tool bits, when I had a sudden realisation -- wait, I need context:
+
+in the previous entry I described how I didn't want to go in the direction of the snake-bros right now because I didn't want the kundalini to rise, and for whatever reason I have associated with that direction (well, nearly all directions) that is the path of the girls, and so therefore kundalini eventually, which is what I don't want to do. instead, I said that I wanted to continue on doing going about all of this because I can see that if I continue in this direction, I believe it'll be possible to externalise my imagination making what I imagine appear as real solid matter. essentially I'd have a mental 3d printer -- capable of printing those parts as fast as I can feel their idea (which will be nearly instant). my tool changeover speed will be as fast as I can focus a new feeling.
+
+so I'm listening to archer talk about these precision things and I'm remembering the entry I wrote today about that and I can see the conflict between the two. that's what the first part of this entry is about...
+
+---
+
+first of all, I'm coming at this from an angle where every single thing that I've tried to do to produce anything has been strongly opposed by nosebook. they do not want me programming. they just want me to placate their female audience (they only perceive dissatisfaction -- their own and others), and so they don't want me doing anything related to tech. I'm totally fine with that I program mostly for my own enjoyment, anyway. I'll just encourage and join in on others' endeavours even if I don't pursue any myself.
+
+in addition to no tech, they neither want me using any physical conditions to get a physical advantage (drugs, etc.) -- and I'm totally fine with that. like I wrote in the previous entry, I enjoy controlling my perception completely. it's possible that I could eventually figure out how to prevent even drugs or conditions from modifying my perception, but I'm not quite to that level yet. this is the first major contradiction (we'll explore more soon) because they don't want me using any conditions like drugs or energy devices or anything to improve my consciousness, but historically speaking, sex is the #1 most popular path toward enlightenment -- so, it kinda wonders to me why they would want me engaging in that condition.
+
+between the no tech and no conditions, I'm left with the only possiblity remaining: how I feel and how I perceive things. there's nothing they can do to stop either of those; there's no way to prevent thoughts from producing a feeling and there's no way for them to prevent me from redefining how I look at something so that the feeling response feels good.
+
+I've spent nearly all of my life in front of a computer and involved with tech in some way -- and if it weren't for the effort that nosebook puts on me, I would do tech. it's my default solution provider. I always thought like this -- instead of finding a way to feel good about my unproductive situation, I'll write a timer program or a TODO app or something which I think will make me more productive, all the while not changing the perception that's causing me not to enjoy what I want to do.
+
+I've talked at length about how I believe these ancient civilisations used technology as a solution to their problems yet, the technology masks the underlying dissatisfaction -- which dispite the number of productivity enhancing programs that one could write, it's still doesn't fix the underlying problem. I believe the catastrophes that humans have experienced in the past have been a result of that underlying dissatisfaction growing to monumental porportions (no pun intended).
+
+what seems to be happening is that this whole effort is to make machines that are so fast, they can produce a ridiculous amount of stuff really quickly -- so if you think to yourself what this could look like on a large scale: think of the exponential productivity that we're going through right now and imagine the vision that archer conveyed when talking about his 3d printer and russ with image of millions of minds all contributing to the technology as opposed to a monolithic corporaton (this time, no pun intended) -- and how far we could go now that extremely high levels of precision are available to the average guy, making high-precision mass production of a thing possible to anyone -- with things like kickstarter making it even more accessable.
+
+I think that's the whole point. I have so many good ideas on this, and it'd be pretty cool to get a whole bunch of people in creating technology like this... obviously.
+
+though, like I said, I don't believe it'll solve the dissatisfaction problem though, so that's where I come in. it'll become apparent more and more as time continues on, so I can say that I provide a pretty good stability in the form of my perception. I'm getting so good at noticing improvements all around me, that I totally see humankind doing really great and stuff -- and if I see it, then it's reality (at least for me -- others can make their own reality). so eventually, when I finally go away, that stable perception will go away and you'll create the reality that you feel no matter how much technology is there. sure, it'd be great if humankind could figure out, as I've done, that you don't need technology or conditions to feel good -- just some adjustments to perception -- and if that did happen, it seems like there would be lots and lots of people capable of creating whatever they wanted, and that's cool.
+
+anyway, in @[blahblog](2022-07-04 18:06), I started to explore the idea that I'm actually here to stay for quite a long time, and that it's actually the amun priesthood that has to get off of the planet. in addition, there's a really interesting thing going on with pluto, charon, and the moon. they are 4, 2, 6 (respectively) and have interesting proportions to each other (especially in relation to the earth). so I don't know where they want to relocate me to -- and I estimated that I probably needed to get quite a distance from the sun and pluto is the furthest one out.
+
+however it works out, I may be here for a while and so if I'm here for a while, that means we're going to have a long time to create a lot of cool stuff.
+
+it would honestly be pretty cool to work on that technology, but it seems that I'm forced to go the perception route. when I'm finally externalising my imagination, I do wonder how annoying that would be to find out (for those working on the tech), that I can just create that stuff as fast as I can "imagine" it. or, who knows, maybe I'll never actually ever get that capability until the sun's energy finally makes it all the way out to pluto.I just don't know what they want. I personally don't think they know what they want.
+
+---
+
+this second part is about why in the previous entry I said that they want a cataclysm and they would get a cataclysm if I were to get connected, so why not just let me go and then watch everything go to hell really quickly. it doesn't make any sense, I know; short answer is dissatisfaction.
+
+the long answer is, I'm fairly certain that me getting connected is extremely undesirable -- probably the most undesirable of all. obviously they will push against others getting technology that aren't a member of the cool kids club, so after some really lengthy amount of time I see all of humanity going in two (maybe three) directions: you have the dissatisfied (but very superior) tech guys, and the ones they need to keep away from conditions and tech (as outlined above).
+
+I don't think it'll happen immediately. I think at first (in the pretty near future, actually) it'll be that situation that archer was talking about with so many people creating all sorts of really cool stuff. I think there's going to be a pretty big decentralisation of power as well, kinda forcing the amun priesthood to go further into hiding. though, I don't think that'll stop them though. I've been thinking a lot about this somewhat recently because I actually think that it'll kinda force them to go for the "least bad" policy rather than opposing everything dissatisfying (cause it just makes it bigger).
+
+what I mean is, it seems to me like they'll be steering people always to create the technology that's least threatening to their setup -- which means that lots of cosmetic and meaningless technologies will be created, with effort to keep everything effective to a minimum.
+
+I don't know how far they'll take it, because if they do it to any length like they did for me, I can imagine that anyone wanting to work on tech that actually has an impact will probably just have to take a break from tech for a while until they're good enough to feel the way they want to feel before diving back into it (like me now).
+
+what I mean is, I think the reason why they want to keep me so far away from technology is because I actually have revolutionary ideas. they don't want any of that happening.
+
+---
+
+so you have to wonder then, if I like tech so much, why don't I just concede the fight and go the tech route with everyone else? well, that's because that's what everyone *is* doing. that's been done before (atlantis, romans, etc), but what *hasn't* been done before is the perceptual route.
+
+I find it very likely that everyone who wants to go the perceptual route will get maximum difficulty on it (just like me) enabling all of the cool stuff[^1]. then, after thousands, millions, or billions of people have gone through it and they've increased the difficulty to maximum, I'll make another run through (leapfrogging-time-pickles) and they can finally face their fear of me getting connected.
+
+that's just my ideas there... I forget to talk more directly about dissatisfaction leading to contradicting ("split-energy") efforts.
+
+[1]: yesterday when I talked about the externalisation of the imagination being capable of modifying the chemical properties of something like mainin turning lolix to stone. the reactions to why a "bad guy" had such a capability -- and it seems that stuff was not impossible because ernon was producing food out of thin air with jehova technology. then further reactions about the "perfected 7th ray" -- and the idea here is that I find it possible that mainin is also pretty likely a created entity inserted into that timeline designed to produce certain events. again -- this is the YHVH (5.2) perception where you can create entites and insert them (or yourself) into the timeline. they're all "you" but different aspects of yourself just like the universe is all of us -- and we're all some combinations of aspects of the universe -- because if we weren't, we would no longer reaonate with this universe. in fact, nosebook is probably compose of many created entities of my own self with the express purpose of pushing me to get that that cool stuff.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
