@@ -97,3 +97,19 @@ if that theory of the spin of the astroid is what attracts it to symathetically 
 anyway, what I was meaning is I don't think all oxygen is created the same. when I was in spain, I noticed that the hospital oxygen all felt damp and flat, as if all of its life (vibration) had been sucked out of it. I also noticed quite a change in the oxygen between madrid and colorado, too. then after my first year here, the oxygen in colorado changed again and corresponding with this change, all of the really big and tall clouds that I saw went away and were replaced with those wispy thin (CO2) clouds the airplanes put in the sky, hence the origin of my theory on how those planes turning O2 into CO2 and the result is the trail.
 
 so, in conclusion, I do think it's possible to have an oxygen-rich environment, but I do also think that we're also causing attraction to happen faster in places with more oxygen, so depending on how that oxygen is vibrating is what we're attracting.
+
+### 2022-07-09 19:51 - resistant devices in dreams
+
+a while back, russ talked about he didn't see cell phones, computers or other digital stuff in his dreams. I responded to him here @[letters-to-russ](2022-04-26 00:31) saying that I did have technology in my dreams. as I've continued on listening to snake-bros, seriah and a number of others said that they use technology in their dreams. when seriah revealed that, he said (something like), "kundalini people don't count" where he was seemingly saying that kundalini allows for more technology in dreams to appear. I didn't really have an answer then and the kundalini explanation doesn't seem good enough to me.
+
+as I've been listening to seriah on "last exit for the lost" he seemingly doesn't really have much resistance associated with computers and technology -- and just sorta goes along with the weird access restrictions and other stuff. his computer is backed up (50TB or something like that) -- but for example on the subject of cars and driving he appears to have a lot more resistance (he has stories and a dash cam to record it all, just in case).
+
+I believe now that your mind doesn't conjure resistant things in your dream because they'll wake you up with a nightmare, so it finds other (less resistant) ways to present the idea of your vibration in the dreams.
+
+it'd be interesting to know how many dreams seriah has where he's driving on the freeway, and when he does, do they cause him anxiety and such the same way he relates the stories.
+
+so, the things that can appear in your dreams appear to be the ones that you don't necessarily have much resistance to. this makes my case especially interesting because I often feel like I'm being "programmed" by nosebook to have certain resistant responses, like fear of hights and stuff like that -- so that makes me wonder if really afterall I'm not even resistant to having resistance, because I don't really find their resistant efforts to be causing me any real anxiety deep down. this deep down understanding is what I *really* know, and they're just programming the reaction of the automaton (body). I don't really conceptualise my reality in the way I've been programmed to react to it.
+
+those two levels of understanding are totally different, and that's why those reactions feel bad in the first place -- because I know that's not how I *really* see the same thing.
+
+so really, you can't have resistant things in dreams that you don't understand, or else they'll be nightmares. however, if something resistant shows up in a dream that you do understand, it won't cause resistance in the dream, but it will in real-life.
