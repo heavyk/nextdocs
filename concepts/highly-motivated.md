@@ -15,4 +15,4 @@ the other thing I've noticed about highly-motivated people are motivated by at l
 "if I don't do this, I'm a failure"
 "if I don't do this, I will hate myself"
 
-... and so this image often becomes a sort of delusion or fantasy that begins to take the place of reality. 
+... and so this image often becomes a sort of delusion or fantasy that begins to take the place of reality.

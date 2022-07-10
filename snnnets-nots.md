@@ -3,7 +3,7 @@
 (12L + 2C) * 2P * 5S
 
 consciousness is like unto a spirit
-'  '     '    '  '    ' '  ' '  ' 
+'  '     '    '  '    ' '  ' '  '
 
 waiting to be born
 '  '    '  '  '

@@ -14,7 +14,7 @@ saturn (isis?)
 
 ---
 
-so, if set has chopped osiris up to pieces (planet impacts jupiter), and this produces venus. horus is born 
+so, if set has chopped osiris up to pieces (planet impacts jupiter), and this produces venus. horus is born
 
 ---
 

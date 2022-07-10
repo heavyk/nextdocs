@@ -9,7 +9,7 @@ there is a resonance with the sumerian story of gilgamesh using ishtar's previou
 
 venus doesn't think she's very beautiful -- or at least she thinks that adonis is 3x more beautiful than she is, anyway.
 
-there's also this weird part where venus says that she subdued mars, the god of war and got him to learn "sport and dance, To toy, to wanton, dally, smile, and jest" -- inotherwords, like the prostitute did to enkidu, venus did to mars. 
+there's also this weird part where venus says that she subdued mars, the god of war and got him to learn "sport and dance, To toy, to wanton, dally, smile, and jest" -- inotherwords, like the prostitute did to enkidu, venus did to mars.
 
 ### venus and adonis conversation
 
@@ -64,7 +64,7 @@ so I don't really know how the story is going here, but it feels to me like adon
 
 this conversation is still so weird to me that it feels like code, so I'm going to try and decipher it from the perspective that this story is adonis (young and beautiful saturn) and he has mars inside of him (adonis+mars). next, I'll assume that when he says "you" he'll be referring to kenny+venus.
 
-let's see how it goes... 
+let's see how it goes...
 
     “I have been woo’d as I entreat thee now,
     Even by the stern and direful god of war,
@@ -102,7 +102,7 @@ everruled is the one with the most power (mars), vere swayed him into a differen
 
 it feels to me like there's this weird thing where again he says that his lips are not so fair (white?) but they are red -- and this is emphasised because it's rhymed with head -- and I don't know why he would be telling me to look him in the eyes -- because *my* beauty lies in looking them in the eyes?
 
-the eyes in eyes thing reminded me of nosebook. 
+the eyes in eyes thing reminded me of nosebook.
 
     “Art thou asham’d to kiss? then wink again,
     And I will wink; so shall the day seem night.

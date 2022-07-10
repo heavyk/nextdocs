@@ -666,7 +666,7 @@ extrapolating this idea out a bit, there are some interesting "consequences" to 
 
 2b. each time that someone transfers their consciousness into one of the actors and becomes too attractive of me and is therefore a threat must be separated out (gets the manifestation). each time it'll be better and eventually really good.
 
-3. given enough time I will either find my connection or an unavoidable attraction with a girl will happen. he'll have to bail out eventually right before that happens. in that sense, there will be a "winner" 
+3. given enough time I will either find my connection or an unavoidable attraction with a girl will happen. he'll have to bail out eventually right before that happens. in that sense, there will be a "winner"
 
 finally, let's put the speculation goggles on: I *really* don't know any of this for sure, but I imagine that at the end mr. motor will have a whole world full of actors and also of various boys -- the product of the actors and the girls manifestations. my current understanding of it is that all babies made will be boys (x3s) and so unless something is done, these boys when mating with the actors will just produce more x3 boys. I believe x4 girls will need to be artificially created. I suspect that the easilst way will be to hybridise 48 chromosome apes. until this is done, there will be a very definite male population advantage, essentially making the whole world population be x3 boys. I think this is exazctly the opposite of what hapened to the ancient atlantian gods (but they only produced daughters) and that was the real reason why enlil wanted enki to create a hybrid race which could produce male offspring (unfortunately this reduced their psychic abilities).
 
@@ -758,11 +758,11 @@ sorry for the rambly entry today.. I think some of these concepts will form the 
 
 ### 2021-07-11 06:12 - sick plot twist
 
-these are the subjects for a future discussion I wanted to write but after star-watching, I want to write something different: 
-- the daughters of men 
-- guy in book of enoch which built weapons and makeup 
-- enmendurana 7th pre-deluvian king 
-- why do I tkink the earth fliped over? 
+these are the subjects for a future discussion I wanted to write but after star-watching, I want to write something different:
+- the daughters of men
+- guy in book of enoch which built weapons and makeup
+- enmendurana 7th pre-deluvian king
+- why do I tkink the earth fliped over?
 - crop circles
 
 ---
@@ -1447,7 +1447,7 @@ I this creator god is very interested that we behave as automatons, and I think 
 
 seems there is some disturbance in completing the part that I wanted to write here. in short, it's ineviable, and even though they're trying to make everyone an automaton, controlling everyone with feeling, it's the natural state of being. the only thing is to find a way to change the perception of the environment so that the conditions no longer steer you.
 
-I have more to say. I did really like the "intro" there, and it felt like a lot of lights went on for some people. nice :) 
+I have more to say. I did really like the "intro" there, and it felt like a lot of lights went on for some people. nice :)
 
 [1]: I find it most likely that it's our DNA that tunes into the proper program.
 
@@ -1555,7 +1555,7 @@ also, I noticed that some people thought that my effort is to destroy science or
 
 this is why desire (1) based people are seen as both creative/nurturing (hathor/bastet) and also destructive (sekhmet). when something impedes the creation of whatever is desired, it must find a way to alter its shape to a new form capable of producing the creation. I suppose this is the destructive side of the bull. however, it's easiest to see in attractive women. they demolish anything that stands in the way of what they want. desire is the most raw (and untamed) form of energy. very powerful. this is why venus is pictured as beautiful, creative, and destructive. she gets her creation, at any cost :)
 
-I don't care what other people do, and there are possibly another 100 hotfixes that can be made to quantum relativity to have it continue to "perfectly predict" observations and remain the "best description" of the way the universe works. I don't really mind any way that it goes. I have a massive creation that is attracting me toward itself in the future and there are literally infinite paths to the point of attraction and all of them are valid. we'll just have to see which way is the motor-way. 
+I don't care what other people do, and there are possibly another 100 hotfixes that can be made to quantum relativity to have it continue to "perfectly predict" observations and remain the "best description" of the way the universe works. I don't really mind any way that it goes. I have a massive creation that is attracting me toward itself in the future and there are literally infinite paths to the point of attraction and all of them are valid. we'll just have to see which way is the motor-way.
 
 ### 2021-07-27 07:20 - pluto's revelation
 
@@ -1591,7 +1591,7 @@ likely the opposite would happen here on earth where mr. motor's signal would be
 
 I imagined that things will continue to feel worse and worse for most people here on earth. it will basically force the people that want to feel good to either destroy theirselves, find a new point of attraction, or to find a way to venus. to solve that problem, I think the solution is for earth to move toward venus' orbit and get into an orbit with her.
 
-in fact, this would look exactly like pluto and charon. the people of venus would continually feel better and better conditions on the planet as we (mainly me, I guess) would continue to feel better and better all the time. sure, the conditions of earth would eventually feel like pure dissatisfaction, this doesn't feel to me to be a problem. right now, I feel mr. motor's dissatisfaction all the time and it simply doesn't bother me[^1]. 
+in fact, this would look exactly like pluto and charon. the people of venus would continually feel better and better conditions on the planet as we (mainly me, I guess) would continue to feel better and better all the time. sure, the conditions of earth would eventually feel like pure dissatisfaction, this doesn't feel to me to be a problem. right now, I feel mr. motor's dissatisfaction all the time and it simply doesn't bother me[^1].
 
 the signal of people of earth would get their feeling transferred into the centre modulation point of venus and so the environment would vibrate with the good-feeling  that we experience. this would essentially cancel out the bad-feeling that the people of venus are putting into the env, meaning that things would feel pretty normal. because each planet has a co-dependent relationship with the other, if they produce more bad-feeling, then we have an opportunity to improve it. likewise if we produce too much good-feeling, they have to find ways of becoming even more dissatisfied with their good-feeling env.
 
@@ -1660,7 +1660,7 @@ this whole thing is wrapped in a co-dependent competition. the very origins of t
 
 what keeps happening is I keep finding a way to feel better and so because conditions should match the feeling, I keep attracting better and better conditions to match how I feel. he doesn't want me to have that, which is fine because I can still feel good without the manifestation of the conditions, so I keep going. I have supposed that the going infinite would be something similar to this, but for a very long time. it's basically for this reason that I'm pretty good just staying without conditions or the ability to control them. I really don't mind that I can't control the conditions.
 
-I'm OK with him taking the conditions that would manifest and then repurposing those conditions to try and control the conditions. it seems like all of this to keep me uninvolved -- you know, like anti-collaboration. 
+I'm OK with him taking the conditions that would manifest and then repurposing those conditions to try and control the conditions. it seems like all of this to keep me uninvolved -- you know, like anti-collaboration.
 
 so what I don't get is why I need to be involved in any conditions at all. why can't I just keep doing me? why do I -- I'll come back to this in the future.
 
@@ -1692,7 +1692,7 @@ from my perspective, I want to continue to hold out until the proper interfaces 
 
 I kept getting reactions to whether I would be involving myself with girls, and for now -- no. it's possible in the future, and inevitable once venus is setup, but for now I see no reason to involve myself in that right now. for me, I'm all about not needing the manifestation and feeling the way I want to feel. it's all or nothing I think I would like to wait for that.
 
-I'll come back to this subject again because I just had a flurry of reactions which is way too much to sort out right now. the important thing for now is that this whole planet should start to feel a lot more like mr. motor as we begin to realise a post-scarsity society. people will begin to destroy theirselves with their own dissatisfaction and the rest will find ways to quell that feeling physically. it's all attraction, and what other people are doing doesn't have anything to do with you. it's for this reason, that I think nosebook will try and find ways to placate people and keep them comfortable. things are going to get nuts, and when I can produce things with my mind, they'll really start to get even more nuts. conditions don't cure dissatisfaction. this is, of course, is better than LOA accelerating out of control. 
+I'll come back to this subject again because I just had a flurry of reactions which is way too much to sort out right now. the important thing for now is that this whole planet should start to feel a lot more like mr. motor as we begin to realise a post-scarsity society. people will begin to destroy theirselves with their own dissatisfaction and the rest will find ways to quell that feeling physically. it's all attraction, and what other people are doing doesn't have anything to do with you. it's for this reason, that I think nosebook will try and find ways to placate people and keep them comfortable. things are going to get nuts, and when I can produce things with my mind, they'll really start to get even more nuts. conditions don't cure dissatisfaction. this is, of course, is better than LOA accelerating out of control.
 
 I think it is ultimately a way to keep the good-feeling people here longer. we'll see.
 
@@ -2220,7 +2220,7 @@ I don't exactly the circumstances, so in order to connect the thought, I think I
 
 roughly speaking, these correspond to the emissive and receptive sides of things. think of the difference between the throat (3) and the stomach (5) -- clearly the throat is much more emissive and the stomach is almost always receptive. while you receive emotions, you mostly emit desire (it can also be received, and I usually have felt this from girls and sales types -- this is the aura of attractiveness, sexual energy aura -- orgone, vril, chi). the order is emit desire and feel emotion. this repeeats over and over until you find a way to feel the way you want to feel. the worse you feel, the faster you're trying to go in opposition to that desire (which desire is always to feel a certain way). desire is absence of emotion. in the same way structure, is absence of physicality (quantum theory calls this anti-matter). logic seem related to it but I can't figure it out. this capacity is the sound or throat (emissive) which brings things into being. so the order is you emit sound/vibration and physicality is received. your capability to receive physicality is directly related to your emotional state.
 
-you'll also notice that I have placed the receptive side on the physical (3.5-7) side of things and placed the emissive side on the non-physical (1-3.5) side of things. all physicality, whether emotions or physical matter is received from the source signal (I heard this called the "energy-verse"[^1] -- and I like that name perhaps more than non-phsical). all of the layers are both emissive and receptive. this process of making someone or something else responsible to send you desire or to tell you how physicality will manifest is making someone or something else responsible for creating your reality. you experience your reality it by receiving it, and everything is provided for/created in the energy-verse as fast as you can desire it. 
+you'll also notice that I have placed the receptive side on the physical (3.5-7) side of things and placed the emissive side on the non-physical (1-3.5) side of things. all physicality, whether emotions or physical matter is received from the source signal (I heard this called the "energy-verse"[^1] -- and I like that name perhaps more than non-phsical). all of the layers are both emissive and receptive. this process of making someone or something else responsible to send you desire or to tell you how physicality will manifest is making someone or something else responsible for creating your reality. you experience your reality it by receiving it, and everything is provided for/created in the energy-verse as fast as you can desire it.
 
 the 1 & 7 cases are interesting. for the desire case, there are numererous accounts of muses and such that seem to indicate, and I'll speak from my own experience too -- that the motivating force for men need is often created from the desire (remember epstein's arrousal before making business calls?) received from something desirable -- most significantly, I think little girls contain the highest quantity of this.
 
@@ -2298,7 +2298,7 @@ the basic idea is that the sun is composed of protons and the planets are the el
 
 I believe that the way the sun works is it's trying to constantly attract more and more protons all the time. hydrogen may be a way to think of this. hydrogen is a pretty light element compared to the rocky planets, so it's got to keep attracting more and more. that's the sun's goal. therefore, in order to keep getting more protons, it has to create generators of protons. the process of continued compression of these protons and other processes must mean the sun is producing all sorts of elements -- every element, in fact. these spew out in all directions constantly in the solar wind. I believe also other times it expells this material to create planets. all the planets are her children.
 
-what causes the sun to nova, I think is a buildup of these elements to such an extent that finally the attraction becomes so great. it felt like I was perceiving this sort of thing happen with raquel all the time. I think I incorrectly stated it a few entries ago, but actually what was happening is that I was actually attracting more from her, and then finally when she overcame the barrier to allow it to flow. 
+what causes the sun to nova, I think is a buildup of these elements to such an extent that finally the attraction becomes so great. it felt like I was perceiving this sort of thing happen with raquel all the time. I think I incorrectly stated it a few entries ago, but actually what was happening is that I was actually attracting more from her, and then finally when she overcame the barrier to allow it to flow.
 
 so I guess I perceived it now as the man/earth/electron is attracting the energy much like a tesla coil. the stronger of a field (desire) placed on the primary, the more electrons it has to pull to satisfy that void. the energy comes from the energy-verse, translated into electrons(?) vibrating at a much lower frequency (but probably still pretty chaotic) by the woman/sun/proton. this behaviour is replicated in the operation of the magnifying transmitter in resonance with a tesla coil.
 
@@ -2434,7 +2434,7 @@ this must be the process which produces solar wind as well. imagine a hollow sph
 
 ---
 
-ok, so now I wanted to tie all this in together with how I perceive time but I cannot get there now. it all shows itself so clearly to me when I've got the stars, but now it's foggy again. I'll get it soon. 
+ok, so now I wanted to tie all this in together with how I perceive time but I cannot get there now. it all shows itself so clearly to me when I've got the stars, but now it's foggy again. I'll get it soon.
 
 
 ### 2021-08-15 05:26 - a wave of apathy & the monohero
@@ -2489,7 +2489,7 @@ I dunno man. it's kinda an interesting concept because it combines a bunch of id
 
 ---
 
-it sorta assumes that you are able to constantly improve on your ability to navigate at faster and faster speeds. only things that are in a constant state of improvement can exist in this universe. 
+it sorta assumes that you are able to constantly improve on your ability to navigate at faster and faster speeds. only things that are in a constant state of improvement can exist in this universe.
 
 I think to get there, all I need to do is just keep not needing the manifestation.
 
@@ -2683,7 +2683,7 @@ even if they all suddenly decide to change the way they want to do things, it's 
 
 ---
 
-so, those spiral galaxies do not appear to be what we're going to be creating. the other thing that I noticed was in the last entry I talked about how revelations says that the  144k chosen ones are a bunch of virgin boys not having been defiled by women. this tends to paint the picture that the main choosen ones (prolly not all of them though) are going to tranfer their consciousness into boys' bodies. I would imagine they'll all want to have new fresh bodies. I also imagine that instead of dying, they'll want to continue to transfer their consciousness into newer (and hopefully improved) bodies. I don't know all how they would take this, but if they could continue to transfer their consciousness into new bodies, I don't know how appealing that would be for them. I also doubt it would be all of them, but the picture I have is that they would depend on us not only energetically but also biologically for improved models, as well. 
+so, those spiral galaxies do not appear to be what we're going to be creating. the other thing that I noticed was in the last entry I talked about how revelations says that the  144k chosen ones are a bunch of virgin boys not having been defiled by women. this tends to paint the picture that the main choosen ones (prolly not all of them though) are going to tranfer their consciousness into boys' bodies. I would imagine they'll all want to have new fresh bodies. I also imagine that instead of dying, they'll want to continue to transfer their consciousness into newer (and hopefully improved) bodies. I don't know all how they would take this, but if they could continue to transfer their consciousness into new bodies, I don't know how appealing that would be for them. I also doubt it would be all of them, but the picture I have is that they would depend on us not only energetically but also biologically for improved models, as well.
 
 if a spiral galaxy is a dipole, then this galaxy would be much more of a monopole. in fact, the more I think about it the more I'm beginning to realise that it is sorta like how a mushroom grows. it's hard to for me to express this concept in words, because I don't really see it physically so well.
 

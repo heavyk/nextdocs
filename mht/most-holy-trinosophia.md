@@ -7,9 +7,9 @@ My dear Philochatus, you are about to penetrate into the sanctuary of the sublim
 
 If your friend’s example proves a salutary lesson for you, I shall bless the long years of tribulation which the wicked have made me suffer.
 
-Two stumbling blocks equally dangerous will constantly present themselves to you. One of them would outrage the sacred rights of every individual. It is Misuse of the power which God will have entrusted to you; the other, which would bring ruin upon you, is Indiscretion... Both are born of the same mother, both owe their existence to pride. Human frailty nourishes them; they are blind; their mother leads them. With her aid these two Monsters carry their foul breath even into the hearts of the Lord’s Elect. Woe unto him who misuses the gifts of heaven in order to serve his passions. The Almighty Hand that made the elements subject to him, would break him like a fragile reed. An eternity of torments could hardly expiate his crime. The Infernal Spirits would smile with contempt at the tears of the one whose menacing voice had so often made them tremble in the bosom of their fiery depths. 
+Two stumbling blocks equally dangerous will constantly present themselves to you. One of them would outrage the sacred rights of every individual. It is Misuse of the power which God will have entrusted to you; the other, which would bring ruin upon you, is Indiscretion... Both are born of the same mother, both owe their existence to pride. Human frailty nourishes them; they are blind; their mother leads them. With her aid these two Monsters carry their foul breath even into the hearts of the Lord’s Elect. Woe unto him who misuses the gifts of heaven in order to serve his passions. The Almighty Hand that made the elements subject to him, would break him like a fragile reed. An eternity of torments could hardly expiate his crime. The Infernal Spirits would smile with contempt at the tears of the one whose menacing voice had so often made them tremble in the bosom of their fiery depths.
 
-It is not for you, Philochatus, that I sketch this dreadful picture. The friend of humanity will never become its persecutor ... The precipice, my son, which I fear for you, is Indiscretion, the imperious craving to inspire astonishment and admiration. God leaves to men the task of punishing the imprudent minister who permits the eye of the profane to look into the mysterious sanctuary. Oh Philochatus, may my sorrows be ever present in your mind. I, too, have known happiness, was showered with the blessings of heaven and surrounded by power such as the human mind cannot conceive. Commanding the genii that guide the world, happy in the happiness that I created, I enjoyed within the bosom of an adored family the felicity which the Eternal accords to His beloved children. One moment destroyed everything. I spoke, and it all vanished like a cloud. O my son, follow not in my steps ... Let no vain desire to shine before men bring you, too, to disaster ... Think of me, your friend, writing to you from this dungeon, my body broken by torture! 
+It is not for you, Philochatus, that I sketch this dreadful picture. The friend of humanity will never become its persecutor ... The precipice, my son, which I fear for you, is Indiscretion, the imperious craving to inspire astonishment and admiration. God leaves to men the task of punishing the imprudent minister who permits the eye of the profane to look into the mysterious sanctuary. Oh Philochatus, may my sorrows be ever present in your mind. I, too, have known happiness, was showered with the blessings of heaven and surrounded by power such as the human mind cannot conceive. Commanding the genii that guide the world, happy in the happiness that I created, I enjoyed within the bosom of an adored family the felicity which the Eternal accords to His beloved children. One moment destroyed everything. I spoke, and it all vanished like a cloud. O my son, follow not in my steps ... Let no vain desire to shine before men bring you, too, to disaster ... Think of me, your friend, writing to you from this dungeon, my body broken by torture!
 
 Remember, Philochatus, that the hand which traces these characters bears the marks of the chains which weigh it down. God has punished me, but what have I done to the cruel men that persecute me? What right have they to interrogate the minister of the Eternal? They ask me what are the proofs of my mission. My witnesses are prodigies, and my virtues are my defenders—a clean life, a pure heart. But what am I saying! Have I still the right to complain? I spoke, and the Lord delivered me, deprived of strength and power, to the furies of greedy fanaticism. The arm which once could overthrow an army can today hardly lift the chains that weigh it down.
 
@@ -19,9 +19,9 @@ I know not whether I shall be able to get this document into your hands.
 
 I judge the difficulty I shall have in contriving for it a way out of this place of torture by those I have had in order to write it. Deprived of all help, I myself have composed the agents I needed. The flame of my lamp, some coins, and a few chemical substances overlooked by the scrutinizing eyes of my tormentors have yielded the colours which adorn this fruit of a prisoner’s leisure.
 
-Profit by the instructions of your unhappy friend! They are so clear that danger exists for them to fall into hands other than yours ... Remember only that all of it is to serve you ... an obscure line, an omitted character would prevent your lifting the veil which the hand of the Creator has placed over the Sphinx. 
+Profit by the instructions of your unhappy friend! They are so clear that danger exists for them to fall into hands other than yours ... Remember only that all of it is to serve you ... an obscure line, an omitted character would prevent your lifting the veil which the hand of the Creator has placed over the Sphinx.
 
-Adieu, Philochatus! Do not mourn me. The clemency of the Eternal equals His justice. At the first mysterious assembly you will see your friend again. 
+Adieu, Philochatus! Do not mourn me. The clemency of the Eternal equals His justice. At the first mysterious assembly you will see your friend again.
 
 I salute you in the name of God. Soon I shall give the kiss of peace to my brother.
 
@@ -35,14 +35,14 @@ After having contemplated the picture and the star I was about to pass through t
 
 ### section-3
 
-A STRONG wind arose and I had difficulty in keeping my lamp alight. At last I saw a white marble platform to which I mounted by nine steps. Arrived at the last one I beheld a vast expanse of water. To my right I heard the impetuous tumbling of torrents; to my left a cold rain mixed with masses of hail fell near me. I was contemplating this majestic scene when the star which had guided me to the platform and which was slowly swinging overhead, plunged into the gulf. Believing that I was reading the commands of the Most High, I threw myself into the midst of the waves. An invisible hand seized my lamp and placed it on the crown of my head. I breasted the foamy wave and struggled to reach the side opposite the one which I had left. At last I saw on the horizon a feeble gleam and hastened forward. Perspiration streamed down my face and I exhausted myself in vain efforts. The shore which I could scarcely discern seemed to recede to the degree 1 advanced. My strength was ebbing. I feared not to die, but to die without illumination ... I lost courage, and lifting to the vault my tear-streaming eyes I cried out: 
+A STRONG wind arose and I had difficulty in keeping my lamp alight. At last I saw a white marble platform to which I mounted by nine steps. Arrived at the last one I beheld a vast expanse of water. To my right I heard the impetuous tumbling of torrents; to my left a cold rain mixed with masses of hail fell near me. I was contemplating this majestic scene when the star which had guided me to the platform and which was slowly swinging overhead, plunged into the gulf. Believing that I was reading the commands of the Most High, I threw myself into the midst of the waves. An invisible hand seized my lamp and placed it on the crown of my head. I breasted the foamy wave and struggled to reach the side opposite the one which I had left. At last I saw on the horizon a feeble gleam and hastened forward. Perspiration streamed down my face and I exhausted myself in vain efforts. The shore which I could scarcely discern seemed to recede to the degree 1 advanced. My strength was ebbing. I feared not to die, but to die without illumination ... I lost courage, and lifting to the vault my tear-streaming eyes I cried out:
 
     "Judica judicium meum et redime me, propter eloquium tuum vivifica me." (Judge thou my judgment and redeem me, by thy eloquence make me live.)
 
 I could hardly move my tired limbs and was sinking more and more when near me I saw a boat. A richly dressed man guided it. I noticed that the prow was turned toward the shore which I had left. He drew near. A golden crown shone on his forehead. He said,
 
     "Vade me cum, mecum principium in terris, instruam to in via hac qua gradueris." (Come with me, with me, the foremost in the world; I will show thee the way thou must follow.)
-    
+
 I instantly answered him:
 
     "Bonum est sperare in Domino quam considere in principibus." (It is better to trust in the Lord than to sit among the mighty.)
@@ -55,11 +55,11 @@ IN its place a lake of fire presented itself to my sight. Sulphur and bitumen ro
 
 Arrived at a circular space I contemplated the gorgeous spectacle which by the grace of heaven it was given me to enjoy.
 
-Forty columns of fire ornamented the hall in which I found myself. One side of the columns shone with a white and vivid fire, the other side seemed to be in shadow; a blackish flame covered it. In the center of this place stood an altar in the form of a serpent. A greenish gold embellished its diapered scales in which the surrounding flames were reflected. Its eyes looked like rubies. A silvery inscription was placed near it and a rich sword had been driven into the ground near the serpent, on whose head rested a cup ... I heard the choir of the celestial spirits and a voice said to me: 
+Forty columns of fire ornamented the hall in which I found myself. One side of the columns shone with a white and vivid fire, the other side seemed to be in shadow; a blackish flame covered it. In the center of this place stood an altar in the form of a serpent. A greenish gold embellished its diapered scales in which the surrounding flames were reflected. Its eyes looked like rubies. A silvery inscription was placed near it and a rich sword had been driven into the ground near the serpent, on whose head rested a cup ... I heard the choir of the celestial spirits and a voice said to me:
 
     "The end of thy labours draws near. Take the sword and smite the serpent."
 
-I drew the sword from its sheath and approaching the altar I took the cup with one hand and with the other I struck a terrific blow upon the neck of the serpent. The sword rebounded and the blow re-echoed as if I had struck on a brass bell. No sooner had I obeyed the voice than the altar disappeared and the columns vanished in boundless space. The sound which I had heard when striking the altar repeated itself as if a thousand blows had been struck at the same time. A hand seized me by the hair and lifted me toward the vault which opened to let me through. 
+I drew the sword from its sheath and approaching the altar I took the cup with one hand and with the other I struck a terrific blow upon the neck of the serpent. The sword rebounded and the blow re-echoed as if I had struck on a brass bell. No sooner had I obeyed the voice than the altar disappeared and the columns vanished in boundless space. The sound which I had heard when striking the altar repeated itself as if a thousand blows had been struck at the same time. A hand seized me by the hair and lifted me toward the vault which opened to let me through.
 
 Shadowy phantoms appeared before me -- Hydras, Lamias and serpents surrounded me. The sight of the sword in my hand scattered the foul throng even as the first rays of light dissipate the frail dream-children of the night. After mounting straight upward through the layers that composed the walls of the globe, I saw again the light of day.
 
@@ -134,7 +134,7 @@ Before thou visit this edifice, each of my eight brothers and myself will presen
 the second gave me three cylinders of black stone called
 
 [img]
- 
+
 the third a small piece of rounded crystal called
 
 [img]
@@ -163,9 +163,9 @@ Finally my guide placed in my hand a torch composed, like
 
 [img]
 
-of brilliant particles; however, it was not lighted. "It is for thee," he added, "like those that have preceded it to give it the same virtues." 
+of brilliant particles; however, it was not lighted. "It is for thee," he added, "like those that have preceded it to give it the same virtues."
 
-"Reflect on these gifts" then said the chief sage. "They all lead equally to perfection, but none of them is perfect in itself. It is from their admixture that the divine product must come. Know also that all of them are null if thou employ them not in the order in which thou hast received them. 
+"Reflect on these gifts" then said the chief sage. "They all lead equally to perfection, but none of them is perfect in itself. It is from their admixture that the divine product must come. Know also that all of them are null if thou employ them not in the order in which thou hast received them.
 
 The second, which serves for the use of the first, remains merely crude matter without warmth and without usefulness unless in its turn it is aided by that which comes after it. Guard carefully the gifts thou hast received and set out upon thy journeys after thou hast drunk from the cup of life." Hereupon he handed me in a crystal cup a shining liquor of saffron hue; its taste was delicious and it emitted an exquisite aroma. I was about to hand the cup back to him after moistening my lips in the liquor, when the old man said: "Drink it all; it will be thy only nourishment during thy journeys." I obeyed and felt a divine fire course through all the fibers of my body. I was stronger, braver; even my intellectual powers seemed doubled.
 
@@ -177,7 +177,7 @@ AT the entrance of this gallery stood an oval steel vessel which upon my approac
 
 [img]
 
-After reading the inscriptions I went up to the vessel and washed, first my hands, but finished by plunging in bodily. I stayed there three days, and on coming out of the water I saw that it had lost its transparency. Its sand had become grayish and rust-coloured particles stirred in the fluid. I tried to dry myself with the linen veil but fresh drops of water kept taking the place of those the linen absorbed. I gave up trying to dry myself with the veil and, keeping in the shade, I remained there motionless for six whole days. At the end of this time the source of these waters was exhausted. I found that I was dry and lighter though my strength seemed to be increased. After walking about for a little while I returned to the vessel. The water which had been in it was gone. In its place was a reddish liquid; the sand was gray and metallic. I again bathed in it, being careful however to remain there only a few moments. When stepping out of it I noticed that I had absorbed part of the liquid. This time I did not try to dry myself with the cloth, for the liquor with which I was saturated was so strong and corrosive that it would have instantly destroyed the fabric. I found myself at the other end of the gallery stretched out on a bed of warm sand where I spent seven days. 
+After reading the inscriptions I went up to the vessel and washed, first my hands, but finished by plunging in bodily. I stayed there three days, and on coming out of the water I saw that it had lost its transparency. Its sand had become grayish and rust-coloured particles stirred in the fluid. I tried to dry myself with the linen veil but fresh drops of water kept taking the place of those the linen absorbed. I gave up trying to dry myself with the veil and, keeping in the shade, I remained there motionless for six whole days. At the end of this time the source of these waters was exhausted. I found that I was dry and lighter though my strength seemed to be increased. After walking about for a little while I returned to the vessel. The water which had been in it was gone. In its place was a reddish liquid; the sand was gray and metallic. I again bathed in it, being careful however to remain there only a few moments. When stepping out of it I noticed that I had absorbed part of the liquid. This time I did not try to dry myself with the cloth, for the liquor with which I was saturated was so strong and corrosive that it would have instantly destroyed the fabric. I found myself at the other end of the gallery stretched out on a bed of warm sand where I spent seven days.
 
 After this time I returned to the vessel. The water was as it had first appeared. Once more I plunged into it and after having washed myself carefully, came out. This time I had no difficulty in drying myself. Finally, after having purified myself according to the instructions I had received, I prepared to leave this gallery in which I had spent sixteen days.
 
@@ -212,7 +212,7 @@ the first lake
 the second
 
 [img]
- 
+
 ### section-10
 
 AT some distance from the shore a sumptuous palace raised aloft its alabaster columns; its different parts were joined by porticos of flame colour. The entire edifice was of light and airy architecture. As I approached the portals, I saw that the front was decorated with the figure of a butterfly. The doors stood open ... I entered. The entire palace consisted of a single hall ... surrounded by a triple colonnade, each rank composed of twenty-seven alabaster columns. In the middle of the building stood the figure of a man issuing from a tomb; his hand, holding up a lance, struck the stone which previously confined him. His loins were girt about with a green garment; gold gleamed from its hem. On his breast was a square tablet bearing several letters. Above this figure hung a golden crown and the figure seemed to lift itself into the air in order to seize the crown. Above it was a yellow stone tablet bearing several emblems which I explained by means of the inscription I saw on the tomb and by the one I had seen on the breast of the man.

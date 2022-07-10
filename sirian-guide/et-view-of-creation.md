@@ -32,7 +32,7 @@ legends have stories about osiris being destroyed and isis putting him back toge
 
 there are also legends of saturn getting wrecked by by his son, jupiter. jupiter must be jeortau in this case.
 
-there are two destructions of mankind that are listed. the first one happened because the vehicles were "unsuitable" -- but legend tells us that the vehicles were actually too good. they had too good of eyesight, hearing, etc. so a veil was put over their senses. the 
+there are two destructions of mankind that are listed. the first one happened because the vehicles were "unsuitable" -- but legend tells us that the vehicles were actually too good. they had too good of eyesight, hearing, etc. so a veil was put over their senses. the
 
 this is interesting because jupiter is in a sympathetic relationship with the sun, and let's say for a moment that jupiter is jeortau (+2), which is the opposite polarity of the sun which is (-2) -- I'm fairly certain. it [fits the triads](triads#family-ties-and-a-hidden-5th-ray-triad), and they say it's a 2nd ray system. so they're linked now.
 
@@ -76,7 +76,7 @@ the other thing is that in another place they call planets "collection points" a
 
 > The perfect shape in the Universe is a sphere and thus collection points in the shape of spheres were created. On the physical plane you refer to these as planets. Energy sources were installed which you could correlate with suns; quasars
 
-the emitters in their system of polarities are the *males*, and the females, the receptive (collectors). this contradicts their position on the planet 
+the emitters in their system of polarities are the *males*, and the females, the receptive (collectors). this contradicts their position on the planet
 
 ### the 12 planets
 
@@ -100,7 +100,7 @@ quite frankly, I'm stumped by these 12 planets bit. above, they talk about these
 - saturn (dwal quin, +-4)
 - uranus (anatau, -1)
 - neptune (sanatau, +-3-+)
-- pluto (copy of saturn?, +-4?) 
+- pluto (copy of saturn?, +-4?)
 - nibiru (anatau?, -1)
 - (bonus) charon (copy of jeortau?, +2?)
 

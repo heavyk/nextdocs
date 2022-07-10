@@ -5546,7 +5546,7 @@
     For men diſeaſd,but I my Miſtriſſe thrall,
     Came there for cure and this by that I proue,
     Loues fire heates water,water cooles not loue.
-    
-    
-    
-                                           F I N I S.
+
+
+
+                   F I N I S.

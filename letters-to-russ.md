@@ -51,7 +51,7 @@ for me all of these experiences can easily be explained with that conceptual (ga
 
 so while I can explain the 411 as a manifestation of the conceptual plane of perception, there are numerous details in these stories that suggest something else may be happening.
 
-often times when I enter into these states, the temperature drops very rapidly (see below section) -- and, like I said, I have to be very careful to *not* allow the kundalini to rise or to not leave my body, start levitating, because if I don't I lose consciousness. 
+often times when I enter into these states, the temperature drops very rapidly (see below section) -- and, like I said, I have to be very careful to *not* allow the kundalini to rise or to not leave my body, start levitating, because if I don't I lose consciousness.
 
 what I believe is happening is these people are just very sensetive people, like I am, and what happens is some event allows them to enter into this state. it often times happens to me when I'm left alone, relaxed, and around water. mountains, granite, gold, and shining crystals also have this effect on me. I figure these are all the trigger to them then entering into this state.
 
@@ -238,7 +238,7 @@ I personally don't experience any looming presences or anything like that. somet
 
 I bring that up, because earlier I mentioned kids. if their process of growing up is the process of taking on a more and more material perception of reality, they are in fact taking on resistance, by believing that material things are their source for happiness -- and that is actually what is stopping the ability to perceive this conceptual world. my theory is (it's not really theory for me, as I have tons of experience and practise with it), that all of these "evil" things may be built into our DNA (dunno if that's true or not), so it's possible we have "original sin" in that way, and the original creator god -- or jehovih caused us to be a mix of these fallen angels and perfect creation -- or whatever (that's all equal to me).
 
-what matters is how you *perceive* your reality -- which is what you tune to. in #008, you talked about how the universe is based on information, and I have a whole theory on how these vibrating concepts attract a reality which reflects the concept. 
+what matters is how you *perceive* your reality -- which is what you tune to. in #008, you talked about how the universe is based on information, and I have a whole theory on how these vibrating concepts attract a reality which reflects the concept.
 
 therefore, what I'm saying is that -- on one hand there are various texts which talk of this "force" out there designed to prevent us from ever accessing that part of our mind (I call it devachan-on-earth) -- and, on the other hand, your reality is a reflection of the concepts that *you* are, meaning that none of these forces (if they even exist) can actually harm you, if you do not resonate sympathetically with them.
 

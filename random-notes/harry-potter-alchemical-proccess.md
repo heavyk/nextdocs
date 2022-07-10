@@ -89,7 +89,6 @@ therefore, each iteration, not only is one collecting the most creative elements
 
 
 
-there is 
+there is
 
 ----
-

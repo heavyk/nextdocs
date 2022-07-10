@@ -348,7 +348,7 @@ that sonnet gave me the sense of someting like, "wow, more pyramids, different s
 
 hopefully this comes out right: it almost has the feeling like, "you can create all of the great conditions that you want mr. enki but team enlil thinks you're still going to be dissatisfied and in a hurry."
 
-[1]: if I assume that this self-sabotage thing is a thing and that enlil was the first "bad-guy" character he created to sabotage himself, which is interesting because the isrealites are called actually "enlilites" and YHVH would be another self-sabotage, so likely rai ernon of suern potentially is, as well -- which makes gwauxln the enki symbol. 
+[1]: if I assume that this self-sabotage thing is a thing and that enlil was the first "bad-guy" character he created to sabotage himself, which is interesting because the isrealites are called actually "enlilites" and YHVH would be another self-sabotage, so likely rai ernon of suern potentially is, as well -- which makes gwauxln the enki symbol.
 
 ### 2022-06-01 04:44 - the allalu bird
 
@@ -493,7 +493,7 @@ there's this weird story where innana wants the MEs and so I thought about this 
     My son for himself a magnificent house built, beautifully on a platform it is raised.
 
     To the people that the House surround and serve, great knowledge will Enki give; Now, the knowledge that in the ME's is secreted, with other Anunnaki must be shared!
-    
+
     Embarrassed was Enki; to share with all the divine formulas to Anu he promised.
 
 that's the start of the story. ninharsag has the MEs of how the humans were fashioned, but to make a city (kish) they supposedly need MEs for kingship:
@@ -583,7 +583,7 @@ satu is probably just the dual of osiris/asar. enlil is probably the dual of ala
 
 their consorts seem to be pretty well aligned too...
 
-asar's consort is asta/isis and satu's consort is nebat/nephtys. 
+asar's consort is asta/isis and satu's consort is nebat/nephtys.
 
 dumuzi's consort was inanna and nergal's consort was erishkigal
 

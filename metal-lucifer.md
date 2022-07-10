@@ -193,7 +193,7 @@ death means new. preservation means same.
 
 OK, back to where I was... I was talking about how the legend is that lucifer *created* a lot of bad angels -- which fits right in line with my idea that those that have self-sabotaged, created dual versions of theirselves which project down into the astral (angels). so yeah, I do believe that this legion of bad angels and demons were created by those that have self-sabotaged -- starting with jeortau/alalu.
 
-notice also that the three gods that are said to have self-sacrificied (saturn (+-4), osiris (+-6-+), and jeortau (+2)) are all the transiton regions, which created 
+notice also that the three gods that are said to have self-sacrificied (saturn (+-4), osiris (+-6-+), and jeortau (+2)) are all the transiton regions, which created
 
 [another break]
 
@@ -232,4 +232,3 @@ OK, now I'm thinking about the reactions to the idea that these guys are all mak
 man adrienne, it's been a really fun show so far (4h in), and I'm gonna go do something else now. this has been a pretty good ramble, but I know that it seeded a lot of future thoughts.. until next time! [4:44:54]
 
 [1]: I realise that's a resonance in the "future" of that reaction, but you'll begin to notice that every one of my days has a sort of "theme" to it now and every single thing that happens has a resonance with something that happens earlier and also later on in the day. resonances span between days too, but they're less noticeable to me, and I think of those more as "trends", as there seems to be a lot that happens while I sleep.
-

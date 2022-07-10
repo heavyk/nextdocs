@@ -1,6 +1,6 @@
 ### original universe
 
-original creation process of this universe 
+original creation process of this universe
 
 #### plane structure
 
@@ -63,7 +63,7 @@ they created s/t and tech civs. the tech civs focused their energy into creating
 
 previously, the infected astral entities inhabited bodies that lasted forever, so their numbers kept growing, as they were constantly able to infect a percentage of the other astral entities (which also lived forever). this galaxy had slightly lower vibration entites they thought they could influence. they, came to this galaxy to "rule from above" (top-down influencing -- just like the elders this universe, of which one was the corrupted 7th ray).
 
-on the physical plane, they attempted to influence the physical entities from their (still immortal) astral bodies. the s/t civs were able to see them and weren't influenced by them. the tech civs were not developed enough to actually see them, so the were able to secretly influence the tech civs without being detected. 
+on the physical plane, they attempted to influence the physical entities from their (still immortal) astral bodies. the s/t civs were able to see them and weren't influenced by them. the tech civs were not developed enough to actually see them, so the were able to secretly influence the tech civs without being detected.
 
 the tech civs unfortunately had a lot of agreements in place between them that needed to be eroded, because they knew that war = destruction and they didn't want to destroy each other's stuff, and so the INFECTED ONES tried to influence from the astral, but tradition was too hard to overcome.
 
@@ -81,5 +81,3 @@ the wars started and everyone destroyed everyone until there were only two tech 
 ---
 
 the cosmic policemen pursued the perps into physical by going to the star systems of the s/t civs looking for sufficiently capable bodies that could handle their energy.
-
-

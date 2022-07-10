@@ -1,4 +1,4 @@
-## DTP thoughts 
+## DTP thoughts
 
 random thoughts on "A Dweller on Two Planets, by Phylos the Thibetan (Frederick S. Oliver), [1894]"
 
@@ -179,7 +179,7 @@ so much emphasis on words, deeds, behaviour, and action. "Be ye doers of the wor
 
 ### laws - laws and rebellions
 
-in the chapter I'm reading now (@[dtp/dtp](chapter- 1-16)), ernon is explaining how the 
+in the chapter I'm reading now (@[dtp/dtp](chapter- 1-16)), ernon is explaining how the
 
 ### atonement and karma
 
@@ -590,7 +590,7 @@ he also explains (very verbosely) that one assimilates these concepts into their
 
 > [...] just as my concepts disappeared when I had assimilated their value. They disappeared, because all the deeds of previous earth life had crystallized as traits of character, and they were ready for earth life again.
 
-he ends the book with coded words: 
+he ends the book with coded words:
 
 > I was ready for activity once more. I slept, and in this sleeping died out of that life of passivity into the waking of earth, a babe in a cradle. Born to see my Master in this life, and enter the Great Rest with him!
 

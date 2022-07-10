@@ -3,7 +3,7 @@
 
 > Ea his bride-to-be by Anu's decree abandoned, a princess named Damkina he instead espoused; A son, an heir, to them was born; Marduk they named him, One in a Pure Pace Born it meant.
 
-> Imperishable Star: The Egyptian name for the planet from which Ra had come to Earth 
+> Imperishable Star: The Egyptian name for the planet from which Ra had come to Earth
 
 I don't know where sitchin got this from but the sirians say that ra and venus are made from the same silica stuff. what I don't understand is how enki bore a son with damkina that had a different appearance than he did. I get the feeling that these sons and daughters narratives are sorta like a coverup.
 
@@ -45,7 +45,7 @@ I get the feeling that the shar isn't 3600 *earth* years... I'm starting to get 
 
 > In the midst of the ninety-third Shar was he born, by the end of the one hundred and eighth he died.
 
-he lived ~14.5 shars. if a shar is 64y, he lived 928y. 
+he lived ~14.5 shars. if a shar is 64y, he lived 928y.
 
 ### alalu and the adamu
 

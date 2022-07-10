@@ -70,7 +70,7 @@ ok, enough speculation...
 
 if a planet did smash into jupiter and that is what created venus and causing the asteroid belt, that would have had to have happened some time ago, it couldn't be as recent as 2.5-3.5kya, so let's say that was the ancient destruction of tiamat (not the more recent "exodus").
 
-so here's the deal: the sirian-guide references allayandra and anatau in the same sentence that it says that mars loved venus. this must be referring to the planets. let's try two situations: 
+so here's the deal: the sirian-guide references allayandra and anatau in the same sentence that it says that mars loved venus. this must be referring to the planets. let's try two situations:
 
 if tiamat is original anatau, then she goes into...
 

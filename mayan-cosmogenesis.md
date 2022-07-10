@@ -9,7 +9,7 @@ seven mccaw - big dipper, bird deity
 
 seven mccaw rips off left arm of hero twins, but right arm holds a septre
 
-quetz is associated with venus and the pleiades. 
+quetz is associated with venus and the pleiades.
 
 ---
 

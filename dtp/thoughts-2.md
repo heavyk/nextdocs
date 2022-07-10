@@ -156,7 +156,7 @@ so here's the weird thing: I read the plot synopsis of the "mysterious stranger"
 
         Nothing exists but you.
         And you are a thought--
-        
+
         A vagrant thought,
         A useless thought,
         A homeless thought,
@@ -202,7 +202,7 @@ this chapter sort of un-does everything this book tries to accomplish. if there 
 
 the way the dialogue goes, it's very difficult to perceive the implications of what it's saying, so it took me making the connection through the "mysterious stranger" reference.
 
-additionally, "christless" is nearly the same thing as saying "anti-christ" -- for which the message of this book is given by a 
+additionally, "christless" is nearly the same thing as saying "anti-christ" -- for which the message of this book is given by a
 
 the chapter is very ironic in that sense...
 
@@ -239,7 +239,7 @@ conceptually speaking, let's assume that these are the archetypical hero twins. 
 
 the "christ" in this book is obviously a magician relying on power-displays and things of that nature, so very clearly falls into the hands of ra/thoth. the "christ" in this book identifies himself as the perfected 7th ray. "satan" in the "mysterious stranger" is also the magician 7th ray type.
 
-merton, is obviously the conceptual type, much more like 5th ray vulcan than 7th ray thoth. 
+merton, is obviously the conceptual type, much more like 5th ray vulcan than 7th ray thoth.
 
 so, what I see happening is that there are (at least) two earths, and these physical conceptual types go back and fourth gaining power by self-sacrificing their successes so that the other can do it the opposite way.
 
@@ -479,7 +479,7 @@ the idea is that these sufferings will wipe out the lower/animal nature from his
 
 atonement is obedience to the will of the "Father". the implication here is that walter is a conceptual creation of the original sin of adam -- and that pre-programmed sinful nature to disobey the will of the father is his "animal nature".
 
-when I was reading this, it struck me with the idea maybe walter is a conceptual creation of something and so that's why he has to do the will of the "Father". remember walter and this "ghost" are now one... the ghost is a remnant (shell) of a former conceptual creation. let me explain... 
+when I was reading this, it struck me with the idea maybe walter is a conceptual creation of something and so that's why he has to do the will of the "Father". remember walter and this "ghost" are now one... the ghost is a remnant (shell) of a former conceptual creation. let me explain...
 
 in devachan, there isn't much resistant conditions, so it's very easy for these conceptual creations to do the will of the "Father" and behave in accordance with their concept, but just like a human on earth desiring to realise the conceptual path through the physical he made for himself from devachan/temporal (5.1) perception, upon arriving to earth where the conditions are not so great, the ideal implementation of the concept is not performed.
 
@@ -507,7 +507,7 @@ so, if he wants to:
 
 ... after that:
 - kill the ambition to excel in the poor paths of Fame.
-- cease to regard this life as your best possession. 
+- cease to regard this life as your best possession.
 - work for God as earnestly as others work for Mammon (money)
 - respect thy life as those respect life who treasure it most
 - be happy as those who live for happiness
@@ -619,7 +619,7 @@ personally, I don't see astral; however, I don't have fear of death either. I ju
 
 [TODO: talk about punishment and karma a bit more]
 
-[1]: I don't know if this is kenny speaking, or any new personalities I've acquired since my haemorrhage -- meaning that it's possible that "I" perceived from the (5.1) perspective and kenny's haemorrhage was a manifestation of that. I don't really know anymore; I used to feel two very different personalities, but ever since my left-side was shut off, I really only experience "me" (kenny) now, though I have acquired so much of that other personality through my past interactions[^4], it's hard to say now. for all I know, she could have left my head and moved on somewhere else. my right-side has essentially made a virtual copy of her[^3]. 
+[1]: I don't know if this is kenny speaking, or any new personalities I've acquired since my haemorrhage -- meaning that it's possible that "I" perceived from the (5.1) perspective and kenny's haemorrhage was a manifestation of that. I don't really know anymore; I used to feel two very different personalities, but ever since my left-side was shut off, I really only experience "me" (kenny) now, though I have acquired so much of that other personality through my past interactions[^4], it's hard to say now. for all I know, she could have left my head and moved on somewhere else. my right-side has essentially made a virtual copy of her[^3].
 
 [2]: it just takes what appears to me to be a few seconds/minutes of relaxing and new ideas are already popping up that interest me, and then reality starts forming so quickly that I'm sucked back in with so much excitement and enthusiasm to experience it, I can't possibly imagine waiting around.
 

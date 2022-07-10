@@ -10,7 +10,7 @@ it's the large hadron collider. naw seriously, I got the idea that 1000y are mis
 
 ### 2022-04-06 03:20 - GMT and time offsets
 
-listening to snake-bros ep "#065 - skirptards gonna skirpderp" and russ mentioned that the speed of light used to correspond to the kings chamber in the great pyramid in longitude coords. 
+listening to snake-bros ep "#065 - skirptards gonna skirpderp" and russ mentioned that the speed of light used to correspond to the kings chamber in the great pyramid in longitude coords.
 
 longitude is the vertical offset of the earth in degrees, while the meter is originally 1/1000000 of the distance from the north pole to the south pole.
 

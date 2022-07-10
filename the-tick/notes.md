@@ -22,7 +22,7 @@ s01e05 - the tick saves a dog
 - they go to the municipal pool where he's mixing his ingredients:
   - flour
   - eggs
-  - milk 
+  - milk
   - (no sugar)
 - tick does an epic dive off of the diving board and catches the breadmaster and pat.
 - even though the breadmaster is stopped, *fourth bread incident* cannot be stopped because self-baking bread is already mixed in the at the munincipal pool. it's starting to consume the whole city (ie. all nosebook)
@@ -39,4 +39,3 @@ s01e05 - the tick saves a dog
     - "but, let us not forget the lesson that we can learn from this arthur: that man was not meant to tamper with any of the four basic food groups"
   - I'm assuming the "four basic food groups" are: flour, eggs, milk, and sugar
     - two are from animals (shepherding) and two are from plants (farming)
-

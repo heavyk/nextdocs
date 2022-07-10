@@ -1263,7 +1263,7 @@ END OF BOOK OF JEHOVIH
 
 05/19.3. God ascended the throne, and Ha’jah came up and sat at his right hand; and the light of Jehovih shone upon them so that many newborn, especially of the es’yan spectators, could not look upon them.
 
-05/19.4. God said: One dan has come and gone; this harvest is only thirty million. 
+05/19.4. God said: One dan has come and gone; this harvest is only thirty million.
 
 05/19.5. Ha’jah said: Your son, O Jehovih, has shaped the destiny of a world. Great is his glory.
 
@@ -2037,7 +2037,7 @@ END OF THE FIRST BOOK OF THE FIRST LORDS
 
 07/9.33. Thus again, the kingdoms of God and his Lords were reduced to impotence; the harvests of Brides and Bridegrooms had long since ceased to be.
 
-07/9.34. At the 
+07/9.34. At the
 
 end of the second cycle there were six billion angels in atmospherea, who, for the most part, were in darkness; not knowing who they were, or where they dwelt; neither knowing nor caring whether or not there were other heavens.
 
@@ -2090,7 +2090,7 @@ END OF BOOK OF AH’SHONG, SON OF JEHOVIH
 08/1.20. The Lord answered: Serve your Creator by doing good to others with all your wisdom and strength, and by being true to your own highest light, and all knowledge will come to you.
 
 08/1.21. So the Lord left man to himself for a season; and man so loved the earth and whatever ministered to his ease and flesh desires, that he fell from his high estate. And great darkness came upon the earth. And man cast aside his clothes, went naked, and became carnal[^242] in his desires.
- 
+
  ### CHAPTER 2 Second Lords
 
 08/2.1. The Lord went abroad over the earth, calling: Come to me, O man! Behold your Lord has returned!
@@ -5904,7 +5904,7 @@ END OF THE LORDS’ FIFTH BOOK
 
 20/6.3. Officers and workmen were sent to build a conveyance for Fragapatti, and for the attendants he would take with him. So, the next day, Fragapatti chose thirty thousand companions, making Verethragna speaker, and they departed for their inspection of hada and the earth.
 
-20/6.4. His ship was built without lights or curtains, so they could travel unobserved. First he inspected the plateau of Haraiti, which, prior to this, had never been inhabited; and he found its distance from the earth was equal to ten diameters of the earth; and its east and west and north and south diameters corresponded in size to what the earth would be were it that volume; that is to say, the surface of the plateau was five hundred and twenty‑eight thousand miles in every direction. And in the ratio of the number of mortals on the earth, this plateau would inhabit five hundred and twenty‑eight billion souls. And yet this was not the thousandth part of the number it could sustain, in fact, within and on its surface. 
+20/6.4. His ship was built without lights or curtains, so they could travel unobserved. First he inspected the plateau of Haraiti, which, prior to this, had never been inhabited; and he found its distance from the earth was equal to ten diameters of the earth; and its east and west and north and south diameters corresponded in size to what the earth would be were it that volume; that is to say, the surface of the plateau was five hundred and twenty‑eight thousand miles in every direction. And in the ratio of the number of mortals on the earth, this plateau would inhabit five hundred and twenty‑eight billion souls. And yet this was not the thousandth part of the number it could sustain, in fact, within and on its surface.
 
 20/6.5. Fragapatti said: Such is Haraiti, O Jehovih. And yet there have been, till now, no spirits to come and inhabit it! Who can survey Your works, O Father! Who will fear that he shall reach the limit of Your handiwork!
 
@@ -8907,7 +8907,7 @@ Which descended to the earth and became known by the names, Div, and Diva, and D
 
 22/4.3. To learn which, the loo’is shall take him to thousands of mortals, and he shall make a record of what he has under observation; and when those mortals have offspring born to them, he shall make a record of it; and he shall observe the character of the birth, and the foundation of the child, together with what conditions surrounded the mother of the child. And he shall follow that child till it has grown up, and also married, and begotten a child, or children, and so on to the sixth generation. This is the twenty‑eighth Divan law.
 
-22/4.4. Div decreed: After he has served two hundred years he shall be examined by his Lord, or his Lord’s deputy, and if proficient in prophesying to the sixth generation, he shall be entered as an ashar on a list of four twelves for every moon’s change. But the forty‑eight ashars shall not be ashars to more than one hundred and ninety‑two mortals, unless otherwise specially allotted by the Lord or God in dominion. 
+22/4.4. Div decreed: After he has served two hundred years he shall be examined by his Lord, or his Lord’s deputy, and if proficient in prophesying to the sixth generation, he shall be entered as an ashar on a list of four twelves for every moon’s change. But the forty‑eight ashars shall not be ashars to more than one hundred and ninety‑two mortals, unless otherwise specially allotted by the Lord or God in dominion.
 
 22/4.5. For four generations, of one hundred and thirty‑three years, he shall serve as an ashar. And he shall learn to have dominion over his mortal protégés night and day, not letting them, however, know his presence. To accomplish which, he shall begin with his protégés in their first infancy; remaining with them while they sleep, talking to the spirit of the mortal, teaching and persuading. This was the twenty‑ninth Divan law.
 
@@ -14336,7 +14336,7 @@ END OF BOOK OF WARS AGAINST JEHOVIH
 26/15.29. Then Ahura, seeing the spell was broken, said: Arise, O Anuhasaj. I will sing with you. Behold Ahura, your love, is before you. This is no vision. Come to the arms of your love.
 
 26/15.30. And he raised Anuhasaj up, and he awoke fully, but trembling and weak, and knew understandingly.
- 
+
  ### CHAPTER 16 Lika
 
 26/16.1. In the same time that Anuhasaj was delivered out of hell, so was Anubi, and from the self‑same knot. And he was carried on the same calyos to Hao‑yusta, the same heavenly place. And he was also in chaos, knowing nothing, only screaming: I am not Anubi. I am not the Savior. I am plain Chesota! (his real name).
@@ -25230,7 +25230,7 @@ END OF BOOK OF DISCIPLINE
 
 34/15.5. Therefore it was said: The master saluted on the sign, Day of the Holy Seal, and the lodge answered in the sign, Constitution.
 
-34/15.6. And Jehovih said: Remember this day, and keep it holy, to the 
+34/15.6. And Jehovih said: Remember this day, and keep it holy, to the
 
 end of the world, for this was the beginning of the liberty of man!
 
@@ -25248,7 +25248,7 @@ end of the world, for this was the beginning of the liberty of man!
 
 34/16.5. And Jehovih gave to the members of the lodge to answer in the sign, Three Clappings, signifying, Endless Joy!
 
-34/16.6. And Jehovih said: Remember this day, and keep it holy, to the 
+34/16.6. And Jehovih said: Remember this day, and keep it holy, to the
 
 end of the world. For, without books and without arguments, behold, I have proven to you the continued life of the soul of man!
 
@@ -25262,7 +25262,7 @@ end of the world. For, without books and without arguments, behold, I have prove
 
 34/17.3. And Jehovih gave to the members in the lodge to answer in the sign, Clasped hands, and looking upward, signifying, In Your Praise, Jehovih!
 
-34/17.4. Jehovih said Remember the day of proclamation of freedom, for it is My day, which I bequeath to you as a day of freedom in all righteous jollification, which you shall keep every year, and commemorate, to the 
+34/17.4. Jehovih said Remember the day of proclamation of freedom, for it is My day, which I bequeath to you as a day of freedom in all righteous jollification, which you shall keep every year, and commemorate, to the
 
 end of the world.
 
@@ -25355,7 +25355,7 @@ Holy Veil Day
     And the angels did not disappoint. With great aplomb they caused great crackings, raps and uncanny thumps, startling the people. These and other unusual physical events occurred without any physical cause whatsoever. Because of the great interest aroused, and because the reports of the committees were to be reported at the next night’s show, the extravaganza continued for days. Every night, with people swarming to get in, they packed the place. Newspapers wrote inspired accounts, and the wonder spread quickly around the globe.
     Thus started in earnest, the worldwide phenomenon of Spiritualism. And it flourished for a generation, from 1849 to 1882—this latter date being punctuated by the publication of Oahspe, a fitting jewel, crowning the wave of spiritualism.
     (In learning the history, some spiritualists thought spiritualism’s start rested with the first rappings that were definitely understood as spirit communication by the Fox sisters on March 31, 1848. Newbrough, Oahspe’s editor, thought so too. But these rappings were not the public, widely stirring phenomenon that the Rochester rappings were. On that night of March 31 in the hamlet of Hidesville,[^1342] the Fox girls discovered that there was intelligence behind some rappings that responded to their questions. It turned out to be the spirit of a murdered man. But the great flood of angels implied in verses 2 and 3[^1343] was not evident in this comparatively insignificant, isolated event. For here was only one angel, the spirit of a murdered man, made known to a small number of individuals.
-    In contrast, on November 14, 1849, the angels of Jehovih publicly proved to mortals immortality of the soul. After that there was no turning back; testimony from so many credible witnesses made an indelible mark upon public consciousness; reports widely spread by the media made it insuppressible. Before then, spiritualism would have been considered, if at all, by most as just another fringe oddity. Previous spirit manifestations and communications (including those of Hidesville),[^1344] had stirred up only marginal curiosity. But the November 14, 1849, demonstration launched Spiritualism as a public movement which would quickly span continents. 
+    In contrast, on November 14, 1849, the angels of Jehovih publicly proved to mortals immortality of the soul. After that there was no turning back; testimony from so many credible witnesses made an indelible mark upon public consciousness; reports widely spread by the media made it insuppressible. Before then, spiritualism would have been considered, if at all, by most as just another fringe oddity. Previous spirit manifestations and communications (including those of Hidesville),[^1344] had stirred up only marginal curiosity. But the November 14, 1849, demonstration launched Spiritualism as a public movement which would quickly span continents.
     Jehovih’s work is not confined to small dark corners, but is executed in large measures that affect nations and peoples, influencing and directing the course of future events. Shall we not then, commemorate November 14 as Holy Veil Day?)
     Fallen Sword’s Day
 
@@ -25463,7 +25463,7 @@ From the 1882 Editor:
 
 35/B.3. In ancient times the mouth was seldom closed in the act of speaking, and the words were formed mostly at the posterior of the palate and thorax.
 The letter A in English, had its equivalent in the ancient languages, but nearly the same as the English Au, and not much unlike the caw of a crow. The Chinese Ang is almost the same as the Ong of the Algonquin. U long often has the sound Yu’s, and sometimes of E only.[^1354] U short is the same in all languages, and the same today as it was thousands of years ago.
-By using the root of the tongue instead of the tip, it is much easier to speak the Hebrew and Algonquin; and by allowing the sound to escape with the mouth nearly closed, it is easier to speak [East] Indian and 
+By using the root of the tongue instead of the tip, it is much easier to speak the Hebrew and Algonquin; and by allowing the sound to escape with the mouth nearly closed, it is easier to speak [East] Indian and
 Chinese. For House the Chinese word is Oke, and the equivalent in Hebrew is Ohel (home) [The Hebrew “h” is pronounced “kh” as in a small explosion from the back of the throat.], and L is so slightly sounded that when one hears an unlearned Hebrew say Ohel, it is impossible to distinguish the word from the Chinese Oke. The learned among the Hebrews use the word Bayith instead of Ohel. When we say “The House of Lords” we do not mean the building, but the collective body of noblemen, and in this sense the much‑learned Hebrew scholar is further away from the origin of words than is the unlearned.
 Literal translations are not as true, in fact, as is the spiritual inception. By a residence among the illiterate Chinese, Hebrews and North American Indians (the Algonquin) more truth of the origin and use of primitive language can be learned than in the wisest of the classical books. The letter is arbitrary and unable to give the phonetecy [actual sounds], and after passing two or three languages, is too badly disfigured to be recognized.
 In learning a language we discover that our failures are in persisting in arbitrary pronunciation, which a native never does, though it seems so to himself. Now, we know that the original meaning of a building was a place to live in; in fact, the desire for such a place caused it to be built. The thought of a title, “house” was another and afterthought. [As for example,] The House of David, or of Sussex, or of Argyle, meaning the people of the house, or rank. Our judgment shows us, then, that the Hebrew word Ohel, a home, antedates [came before] Bayith, because a home was invented first.
@@ -31781,7 +31781,7 @@ Jehovih: See Jehovih 04/. One who can hear Jehovih’s voice is Ieue or Iesu. So
 Ji’ay: Semi-light substance in etherea. Less dense than a’ji. [see 35/D.57]
 Judas: From the Persian name Zhoo’da, or Zhoo’das. Betrayer of Zarathustra. [see 21/27.11-14]
 Kingdom: Synonymous with jov, or an organic association with a head. The head on earth is king, in heaven, jovs, or God, or Jove, or Joss.
-Kosmon Era: Kosmon, universal knowledge, corpor and spirit. Universal fellowship in all nations. 
+Kosmon Era: Kosmon, universal knowledge, corpor and spirit. Universal fellowship in all nations.
 Leotonas: Pharaoh’s daughter, Moses’ protector.
 Loo’is: Angels who provide the pre-natal condition for such mortal births as are designed for special work by the Gods or Lords. Synonymous with masters of generations; next in rank to Lords. Their smallest organization is one hundred thousand members. Next rank above ashars. [see e.g., 28/14.2-11]
 Lord: A God of the earth, or a part of the earth; next lower in rank than the God of heaven and earth. The first exalted rank an angel receives in heaven, is asaph; the second is ashar, the third is loo’is, the fourth marshal, the fifth Lord, and the sixth God. Marshals are rather vice-Lords and are not titled [i.e., receive no crown]. The first title is Lord, the second God. God sometimes appoints a Lord to a single city [or district] on earth; sometimes one to a nation. A Lord’s minor dominion is one hundred million angels, and a major several billions. [In kosmon,] Lords must have passed beyond the second resurrection before eligibility.

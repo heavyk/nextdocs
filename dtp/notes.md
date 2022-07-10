@@ -81,7 +81,7 @@ the chapter ends with a comparison to the saldu princesss (lolix) and the americ
 
 the chapter concludes with her renouncing her country for its powerlessness, and saying that because she can't be with the jehova wielding king, she would settle for staying in poseid.
 
-menax rebukes her for being so willing to forsake her country and gods so easily. 
+menax rebukes her for being so willing to forsake her country and gods so easily.
 
 the author then reflects on how she could be so feminine (all the stuff listed above minus lolix section), but hasn't yet fully realised that she too is sympathetic (when she blooms). he also links her feminity to her desire to solicit an emotional reactions (opposite of sympathy), but instead (because of her heartlessness) received the opposite: a rebuke.
 
@@ -235,7 +235,7 @@ finally, the animated body is obviously physical/desire.
 
 I really don't know why he splits it up this way...
 
-[1]: I call it relational because it's how concepts interact/relate to one another, but it could just as well be called their reflection or harmony to each other. each concept reflects back only the parts that resonate -- good or bad. 
+[1]: I call it relational because it's how concepts interact/relate to one another, but it could just as well be called their reflection or harmony to each other. each concept reflects back only the parts that resonate -- good or bad.
 
 ### the closing year
 

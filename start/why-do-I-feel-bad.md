@@ -8,7 +8,7 @@ likewise, perception is the way that one processes those perceived conditions an
 
 #### setup
 
-- let's say I have something that happened in my past which I perceive to be bad, and so therefore I feel bad about it. 
+- let's say I have something that happened in my past which I perceive to be bad, and so therefore I feel bad about it.
 
 - more specifically, let's say that someone let me down or I wasn't able to get something that I wanted.
 

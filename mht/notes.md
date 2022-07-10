@@ -37,7 +37,7 @@ the writer is very concerned about his appearance, saying that the most humiliat
 
 he concludes with a very cryptic message saying that the receiver of the message will lift the veil that the hand of the creator has placed on the *sphinx*!! -- presumably, the one in egypt between the three pyramids...
 
-> Remember only that all of it is to serve you ... an obscure line, an omitted character would prevent your lifting the veil which the hand of the Creator has placed over the Sphinx. 
+> Remember only that all of it is to serve you ... an obscure line, an omitted character would prevent your lifting the veil which the hand of the Creator has placed over the Sphinx.
 
 
 ### section-2 notes
@@ -54,7 +54,7 @@ white | star |  blue
          red
 ```
 
-the black one has a picture of a woman with just back draiperie over her knees and a two silver bands to 
+the black one has a picture of a woman with just back draiperie over her knees and a two silver bands to
 
 he goes first south to the red, but that slams shut. the next to the east (blue), but that makes a sound that he doesn't want to go. he finally goes to the white one. in it, he finds a white robe and clothes himself with it.
 
@@ -147,5 +147,3 @@ for me, this is the being "born again" process. I've done it a few times and exp
 the trick is knowing that it's going to be OK (it always is), and to just relax, cause it's all in my head anyway.
 
 ### section-4 notes
-
-

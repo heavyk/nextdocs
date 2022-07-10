@@ -94,24 +94,24 @@ keep in mind that your "spirit" or "source" (probably what this book is calling 
     04/7.7. Behold, you now have sons and daughters on the earth; by your love to them you have become bound spirits of the lower heaven. Until you redeem them in wisdom and power even to the sixth generation, you shall not rise again and inherit My emancipated heavens.
 
     04/7.8. To which end you shall be co-workers with one another in system and order. In My name you shall become an organic body and known as the heaven of the earth, or lower heaven, which shall travel with the earth.
-    
+
     04/7.9. And I will allot to you a Chief, who is wise in experience in founding heavenly kingdoms; and he shall appoint from among you, officers, messengers, ashars, asaphs, and es’enaurs, and you shall be numbered and apportioned to your labor and places, like in My other lower heavens on other worlds.
-    
+
     04/7.10. He who is Chief shall be called God of this heaven and the earth, which are now bestowed to his making.
-    
+
     04/7.11. And God shall have a Council and throne within his heavenly city; and the place shall be called Hored, because it is the first kingdom of God in this firmament.
-    
+
     04/7.12. And God shall rule on his throne, for it is his; and his Council shall rule with him; in My name they shall have dominion over angels and mortals belonging to the earth.
-    
+
     04/7.13. And God shall appoint Chiefs under him who shall go down and dwell on the earth with mortals; and the labor of these Chiefs shall be with mortals for their resurrection. And these Chiefs shall be called Lords, for they are Gods of land, which is the lowest rank of My commissioned Gods.
-    
+
     04/7.14. And God and his Lords shall have dominion from two hundred years to a thousand or more years; but never more than three thousand years. According to the regions of dan (light) into which I bring the earth, so shall the terms be for the office of My Gods and My Lords.
 
 very interesting revelation that every 3ky a new power structure "God" is given power over earth and the angels.
 
 ### the text is only as good as the translator
 
-this book has a lot less luminosity to it than dtp does, and I think that's because dtp's amanuensis received the book in reverse order, so he didn't really have much preconceived ideas on it to taint the translation. the security mechanism that this book has to allow content to pass through the editing (astral influence) that these channelers experience is to say the same story from two different perspectives. a really good example of this is the creation myth. I talked about the creation of man being a sort of trap for the angels (which later become the "harvest" for the Gods and Lords to measure their success at the end of each 3ky cycle). however in the 
+this book has a lot less luminosity to it than dtp does, and I think that's because dtp's amanuensis received the book in reverse order, so he didn't really have much preconceived ideas on it to taint the translation. the security mechanism that this book has to allow content to pass through the editing (astral influence) that these channelers experience is to say the same story from two different perspectives. a really good example of this is the creation myth. I talked about the creation of man being a sort of trap for the angels (which later become the "harvest" for the Gods and Lords to measure their success at the end of each 3ky cycle). however in the
 
     25/29.4. And God caused mists to rise up from the waters, and spread over the earth, and rain upon it. And he caused trees and herbs to grow up out of the ground; everything that is pleasant for the sight and good for food. Thus out of the ground the Lord God caused man to come forth, being of the earth, of the land of Eden (Spe-a).
 

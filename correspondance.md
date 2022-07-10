@@ -212,7 +212,7 @@ My idea about it is highly speculative. I'm not sure about making a video, so I'
 It's more based on the homophonic value of TO BE being 22. The words are TO BE, OR NOT, TO BE.
 Consider that the TO BE's are equivalent to 22/crucifixes/crosses.
 Now, focus on OR NOT and the two commas.
-We get the round letter 'O' from the Phoenician AYIN, which was drawn that way to represent an eye. 
+We get the round letter 'O' from the Phoenician AYIN, which was drawn that way to represent an eye.
 Commas also resemble the Hebrew character, YODH ( I ). I thought it might be a clue that "EYE" and the letter "I" are homophones.
 If the two O's (AYIN/EYE) in OR NOT are switched with the two commas, or YODH's / I's (O/AYIN/EYE for the letter "I"), the letters OR NOT become IR NIT.
 TO BE OR NOT TO BE would be  22  IR NIT  22.
@@ -255,7 +255,7 @@ in this context, vere is only fighting against his own beliefs of what it is to 
 to understand this, consider the verse about taking up one's cross:
 
 24 Then Jesus told his disciples, “If anyone would come after me, let him deny himself and take up his cross and follow me.
-25 For whoever would save his life will lose it, but whoever loses his life for my sake will find it. 
+25 For whoever would save his life will lose it, but whoever loses his life for my sake will find it.
 
 when one percieves a new system, one usually only perceives the positive aspects of it. these positive aspects often contain all sorts of amazing things that are clearly an upgrade to the present system (in the creator's eyes). however, this will go against the present system's objectives. the system must maintain it's control so it has to find a way to shut down the new creation and end it (cross). the present system kills the new system to try and save its own life. however, that system eventually loses its life.
 

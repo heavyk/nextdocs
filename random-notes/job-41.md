@@ -42,7 +42,7 @@ rev 11-13 are interesting chapters because the two witnesses (which I think are 
 
 just as the lazarus of bethany was 4 days in the grave bhen jesus resurrected him (john 11) these two were 3.5 days in the grave. it looks to me like vere makes a very clear distinction between lazarus the body (he) and lazarus the spirit (hee). this falls into line with the hero twins myth where the mortal one sacrificies and the other one has to come back to save him. one is the spirit and one is the body, but they are the same. this may be one meaning to sonnet 36.
 
-so, going with the hero twins idea, it looks to me like 
+so, going with the hero twins idea, it looks to me like
 
 anyway, a day is 1000 years, so jesus when jesus was resurrecting lazarus (hee), he's bringing back a 4000kya idea that got put into the grave. well, these two are resurrecting an idea from 3500 years prior. this was roughly the time of abraham and moses, hence the sodom and egypt reference. somomon's temple was about 3kya but I still think it applies here.
 

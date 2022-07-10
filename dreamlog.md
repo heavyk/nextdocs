@@ -12,12 +12,7 @@ there was one time that I gave her a tuenti shirt and I asked her if it was too 
 
 so, inotherwords, appearing to me the way I wanted her to appear, gave her the qualities of genxicat, more than unessa. as I mentioned in [the venus and adonis thing](/shakespere/venus-and-adonis.md#a-bit-on-venus) and @[blahblog](2022-06-06 15:48), venus is a very dynamic character, because she's been associated with genxicat (ereshigal) in the form of desire, with sekhmet in the form of destruction and then described by then sirians as very organised...
 
-    The affairs of the THIRD RAY department worked like 
-    silk with her interjection of energy. Her personality was calm and 
-    peaceful and she radiated security. She arrived on earth in a vehicle 
-    like Ra's, consequently she too glowed. Unessa was exquisite of form 
-    and grace as you would expect a THIRD RAY to be. She personified 
-    divine intellect smoothly working amongst form.
+    The affairs of the THIRD RAY department worked like silk with her interjection of energy. Her personality was calm and peaceful and she radiated security. She arrived on earth in a vehicle like Ra's, consequently she too glowed. Unessa was exquisite of form and grace as you would expect a THIRD RAY to be. She personified divine intellect smoothly working amongst form.
 
 notice how they directly mention she facilitates third ray energy ... nosebook is very 3rd ray. I don't know if she's very calm now and radiates security (she could be), but when I knew her, she had a lot of logic and objectives and knew the way toward what she wanted (very 3rd ray), and also got very upset when things didn't go her way, too (also very 3rd ray -- because all 3rd rays have "the right way").
 
@@ -109,7 +104,7 @@ the only time I have ever suggested that I wanted to do anything like DC is in t
 
 so even if the goal of all of the good conditions is to crash and burn really hard, why would I slow myself down by going too soon with a manifestation? it doesn't make sense! like I've said previously, I want to try and extend this out for as long as I possibly can to ensure as much speed as possible. more speed = more crash and burn at the end (obviously).
 
-so, maybe it is a good thing to delay the whole thing by involving myself in more subjects that little girls may not appreciate. I'm sure that nosebook will be able to figure out how to keep the little girls busy. they'll want to figure out how to not rely on me, because when I'm finally ready to go, only those with astral vision will be able to see me. 
+so, maybe it is a good thing to delay the whole thing by involving myself in more subjects that little girls may not appreciate. I'm sure that nosebook will be able to figure out how to keep the little girls busy. they'll want to figure out how to not rely on me, because when I'm finally ready to go, only those with astral vision will be able to see me.
 
 ### 2022-07-04 11:55 - starting over dream
 

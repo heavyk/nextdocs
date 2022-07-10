@@ -7,11 +7,11 @@ I will also make the assumption that he's writing to me (kenny) personally in th
 
 the general sense that I get is that Time really wants me to have children, but I simply refuse to do so, and so the pleading continues on for a while, but it's to no avail because all of his desire is rooted in deterioration and decay. in various sonnets he talks about renewing my outward appearance with beautfiful maidens and all sorts of stuff like that, urging me to establish an earthly house (bloodline).
 
-somethings apparently go wrong, which is told in the 16th when he says, 
+somethings apparently go wrong, which is told in the 16th when he says,
 
     Neither in inward worth nor outward faire
     Can make you liue your ſelfe in eies of men
-    
+
 and so it seems that I choose inner beauty rather than outward beauty, and this prevents the eyes of men to see me. the only way this is possible is if I do what I'm presently in the process of doing, which is going straight to 5d. 5d means I project downward into astral, meaning (probably, not 100% sure) that earthly/physical eyes won't be able to see me, just like most people can't see UFOs. only those with astral will be able to see me.
 
 there's another thing that seems to imply that I have to leave or go another place (sonnet 9):

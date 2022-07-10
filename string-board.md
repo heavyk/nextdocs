@@ -465,7 +465,7 @@ I think that working together stuff is all great, and it reminded me of a video 
 
 ---
 
-so I don't really think that the story is very symbolic in the sense of actually working together and helping eachother out -- because that's not my thing. I'm waiting until I'm connected -- period, because then everything is effortless. getting transportation and everything won't be that hard, and then I have to setup the thing where the vibration of pluto is linked to charon and they can worry about hooking into our transformed vibration somehow -- which suggests to me that they're going to need to figure out how to work together with the US govt, not me. 
+so I don't really think that the story is very symbolic in the sense of actually working together and helping eachother out -- because that's not my thing. I'm waiting until I'm connected -- period, because then everything is effortless. getting transportation and everything won't be that hard, and then I have to setup the thing where the vibration of pluto is linked to charon and they can worry about hooking into our transformed vibration somehow -- which suggests to me that they're going to need to figure out how to work together with the US govt, not me.
 
 I'm not really against their plan. my plan *includes* heritage and good-condition-lovers. if anything, their kuzco may actually be the US govt more than anything.
 

@@ -93,7 +93,7 @@ physical     concept
 ### FIRST RAY life wave
 
 > The SECOND COSMIC RAY is the quality of love and wisdom. You will notice that these two concepts are indeed difficult to concisely and accurately define. There is no one word or succinct phrase to readily convey to anyone else what one thinks love or wisdom means. That is because Love and Wisdom are qualities of Consciousness and therefore, their meaning will vary according to the state of conscious evolution.
-  
+
 > Because of this, the THIRD RAY, or mentation, is developed within substance and evolving life waves first. This is so that the consciousness will have a mind to use in developing love. The correct blending of manas and love results in wisdom. Both of these are required before there can safely be a FIRST RAY life wave. Power cannot be safely given to corruptible entities.
 
 
@@ -151,7 +151,7 @@ as you can see, a second ray loves to be radiated upon by females, but having al
 
 the other conflict is one of perspective. as I've been listening to the "book of the damned", I've been coming into perspective of this conflict myself. the book does a great job at attempting to categorise and fit all of the things into place, yet fails miserably at relating the things together. the author laments this himself in an ongoing discussion on the "positivist" and the "intermediatist" -- the concept being that all things are a sort of gradiant -- like a rainbow, and we do our best to say, well those wavelengths are red, these are blue ones, and these are green -- and that works pretty well when you have just a pure colour tone. if any mixing happens, it starts to get really difficult to say: does the signal need to just vibrate x times a second to be in the red colour spectrum, or what if the wave quality is one way versus another -- not all sounds are a perfect sine wave tone. so to listen to a sound and say, "ah, that's a 120Hz sound, of course" is totally missing the point. an infinitude of things can be represented in 120Hz...
 
-so then we say, OK, if the sound has a loud cracking sound to it, then we'll call that a snare drum -- but now we've lost the identified "colour" (frequency spectrum) of the sound and are now describing its quality. 
+so then we say, OK, if the sound has a loud cracking sound to it, then we'll call that a snare drum -- but now we've lost the identified "colour" (frequency spectrum) of the sound and are now describing its quality.
 
 basically, it's next to impossible to put a definite category on something in either time (frequency) or space (waveform). perceiving its qualities in both time & space together, definite points can be placed on the map, but then now it's just another data point.. a bunch of them are in the same general position, but how do they *relate* to eachother?
 

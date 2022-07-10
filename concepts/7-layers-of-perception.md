@@ -23,12 +23,12 @@ vvvvvvvvvvvvvvvv
 ^^^^^^^^^^^^^^^^  |     |  |     |
 |  imagination |  |     |  |     v
 +==============+  |  +  +  |  +  +
-|  imagination |  |  ^     |  |   
-^^^^^^^^^^^^^^^^  |  |     |  |   
-|              |  |  |     |  |   
-|   physical   |  |  |     |  |   
-|              |  |  |     v  v   
-+--------------+  +  +     +  +   
+|  imagination |  |  ^     |  |
+^^^^^^^^^^^^^^^^  |  |     |  |
+|              |  |  |     |  |
+|   physical   |  |  |     |  |
+|              |  |  |     v  v
++--------------+  +  +     +  +
                  [1][2][3][4][5][6]
 
  [l]: more significant, more vibrant, higher frequency, more movement

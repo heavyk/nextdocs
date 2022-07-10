@@ -18,8 +18,8 @@ however, later on there is a triad of generations. I believe that bruno, mirabel
 
 ```
        augustin
-       julieta (healer) 
-abuela /    
+       julieta (healer)
+abuela /
   +   ---- bruno (time)
 pedro  \
         pepa (tormenta)
@@ -36,7 +36,7 @@ julieta (youthful, love's child) & augustin (great/magnificent):
 - mirabel (male & female name meaning wondrous beauty)
 ```
 
-in the very beginning it's revealed that the family madrigal is a *constellation* of brightly shining stars. except for bruno (brown dwarf??), the entire family is females that acquires normal men to produce more gifted children. mirabel sings about how she wants to shine (have brightness) like the rest of them 
+in the very beginning it's revealed that the family madrigal is a *constellation* of brightly shining stars. except for bruno (brown dwarf??), the entire family is females that acquires normal men to produce more gifted children. mirabel sings about how she wants to shine (have brightness) like the rest of them
 
 - bruno's vision causes disruption in beliefs (doubts).
 - when mirabel saw the cracks, luisa became weak
@@ -295,7 +295,7 @@ yesterday, I wrote [a bunch of crazy ideas down](/random-notes/1024y-offset) and
 
 almost certainly this really did a lot to strengthen their fears of me interacting with someone with security clearance... I say that because I woke up this afternoon thinking about how I think that whole vision sequence is a really great idea, but I think I'd rather just go for ultimate disaster. let me see if I can explain it.
 
-to understand this next part, I have to involve the conversation I had this morning with mom and jaron about my thoughts on genetic engineering, hybridisation, and the "origin of species"... I'll reexplain the idea and reiterate parts that had reactions to it. 
+to understand this next part, I have to involve the conversation I had this morning with mom and jaron about my thoughts on genetic engineering, hybridisation, and the "origin of species"... I'll reexplain the idea and reiterate parts that had reactions to it.
 
 ---
 
@@ -1016,13 +1016,13 @@ in the sirian guide, it says of osiris',
 
 > He is the great example and motivator in action of the people. His vehicle had evolved from a canine like race. His color is red and white
 
-the motivator in action fits the description, but in all pictures of anubis, he's clearly black, not red and white. additionally, osiris is often shown with green skin (and the white bowling-pin hat rather than the red one). however, red and white is the combination of upper and lower egypt, so that's probably what it means there. 
+the motivator in action fits the description, but in all pictures of anubis, he's clearly black, not red and white. additionally, osiris is often shown with green skin (and the white bowling-pin hat rather than the red one). however, red and white is the combination of upper and lower egypt, so that's probably what it means there.
 
 I don't really see anything else fitting into the description of osiris other than just the loose reference to the canine format. that's not what I wanted to talk about though.
 
 ---
 
-one more piece: the sirian-guide says in various places that all four of the triads were present on earth at the same time, however the 1st ray was withdrawn first (50kya, the same time as the trojan horse), and then genxicat was withdrawn near to the end of atlantis[^1] when grosser material was starting to take on form. it's unclear to me how all of it fits together because in another place, DK (850201) talks about these ray cycles being 2100y long, going 1 -> 7, then starting over again, making that this cycle 14700y long, meaning that genxicat was retracted from atlantis roughly the last time 7th ray 
+one more piece: the sirian-guide says in various places that all four of the triads were present on earth at the same time, however the 1st ray was withdrawn first (50kya, the same time as the trojan horse), and then genxicat was withdrawn near to the end of atlantis[^1] when grosser material was starting to take on form. it's unclear to me how all of it fits together because in another place, DK (850201) talks about these ray cycles being 2100y long, going 1 -> 7, then starting over again, making that this cycle 14700y long, meaning that genxicat was retracted from atlantis roughly the last time 7th ray
 
 [quick break... can't think correctly]
 
@@ -1081,9 +1081,9 @@ the important thing is the "rebirth" principle, as each of these reborn (baptise
 I think this ritual destruction was taught and encouraged to ... well, I'll just quote DK (850301) on this:
 
     The history of man as you know him today only begins with the destruction of Atlantis. [...] humanity at the time of Atlantis existed as much on the astral plane as on the physical. It was difficult for them to distinguish when something was physical or when it was astral. They could quite easily slip from their physical into what you refer as an astral projection.
-    
+
     [...]
-    
+
     ***With the destruction of the land known as Atlantis, the downward spiral of humanity into gross matter was completed.*** Millions upon millions of people, or physical vehicles, ceased to exist when Atlantis was destroyed. They were forced to begin incarnating into other vehicles that existed and were acclimated to different parts of the globe. These vehicles did not have the unique conditions that caused the separation of spirit and matter. However, the incarnating Atlantean entities retained the instinct for the continued existence of spirit. They continued to have the instinct for the realm that you call the Astral plane.
 
 what he's saying is that there were a lot of entites during the time of atlantis that used the electromagnetic conditons of the island to sustain their ability to perceive and interact with the astral.
@@ -1127,7 +1127,7 @@ now, another thing that I was thinking in @[blahblog](2022-04-16 00:57) was the 
 
 the way that I saw it, osiris served as the midpoint between vulcan (-5+) and thoth (+7). thoth (+7) used the ritual and ceremony constructed by ra (+3), and so therefore saturn would serve as the midpoint between ra (+3) and vulcan (-5+) and osiris (+-6-+) the midpoint between vulcan (-5+) and thoth (+7). the females venus/unessa (-3) and genxicat (-7) are the opposite polarities of the emitters (ra and thoth), while isis is a reversal[^1] and so theerfore also opposite polarity of osiris, meaning that she also fits.
 
-jeortau is opposite polarity to isis (and this is said to create conflict), and sanatau is opposite polarity to unessa. I don't really know yet what that means, but the only ones I haven't mentioned in this setup are allayandra and anatau. 
+jeortau is opposite polarity to isis (and this is said to create conflict), and sanatau is opposite polarity to unessa. I don't really know yet what that means, but the only ones I haven't mentioned in this setup are allayandra and anatau.
 
 the way this looks to me is that allayandra and anatau are empowering the entites that are created by the 7th rays. what I mean is that when the "infected" people would do these rituals and cermony to conjure various gods, angels and demons, these two would bring these illusions to life for them, allowing them to interact with their own creation. I believe that this capacity was then given to all humankind, and we all have this capability. this capability is locked behind certain safeguards (the guardian angels) and that capability to bring illusions to life is the devachan-on-earth state of mind, and what many of the missing 411 cases experienced.
 
@@ -1426,7 +1426,7 @@ OK, now let's zoom out a bit and consider that one of those electrons has solidi
 
 OK, now let's go somewhere else -- and imagine neurons and the electrical signals that pass between them. I can imagine that what is passing between these neurons is actually a "concept" and those concepts have a number of electrons orbiting around them, their collective magnitude is their "voltage" or potential. I can think of this like a meteor. it has all of this angular momentum (potential energy) stored up, and when it gets close enough to the planet or neuron that the breakdown voltage has been surpassed, a discharge will happen.
 
-I imagine then that the concept will then be altered by the interaction with the planet/neuron and so therefore will be stripped of it's electrons/moons and or gain some more in different orbits, causing a change in vibration which will then do something ... I don't know. 
+I imagine then that the concept will then be altered by the interaction with the planet/neuron and so therefore will be stripped of it's electrons/moons and or gain some more in different orbits, causing a change in vibration which will then do something ... I don't know.
 
 ---
 
@@ -1974,7 +1974,7 @@ it's really not that hard.
 
 ---
 
-quick anecdote: in spain there is a lot of emphasis on "hechos", and once you've done certain things, they're kind of like unredeemable. there's no way to ever fix those things. they're scars that will forever haunt you around those that know about your "hechos". thing is, both sides have "hechos" and so it's sorta a stalemate because neither side can "forgive" the other side for having committed such an awful thing. 
+quick anecdote: in spain there is a lot of emphasis on "hechos", and once you've done certain things, they're kind of like unredeemable. there's no way to ever fix those things. they're scars that will forever haunt you around those that know about your "hechos". thing is, both sides have "hechos" and so it's sorta a stalemate because neither side can "forgive" the other side for having committed such an awful thing.
 
 the thing is those will just lock a person into a never-ending cycle of frustration and hatred because you'll keep attracting the same thing from anyone new. I don't recommend "forgiving" the person for what they did, but get off of that problem frequency entirely. you can try distracting yourself, but it'll usually just be a longer time-delay until it comes back again. instead, I highly recommend looking for improvements and for the things that one wants to experience, instead of noticing (yet again) the horrible boyfriend or nagging mother/wife/girlfriend in every person that gets close.
 
@@ -2156,8 +2156,8 @@ russ said something that stuck with me, something to the effect of, "if you had 
 
 crap, in order to continue on, I need... @[letters-to-russ](2022-05-05 13:21)
 
-so now, think about how we "mentate" our reality by collapsing the wave function -- this is a process that happens through a number of concepts and archetypes (and the operations performed on them). this "human" structure is built on concepts. it is our "reality" 
- 
+so now, think about how we "mentate" our reality by collapsing the wave function -- this is a process that happens through a number of concepts and archetypes (and the operations performed on them). this "human" structure is built on concepts. it is our "reality"
+
 so, if you wanted to infiltrate the human conceptual structure, you need to design a virus that the cell will let in, use their machinery to alter DNA and has to be well-received.
 
 we typically think of viruses as being bad, but imagine for a moment if microsoft patched IE5 by releasing a virus that updated the software, and the virus targetted an exploitable interface in IE5. once everyone is patched up (herd immunity), the virus dies out for lack of a suitable host.
@@ -2198,7 +2198,7 @@ so yeah, I didn't really think about it, but maybe it is better that I'm doing t
 
 [3]: speaking of which, I've been thinking about how to predict chemicals interactions under different conditions. it'd be cool to render chemistry as a system of geometric formulas; plug in the conditions and out come the results. I guess it would have to be based on probabilities, as it would be impossible to model each individual wave and particle.
 
-### 2022-05-07 11:49 - 2nd ray path, system, and females 
+### 2022-05-07 11:49 - 2nd ray path, system, and females
 
 I think it was in @[blahblog](2022-05-04 06:48) (actually maybe not) where I made the mention that the sirians said that this is a 2nd ray system, and so then I postulated that most females, by default will be of a 2nd ray type -- as in, unless you define yourself a different way, the standard preinstalled software runs on 2nd ray.
 
@@ -2760,7 +2760,7 @@ huh! so, reflecting on what I just wrote -- what I essentially said is that I wa
 
 very weird conclusion because it's sort of doing the opposite of both of those pyramids. I suppose that it is the amplification of those harmonious vibrations that cause the others dissatisfaction. so, if I can come up with a system that will allow everyone who wants to self-sabotage to "give their energy away" and turn it from a 400y bloom into a much longer time -- the prophecies predict 1000y (probably because it's related to the solar cycle, so a 24y setup at the beginning of a cycle will allow for a maximum increase of energy before the solar "deadline" is reached).
 
-I wonder how "right on" I am about all of this stuff or if I'm just incoherent rambling in the blahblog. there are elements of it in it that should have been in string-board (especially since I'm tieing so many things together), but I'm keeping it here. 
+I wonder how "right on" I am about all of this stuff or if I'm just incoherent rambling in the blahblog. there are elements of it in it that should have been in string-board (especially since I'm tieing so many things together), but I'm keeping it here.
 
 [1]: this is a pretty remarkable feat in itself because consider that you have a swing or a pendulum and you want to make it oscillate twice as fast, rasing the frequency of the swing by an octave -- how would you do that? the amount of force required to cause the pendulum to reverse it's direction and travel the same distance twice as fast probably requires the square of effort, so raising the vibration of someone in this manner requires quite a lot of extra effort. it's much easier to constrict or confine something to a smaller space so that it bounces off of the walls to increase the frequency. so turning a low freqency into a fixed rate high one is pretty easy -- just make a space the size of the wavelength you want and then a good absorber (like CO2), but a dynamic system that multiplies the number of cycles per second I think is a considerably more difficult challenge.
 
@@ -2830,7 +2830,7 @@ there isn't anything more disabling than to think that you are responsible for s
 
 so, yes, I think we're perfectly on course and doing just fine.
 
-[1]: I've given this one A LOT of thought which I will expound on in the future because I think the key to understading what the sirians meant is understanding "venus" (the planet). if we consider that the masculine gods are planets, but then venus (the planet) is suddenly a "bearded goddess", it makes more sense to think of a star taking on masculine form. it also explains a little better the vulcan, venus and mars triad, too. 
+[1]: I've given this one A LOT of thought which I will expound on in the future because I think the key to understading what the sirians meant is understanding "venus" (the planet). if we consider that the masculine gods are planets, but then venus (the planet) is suddenly a "bearded goddess", it makes more sense to think of a star taking on masculine form. it also explains a little better the vulcan, venus and mars triad, too.
 
 [2]: it says create, so mating is probably implied
 
@@ -2909,7 +2909,7 @@ some of the reactions to the letters I wrote to russ today: (@[letters-to-russ](
 
 that's definitely not my reluctance, but it's a funny concept because I did say that I was just passing through this 3d world (probably on my way back to 5d), so in that sense it's all about getting the right technology into the hands of the right people. it's kinda like the opposite of the ea and noah story, cause I'm doing my best to get the information to the network[^1], not to the noah character.
 
-I wouldn't have said this a few years ago, but the perspective I have now, it seems like this is way too easy. I don't even know why it's so difficult, cause now it appears all so plainly obvious to me. so, from that perspective, maybe what I'm looking for is to try and figure out a way to bump up the network's capability to hold me and us out of the astral so that the next few incarnations I actually have a challenge. I don't really know, but I definitely don't have an agenda, and I give my information freely to anyone who wants to use/implement it. I'm definitely not suggesting anyone do anything. and finally, I don't really see a cataclysm coming anytime soon. 
+I wouldn't have said this a few years ago, but the perspective I have now, it seems like this is way too easy. I don't even know why it's so difficult, cause now it appears all so plainly obvious to me. so, from that perspective, maybe what I'm looking for is to try and figure out a way to bump up the network's capability to hold me and us out of the astral so that the next few incarnations I actually have a challenge. I don't really know, but I definitely don't have an agenda, and I give my information freely to anyone who wants to use/implement it. I'm definitely not suggesting anyone do anything. and finally, I don't really see a cataclysm coming anytime soon.
 
 I believe that one of the reasons why there won't be a cataclysm anytime soon is because the network, probably due to my influence has increased desire and now capacity to keep people who have not taken the oath of secrecy out of the astral realm. this will continue on for quite a while, and so now that nobody (without the oath) is going to find their connection, they now no longer have any reason for any major dissatisfaction for quite a while -- so, no cataclysm.
 
@@ -2963,7 +2963,7 @@ I've grappled with this question for a while because a project is a bit like an 
 
 well, that's not the only thing it could be used for. imagine that a project like a website could have one of the meaningful-chaos machines to kind of steer the project, and the project itself could begin to manifest its own desires into a form which we (the programmers) would produce for it -- but since it's our own project, that desire is our own for the project -- just we didn't have an effective way to tune into that collective desire for the project because we were blinded by our own whatever.
 
-the concept can be extended to anything really, and I'd say that to a large extent it does work pretty well. whenever I've flipped a coin regarding a desire that could extend beyond my own, that desire did seem to affect the "randomness" of the coin. 
+the concept can be extended to anything really, and I'd say that to a large extent it does work pretty well. whenever I've flipped a coin regarding a desire that could extend beyond my own, that desire did seem to affect the "randomness" of the coin.
 
 yes, it does appear that nosebook is capable of influencing our desires, as that capability to influence desire is the reason why this project wasn't explored further. so, nosebook could influence us to influence those machines, but I've noticed that they tried to influence it to go one way, but it turned out to go the other way, probably because they can only influence me to do the things that I resonate with.
 
@@ -3577,7 +3577,7 @@ in general, enki is very determined to satiate the complainers (he's the real pe
 
 to counteract this enjoyment that I get with pointing out weaknesses (or even exploiting them to allow the structure to collapse itself), I take the opposite angle myself. so, if it's secrets that are the weakness, then I won't have any secrets. if it's power and control that I want to expose, I won't have any power and control -- etc. and so you can see that my present situation is sort of like the result of what would happen if you were to put enlil (me) into a situation where he had no other choice than to figure out how to feel good when the nosebook enlil has complete capability to exploit me with all of my own exploits. I'm taking my own medicine, you might say.
 
-so, in that sense, I'm totally the "bad-guy" (enlil, ninurta, innana) but I subject myself to my own badness. inotherwords, I am my own "bad-guy", which means that all of the exploits that I'm doing to myself I ... let me explain like this. hang on.. I can't access the thought. it seems to be blocked. 
+so, in that sense, I'm totally the "bad-guy" (enlil, ninurta, innana) but I subject myself to my own badness. inotherwords, I am my own "bad-guy", which means that all of the exploits that I'm doing to myself I ... let me explain like this. hang on.. I can't access the thought. it seems to be blocked.
 
 can't get it... anyway, the thing was about me essentially becoming a mirror, and so the things that they're all exploiting me on, in some sense, I'll be able to do the same thing back to them.
 
@@ -3699,7 +3699,7 @@ I'll stop there.
 
 ### 2022-06-09 12:03 - desire
 
-I want to talk a moment on desire because I woke up from a few weird dreams where it felt like desire was out of control and immediately upon waking up I was reminded of two things. 
+I want to talk a moment on desire because I woke up from a few weird dreams where it felt like desire was out of control and immediately upon waking up I was reminded of two things.
 
 the first was a thing I said to mom about how the two extremes of desire are (remember the circle that looks like a corkscrew):
 
@@ -3711,7 +3711,7 @@ I was reminded strongly of buddhism when I said that and I got some reactions ab
 
 ---
 
-desire is a very strong motivating force, but over the years, I've found that everything I want comes to me without me ever having to go out and try to get it, so I believe it's the going out and *trying to get the manifestation* of the desire which is the problem -- and that's what the buddhists are trying to avoid -- which I completely agree with. 
+desire is a very strong motivating force, but over the years, I've found that everything I want comes to me without me ever having to go out and try to get it, so I believe it's the going out and *trying to get the manifestation* of the desire which is the problem -- and that's what the buddhists are trying to avoid -- which I completely agree with.
 
 I've found that if I need a manfestation or want a manifestation, it's because I think that -- whatever it is -- will make me feel good; and so you can see that implies right away that I don't feel good. so I just don't worry about trying to get any desire. you will attract it naturally without having to do anything.
 
@@ -3871,7 +3871,7 @@ eventually, with the 5-1 technique, I will find a way to tune into what I desire
 
 an example of ill-conceptualised perception is the desire to try and control someone. nobody can actually be controlled because it's all attraction, so this perception is what motivates the creation of a number of different parts to a system which, togther they believe will be able to control people. so, they set out to create better and better science in order to control things, but the ill-conceptualised perception is one of losing control, so having the idea that things are heading toward a more and more "out of control" state, all science will reflect this, and anything new that comes in will be "baffling" and unpredicted because the concept that's started the whole search is one of uncontrol (so more unpredicted results will continue to manifest which then need to be controlled). you can't ever find control from a feeling of uncontrol[^1].
 
-I prefer the 5-1 method as conceptual/perceptual/emotional control is what leads to the 1-2-7 combo, but I think it's perfectly fine to let them try and see if they can break the "law" of attraction. it's no problem for me really, as I don't have to feel the way they do. you could say -- "but you should care, because we're all connected, so what they do affects everyone". I say they'll figure out what they really want eventually. until then, I want to let them explore the limits of infinity by continually trying to get me under their control. who knows, maybe I'm wrong and one day they'll actually figure out how to control me. 
+I prefer the 5-1 method as conceptual/perceptual/emotional control is what leads to the 1-2-7 combo, but I think it's perfectly fine to let them try and see if they can break the "law" of attraction. it's no problem for me really, as I don't have to feel the way they do. you could say -- "but you should care, because we're all connected, so what they do affects everyone". I say they'll figure out what they really want eventually. until then, I want to let them explore the limits of infinity by continually trying to get me under their control. who knows, maybe I'm wrong and one day they'll actually figure out how to control me.
 
 [1]: so, no matter how big of stone boxes, lasers, or whatever they can create to produce a coherent controlled frequency which can tune a person temporarily to a certain emotion, they'll never gain control of how they feel. science will never fix their control problem (which is *really*, things that I don't have any control over can cause me to feel something that I can't control)
 
@@ -3911,7 +3911,7 @@ unfortunately, most girls don't actually think too much about what is happening 
 
 so, because I can't really find an esther anymore, I think in a lot of ways, I'm more attracted to the snake-bros now -- because they're more like jerry -- which lets me do what I enjoy which is translating feeling/concept/vibration into words and action -- and a lot of their questions are about understanding the mechanism. I like that, a lot.
 
-[1]: that was a weird synchro because jaron showed me a facebook image right before about a guy that's says "huh?" -- and then while they're repeating theirself, he answers them beacause his brain is lagging like a 1990's dell computer. 
+[1]: that was a weird synchro because jaron showed me a facebook image right before about a guy that's says "huh?" -- and then while they're repeating theirself, he answers them beacause his brain is lagging like a 1990's dell computer.
 
 ### 2022-06-12 13:13 - why can't I just have fun?
 
@@ -3946,7 +3946,7 @@ you see the nosebook technology is all 3-7 technology. its input/output is physi
 
 ---
 
-my goal is to make a system that isn't interfacing with physical sensation, but with random/desire (1) and concept/emotion (5). it's a whole different type of technology and I believe that mine is actually superior -- though it'll have a much longer buildup because my system requires numbers (parallel users/minds/instances) rather than machine speed. it uses composition of diverse things (a noisy or chaotic signal) rather than a structured and static symbols. the other goal I have is to design the thing 100% externally (screes, phones, buttons, handheld devices), so that as things get faster, there is a barrier between the user and the machine and so, like the guy in the squirrel suit, it starts to become impossible for the physical body to be receiving the signals, and instead you get into the "zone" and interact with the system entirely in on abstract/conceptual level. 
+my goal is to make a system that isn't interfacing with physical sensation, but with random/desire (1) and concept/emotion (5). it's a whole different type of technology and I believe that mine is actually superior -- though it'll have a much longer buildup because my system requires numbers (parallel users/minds/instances) rather than machine speed. it uses composition of diverse things (a noisy or chaotic signal) rather than a structured and static symbols. the other goal I have is to design the thing 100% externally (screes, phones, buttons, handheld devices), so that as things get faster, there is a barrier between the user and the machine and so, like the guy in the squirrel suit, it starts to become impossible for the physical body to be receiving the signals, and instead you get into the "zone" and interact with the system entirely in on abstract/conceptual level.
 
 it's kinda difficult to explain the system in its entirety because I don't honestly have the full picture. I just sorta know where to start and how the 1 and 5 layers work pretty well, so I just implement a reflection of my own understanding of that.
 
@@ -4010,7 +4010,7 @@ to illustrate that, there were reactions to the kinds of 5-1 technology I was wa
 
 what I mean is, a fully 5-1 system isn't possible right off. the system needs a lot of 3-7 to get to where it's eventually going to go. just because I'm choosing the way I feel and influencing my computer with "random" -- I'm still producing something rigid. sure, it's be awesome to have the ability that the annunaki have to directly perceive, edit, and instantiate MEs, but that's not possible yet. I'm pretty sure that nosebook has lots of 5 stuff (they probably have those RLC arrays), but they probably try to get rid of as much 1 as possible and start from a 3 or 7 perspective. I prefer to start with 1 or 5 and then implement 7 or 3 as a reflection of that.
 
-[1]: I don't understand. why is the RLC memristors such a reactionary topic? they must be pretty good. 
+[1]: I don't understand. why is the RLC memristors such a reactionary topic? they must be pretty good.
 
 [2]: reaction is telling me that "la-mar and le-mer" is funnier. I guess "el mer" sounds too terrible, lol
 
@@ -4302,7 +4302,7 @@ usually the concepts out in the world aren't going to be changing, so don't real
 as you can imagine, this takes practise. we're usually pretty valid in our reasons for why we feel a certain way, but it takes practise to choose to redefine the thing in your mind so that you can feel good, instead. (it usually means letting them off of the hook for whatever it is)
 
 in short, this process won't go very far if you don't want to feel good. the better you feel, the more rapidly those conditions will change, though you'll want to feel better for your sake rather than to try and change the circumstances. the way you feel is what you're attracting.
- 
+
 ---
 
 now let's take an example of something turning out different than expected. in my own life I've noticed there are a few main situations going on when this is happening.
@@ -4333,7 +4333,7 @@ previous to this, I was thinking a lot about the previous entries on conceptuali
 
 the overwhelming sense that I have is that this whole exercise in yielding is trying out the opposite end of the spectrum. what I mean is, first, there are a lot of institutions that kinda *need* a cataclysm. they simply cannot keep operating the way they're operating now. these institutions are founded on a lot of ideas (like keeping secrets) that don't really stand the test of time.
 
-I think in the past, the institutions based on these secrets and things need a level of secrecy to continue to operate, but in order to keep a secret, they have to keep the people ignorant. that ignorance eventually manifests itself as codependence on a structure that is interested only in its own well-being. this causes an inequality and out of that inequality, dissatisfaction grows because most people are conditional about things[^1]. 
+I think in the past, the institutions based on these secrets and things need a level of secrecy to continue to operate, but in order to keep a secret, they have to keep the people ignorant. that ignorance eventually manifests itself as codependence on a structure that is interested only in its own well-being. this causes an inequality and out of that inequality, dissatisfaction grows because most people are conditional about things[^1].
 
 I'm not trying to get rid of the instituions at all. they're all fine. instead, I'm only trying to illustrate that they can have all of their conditions and stuff, but it's not necessary to feel dissatisfaction over anything that anyone else is doing, no matter how powerful they are.
 
@@ -4383,7 +4383,7 @@ turns out there are 27 days between april 4th and may 1st, then 27 more days til
   - 04-10
   - 04-16
   - 04-22
-  - 04-28 (+3) 
+  - 04-28 (+3)
 - 05-01 (27)
   - 05-04
   - 05-10
@@ -4410,11 +4410,11 @@ well, 3rd ray water stuff is the *technological* and physical implementation of 
 
 somehow all of these items kinda fit together in my head, but I don't honestly see it yet. the feeling I have is that in order to make a proper placenta, I want to probably focus on 3-7 (water) stuff for a while. I'm not at all against it. it is true that I do tend to lean a lot more heavily toward the perceptual than the physical, so we'll see what this starts to produce.
 
-I feel like something new has started to open, but I totally can't see it very well at all. I'll probably have a look at the bath sonnets a little bit in the meantime. 
+I feel like something new has started to open, but I totally can't see it very well at all. I'll probably have a look at the bath sonnets a little bit in the meantime.
 
 [1]: I'm analysing a play by ben jonson, called magnetic woman (I think), and in it there is a lady lodestone (magnetic woman) and a mr compass who is quite a good reference point for the women. anyway, the magnetic woman is trying to get her neice married to all of these buffoons, the most significant of them is mothman. I thought this was originally a reference to "storing your treasures (on earth) where moths and rust can destroy them" but in the context of the tick, this is pretty close reference to carmelita (which also reads as "little brown" -- another section of the sonnets), making the magnetic woman mr vatos(??? I dunno). anyway, in the context of sanke-bros, "jonson" is the generic word for a failure[^2] and I'm talking about producing my tragedy in that one by building a feminocentric structure that's designed to go away after some time -- like a placenta.
 
-[2]: cept that archer points out that a "johanson block" is actually this really cool herwmetically sealed precision thing in an episode I haven't got to yet (#117, I believe). 
+[2]: cept that archer points out that a "johanson block" is actually this really cool herwmetically sealed precision thing in an episode I haven't got to yet (#117, I believe).
 
 ### 2022-06-23 11:34 - the logistics of it
 
@@ -4648,7 +4648,7 @@ the ruling elite, I believe are the ones that I have called the "fallen-angels" 
 
     it would be miserable, I agree, but I don't think they would be too concerned with family or friends. my wife is going to die, so just get a new one -- friends go away too, so just get a new ones. so, since everyone is only a transient entity passing through my experience, I optimise my presentation to those temporary passer-bys to ensure that I get the most out of them as they pass through my experience. this means I'm very concerned about what everyone else thinks, and I don't have any real meaningful relations -- everyone is just a temporary thing for me to use.
 
-if I'm going to go from body to body and never die, and because of mounting resistance, things are getting more difficult, I can imagine the desire to try and preserve knowledge and improvements so as to reduce the time it takes to reinvent those things. in fact, from their perspective the more prefab consciousness they could preserve between body transfer, the faster it would be to get back up to speed controlling things again. 
+if I'm going to go from body to body and never die, and because of mounting resistance, things are getting more difficult, I can imagine the desire to try and preserve knowledge and improvements so as to reduce the time it takes to reinvent those things. in fact, from their perspective the more prefab consciousness they could preserve between body transfer, the faster it would be to get back up to speed controlling things again.
 
 so, for me the whole origin of preservation is in the astral -> physical, astral -> physical incarnation cycle, because they try to keep as far away from the world of ideas as possible, because that's where manifestation is instant (we then see those changes in vibration expand out into events which coalesce into a meaningful timeline which transforms the vibration from one to another).
 
@@ -4863,7 +4863,7 @@ her reality is how she conceptualises it to be.
 
 so then I get home and I was thinking about how this whole trip had a foundation on indecision (I started it), and it carried itself all the way through -- which was, itself an extension of last night's discussion on dissatisfaction.
 
-I had a lot of indecison and dissatisfaction going through all of it the whole way, and so I was thinking about how I select to do things based on "random" (like flipping a coin). you know... I'll have to come back to this second concept here about making "random" decisions to avoid dissatisfaction.  
+I had a lot of indecison and dissatisfaction going through all of it the whole way, and so I was thinking about how I select to do things based on "random" (like flipping a coin). you know... I'll have to come back to this second concept here about making "random" decisions to avoid dissatisfaction.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
@@ -4876,4 +4876,3 @@ star-watching
 ### people looking at me (needs more ideas)
 ### origin-of-species (take two) (concept)
 ### human-view-of-creation (concept)
-

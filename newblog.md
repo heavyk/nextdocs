@@ -9763,7 +9763,7 @@ it seems that some part of our culture is designed to try and create problematic
 
 > I need you to bail me out of a problem situaton.
 
-we know from LOA that any situation you're in, is in fact one that you created/attracted, so it's always true to say, 
+we know from LOA that any situation you're in, is in fact one that you created/attracted, so it's always true to say,
 
 > I need you to bail me out of a situaton I created.
 
@@ -10766,7 +10766,7 @@ sounds like doing things the "right way" is really sirius stuff...
 
 btw, how much you want to bet when this universe transitions, it'll have a "corrupted 5th ray" in the next one .. :)
 
-[1]: saturn (4) is paired with thoth (7), osiris (6) with ra (3) and vulcan (5) with mars (7). 
+[1]: saturn (4) is paired with thoth (7), osiris (6) with ra (3) and vulcan (5) with mars (7).
 
 [2]: so, let's say that the other "christs" in their splits do their thing and build their own reality how they want -- well, soon, they'll get invaded by incarnating custodians that think they own the place and are the dual of the "christ". they'll cause a meltdown of sorts. this story will be channeled to "those with ears to hear" making their recovery sound epic, and these 7th ray christs will go all the way to "not needing the manifestation" just like me ensuring their empowering star (1st ray like ours) can also become a quasar. just take this setup and replicate it. it's not going to be that difficult. just a lot of programming... lol
 
@@ -10993,7 +10993,7 @@ well, I didn't feel that was quite right, but I went with it anyway. then, today
     On the dead waste of life. That specter lifts
     The coffin lid of Hope and Joy and Love."
 
-if you notice there that "Time" is capitalised[^1]. I noticed this and other peculiarites when reading shakespere. they seem to capitalise concepts. "Time" is "father time" or, chronos. he has a scythe and an hourglass. I guess he counts the hours on the 12/24hr clock. he is also mentioned in the passing of one era to another often times with sadness because he has no remorse for removing the outdated forms. in eastern religions, this is the aspect of shiva the destroyer. 
+if you notice there that "Time" is capitalised[^1]. I noticed this and other peculiarites when reading shakespere. they seem to capitalise concepts. "Time" is "father time" or, chronos. he has a scythe and an hourglass. I guess he counts the hours on the 12/24hr clock. he is also mentioned in the passing of one era to another often times with sadness because he has no remorse for removing the outdated forms. in eastern religions, this is the aspect of shiva the destroyer.
 
 so, I looked up that poem to see its origins and I found it's a part of a larger work, "the closing year" by george d. prentice.
 
@@ -11289,7 +11289,7 @@ trojan horse
 [2]: in their words:
 
   > At the consummation of the third initiation, ... this energy has been combined with the SECOND ASPECT/RAY within the consciousness of the MUN. This brings down the "fire" from the MONAD which is of the FIRST ASPECT/RAY.
-  
+
   > The third initiation is where the [SOLAR ANGEL] takes complete control of the personality and MUN is not controlled by the elementals within the vehicles. They still try to tempt the individual.
 
   basically, those are a lot of big words that say, "when the person is no longer ruled by my conditions, this initiation will happen". that's what's happening to me, as I'm becoming pretty unconditional -- and, I'm actually trying to delay this as long as possible, too (reason why I'm writing this). I'm fairly certain that if I were to stop drinking coffee, and stuff like that, then that "initiation" would happen. however, I want to milk it for as much as I can.
@@ -11618,7 +11618,7 @@ I don't see the females bit clear enough to say much on it yet. I do know that t
 
 men who are more receptive and attractive are on the rise, and their goal is to increase inertia through attraction; more attractive means bigger gravity-assists -- while many females are slowly coming to the realisation that they want to find ways to lower resistance, rather than increase it (though sex, partners, and social interactions influence resistance, the real deal is to do it perceptually).
 
-uff, long one... very sorry about that. I really wanted to get these concepts out. though I still have more, I'm done. 
+uff, long one... very sorry about that. I really wanted to get these concepts out. though I still have more, I'm done.
 
 [1]: I think it was at marcos' house in realisation that my vision was constantly improving, and this was a sign of ever decreasing resistance. I noticed that I was constantly feeling better too and my world continued to reflect that.
 
@@ -11821,7 +11821,7 @@ welcome to beast-consciousness
 
 ---
 
-EDIT: ah, I just remembered the second path now... so the idea was based on the acquisition of temporal (5.1) perception. I supposed that the guys running the show have it, because a lot of things have been disappearing -- like I remember the transfiguration part in dtp had a part where gwauxln transfigured and it was revealed that gwauxln was christ. that part has completely disappeared -- almost as if that whole page of the transcript were burned. the tick's 4th season is missing entirely and there are weird seemingly missing parts as well. I also have a very different memory of tesla's autobiography as well. 
+EDIT: ah, I just remembered the second path now... so the idea was based on the acquisition of temporal (5.1) perception. I supposed that the guys running the show have it, because a lot of things have been disappearing -- like I remember the transfiguration part in dtp had a part where gwauxln transfigured and it was revealed that gwauxln was christ. that part has completely disappeared -- almost as if that whole page of the transcript were burned. the tick's 4th season is missing entirely and there are weird seemingly missing parts as well. I also have a very different memory of tesla's autobiography as well.
 
 it looks like they're using it to remove symbols that could influence unwanted manifestations. in short, they don't want me to create what I want to create. well, don't worry, I won't give them the satisfaction of feeling like they've thwarted my efforts, as instead, this entry is to ensure that I take responsibility for my own failed creation. I most certainly sabotaged it.
 
@@ -11857,7 +11857,7 @@ raquel is not the common case though. it's actually for this reason why I though
 
 ---
 
-I've been exploring for a while the concept of the SOLAR ANGEL and what it means. here's a draft idea on that. one thing that sticks out in history is the emphasis that the "gods" were androgynous, containing both male and female parts (x3). they were then split into male (x1) and female (x2) forms. so, for simplicity let's just consider the x-chromosome as containing the human SOLAR ANGEL[^2]. 
+I've been exploring for a while the concept of the SOLAR ANGEL and what it means. here's a draft idea on that. one thing that sticks out in history is the emphasis that the "gods" were androgynous, containing both male and female parts (x3). they were then split into male (x1) and female (x2) forms. so, for simplicity let's just consider the x-chromosome as containing the human SOLAR ANGEL[^2].
 
 so that means that by nature men and women are binary beings, while the gods were also binary beings, but binary triads. let's imagine the x-chromosome as being a SOUL coming from the sun (the Spirit). the y-chromosome represents a pre-programmed psychic body.
 
@@ -11965,7 +11965,7 @@ for me all of these experiences can easily be explained with that conceptual (ga
 
 so while I can explain the 411 as a manifestation of the conceptual plane of perception, there are numerous details in these stories that suggest something else may be happening.
 
-often times when I enter into these states, the temperature drops very rapidly (see below section) -- and, like I said, I have to be very careful to *not* allow the kundalini to rise or to not leave my body, start levitating, because if I don't I lose consciousness. 
+often times when I enter into these states, the temperature drops very rapidly (see below section) -- and, like I said, I have to be very careful to *not* allow the kundalini to rise or to not leave my body, start levitating, because if I don't I lose consciousness.
 
 what I believe is happening is these people are just very sensetive people, like I am, and what happens is some event allows them to enter into this state. it often times happens to me when I'm left alone, relaxed, and around water. mountains, granite, gold, and shining crystals also have this effect on me. I figure these are all the trigger to them then entering into this state.
 
@@ -12617,4 +12617,3 @@ oh, just had an idea... @[blahblog](2022-04-07 09:57)
 ### positive / negative resistance and heat
 ### tree of life -> tree of creativity
 ### EMERGENT IXI
-

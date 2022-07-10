@@ -11,7 +11,7 @@ this means that the female, having the receptive polarity (-), seems also able t
 
 another context clue is that is says that (4, 5, 7) are all aspects of the 3rd ray, so this can fill in the gaps for the 3rd rays in the triads...
 
-anatau (-1) receives energy from sanatau (+-3-+) in the form of (+7), of which one of the aspects of (3). really, she can receive energy from any 7th ray so she's compatible with the third and seventh ray triads as well which seems to be the point. this is the ALPHA and OMEGA. the document says that 
+anatau (-1) receives energy from sanatau (+-3-+) in the form of (+7), of which one of the aspects of (3). really, she can receive energy from any 7th ray so she's compatible with the third and seventh ray triads as well which seems to be the point. this is the ALPHA and OMEGA. the document says that
 
 isis (-2) will receive 2nd ray energy and output 6th ray energy. she is stepping down energy from jeortau (+2) from the first ray triad and giving it to osiris (+-6-+). additionally, osiris has can emit 2nd ray energy for her to receive as well.
 
@@ -33,7 +33,7 @@ finally vulcan (-5+) gets a tail polarity again. he is receiving concepts (5), a
 
 #### the emitter
 
-I can't say that I fully understand the emitter, but, they seem to take in energy from their opposite and emit their ray. 
+I can't say that I fully understand the emitter, but, they seem to take in energy from their opposite and emit their ray.
 
 jeortau (+2) will take in astral energy (6) and output (2) resonance, harmony, and a feeling of things working together.
 
@@ -71,7 +71,7 @@ anatau and jeortau are twins. allayandra was also created with them, which gives
 ### family ties and a hidden 5th ray triad?
 
 - (+7) allayandra
-- (-1) anatau (twin) 
+- (-1) anatau (twin)
 - (+2) jeortau (twin)
 
 though anatau and jeortau are twins, it says that anatau is the youngest and sanatau is the oldest. it also says of allayandra:

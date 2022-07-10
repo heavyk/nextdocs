@@ -64,12 +64,12 @@ That he had recorded his autobiography is certain, for a long text (stretching o
 
 Nippur quotes Enki as saying:
 
-    When I approached Earth, 
-    there was much flooding. 
-    When I neared its green meadows, 
-    heaps and mounds were piled up at my command. 
-    In a pure place I built my house, 
-    an appropriate name I gave it. 
+    When I approached Earth,
+    there was much flooding.
+    When I neared its green meadows,
+    heaps and mounds were piled up at my command.
+    In a pure place I built my house,
+    an appropriate name I gave it.
 
 The long text continues to describe how Ea/Enki then assigned tasks to his lieutenants, putting their Mission to Earth in motion.
 
@@ -80,17 +80,17 @@ Sumerian and Akkadian clay tablets; Babylonian and Assyrian temple libraries; Eg
 Presented as a text dictated by Enki to a chosen scribe, a Book of Witnessing to be unsealed at an appropriate time, it brings to mind Yahweh's instructions to the Prophet Isaiah (seventh century B.C.):
 
     Now come,
-    Write it on a sealed tablet, 
-    as a book engrave it; 
-    Let it be a witnessing until the last day, 
-    a testimony for all time. 
-    Isaiah 30:8 
+    Write it on a sealed tablet,
+    as a book engrave it;
+    Let it be a witnessing until the last day,
+    a testimony for all time.
+    Isaiah 30:8
 
 In dealing with the past, Enki himself perceived the future. The notion that the Anunnaki, exercising free will, were masters of their own fates (as well as the fate of Mankind) gave way, in the end, to a realization that it was Destine that, when all was said and done, determined the course of events; and therefore--as the Hebrew Prophets had recognized-the First Things shall be the Last Things.
 
 The record of events dictated by Enki thus becomes a foundation for Prophecy, and the Past becomes the Future.
 
-### ATTESTATI0N 
+### ATTESTATI0N
 
 The words of Eridubsar, master scribe, son of Eridu city, servant of the lord Enki, great god.
 
@@ -142,23 +142,23 @@ And then there was silence, and the auras were extinguished, and the spirit left
 
 Seal of Eridubsar, master scribe
 
-### THE WORDS OF LORD ENKI 
+### THE WORDS OF LORD ENKI
 
 ### THE FIRST TABLET
 
 #### Synopsis of the First Tablet:
 
 - Lamentation over the desolation of Sumer
-- How the gods fled their cities as the nuclear cloud spread 
-- The debates in the council of the gods 
-- The fateful decision to unleash the Weapons of Terror 
-- The origin of the gods and the awesome weapons on Nibiru 
-- Nibiru's north-south wars, unification, and dynastic rules 
-- Nibiru's place in the solar system 
-- A dwindling atmosphere causes climate changes 
-- Efforts to obtain gold to shield the atmosphere fail 
-- Alalu, a usurper, uses nuclear weapons to stir volcanic gases 
-- Anu, a dynastic heir, deposes Alalu 
+- How the gods fled their cities as the nuclear cloud spread
+- The debates in the council of the gods
+- The fateful decision to unleash the Weapons of Terror
+- The origin of the gods and the awesome weapons on Nibiru
+- Nibiru's north-south wars, unification, and dynastic rules
+- Nibiru's place in the solar system
+- A dwindling atmosphere causes climate changes
+- Efforts to obtain gold to shield the atmosphere fail
+- Alalu, a usurper, uses nuclear weapons to stir volcanic gases
+- Anu, a dynastic heir, deposes Alalu
 - Alalu steals a spacecraft and escapes from Nibiru
 
 ---
@@ -852,15 +852,15 @@ To snow-hued Earth Alalu set his course; by a secret from the Beginning he chose
 #### Synopsis of the Second Tablet:
 
 - Alalu's flight in a nuclear-armed spacecraft
-- He sets his course to Ki, the seventh planet (Earth) 
-- Why he expects to find gold on Earth 
-- The solar-system's cosmogony; Taiamat's water and gold 
-- The appearance of Nibiru from outer space 
-- The Celestial Battle and Tiamat's breakup 
-- Earth, half of Tiamat, inherits her waters and gold 
-- Kingu, Tiamat's main satellite, becomes the Moon of Earth 
-- Nibiru is destined to forever orbit the Sun 
-- Alalu's arrival and landing on Earth 
+- He sets his course to Ki, the seventh planet (Earth)
+- Why he expects to find gold on Earth
+- The solar-system's cosmogony; Taiamat's water and gold
+- The appearance of Nibiru from outer space
+- The Celestial Battle and Tiamat's breakup
+- Earth, half of Tiamat, inherits her waters and gold
+- Kingu, Tiamat's main satellite, becomes the Moon of Earth
+- Nibiru is destined to forever orbit the Sun
+- Alalu's arrival and landing on Earth
 - Alalu, discovering gold, holds Nibiru's fate in his hands
 
 ---
@@ -1479,18 +1479,18 @@ On another world I am, the gold of salvation I have found; The fate of Nibiru is
 #### Synopsis of the Third Tablet:
 
 - Alalu beams the news to Nibiru, reclaims the kingship
-- Anu, astounded, puts the issue before the royal council 
-- Enlil, Anu’s Foremost Son, suggests on-site verification 
-- Ea, Anu's Firstborn and a son-in-law of Alalu, is chosen instead 
-- Ea ingeniously equips the celestial boat for the journey 
-- The spaceship, piloted by Anzu, carries fifty heroes 
-- Overcoming perils, the Nibiruans thrill by Earth's sight 
-- Guided by Alalu, they splash down and wade ashore 
-- Eridu, Home Away from Home, is established in seven days 
-- Extraction of gold from the waters begins 
-- Through the quantity is minuscule, Nibiru demands delivery 
-- Abgal, a pilot, chooses Alalu’s spaceship for the trip 
-- Forbidden nuclear weapons are discovered in the spaceship 
+- Anu, astounded, puts the issue before the royal council
+- Enlil, Anu’s Foremost Son, suggests on-site verification
+- Ea, Anu's Firstborn and a son-in-law of Alalu, is chosen instead
+- Ea ingeniously equips the celestial boat for the journey
+- The spaceship, piloted by Anzu, carries fifty heroes
+- Overcoming perils, the Nibiruans thrill by Earth's sight
+- Guided by Alalu, they splash down and wade ashore
+- Eridu, Home Away from Home, is established in seven days
+- Extraction of gold from the waters begins
+- Through the quantity is minuscule, Nibiru demands delivery
+- Abgal, a pilot, chooses Alalu’s spaceship for the trip
+- Forbidden nuclear weapons are discovered in the spaceship
 - Ea and Abgal remove the weapons of terror and hide them
 
 ---
@@ -2100,19 +2100,19 @@ To Nibiru words of the ascent were beamed; on Nibiru there was much expecting.
 #### Synopsis of the Fourth Tablet:
 
 - The Nibiruans hail even the small gold delivery
-- Tests of gold's use as an atmospheric shield succeed 
-- Additional heroes and new equipment are sent to Earth 
-- Gold extraction from the water continues to disappoint 
-- Ea discovers gold sources that need deep mining in the Abzu 
-- Enlil, then Anu, come to Earth for cruical decisions 
-- As the half brothers quarrel, lots decide the tasks 
-- Ea, renamed Enki (Earth's Master), goes to the Abzu 
-- Enlil stays to develop permenent facilities in the Edin 
-- As Anu prepares to lease, he is attacked by Alalu 
-- The Seven Who Judge sentence Alalu to exile on Lahmu 
-- Anu's daughter Ninmah, a medical officer, is sent to Earth 
-- Stopping off at Lahmu (Mars) she finds Alalu dead 
-- A rock, carved to resemble Alalu's face serves as his tomb 
+- Tests of gold's use as an atmospheric shield succeed
+- Additional heroes and new equipment are sent to Earth
+- Gold extraction from the water continues to disappoint
+- Ea discovers gold sources that need deep mining in the Abzu
+- Enlil, then Anu, come to Earth for cruical decisions
+- As the half brothers quarrel, lots decide the tasks
+- Ea, renamed Enki (Earth's Master), goes to the Abzu
+- Enlil stays to develop permenent facilities in the Edin
+- As Anu prepares to lease, he is attacked by Alalu
+- The Seven Who Judge sentence Alalu to exile on Lahmu
+- Anu's daughter Ninmah, a medical officer, is sent to Earth
+- Stopping off at Lahmu (Mars) she finds Alalu dead
+- A rock, carved to resemble Alalu's face serves as his tomb
 - Anzu is given command of a Way Station on Lahmu
 
 ---
@@ -2700,21 +2700,21 @@ From the planet Lahmu the chariot departed; toward Earth the journey it continue
 #### Synopsis of the Fifth Tablet:
 
 - Ninmah arrives on Earth with a group of female nurses
-- She delivers seeds to grow elixir-providing plants 
-- She brings Enlil news of their out-of-wedlock son Ninurta 
-- In the Abzu Enki establishes an abode and mining sites 
-- In the Edin Enlil builds space and other facilities 
-- Nibiruans on Earth ("Anunnaki") number six hundred 
-- Three hundred “Igigi" operate the facilities on Lahmu (Mars) 
-- Exiled for date-raping Sud, Enlil learns of the hidden weapons 
-- Sud becomes Enlil's Spouse Ninlil, bears a son (Nannar) 
-- Ninmah Joins Enki in the Abzu, bears him daughters 
-- Ninki, Enki's spouse, arrives with their son Marduk 
-- Clans form on Earth as Enki and Enlil beget more sons 
-- Beset by hardships, the Igigi launch a coup against Enlil 
-- Ninurta defeats their leader Anzu in aerial battles 
-- The Anunnaki, driven to produce gold faster, mutiny 
-- Enlil and Ninurta denounce the mutineers 
+- She delivers seeds to grow elixir-providing plants
+- She brings Enlil news of their out-of-wedlock son Ninurta
+- In the Abzu Enki establishes an abode and mining sites
+- In the Edin Enlil builds space and other facilities
+- Nibiruans on Earth ("Anunnaki") number six hundred
+- Three hundred “Igigi" operate the facilities on Lahmu (Mars)
+- Exiled for date-raping Sud, Enlil learns of the hidden weapons
+- Sud becomes Enlil's Spouse Ninlil, bears a son (Nannar)
+- Ninmah Joins Enki in the Abzu, bears him daughters
+- Ninki, Enki's spouse, arrives with their son Marduk
+- Clans form on Earth as Enki and Enlil beget more sons
+- Beset by hardships, the Igigi launch a coup against Enlil
+- Ninurta defeats their leader Anzu in aerial battles
+- The Anunnaki, driven to produce gold faster, mutiny
+- Enlil and Ninurta denounce the mutineers
 - Enki suggests to artificially fashion Primitive Workers
 
 ---
@@ -3286,19 +3286,19 @@ To create a Primitive Worker, by the mark of our essence to fashion him!
 #### Synopsis of the Sixth Tablet:
 
 - To the incredulous leadership, Enki reveals a secret:
-- In the Abzu there roams a wild Being akin to the Anunnaki; 
-- By augmenting its life essence with that of the Anunnaki, 
-- It can be upgraded to be an intelligent Primitive Worker. 
-- Creation belongs to the Father of All Beginning, Enlil shouted 
-- We will give our image only to an existing being, Ninmah argued 
-- Badly needing gold to survive, the leaders vote Yes 
-- Enki, Ninmah, and Ningishzidda Enki's son begin experiments 
-- After many failures the perfect-model Adamu is attained 
-- Ninmah shouts triumphantly: My hands have made it! 
-- She is renamed Ninti ("Lady of Life") for her achievement 
-- Ninki, Enki's spouse, helps fashion Ti-Amat, a female Earthling 
-- The Earthlings, being hybrids, mate but do not procreate 
-- Ningishzidda adds two essence branches to their Life Tree 
+- In the Abzu there roams a wild Being akin to the Anunnaki;
+- By augmenting its life essence with that of the Anunnaki,
+- It can be upgraded to be an intelligent Primitive Worker.
+- Creation belongs to the Father of All Beginning, Enlil shouted
+- We will give our image only to an existing being, Ninmah argued
+- Badly needing gold to survive, the leaders vote Yes
+- Enki, Ninmah, and Ningishzidda Enki's son begin experiments
+- After many failures the perfect-model Adamu is attained
+- Ninmah shouts triumphantly: My hands have made it!
+- She is renamed Ninti ("Lady of Life") for her achievement
+- Ninki, Enki's spouse, helps fashion Ti-Amat, a female Earthling
+- The Earthlings, being hybrids, mate but do not procreate
+- Ningishzidda adds two essence branches to their Life Tree
 - Discovering the unapproved ongoings, Enlil expels the Earthlings
 
 ---
@@ -3877,19 +3877,19 @@ To the Abzu, away from the Edin, let them be expelled!
 #### Synopsis of the Seventh Tablet:
 
 - Returned to the Abzu, Adamu and Ti-Amat bear children
-- Earthlings proliferate, working in the mines and as servants 
-- Enlil's grandchildren, the twins Utu and Inanna, are born 
-- Anunnaki couples bear other offspring on Earth 
-- Climate changes cause hardships on Earth and on Lahmu 
-- Nibiru's orbital nearing is accompanied by upheavals 
-- Enki and Marduk explore the Moon, find it inhospitable 
-- Enki determines the constellations and Celestial Time 
-- Bitter about his own fate, Enki promises supremacy to Marduk 
-- Anu gives command of a new spaceport to Utu, not to Marduk 
-- Enki encounters and mates with two Earthling females 
-- One bears a son, Adapa, the other a daughter, Titi 
-- Keeping his parenting a secret, Enki raises them as foundlings 
-- Adapa, highly intelligent, becomes the first Civilized Man 
+- Earthlings proliferate, working in the mines and as servants
+- Enlil's grandchildren, the twins Utu and Inanna, are born
+- Anunnaki couples bear other offspring on Earth
+- Climate changes cause hardships on Earth and on Lahmu
+- Nibiru's orbital nearing is accompanied by upheavals
+- Enki and Marduk explore the Moon, find it inhospitable
+- Enki determines the constellations and Celestial Time
+- Bitter about his own fate, Enki promises supremacy to Marduk
+- Anu gives command of a new spaceport to Utu, not to Marduk
+- Enki encounters and mates with two Earthling females
+- One bears a son, Adapa, the other a daughter, Titi
+- Keeping his parenting a secret, Enki raises them as foundlings
+- Adapa, highly intelligent, becomes the first Civilized Man
 - Adapa and Titi mate, have two sons: Ka-in and Abael
 
 ---
@@ -4437,18 +4437,18 @@ Let Titi in Eridu remain, the newborns to suckle and nurture, Let Adapa the Eart
 #### Synopsis of the Eighth Tablet:
 
 - Adapa's wide understanding amazes Nibiru's savants
-- On Anu's orders Adapa is brought to Nibiru 
-- An Earthling's first-ever space journey 
-- Enki reveals Adapa's parenting truth to Anu 
-- Enki justifies his deed by the need for more food 
-- Adapa is sent back to start farming and shepherding 
-- Enlil and Enki create crop seeds and sheep lines 
-- Ninurta teaches Ka-in crop cultivation 
-- Marduk teaches Abael shepherding and toolmaking 
-- Fighting over water, Ka-in strikes and kills Abael 
-- Ka-in is tried for murder, sentenced to exile 
-- Adapa and Titi have other offspring who intermarry 
-- On his deathbed Adapa blesses his son Sati as his heir 
+- On Anu's orders Adapa is brought to Nibiru
+- An Earthling's first-ever space journey
+- Enki reveals Adapa's parenting truth to Anu
+- Enki justifies his deed by the need for more food
+- Adapa is sent back to start farming and shepherding
+- Enlil and Enki create crop seeds and sheep lines
+- Ninurta teaches Ka-in crop cultivation
+- Marduk teaches Abael shepherding and toolmaking
+- Fighting over water, Ka-in strikes and kills Abael
+- Ka-in is tried for murder, sentenced to exile
+- Adapa and Titi have other offspring who intermarry
+- On his deathbed Adapa blesses his son Sati as his heir
 - A descendant, Enkime, is taken by Marduk to Lahmu
 
 ---
@@ -4986,19 +4986,19 @@ In the Edin Lu-Mach as a workmaster the Anunnaki served, In the days of Lu-Mach 
 #### Synopsis of the Ninth Tablet:
 
 - Mankind proliferates; Adapa's line serves as royalty
-- Defying Enlil, Marduk espouses an Earthling female 
-- Celestial disturbances and climate changes affect Lahmu 
-- The Igigi descend to Earth, seize Earthling females as wives 
-- The promiscuous Enki begets a human son, Ziusudra 
-- Droughts and pestilences cause suffering on Earth 
-- Enlil sees it as fated retribution, wants to return home 
-- Ninmah, aged by Earth's cycles, also wants to return 
-- A mystery emissary warns them not to defy their destiny 
-- Signs increase of a coming calamitous Deluge 
-- Most Anunnaki begin to depart back to Nibiru 
-- Enlil enforces a plan to let Mankind perish 
-- Enki and Ninmah start to preserve Earth's Seeds of Life 
-- The remaining Anunnaki prepare for the Day of the Deluge 
+- Defying Enlil, Marduk espouses an Earthling female
+- Celestial disturbances and climate changes affect Lahmu
+- The Igigi descend to Earth, seize Earthling females as wives
+- The promiscuous Enki begets a human son, Ziusudra
+- Droughts and pestilences cause suffering on Earth
+- Enlil sees it as fated retribution, wants to return home
+- Ninmah, aged by Earth's cycles, also wants to return
+- A mystery emissary warns them not to defy their destiny
+- Signs increase of a coming calamitous Deluge
+- Most Anunnaki begin to depart back to Nibiru
+- Enlil enforces a plan to let Mankind perish
+- Enki and Ninmah start to preserve Earth's Seeds of Life
+- The remaining Anunnaki prepare for the Day of the Deluge
 - Nergal, Lord of the Lower World, is to issue the warning
 
 ---
@@ -5562,20 +5562,20 @@ In Sippar all the Anunnaki gathered, the Day of the Deluge they awaited.
 #### Synopsis of the Tenth Tablet:
 
 - The mystery emissary appears to Enki in a dream-vision
-- Enki is told to save Mankind through his son Ziusudra 
-- By subterfuge Enki directs Ziusudra to build a submarine 
-- A navigator comes aboard, bringing Earth's seeds of life 
-- Nibiru's approach causes the Whiteland's icesheet to slip 
-- The resulting tidal wave engulfs the Earth with water 
-- The remaining Anunnaki bewail the calamity from Earth orbit 
-- The waters recede; Ziusudra's boat rests on Mount Salvation 
-- Descending in a Whirlwind, Enlil discovers Enki's duplicity 
-- Enki convinces Enlil it was destined by the Creator of All 
-- They use the surviving Landing Platform as a temporary base 
-- In a Creation Chamber there, crops and cattle are fashioned 
-- Abundant gold is discovered in the Lands Beyond the Seas 
-- New space facilities are established in the olden lands 
-- They include two artificial mounds and a lion-shaped carving 
+- Enki is told to save Mankind through his son Ziusudra
+- By subterfuge Enki directs Ziusudra to build a submarine
+- A navigator comes aboard, bringing Earth's seeds of life
+- Nibiru's approach causes the Whiteland's icesheet to slip
+- The resulting tidal wave engulfs the Earth with water
+- The remaining Anunnaki bewail the calamity from Earth orbit
+- The waters recede; Ziusudra's boat rests on Mount Salvation
+- Descending in a Whirlwind, Enlil discovers Enki's duplicity
+- Enki convinces Enlil it was destined by the Creator of All
+- They use the surviving Landing Platform as a temporary base
+- In a Creation Chamber there, crops and cattle are fashioned
+- Abundant gold is discovered in the Lands Beyond the Seas
+- New space facilities are established in the olden lands
+- They include two artificial mounds and a lion-shaped carving
 - Ninmah offers a peace plan to resolve erupting rivalries
 
 ---
@@ -6115,21 +6115,21 @@ Praise to Ninharsag, on Earth the peacemaker! in unison the Anunnaki proclaimed.
 #### Synopsis of the Eleventh Tablet:
 
 - The spaceport's land, Tilmun, is declared a neutral zone
-- It is granted to Ninmah, who is renamed Ninharsag 
-- Marduk gets the Dark Lands, the Enlilites the Olden Lands 
-- Marduk's grandsons quarrel, Satu murders Asar 
-- Impregnating herself, Asar's wife Asta bears Horon 
-- In aerial battles over Tilmun, Horon vanquishes Satu 
-- The Enlilites deem it prudent to prepare another spaceport 
-- Enki's son Dumuzi and Inanna, Enlil's granddaughter, fall in love 
-- Fearing the consequences, Marduk causes Dumuzi's death 
-- Seeking his body, Inanna is put to death, then resurrected 
-- Inanna launches a war to seize and punish Marduk 
-- The Enlilites break into his hideaway in the Great Mount 
-- They seal the uppermost chamber to entomb Marduk alive 
-- Marduk's wife Sarpanit and his son Nabu plead for his life 
-- Ningishzidda, knowing the Mount's secrets, reaches Marduk 
-- Marduk, his life spared, goes into exile 
+- It is granted to Ninmah, who is renamed Ninharsag
+- Marduk gets the Dark Lands, the Enlilites the Olden Lands
+- Marduk's grandsons quarrel, Satu murders Asar
+- Impregnating herself, Asar's wife Asta bears Horon
+- In aerial battles over Tilmun, Horon vanquishes Satu
+- The Enlilites deem it prudent to prepare another spaceport
+- Enki's son Dumuzi and Inanna, Enlil's granddaughter, fall in love
+- Fearing the consequences, Marduk causes Dumuzi's death
+- Seeking his body, Inanna is put to death, then resurrected
+- Inanna launches a war to seize and punish Marduk
+- The Enlilites break into his hideaway in the Great Mount
+- They seal the uppermost chamber to entomb Marduk alive
+- Marduk's wife Sarpanit and his son Nabu plead for his life
+- Ningishzidda, knowing the Mount's secrets, reaches Marduk
+- Marduk, his life spared, goes into exile
 - Enki and Enlil divide the Earth among their other sons
 
 ---
@@ -6410,7 +6410,7 @@ To Utu, Inanna's brother, Help me! word he sent; the name of his father Enki as 
 
 Through the desert of Emush, the Snakes Desert, Dumuzi rushed to escape, To the place of mighty waterfalls from the evildoers he ran to hide.
 
-Where the gushing waters the rocks to slippery smoothness made, Dumuzi slipped and fell; The onrushing waters his lifeless body in a white froth swept away. evil emissaries to arrest you 
+Where the gushing waters the rocks to slippery smoothness made, Dumuzi slipped and fell; The onrushing waters his lifeless body in a white froth swept away. evil emissaries to arrest you
 
 #### Now this is the account of Inanna's descent to the Lower Abzu, And the Great Anunnaki War, and how Marduk in the Ekur alive was imprisoned.
 
@@ -6671,19 +6671,19 @@ To come to Earth one more time Anu decided; with Antu his spouse he wished to co
 #### Synopsis of the Twelfth Tablet:
 
 - The soil dries, plains and river valleys are resettled
-- Plentiful gold comes from the Lands Beyond the Seas 
-- Anu and his spouse Antu arrive for a memorable visit 
-- Reminiscing, the leaders realize they are Destiny's pawns 
-- They allocate three regions of civilization to Mankind 
-- Pardoned by the departing Anu, Marduk remains rebellious 
-- The First Region and space facilities are Enlilite lands 
-- Man's first civilization begins in the First Region (Sumer) 
-- Marduk usurps a site to build an illicit launch tower 
-- Frustrated by the Enlilites, Marduk seizes the Second Region 
-- He deposes and exiles Ningishzidda (Thoth) to distant lands 
+- Plentiful gold comes from the Lands Beyond the Seas
+- Anu and his spouse Antu arrive for a memorable visit
+- Reminiscing, the leaders realize they are Destiny's pawns
+- They allocate three regions of civilization to Mankind
+- Pardoned by the departing Anu, Marduk remains rebellious
+- The First Region and space facilities are Enlilite lands
+- Man's first civilization begins in the First Region (Sumer)
+- Marduk usurps a site to build an illicit launch tower
+- Frustrated by the Enlilites, Marduk seizes the Second Region
+- He deposes and exiles Ningishzidda (Thoth) to distant lands
 - He declares himself Ra, supreme god, in a new religion
-- He introduces Pharaonic reigns to mark a new civilization 
-- Enlil assigns his son Ishkur to protect the metal sources 
+- He introduces Pharaonic reigns to mark a new civilization
+- Enlil assigns his son Ishkur to protect the metal sources
 - Inanna is granted dominion in the Third Region (Indus Valley)
 
 ---
@@ -7190,19 +7190,19 @@ His comrades raised his neck, without the breath of life it was; On Mount Hurum,
 #### Synopsis of the Thirteenth Tablet:
 
 - Royal cities sprout with sacred precincts for the gods
-- Demigods serve as kings and priests in palaces and temples 
-- Marduk promises his royal followers an eternal Afterlife 
-- In Sumer, Inanna encourages belief in Resurrection 
-- Celestial omens and foretelling oracles gain followings 
-- Marduk proclaims the coming Age of the Ram as his sign 
-- Ningishzidda builds stone observatories to show otherwise 
-- Insurrections, wars, and invasions destabilize Enlilite lands 
-- The mystery emissary appears to Enlil, foretells a calamity 
-- Instructs Enlil to select a Worthy Man to lead survival 
-- Enlil chooses Ibruum, scion of priestly royal family 
-- Armies raised by Nabu attempt to seize the spaceport 
-- Overruling Enki, the gods resort to Weapons of Terror 
-- Ninurta and Nergal obliterate the spaceport and sinning cities 
+- Demigods serve as kings and priests in palaces and temples
+- Marduk promises his royal followers an eternal Afterlife
+- In Sumer, Inanna encourages belief in Resurrection
+- Celestial omens and foretelling oracles gain followings
+- Marduk proclaims the coming Age of the Ram as his sign
+- Ningishzidda builds stone observatories to show otherwise
+- Insurrections, wars, and invasions destabilize Enlilite lands
+- The mystery emissary appears to Enlil, foretells a calamity
+- Instructs Enlil to select a Worthy Man to lead survival
+- Enlil chooses Ibruum, scion of priestly royal family
+- Armies raised by Nabu attempt to seize the spaceport
+- Overruling Enki, the gods resort to Weapons of Terror
+- Ninurta and Nergal obliterate the spaceport and sinning cities
 - The drifting nuclear cloud brings death to all in Sumer
 
 ---
@@ -7716,12 +7716,12 @@ From Eridu in the south to Sippar in the north did the Evil Wind the land overwh
 #### Synopsis of the Fourteenth Tablet:
 
 - Babili, Marduk's chosen center, survives the calamity
-- Enki sees it as an omen of Marduk's inevitable supremacy 
-- Enlil ponders the past, Fate, and Destiny 
-- Accepts Marduk's supremacy, retreats to faraway lands 
-- The brothers bid a sentimental good-bye 
-- Enki sees the Past as a guide foretelling the Future 
-- He decides to commit all as a record for posterity. 
+- Enki sees it as an omen of Marduk's inevitable supremacy
+- Enlil ponders the past, Fate, and Destiny
+- Accepts Marduk's supremacy, retreats to faraway lands
+- The brothers bid a sentimental good-bye
+- Enki sees the Past as a guide foretelling the Future
+- He decides to commit all as a record for posterity.
 - Colophon by the scribe Eridubsar
 
 ---

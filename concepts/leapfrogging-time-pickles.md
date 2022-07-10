@@ -102,4 +102,4 @@ obviously, this is untennable to do for any length of time. there is no way that
 
 the whole point, I think, would be to traverse the 1024y period over various lifetimes, and just trusting that it's all attraction along the way.
 
-each time there is a successful run, 
+each time there is a successful run,

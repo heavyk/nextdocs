@@ -9,7 +9,7 @@ thing is, that accounts for the N/S, but what about E/W?
 
 ```
            science and religion interwined
-science and religion so divorced that science is a religion 
+science and religion so divorced that science is a religion
                         |
                 ?   ----+----   ?
                         |
@@ -66,7 +66,6 @@ everything affects everything else  |      everything is falling apart
     natural processes are *not* the realisation of desire/will into reality
             (540 science and religion are completely incompatible)
 natural processes are incompatible with the realisation of desire/will in reality
-            
 ```
 
 OK that's a much more complete conceptual spinor. I kinda like it because it pretty well captures the phases of society, and you can even see the progression of the 7-layers-of-perception in there where 0/360 is desire, 180/540 is physical, 90/450 is logic/structure, and 270/630 is conceptual. it also (if you stretch it a bit) captures kinda well the phases of a culture or civilisation through time and space where the passage through each cardinal point spells the destruction of the opposite.
