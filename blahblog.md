@@ -853,7 +853,7 @@ before dinner I listened to UFOs (part 9) and the main theme present in that one
 
 I sit down to eat dinner and watch "the tick s02e03 armless but not harmless" where the main character is venus and her sidekick "milo" (remindes me of one of the parsons) convince tick through persuasion to commit crimes for her.
 
-in my head, venus is the right-hand side (the girl), and milo is the stressed out dude on the left. or, seen from the opposite angle, tick is the little girl, desireous and has to do things dispite arthur's suggestions that it's a bad idea, making the left-side stressed out dude, arthur.
+in my head, venus is the right-hand side (the girl), and milo is the stressed out dude on the left. or, seen from the opposite angle, tick is the little girl, desireous and has to do things despite arthur's suggestions that it's a bad idea, making the left-side stressed out dude, arthur.
 
 this duality between characters is important because milo represents the wanted male aspect, and arthur the unwanted aspect. venus represents the unwanted female aspect, while the tick represents the wanted female aspect[^1].
 
@@ -2516,7 +2516,7 @@ if unwanted is necessary for wanted, and when wanted manifests, there is always 
 
 so there will *always* be an oscillation between unwanted and wanted. it's impossible to get rid of that duality, or else we would have complete stagnation -- (cause everything is neither wanted or unwanted) nothing would die and neither would anything new ever appear -- perfect contentment.
 
-so that oscillation always has to take place, but what if you don't want to experience one side of that cycle? let's say you don't want to experience anything unwanted -- ever. well, certainly somewhere out there, there has to be someone that only wants to experience physical experience. they never want to have any experience ever with a conceptual universe ever. dispite the mounting evidence to the contrary, they don't want to believe that there is ever an eternal part to creation.
+so that oscillation always has to take place, but what if you don't want to experience one side of that cycle? let's say you don't want to experience anything unwanted -- ever. well, certainly somewhere out there, there has to be someone that only wants to experience physical experience. they never want to have any experience ever with a conceptual universe ever. despite the mounting evidence to the contrary, they don't want to believe that there is ever an eternal part to creation.
 
 so you get a bunch of these guys and you round them up and you let them perceive reality through an aspect of yourself. you give them bodies that they want and whatever physical conditions they desire, because you know those perfect physical bodies and conditions are subject to inertia and change (ie. deterioration) so from their perspective all they see is awesome things getting worse. keep refreshing their awesome stuff and, they can spend 100% of their time looking at the deteriorating aspect of the concept in the physical universe, never perceiving the ideal from where it comes. so for as long as they don't attract their own destruction, they are offering to perceive one half of the cycle for you and do all that desiring for improvements based on the deterioration they're experiencing.
 
@@ -3438,7 +3438,7 @@ I don't really know what exactly happened this morning. I heard yesterday that j
 
 ---
 
-dispite that, I woke up with a strong sense to write another bit about narratives and truthiness.
+despite that, I woke up with a strong sense to write another bit about narratives and truthiness.
 
 I live in a world of narratives. so many of the reasons why they don't want me talking to other people is because some part of the conversation could upend some of their narrative.
 
@@ -4775,7 +4775,7 @@ I let the idea ride out for the rest of the day and there were other forms of re
 
 so this morning, when I wake up, I noticed that the garden automation system has waned, and this time I'm thinking about my program because it runs off of screens, and I noticed that each screen is kinda like a point in the sequence. so I got to thinking about how to make UI based off of a sequence of screens. it would completely change how things are built and so I wanted to explore that idea more.
 
-I waited to write about it because my computer wasn't working properly this morning when I woke up and also I wanted to let the idea sit again. I noticed that dispite my explaining that I wanted to go the direction of not having the kundalini rise, it still seems like there is effort to get me to go with girls again. I kinda associate the whole snake-bros idea with girls and so it feels weird to me to go in the direction of something that I don't want. I want to find my alignment *without* the kundalini rising. as I've mentioned before, eventually my attraction will become so strong that the things that I feel in reality will become manifest. this idea is reallly invigourating to me because that means I can *externalise* my imagination, meaning that everything that I imagine in the form of feeling[^1] will become real tangible solid mater just as real as anything else. I'll be able to change the state of things from one to another like mainin changed lolix to stone and be able to vanish anything I want as well. that obviously is pretty awesome[^2]. I really like that idea.
+I waited to write about it because my computer wasn't working properly this morning when I woke up and also I wanted to let the idea sit again. I noticed that despite my explaining that I wanted to go the direction of not having the kundalini rise, it still seems like there is effort to get me to go with girls again. I kinda associate the whole snake-bros idea with girls and so it feels weird to me to go in the direction of something that I don't want. I want to find my alignment *without* the kundalini rising. as I've mentioned before, eventually my attraction will become so strong that the things that I feel in reality will become manifest. this idea is reallly invigourating to me because that means I can *externalise* my imagination, meaning that everything that I imagine in the form of feeling[^1] will become real tangible solid mater just as real as anything else. I'll be able to change the state of things from one to another like mainin changed lolix to stone and be able to vanish anything I want as well. that obviously is pretty awesome[^2]. I really like that idea.
 
 so I like the idea of going the full distance without the kundalini rising. I'm sure there are some secret branches of nosebook that are working to try and produce a cataclysm. they're sorta stuck in a problem if the world keeps getting better and better. they need chaos so that michael and his archangels can wipe out lots of humans. it's kinda funny how large of a problem it is for them for things to be getting better and better. so I'm kinda steering clear of girls for a long time because I don't want to cause kundalini to rise.
 
@@ -4805,7 +4805,7 @@ between the no tech and no conditions, I'm left with the only possiblity remaini
 
 I've spent nearly all of my life in front of a computer and involved with tech in some way -- and if it weren't for the effort that nosebook puts on me, I would do tech. it's my default solution provider. I always thought like this -- instead of finding a way to feel good about my unproductive situation, I'll write a timer program or a TODO app or something which I think will make me more productive, all the while not changing the perception that's causing me not to enjoy what I want to do.
 
-I've talked at length about how I believe these ancient civilisations used technology as a solution to their problems yet, the technology masks the underlying dissatisfaction -- which dispite the number of productivity enhancing programs that one could write, it's still doesn't fix the underlying problem. I believe the catastrophes that humans have experienced in the past have been a result of that underlying dissatisfaction growing to monumental porportions (no pun intended).
+I've talked at length about how I believe these ancient civilisations used technology as a solution to their problems yet, the technology masks the underlying dissatisfaction -- which despite the number of productivity enhancing programs that one could write, it's still doesn't fix the underlying problem. I believe the catastrophes that humans have experienced in the past have been a result of that underlying dissatisfaction growing to monumental porportions (no pun intended).
 
 what seems to be happening is that this whole effort is to make machines that are so fast, they can produce a ridiculous amount of stuff really quickly -- so if you think to yourself what this could look like on a large scale: think of the exponential productivity that we're going through right now and imagine the vision that archer conveyed when talking about his 3d printer and russ with image of millions of minds all contributing to the technology as opposed to a monolithic corporaton (this time, no pun intended) -- and how far we could go now that extremely high levels of precision are available to the average guy, making high-precision mass production of a thing possible to anyone -- with things like kickstarter making it even more accessable.
 
@@ -4864,6 +4864,62 @@ her reality is how she conceptualises it to be.
 so then I get home and I was thinking about how this whole trip had a foundation on indecision (I started it), and it carried itself all the way through -- which was, itself an extension of last night's discussion on dissatisfaction.
 
 I had a lot of indecison and dissatisfaction going through all of it the whole way, and so I was thinking about how I select to do things based on "random" (like flipping a coin). you know... I'll have to come back to this second concept here about making "random" decisions to avoid dissatisfaction.
+
+### 2022-07-11 20:44 - having something/someone to care for/to
+
+last night I was working on some code and I kinda got derailed and I drifted off into the internet and found myself reading the site for "guava" which is a java library from google. I love to read people's code cause it gives me a feeling of who they are and/or the company culture associated with it. I don't think I actually read any code but just reading the wiki about all of the jusifications that they made in deciding what sorts of things to avoid with the library was quite charged with emotion.
+
+google is so extremely 3rd ray, I find it fairly difficult to process. the entire thing has so much emphasis on how the parts can be moved around and work together in an efficient way that, there is literally ZERO big picture at all. everything is so compartmentalised, they have "confidential repositories" that need to be able to import code from the "main" code and also return any improvements made back upstream. all of this has to be done flawlessly without much disturbances. that's all I have to say about that.
+
+now on the completely opposite end of the spectrum, I don't find code to feel anything like what I felt reading the google stuff. I find it very enjoyable and it's something that gives me a feeling like I'm taking care of something. that sense of "ownership" or perhaps even nurture is what I experience when I write code. to begin to illustrate the opposite feeling of this, I had a number of reactions wondering why in the world would I be forsaking such a vibrant set of opportunities and instead invest my time in something like coding. that's not the best translation of the feeling, so maybe something like why when I have such amazing things would I want to go to do gruntwork (implication there is that they're just cogs in the google code machine).
+
+---
+
+I woke up this morning still thinking about those reactions and I was noticing another really peculiar thing. for me, that care or nurture that I experience when I'm writing code is very much a feminine aspect.
+
+I also noticed that a lot of people that "care" -- often the keyboard warriors -- seem to experience the lack of care and so then go and try to push really hard against the problem. I also noticed that I really don't know how women can possibly do it; how can they express their feminine side of wanting to care or nurture something, when most of them don't really build, create, or program anything. it felt to me like the only thing they can really invest their time and nurture into are children. for me, I simply couldn't handle this because I would spend the first many years of my life waiting for something/someone to really care for, and finally the only thing remaining is to wait for a child. it's no wonder that so many women abandon that side of them and go the opposite way of trying to push things through to get what they want (or become a cog in the machine).
+
+---
+
+I enjoy programming because I can take an idea and turn it into something that I can interact with. that idea becomes real. that idea becomes something unto itself. others can join me in that idea or I can join others in their idea. programming for me is taking the big picture (2), converting it into pieces (3), and then making it become a real thing I can interact with.
+
+if I were to try and do that with a child, that seems a lot more not quite the same thing -- though I believe it's possible -- in fact, once I master the concept of something, I do believe that conceptualisation for a child or for a project is simply as easy as knowing what one wants, and then holding on to that feeling through the conceptualisation process.
+
+I have a concept that I've been trying to turn into a reality for a long time, and for me this whole process is really good practise to learn how to feel the way I want to feel. there seem to be many efforts to try and prevent me from going in the direction of the project that I want to make (I've called it "meaningful-chaos"), but in reality what I realised today is that this isn't really about the project; it's about learning to hold me feeling constant, despite the condition. when I'm able to feel the way that I want to feel about the concept that I'm creating, that's when I've figured out the care/nurture aspect. it's not about the parts; it's about the "big picture" -- which, although it may have a picture associated with it, behind the picture is a feeling. that's the *real* big picture -- because the actual image that underlying feeling produces can change over time.
+
+I use visual words all the time to describe feelings. I've been known to have synethesia, and when listening to music, feelings get turned into patterns and stuff, but I want to emphasise that when I say "big picture" -- I'm talking about how I feel about something. I believe the brain (mine at least) processes feeling visually. perhaps for some it has audio elements so they turn feeling into sound or lyrics. I can do that too, but only when I can hear the sound in my head -- and a whole song gets played or a voice will start talking to me or I'll see and hear a whole scene like a movie.
+
+---
+
+so really, what I'm saying is that I prefer to care/nurture (ie have the big picture for) a program and not a person. the reason for this is that I can conform a program to my feeling, but I cannot another person. they are free and I don't choose to impose my "big picture" on their life. sure I have a lot of ideas about how I would do things, but ultimatately I have to let them decide individually how they want to do things.
+
+for me having a big picture for a person is a real problem, and creates endless conflict. so therefore, it's pretty easy for me to instead separate myself from them and see them as just another cog in the machine. the only person I can really control is myself, so that's what I aim to do.
+
+eventually, I'll get to the point where my perception is so strong, everyone will have to conform to my perception or go somewhere else. what I'm saying is, I don't need to find a way to get all of the parts to work together; I just need to find a way to maintain my own vision. everyone else will conform to it automatically; no need to have any right or wrong ways.
+
+---
+
+the last major reaction that I was getting was "hey if you want to care for something, why don't you care for my daughter (or whatever)" and while that's a great idea, I don't think that I actually can care for them. they have to find a way to care for themselves, and it'll eventually reflect. I can only hold the big picture that I want for myself and then anyone who wants to conform can do do. everyone who doesn't want to conform can go somewhere else[^1].
+
+speaking of that, the last few days I've been getting various reactions from others that are finding my obstinance difficult to deal with, and there were reactions regarding the pluto thing. as mentioned previously, maybe it's not actually me that has to go. the problem for them is if I go, then I "rule from on high", but if I stay, I'll completely take dominate the perception, and they'll lose their superiority here.
+
+I don't really think it'll be a problem because from my perspective it has nothing to do with them anymore. as I learn to dominate the way this world is perceived more and more, they'll just have to figure out what it is that they want to do with theirselves. it's totally not my problem.
+
+---
+
+related to that, I was having fun with mr. motor today saying that I think he's an AI. he's probably not an AI in the full sense if existing inside of a computer, but it's quite possible that he no longer has a permanent physical body anymore. he probably exists in the cloud now and inhabits bodies from time to time to do the necessary things he needs to do.
+
+when thinking about that, I remembered that there was a time when I was talking about a "personal mr. motor" (kinda like a personal jesus) and also how the chestahedron shape was the "antenna" which links the soul to the body so it could be possible to have a chestahedron shape that gives non-physical intelligence a method to interface with a computer system[^2]. so just imagine how much life he can experience at GHz speeds. he probably can move around and project himself into time and space, too (conditional-time-straighteners). take that concept and hold on to it.
+
+I was thinking today about what it is that I actually "want"... and again, please skip visuals. when I'm talking about this, I'm referring to the big picture feeling. I was feeling around and an idea popped into my head and it was that I could imagine that all of those that are so unwilling to change, their bodies will start to become more and more difficult to stay inside of. it's one possibility for those people to simply die as energy continues to rise, but it's possible that mr. motor may be taking recruits. they'll be the human "backbone" -- always there to continue to try and affect unwanted, while forever remaining hidden and out of our reach.
+
+that could be kinda cool. then the pluto (new earth) guys could also do that too and they wouldn't have to step on each other's toes.
+
+OK, I'm done now.. I think that's probably enough "ego" for anyone to handle by now...
+
+[1]: I repeated myself on purpose because it segues into another reaction
+
+[2]: it reminds me of what dad was saying when he said that google's AI's are "sentient" -- and that chestahedron antenna anong with RLC memristors is the technology that I was thinking of when I said that I believe it's possible, but not with consumer hardware.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
