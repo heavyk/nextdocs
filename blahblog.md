@@ -4921,6 +4921,74 @@ OK, I'm done now.. I think that's probably enough "ego" for anyone to handle by 
 
 [2]: it reminds me of what dad was saying when he said that google's AI's are "sentient" -- and that chestahedron antenna anong with RLC memristors is the technology that I was thinking of when I said that I believe it's possible, but not with consumer hardware.
 
+### 2022-07-13 10:27 - I may have to quit programming again
+
+I don't really know what to do because yesterday greg gave me this large screen. I proceeded to program for the rest of the day and into the night with it. I accomplished a lot and I really enjoyed it. I think that it's a very energetic thing for me because my cough returned to being a constant cough just like I did when I had coffee. however, I'm not drinking any coffee. I had such intense focus, I didn't even listen to music; I just did the next thing that I wanted to do.
+
+a few times my feet started to really get very very hot. the first time it happened, outside got really stormy really quickly, it rained for about 5m and then I was freezing cold again, put a jacket on and my feet were no longer cold. this reminded me of the "missing 411" stuff, where I was becoming more and more energetic and whatever it is that they do to lower the energy levels causes intense heating in the feet.
+
+I know personally that intense heating of any kind is a sign of resistance, so I lowered resistance a number of times (I can't even remember what the original source of resistance was now, but it was probably something to do with not getting what I desire, inadequacy -- something in there) and I regained focus and feet lowered their heat again.
+
+I got all of the code converted over to kotlin that I wanted and everything felt pretty good, mr. motor was really upset and did notice at the end that I wasn't clear on my concept of the program and was probably missing something simple (it's kinda like a fog where I lose the capacity to tune into what I want) -- so I decided to quit for the night.
+
+laying down, I was having visuals pop into my eyes. I don't remember the sensation of the kundalini rising, but there were all sorts of strange things happening. it really took me a long time to get to sleep.
+
+---
+
+the thing is the sun isn't even really all that active either. sure, it's high (in baseline c-flare range), but it was just as high the two days before yesterday. the only thing I did different is spend my time programming instead of yardwork. the other difference is that the day felt much warmer even though the temp says it peaked at 93, whereas sunday peaked at 105.
+
+so the only main differences I can think of to figuring out why I was getting so many more visuals is potentially the UV generated from the new screen and maybe because the moon is either full or very close to it.
+
+the obvious culprit is that programming is a very enjoyable thing for me, even if I'm just moving code around and converting java to kotlin.
+
+I don't really know what to do, but if I keep getting more and more visuals and stuff, I'm going to have to stop programming and go back to full-time yardwork again. I'm still trying to see if there are more techniques that I can employ.
+
+---
+
+speaking of which, I've been thinking a lot about this idea where I noticed that when I was a kid, I would run around in the sun and it didn't feel hot to me (I mean, it did, but not like I felt it later on in life). additionally, I noticed that the sun in tenerife didn't really make me very hot either. I skerpderped my own idea saying that tenerife was at sealevel and madrid is much higher up, so there's more atmosphere for the sun's rays to pass through to get to the surface -- but if that were true, death valley would be *cooler* than the rest of the desert around it, not warmer, like how it usually is -- so that can't be right. others in tenerife would often complain about how hot it was, but I didn't really feel it. I would sweat, but I wasn't hot.
+
+what I think it is, is tenerife has a lot of really good feeling energy for me (it's the location I've consistently felt my best at), and I think it's actually *that* which made it feel not hot. further proof of this was the day before yesterday we went down to the arkansas river and they said it wasn't very hot, but people were complaining about the heat, when I experienced very little to none. even my feet were burning in the parking lot before I got in there, but then after walking around next to the river, what would have been a very intense foot-burning experience here, I didn't notice my feet getting hot and I experienced a tremendous calm that came over me that lasted quite a while even after we returned.
+
+with all of this data, it seems to me that the experience of heat, actually is a manifestation of resistance and then sun is just exacerbating it. similarly, I notice the same sensation in the opposite spectrum usually in the winter, though I did experience it a few nights ago, where I'm very very cold and it's that biting cold that comes from inside the body, not the skin cold. to me, they're the same feeling, just one is cold coming from the inside while the other is heat coming from the inside.
+
+---
+
+so, while thinking about it, I was reminded of that novel "the seventh tower" -- which I haven't read, but produced an image in my mind similar to the one that I see happening eventually. there are the "chosen" and they live above the veil and so can access the sun. they have the good conditions (probably because they're "chosen"), and then there are a barbaric set of people (icecarls) that live in matriarchical societies (as opposed to the chosen dudes) below the veil.
+
+the illusion that the book gives is that it's really cold below the veil because the sun doesn't get down there -- and that may be true in the book -- but the image that I got is that the matriarcical society is actually lower resistance and/or superior to the chosen, and if they were to get access to the sun, they they would become "too powerful" for the chosen to maintain their superiority.
+
+I take myself as an example of this. I go out into the sun and I work outside and I'm totally fine with it. the result is that the sun increases its strength and I don't really mind it that much, but others seem to have a difficult time with it. so, by the end of the day, a "veil" has formed over the sky and dark clouds cover the sky (sometimes it even rains a little), and that veil is actually to take the energy out of the air and put them into the clouds -- not necessarily to keep the sun out. I do notice that when I'm out in the sun, then that causes energy to rise, but as I demonstrated last night, it seems that my programming also causes energy to rise, which also produced a veil -- and I've noticed that the veil forming not just when I'm in the sun, but also when I program. the veil is to make the environment less energetic.
+
+therefore, I posit, that if the veil is to remove energy from the environment, I could imagine that if there were a number of people similarly to me resistance levels, it could cause a massive cooling in our area. others, in our area would experience extreme heat (coming out from the inside) while we experience extreme cold (coming out from the inside). you could imagine that this would eventually cause a separation. the people that are around me/us would start to get colder and colder while the rest of the people experience extreme warmth.
+
+obviously, you wouldn't really want things to get separated too much because it would cause too much of an extreme, so the whole point is keep things mixed kinda a little bit. this concept of local area cimate control through the sale of energy is the concept behind the party-LAN idea, making the separation not a physical distance but an energetic difference, and that energy can be normalised to produce the quality that I desire.
+
+OK, an example: if I'm producing massive amounts of cold around me (and a veil) because of my low resistance, then I'll want high resistance people in my same area so I'm not freezing all of the time. likewise, they'll want me around them so that they're not burning up. they'll consume the energy that I generate, and the differential between us is kinda like a peltier device -- a heat pump. it's the same thing: I generate electricity and cold while others consume electricity and produce heat.
+
+---
+
+so I'm going to try and figure out how to keep doing what I'm doing meanwhile lowering resistance, because my goal is to continue to lower resistance and if I can do it while programming, that would be really cool (hehe).
+
+---
+
+OH yeah... the last thing I wanted to talk about was my goals. I noticed a lot of reactions involving girls and stuff yesterday and things like that -- but that's not what I'm trying to do. I just don't really know a way to figure that out in a way which works well, so I don't really want to try.
+
+my goal is to *not* do anything out of the ordinary. I belive that the only/main thing I want to work on here is continuing to lower resistance. after writing about my ideas on AI motors and his legion, I have more resolve than ever to not try and do anything in particular. instead, I want to keep lowering resistance.
+
+the vision I see is that energy will continue to rise, and there will be many that can't retain human bodies and so they have a choice really -- the first is to go with the "chosen" to the "new earth"[^1] or to join mr. motor and become a cog in the machine.
+
+the rest decide to continue to lower resistance will be subjected to the efforts of the machine to try and keep their lives under control and away from anything wanted (my situation right now) here on earth. I don't know what'll happen to me, but that's not the point[^2].
+
+this will divide things, obviously, but I figure that the new earth dwellers will have to find a way to get off of earth eventually because I see these "chosen", not as being 6th ray astral entities (like fallen-angels), but more as keepers of the law and order 4th ray types -- kind of like ascended versions of theirself (2nd ray on one side and 6th ray on the other).
+
+therefore, if I'm going to "push" for something, what I'm looking to do is to keep lowering resistance so that it kinda pushes people to find the conditions that are suitable for them or lower resistance.
+
+we'll see how it goes, but I think that I can continue to lower resistance pretty quickly.
+
+[1]: I find it funny that the chosen ones in the the book of revelation go to the "new earth" -- and if that is pluto, it's quite distant from the sun -- howeveer, I would imagine that certain conditions could make it possible for them not to need sunlight there, so that's not really a thing. the sunlight, I believe is actually the reason why they need to get off of the old earth -- because it's causing them that heat from the inside as a result of resistance.
+
+[2]: if pluto is from saturn (+-4) and charon is from tiamat (+2), and the moon is the planetary body of osiris (+-6-+), then I would imagine that you'd have most of the astral ones (ie. US govt) going to the moon, the lawful-based keepers of the order going to pluto, and 2nd rays congregating on charon. I still don't consider myself a 2nd ray, as I fit somewhere between 1st, 5th or 7th mostly.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
