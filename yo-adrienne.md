@@ -38,4 +38,18 @@ so, as a result, there are probably quite a few pretty well-known exploits at th
 
 I have more to say, but when listening to this, for some reason I can't get to it. bye for now
 
-P.S. the timestamp has the number sequnces 7-14-28, 11-22. 3x7, 2x11
+P.S. the timestamp has the number sequnces 7-14-28, 11-22. 11 twice and 7 twice twice
+
+### 2022-07-14 16:12 - some thoughts on synchros
+
+OK, change of music; hope you don't mind. there were some reactions to me mentioning that I try to avoid synchronicities in the last letter (I think these will be just letters, so when I say "you", I mean adrienne).
+
+the reason why I avoid synchronicities is because any time something is really eye-catching or has a lot of meaning associated with it, it means that I'm not up to speed with the vibration (I notice I use a lot more abraham phrases, writing to you). when I'm not up to speed with it, it feels like a big deal -- however, if I'm up to speed with it. then it just feels normal.
+
+the other reason why I tend to avoid synchronicities is because they are products of the astral. I think randall calls it the "language of the birds" and that happens when someone is attracting really strongly and it means that you're going faster than normal. I also associate it with the "deja vu" like in the matrix where it's a sign of an overlap in time.
+
+imagine for a moment that I had a time machine and I wanted to manipulate a timeline so that I could move myself or someone to another location in time or space; well, the previous moment and the new moment and the new moment have to feel somewhat similar, so I cause (or reality causes because of similar vibrations) something *meaningful* to happen so that I end up going in a different direction. that synchronistic or *meaningful* event totally altered the direction that I was going to go next.
+
+as an example, imagine I transported over to china, and just sort of appeared there, the events leading up to the moment where someone talked to me would appear to them as synchronistic, because previously I wasn't there and wasn't apart of that system, but now that I'm there, the astral part of the mind has to create events that are "synchronistic" in the linear sequence of time for the "now reality" to appear plausible. it does this by creating (you know you create your own reality, don't you) a sequence of events that can lead up to something -- a "manifestation" of something extraordinary. it's the mind's way of rationalising the incomprehensible.
+
+hope that helps. cheers!
