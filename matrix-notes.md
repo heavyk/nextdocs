@@ -61,3 +61,39 @@ I think ego is fine. you have to know yourself and if you know that you are much
 this movie says you should have a really hard time learning to believe in yourself, and when you do, you should engage in chuleria -- why? because you're the prophesied one.
 
 [1]: reminds me of lidsey's dissertation on rocky in her hot takes on hercules -- because of love, yay!
+
+### matrix 2&3 - ridiculous formula and action
+
+I lump these two together because they feel like the same movie to me -- just nobody could stand a 4.5h movie, so they made it two. right away, they start off with a lecture on "purpose" -- and the idea is that programs have a purpose (3), while humans make their decisions irrationally based off of love (1) or emotion (5). this is once again the epic conflict between 3-7 and 5-1.
+
+the ending was pretty disappointing to me and I thought they were going to take it a different direction because of the conversation that the counceler dude had with neo on the balcony about the symbiosis between humans and machines and that the difference is that we feel like we can "control" the stupid machines, yet the smart ones, we cannot control.
+
+obviously, he wanted to make a point that he wasn't making a point there because again the opposite can be seen from the perspective of the machines. they like the stupid humans -- the ones that just blindly follow directions and are controlled through sensation (like the woman with the cake). the merovingian guy explains that using simple action/reaction, cause and effect, algorithms, combined with sufficient data/information/intelligence, one can can effectively control all of those sensationally driven humans. you see, the machines would look upon us in the same exact way as the counceler is speaking about the machines. the humans that are outside of their control, they will perceive as bad and/or as a threat to their continued existence.
+
+---
+
+the next thing is that these movies setup a triangle of forces instead of just a binary. you believe that smith is an agent, but when he combines with neo, he becomes a virus, just like he claimed the humans are. it's also revealed that smith is the dual of neo -- his opposite. therefore, he's designed, just like "the one" is to, cause imbalance in the equation, and in the process of restabilisation, change happens. the architect (3) does not like this at all.
+
+in this triad, the oracle is chaos/intuition/desire (1), with her goal to purposefully cause an imbalance in the "perfectiion" and stability that the architect (3) tries to do inside of the equations. those two are quite good symbols and they can be represented as anatau (1) and sanatau/enki/ptah (3) pretty accurately.
+
+when it comes to neo as a symbol, I have my objections. it is accurate that though it is a triangle, "it's not really three, but four" -- in exactly the same way that the memristor is the fourth component, he is programmable resistance. I persoally believe that the 2nd ray aspect (as well as the 4th and 6th) are designed to have a dual nature to them. I represent this with the self-sabotage paradigm, but this movie portrays it as self-sacrifice instaed.
+
+if I had've written the story, I would have written it where neo dies, and then becomes the bad-guy (smith) that then defeats himself over and over (so far so good), but then at the end, neo needs to *assimilate* the properties of his own dual so that he becomes something bigger.
+
+this constantly defeating the dual is the alpha and the omega (represented in the first movie with the number 303). so let's say neo is the octahedron/chestahedron. he gets fully defeated (all faces have a perpendicular vertex in the centre) and so then the dual takes over, the cube/decatria. this new form is larger than the last, but it's weakness is exactly the thing that it was fighting against, which is again its dual. this continues on endlessly, each time the dual has to reinvent itself. that constantly swapping is the repeated 5-1 vs 3-7 changing sides over and over, each time the opposite assimilating the other.
+
+neo never assimilated smith. they just fought a long battle, and at the end smith "wins" the battle and assimilates neo again, but this time his assimilation of neo destroys the virus.
+
+there was a level of assimilation, but it's not really shown overtly in the symbols, because neo does become machine-like in that he keeps getting up and fighting smith, and it's also shown that the oracle and also the train station girl's father shows, when he tries to behave in accordance with a word and its definition, and in the process he's willing to try and save his daughter by sending her over to the matrix from the machine world. it's also interesting too that the merovingian guy is the one that's doing trafficking from the machine world (real) into the matrix.
+
+so what I'm saying is that it looked like the machines started to assimilate the humans capacity to believe and to make irrational decisions from emotion rather than purpose, but the humans didn't really assimilate the machines in any way. instead, they just made a peace and ended the war temporarily. in reality, if neo really was "the one" he would have accomplished his purpose of "returning to the source" and causing an upgrade for the humans both inside of the matrix and outside of the matrix by building another matrix where he makes the rules (like he said he was going to do in the first one and the train station guy did in the transition world) -- or at least he should have redesigned the train station to conform to his own rules so that matrix humans can get into the machine world the way they want to.
+
+#### the 5-7, machine and illusory/matrix worlds
+
+before I watch the final installment, I want to talk about the two worlds in the matrix movie. the matrix world is analgous to what we call the "physical" world (7). it's a world based on illusion, where what you see is not really real -- just electrical signals interpretted by the brain to produce an illusion of feeling. we know that different bodies respond to sensory data like pain differently, so all of that sensory data we think is real, is just a manifestation of a vibration.
+
+that vibratory world which produces the vibration that we translate into sensation is the world I call the conceptual world. it's the "real" world in the sense that it's the source of our emotion and linear time does exist there. this "real" world is represented in the matrix by a world operated by machines. I call these "machines" conceptual programs, and I make no distinction between the "soul" or the oversoul (as seth says) of a person and another conceptual program.
+
+what I mean is that while most people only see the illusory world of physical sensation, you also exist in the "machine world" -- the world of conceptual programs -- and that world is what most people call your "soul" or "true identity". in the matrix way of looking at it, you are just as much a machine in the machine world as agent smith or the oracle is a machine that inhabits this world (very much like the fae/fairy folk). between those worlds is the astral -- the world where the beings can make their transition between the worlds. unfortunately, the concept of death isn't explored very well in these movies. they kinda did it where neo got stuck in the astral (train) world.
+
+[hehe, I'm get the reaction that I seem to have an interesting way of looking at stories and fluctuatons between good and bad -- and I'd totally love to give my opinion on scripts and stuff. just ask :) all ideas are free.]
