@@ -44,7 +44,7 @@ P.S. the timestamp has the number sequnces 7-14-28, 11-22. 11 twice and 7 twice 
 
 OK, change of music; hope you don't mind. there were some reactions to me mentioning that I try to avoid synchronicities in the last letter (I think these will be just letters, so when I say "you", I mean adrienne).
 
-the reason why I avoid synchronicities is because any time something is really eye-catching or has a lot of meaning associated with it, it means that I'm not up to speed with the vibration (I notice I use a lot more abraham phrases, writing to you). when I'm not up to speed with it, it feels like a big deal -- however, if I'm up to speed with it. then it just feels normal.
+the reason why I avoid synchronicities is because any time something is really eye-catching or has a lot of meaning associated with it, it means that I'm not up to speed with the vibration[^1] (I notice I use a lot more abraham phrases, writing to you). when I'm not up to speed with it, it feels like a big deal -- however, if I'm up to speed with it. then it just feels normal.
 
 the other reason why I tend to avoid synchronicities is because they are products of the astral. I think randall calls it the "language of the birds" and that happens when someone is attracting really strongly and it means that you're going faster than normal. I also associate it with the "deja vu" like in the matrix where it's a sign of an overlap in time.
 
@@ -53,3 +53,5 @@ imagine for a moment that I had a time machine and I wanted to manipulate a time
 as an example, imagine I transported over to china, and just sort of appeared there, the events leading up to the moment where someone talked to me would appear to them as synchronistic, because previously I wasn't there and wasn't apart of that system, but now that I'm there, the astral part of the mind has to create events that are "synchronistic" in the linear sequence of time for the "now reality" to appear plausible. it does this by creating (you know you create your own reality, don't you) a sequence of events that can lead up to something -- a "manifestation" of something extraordinary. it's the mind's way of rationalising the incomprehensible.
 
 hope that helps. cheers!
+
+[1]: it's common before interacting with an astral entity that's at a different speed than you are, like bigfoot, ufos, or an angel or whatever, I've noticed that people commonly report a lot of synchronicities leading up to, and/or after the event as well. I have more to talk about this in the future because this reminded me of a reaction that I had in front of dollar tree telling jerrica that time is not linear and is actually synthesised in the imagination.
