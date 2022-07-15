@@ -35,3 +35,29 @@ I don't align with this perspective at all. I don't think that neo needs to be a
 why destroy the matrix when it's such a great thing? why not just assimilate it? if the machines are capable of running the whole show and they have everything all planned out, why not just let them do that? what if the matrix movie went a completely different route and instead of taking neo out of the matrix, he instead learned ego, hedonism, and how to feel the way he wants? if he never had to be released from the matrix to be able to bend reality to his desire, would he really want to actually leave a world where the machines are his "slaves" because he bends reality to his desire (including the machines).
 
 the conclusion of fighting the machine and trying to save everyone really doesn't jive with me at all. it's quite possible that there will be a christ figure that shows up and "saves" people from a matrix where the machines lost control of it, but that's not what I'm going to go on about. I'm interested to see what they're planning symbolically now, especially since there's a new matrix movie that came out last year (2021)
+
+#### ego and hedonism vs prophecy and chuleria
+
+hedonism probably isn't the right word. I don't know the right word -- but selfishly going after what feels good to you is what I mean by hedonism. also ego probably isn't the best word either; perhaps replace that with self-empowerment or knowing yourself (the words above the oracle's door)
+
+I wrote above an alternate matrix timeline where neo "learned ego and hedonism" and that got some reactions. I meant it in contrast to the christian idea of what a saviour is supposed to display. normally, you're never supposed to believe yourself to be godlike in any way -- and definitely not "the one". the movie sidesteps this issue with prophecy, saying that if the oracle (who's really good at knowing the future) says he's the one, then he is -- but neo doesn't believe in that fate crap, so she tells him he's *not* the one, forcing him to make a life and death decision to become "the one" because he has to save morpheus.
+
+this wasn't good enough though because he could be one of those self-declared saviours or "the (only) one" guys, so in order to make his oneness seem more of a divine sign, the oracle also prophesies to trinity that she'll fall in love with "the one" -- so because of love[^1] then that validates the oracle's prophecy -- so if you believe fate is a load of crap, you can go the neo route, and if you think that "the one" is prophesied to arrive by someone that has been around a long time and can seemingly predict the future.
+
+either way you work it out, the movie seems to give neo a little while to finally begin to believe that he is "the one" -- and then in the last fighting scene, while the sentinels are destroying the ship, neo has to prove himself, so he stops the bullets and does a whole bunch of stuff instead of just going to the phone. I call this chuleria because he had to prove himself, now that he finally believes in himself...
+
+after all of that effort (multiple fails -- fighting morpheus, the jump program, getting killed and trinity bringing him back to life with her belief, all (cept for tank) of the supporting characters dying, etc.) -- only then, can he finally begin to believe in himself.
+
+---
+
+in books like dtp and others there's this thing that comes along with power-displays, in that those that have the ability to do the power-displays shouldn't do them just to show off. the sense that I get is that all superhuman capacities (sight, hearing, producing fire, astral travel, whatever) should all be kept a secret and that you can never do this power-displays without having justification to do them.
+
+the picture this movie paints is that "the one" can do power-displays all he wants, but everyone else has to keep their powers a secret (discression?). so it makes me wonder if in fact the reason why it's called, "the one" is because only *one* person can be doing power-displays at a time, otherwise it degenerates into a pissing contest, and that competition is really what attracts the disaster (the focus/attraction on someone else being destroyed or made inferior, which then attracts that inferiority for yourself, thinking that you physically won the 1-up game).
+
+---
+
+I think ego is fine. you have to know yourself and if you know that you are much more than just the physical body, that may look like "ego" to others and inspire them to try and engage in chuleria. I'm not a fan of chuleria, at all.
+
+this movie says you should have a really hard time learning to believe in yourself, and when you do, you should engage in chuleria -- why? because you're the prophesied one.
+
+[1]: reminds me of lidsey's dissertation on rocky in her hot takes on hercules -- because of love, yay!
