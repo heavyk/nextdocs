@@ -167,6 +167,8 @@ the idea here is that just like the other hidden triad is to make stability so t
 
 #### reflections
 
+(sometimes I say "opposite ray type" -- when it's a reflection about the midpoint)
+
 - (-1) anatau, (+1) allayandra
   - (-7) genxicat, (+7) thoth
 - (-2) isis
