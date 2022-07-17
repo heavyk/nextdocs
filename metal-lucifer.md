@@ -278,3 +278,15 @@ so this got me to thinking. imagine that mars *is* elijah. he starts out as a fe
 if I'm right, that means that from now on, everything gets *really easy* -- and it's only your own perception of the conditions that makes it difficult. if you feel it, you believe it, and if you believe it, it's real. you can manifest conditions, but really the reason why you want the conditions anyway is to feel a certain way. nobody is stopping you from feeling that way, now. then, once you can feel anything you want, you'll truly be in "the day of rest". you'll manifest anything you are capable of feeling, instantly. the matrix may be able to take it all away as fast as you manifest it, but they can't take away the feeling that produced the manifestation in the first place. eventually those guys (having elijah qualities) will follow in aries' footsteps creating a new reality forcing them to evolve (trust me as a 7d oversoul, you'll get bored quickly).
 
 that's my theory anyway. everyone is becoming elijah, and each of them will all announce (create) whatever messiah they believe is the next one.
+
+### 2022-07-17 15:42 - explain the most difficult matrix
+
+first of all, imagine for a moment that I accomplished the capacity to project myself into any point in time and space and manifest anything I desired instantly. life will quickly get pretty boring because there's no conflict or unwanted to produce more wanted. I could manifest anything I desired -- be do, or have anything at a whim. *everything* from that perspective is a construct of my own perception. I need to produce unwanted for myself to evolve myself further.
+
+there are a whole bunch of people out there, but they're completely incapable of creating conflict for me -- these bad-guys are all too easy to fight. I'm too powerful for them, so I have to construct bad-guys from my own capacity and then also handicap myself to ensure they have an edge.
+
+in a world where someone has infinite capacity to limit me, they need to have infinite knowledge of the situation -- they would need to be as close to source speeds (speakinb in terms of frequency) as possible, and would have infinite capacity to reproduce as well. that world is a dystopia, with the bad-guys seeming to have all complete control -- which means that the rest of the people in the world (that aren't aspects of me) are also going to be stuck in this matrix that I'm creating for myself.
+
+it's by design though because they're different than me, meaning they'll come up with unique and novel solutions to finding their connection, despite the difficult conditions. each time that one of the others finds their connection, they expose a weakness in the matrix -- which obviously will get fixed and improved upon.
+
+therefore, after billions (perhaps more) have figured out how to find their connection, the matrix will get harder and harder until it's actually "impossible" to get out of. it's not really impossible, though. that's just a perception, so then I jump in and try it for myself; the absolutely most difficult run ever possible.
