@@ -4037,10 +4037,12 @@
 
 ### sonnet-113
 
+centre of the pyramid
+
 #### sonnet-113 - modern
 
     Since I left you, mine eye is in my mind;
-    And that which governsme to go about
+    And that which governs me to go about
     Doth part his function and is partly blind,
     Seems seeing, but effectually is out;
     For it no form delivers to the heart
@@ -5544,8 +5546,8 @@
     Which from loues fire tooke heat perpetuall,
     Growing a bath and healthfull remedy,
     For men diſeaſd,but I my Miſtriſſe thrall,
-    Came there for cure and this by that I proue,
-    Loues fire heates water,water cooles not loue.
+      Came there for cure and this by that I proue,
+      Loues fire heates water,water cooles not loue.
 
 
 

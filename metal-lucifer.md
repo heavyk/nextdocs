@@ -232,3 +232,49 @@ OK, now I'm thinking about the reactions to the idea that these guys are all mak
 man adrienne, it's been a really fun show so far (4h in), and I'm gonna go do something else now. this has been a pretty good ramble, but I know that it seeded a lot of future thoughts.. until next time! [4:44:54]
 
 [1]: I realise that's a resonance in the "future" of that reaction, but you'll begin to notice that every one of my days has a sort of "theme" to it now and every single thing that happens has a resonance with something that happens earlier and also later on in the day. resonances span between days too, but they're less noticeable to me, and I think of those more as "trends", as there seems to be a lot that happens while I sleep.
+
+### 2022-07-17 06:34 - is elijah aries?
+
+@[youtube](https://www.youtube.com/watch?v=c2VkP7kQtPA)
+
+I'm listening to this fascinating conversation about the prophet elijah. supposedly he's the guy that announces the coming messiah. he's associated with john the baptist as well. he's a wild man, a loner, and a bit of a trickster. he's not angelic or divine, but seems to continually reinvent himself and in the process changes the pattern of consciousness around our concept of who and what "God" is.
+
+I find his descriptions of this elijah guy matching me pretty closely, but he explains that elijah is now inside of everyone (sorta like how jesus is inside of everyone's heart), and so in a lot of ways, we're *all* elijah (again, this is something that I also say continually). so to channel elijah is to give good news, to show interest in something, to feel good, etc. he's thought of as similar to the "holy spirit" -- but if you've ever listened to abraham, they say that when you're channeling elijah, "you're in alignment with your source".
+
+---
+
+oh yeah, he's a bit of a shapeshifter too and can take on many forms, so when he was talking about that, the thought that popped into my head was the "seth material" where seth talks about an oversoul, and that "who you really are" (the oversoul) has multiple incarnations interacting with others and yourself in the physical. I say the same thing, and that the ultimate purpose of those alternate selves is create situations for yourself where you're forced to improve upon yourself.
+
+so when I'm listening to this guy talk about elijah, I'm getting the picture of this oversoul. I call them conceptual programs (5d) or to have 6d (temporal) perception -- you can produce these entities at will, and then live out the circumstances you create (and then consequently attract) for yourself. elijah is one of these incarnations, john the baptist another, the green guy another more, and potentially enoch as well.
+
+my point is, that if you were to have what I call 7d (temporal and multiple identity) pertception, then think about what it would like to be living. money no longer has any more desire to it, women are infinite, etc. -- I'll tell you that you begin to realise that the entire world becomes a reflection of yourself, and so the only one that really matters is you, and how you perceive the world around you. this is why I say that *you* are your own personal messiah -- and not anything else outside of yourself.
+
+---
+
+so what would *I* do if I were elijah? well, once I realise that the entire world is a reflection of myself, I would design a system -- a matrix where consciousness is controlled in such a way that physical conditions head in a direction of less and less control. the reason for this is that the ones that want to have control over their conditions, will need a saviour from tyrannical system which controls all of the conditions. they'll have to join the side of controlling conditons, or get in touch with their inner elijah. the ones that control conditons will eventually create the very controlling conditions that they want to have over others for theirself (you know, with sufficient technology, it could take rome 2.0 a really long time to fall). little by little I would continue to replace the power structures with more and more power-hungry demons. I'd basically become the "bad-guy", but it's not like it's only bad-guyness, because ultimately I'm creating this situation for *myself* -- the most difficult challenge for me to overcome. along the way in my passage through the challenge, I'm sure that I'd completely transform society and how it perceives itself.
+
+I've touched on that before, but I'd like to put it in the context of another video on this guy's channel:
+
+@[youtube](https://www.youtube.com/watch?v=7upQskK4LgY)
+
+in that video he talks about a new race of hominid species called homo superior that will have begun to emerge by the year 2050-60. I believe that the new race he speaks of will be the "bad-guys" that are going to control the matrix. they'll be so superior to the human race -- but more like machines with human bodies rather than how they're depicted in the matrix. they'll be YHVH 2.0, omnipotent and all-knowing of everyone's thoughts (like the matrix agents but more knowledgeable), capable of shapeshifting and projecting theirselves into time and space just like elijah.
+
+this new race will be so superior that it'll force us to evolve ourselves into something new -- or at least force *me* to evolve. my perspective on this now is that they can control every single physical condition on the planet, but they'll *never* be able to control your perception and how you feel about something -- even circumstances as difficult as that.
+
+he describes that by 2040-45 there is a major event that happens, but by 2050 things are back to normal. this is clearly the sun. 2046 is the peak of the next gleissberg cycle, so that'll be the peak output for the sun. elsewhere I've explained that the solar output is driven by an interaction that our emotions have on earth which is what attracts the conditions for those emotions to manifest -- so what I'm saying is that many people won't make it through that. the solar output will get so intense, LOA will get so strong, every thought and emotion will have dramatic influence on those around us and our environment, that we'll kinda learn the hard way that we're all connected in this "matrix of consciousness". so, in otherwords, only the ones that figure out how to find a way to perceive their conditions in a way which feels good will survive it.
+
+after that, you can imagine that things will go pretty much back to normal. every 88y or so, the gleisberg cycle will ramp back up again, and I imagine that each time, as everybody gets better and better at it, so because of our interconnectedness earth will contiually become both more energetic and more harmonious.
+
+---
+
+OK, so then I was thinking about this elijah guy and mishlove brings up the this sabbath (7th day/ray of "rest") meal:
+
+    Melaveh Malkah (also, Melave Malka or Melava Malka) (Hebrew: מלווה מלכּה, lit. "Escorting the Queen") is the name of a meal that, as per Halakha, is customarily held by Jews after the Sabbath (Shabbat), in other words, on Saturday evening. The intent of the meal is to figuratively escort the "Sabbath Queen" (the traditional metaphor for Shabbat in Jewish liturgy) on her way out via musical performances, singing and eating, as one would escort a monarch upon his departure from a city. This meal is alternatively called "the fourth meal."
+
+so, it's called "escorting the queen" and it's the "fourth meal". well, if you've been following my thoughts on the return of the 1st ray triad, in the form of vulcan (-5+), genxicat (-7) and allayandra/aries (+7), but this time he's got the "queen" (anatau) with him, so now with her, he's now a 1st ray (+-1-+). the queen there is the 4th (hidden) component in the triad (like the memristor), enabling the return back up. so, if you think of 1st ray triad being the original "godhead" -- we descend down into more and more gross matter -- down to the 7th ray. however, the 7th ray perspective is exactly the same as the 1st ray perspective -- just the 4th, 3rd, 2nd, and 1st ray perspectives appear "backwards" just like the road on the return home looks "backwards" from the way it looked on the way out.
+
+so this got me to thinking. imagine that mars *is* elijah. he starts out as a feirce warrior that destroys anything he comes across (7th ray emitter), but in this final incarnation, he's a 1st ray ground, having both masculine and feminine qualities. each iteration through physical existence, he's constantly had to redefine himself. as a 1st ray ground, he's perfect match for any 7th ray perspectives to enable their return back to source as well.
+
+if I'm right, that means that from now on, everything gets *really easy* -- and it's only your own perception of the conditions that makes it difficult. if you feel it, you believe it, and if you believe it, it's real. you can manifest conditions, but really the reason why you want the conditions anyway is to feel a certain way. nobody is stopping you from feeling that way, now. then, once you can feel anything you want, you'll truly be in "the day of rest". you'll manifest anything you are capable of feeling, instantly. the matrix may be able to take it all away as fast as you manifest it, but they can't take away the feeling that produced the manifestation in the first place. eventually those guys (having elijah qualities) will follow in aries' footsteps creating a new reality forcing them to evolve (trust me as a 7d oversoul, you'll get bored quickly).
+
+that's my theory anyway. everyone is becoming elijah, and each of them will all announce (create) whatever messiah they believe is the next one.
