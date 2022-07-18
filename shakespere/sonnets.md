@@ -747,7 +747,7 @@
     Who heauen it ſelfe for ornament doth vſe,
     And euery faire with his faire doth reherſe,
     Making a coopelment of proud compare
-    With Sunne and Moone,with earth and ſeas rich                                                                                     gems:
+    With Sunne and Moone,with earth and ſeas rich gems:
     With Aprills first borne flowers and all things rare,
     That heauens ayre in this huge rondure hems,
     O let me true in loue but truly write,
@@ -1949,7 +1949,7 @@
 
 #### sonnet-55 - modern
 
-    Not marble, nor the gildedmonuments
+    Not marble, nor the gilded monuments
     Of princes, shall outlive this powerful rhyme;
     But you shall shine more bright in these contents
     Than unswept stone, besmear'd with sluttish time.
@@ -3521,7 +3521,7 @@
     Yet nor the laies of birds,nor the ſweet ſmell
     Of different flowers in odor and in hew,
     Could make me any ſummers ſtory tell:
-    Or from their proud lap pluck them where they                                                                                           grew:
+    Or from their proud lap pluck them where they grew:
     Nor did I wonder at the Lillies white,
     Nor praiſe the deepe vermillion in the Roſe,
     They weare but ſweet,but figures of delight:
@@ -3860,7 +3860,7 @@
 #### sonnet-108 - modern
 
     What's in the brain that ink may character
-    Which hath not figuredto thee my true spirit?
+    Which hath not figured to thee my true spirit?
     What's new to speak, what now to register,
     That may express my love, or thy dear merit?
     Nothing, sweet boy; but yet, like prayers divine,
