@@ -4989,6 +4989,37 @@ we'll see how it goes, but I think that I can continue to lower resistance prett
 
 [2]: if pluto is from saturn (+-4) and charon is from tiamat (+2), and the moon is the planetary body of osiris (+-6-+), then I would imagine that you'd have most of the astral ones (ie. US govt) going to the moon, the lawful-based keepers of the order going to pluto, and 2nd rays congregating on charon. I still don't consider myself a 2nd ray, as I fit somewhere between 1st, 5th or 7th mostly.
 
+### 2022-07-18 11:46 - improving the female bloodline
+
+yesterday when writing @[my-sonnet-thoughts](2022-07-17 15:58), I said (added necessarily to make it sound better):
+
+> say what you want, but I think it was probably jesus that expanded the visual capabilities of mary's bloodline, not necessarily mary
+
+the way I believe this works is that there are likely two components to this: first is the mitochondrial DNA stored outside of the cell. this turns protons into ATP, and I'd give a pretty high likelyhood that it's more likely that men cause evolutions in this -- though I don't really know for certain.
+
+the other way to look at this (and the location of the code which encodes conceptual/perceptual layout in the genome) is in the x-chromosome. I may be wrong about this but let's just assume that's the case.
+
+jesus is born with mary's mother's X and his "father's" Y (if she was artifially inseminated (immaculate conception), it's unclear if that would be joseph's nuclear or someone else's). we be pretty certain that jesus had mary's DNA for sure.
+
+so jesus goes along and changes his perception with the power of his focus and stuff (no need to explain why I think that DNA is a reflection of our perception), and that will alter the code in the x-chromosome. it likely altered the y-chromosome as well, but that's going to be passed down paternally.
+
+the legend is that jesus has (I think 3) daughters. these daughters will be born with her father's (jesus'), and jesus' wife's mother's x-chromosomes.
+
+if those daughters have daughters (of which I think elizabeth was one of), those daughters will pass along their mother's X, *not* jesus' X.
+
+therefore, in order for the perceptual adjustments to take effect (this is the 36y cycle I talk about), when the female gains 36y, she'll be perceiving through her interpretation of her father's perception. along the process of this rising perception, internally, her mother's perception will be battling her father's. this is perhaps good reason why they tried to have children before 18 when it's still majority mother's perception.
+
+what I'm saying is that it was jesus that improved the perception and encoded it into his DNA. it was then his daughters which integrated those perceptual adjustments back into her mother's lineage. it's pretty likely that one of the wives of jesus was of the same lineage as mary (or perhaps of another female lineage dynasty that sponsored that).
+
+---
+
+obviously jesus' x-chromosome is going to be considerably stronger in it's perception than the other, which won't really create much conflict in her until after she's 36y and her mom's percception begins to reassert itself into her reality.
+
+however, the case is going to be considerably more different for an x3. I really don't know how this will work, but my suspician is that it has a similar (36y) clockspeed to it, and if I base it off of my own experience, I would say that you will have two *pairs* dualing for perceptual dominance... I imagine they switch off... so like let's say X0 and X1 are dominant at first. then Y0 and X2 take over at 36y, then back -- or maybe they switch off taking all possible pair permutations each 36y -- I just really don't have any data to really say one way or another what it could be like. someone at nosebook, able to see what our perception is and sequence our DNA on the fly could probably figure this out with statistical analysis. I have no idea.
+
+it's a really interesting thing to think about, but it doesn't affect me much. I just do my perception thing and not worry about manipulating bloodlines.
+
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
