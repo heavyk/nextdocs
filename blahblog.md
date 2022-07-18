@@ -5019,6 +5019,31 @@ however, the case is going to be considerably more different for an x3. I really
 
 it's a really interesting thing to think about, but it doesn't affect me much. I just do my perception thing and not worry about manipulating bloodlines.
 
+### 2022-07-18 12:16 - set, osiris, and horus
+
+in @[my-sonnet-thoughts](2022-07-17 15:58), I mentioned that I believe that set *is* osiris, just his opposite (dual), designed specifically to defeat himself.
+
+I also watched @[youtube](https://www.youtube.com/watch?v=KiHJncPoFA0) the day before yesterday and in there jeffrey talks about how horus *is* osiris (reborn), and he loved his enemy, set.
+
+I hadn't really thought about horus being osiris as well, because I usually focus on the dual aspects (alalu/enlil, saturn/nergal) rather than looking at the new thing that formed.
+
+that's interesting to me in this context because that's meaning that's saying that horus, set, and osiris are all the same energy manifested into an old (defeated) form, a new (wild) form, and a malevolent (evil) form. I've seen the wild, evil and defeated form pattern show up all over the place, so I'll have to revisit that.
+
+interestingly enough, last night I was reading "becoming elijah, prophet of transformation" by daniel c. matt and elijah probably fits into this pattern as well.
+
+there is a major difference though and that is that elijah does not really strike me as a 2nd, 6th, or 4th ray type. I explained in @[metal-lucifer](2022-07-17 06:342022-07-17 06:34) that elijah has all the characteristics and fits into the archetype of aries/allayandra much better than anyone else.
+
+interestingly enough, there are many many references to vere having some sort of communion with mars -- leaving clues of this in the sonnets, venus and adonis, the final proof for me was revealed here:
+
+@[youtube](https://youtu.be/0_9TyxAmwDQ?t=71)
+
+where we see this pattern showing up again with seeming (from my perspective) self-sabotage, and it too has the signature of mars on it.
+
+mars is a 7th ray, so to try and figure out why he's self-sabotaging, I've kinda invoked the 1-2-7 idea as the primer to a reversal out of gross matter, from 7th back up to the 1st -- but really, I don't fully understand what's going on here.
+
+the passage in the bible of jesus' baptism and the "holy spirit" descending on to jesus like a dove seems especially relevant, but I have yet to fully understand the symbols there. it seems strange that a primary ray would engage in self-sabotage.
+
+still more to understand there.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
