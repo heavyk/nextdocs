@@ -1,5 +1,25 @@
 # stephan schwartz
 
+- pick a space to meditate in and a time to do it
+    - optional if you're experienced.
+    - it's there to build a habit, stable meditation framework, or a mental structure -- if you don't already have one
+- pick a phrase that's the direction you want to take your focus
+- pick 4 words:
+    - physical word
+    - emotional word
+    - spiritual word
+    - mental word
+
+- sit down comfortably with straight spine and think the phrase.
+- there will be nothing for a time until a thought bubbles up.
+    - if the thought is in alignment with the phrase, then think it.
+    - if a feeling shows up and it's in alignment with the phrase, feel it.
+    - repeat for the duration of the 20m meditation
+- at the end, picture yourself and say to your yourself your physical word.
+    - don't just think it; feel it.
+    - repeat for the emotional word, the spiritual word, and the mental word.
+    - all of these words are to be felt as if you have them presently just as you desired them.
+
 ### 2022-07-19 04:33 - first impressions of him and his meditation technique
 
 I just binge watched a nearly all of the video interviews available on [new thinking allowed with jeffrey mishlove](https://www.youtube.com/c/NewThinkingAllowed). I have so many thoughts, and I wanted to get some out now initially before they vanish.
