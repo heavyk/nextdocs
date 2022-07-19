@@ -14,28 +14,6 @@ so, for me, it's all about reception. the other steps like being able to give up
 
 oops derailed... therefore, this experiment of trying to set focused intention for me has it's foundation in the convincing idea that in his meditation, he has 4 words that are *felt*, and this is an activation of desire for that physical reality. it's sort of like remote viewing yourself in the future, now. that means, it's a process of reception, so I like it and want to try it. I set intention to receive things all the time and it's successful, so this should be no different.
 
----
-
-- pick a space to meditate in and a time to do it
-    - optional if you're experienced.
-    - it's there to build a habit, stable meditation framework, or a mental structure, if you don't already have one
-- pick a phase that's essentially your direction
-- pick 4 words:
-    - physical word
-    - emotional word
-    - spiritual word
-    - mental word
-
-- sit down comfortably with straight spine and think the phrase.
-- there will be nothing for a time until a thought bubbles up.
-    - if the thought is in alignment with the phrase, then think it.
-    - if a feeling shows up and it's in alignment with the phrase, feel it.
-    - repeat for the duration of the 20m meditation
-- at the end, picture yourself and say to your yourself your  physical word.
-    - don't just think it; feel it.
-    - repaat for the emotional word, the spiritual word, and the mental word.
-    - all of these words are to be felt as if you have them presently just as you desired them.
-
 ### 2022-07-19 04:54 - is the future fixed?
 
 in a number of his latest interviews regarding the remote viewing 2060, he's stated many times that one of the things he wants to see if he can prove with data is if the future is fixed or not.
@@ -68,8 +46,28 @@ I know I sound strange saying this, but I would have done what ghandi did differ
 
 actually, that feels good for now. good night.
 
+### 2022-07-19 05:37 - first meditation
+
+originally, I thought about these words, but the difficulty for me was the emotional word. I couldn't think of an emotion that I wanted to feel because I'm already so good at feeling what I want...
+
+physical: smoothe
+emotional: ???
+spiritual: flying
+mental: intentional
+
+---
+
+an idea popped into my head to try the experiment in reverse, so I picked four naughty words that I'm going to focus on after spending the entire meditation thinking about knowing what I do want comes immediately after what I don't want. problem solved :)
+
+I decided to put the mental word as intentional, because I don't know how to feel about it, so I wanted to see what comes up. I want to figure out how to integrate intention and reception (though, obviously this entry is full of intention, I may be "polluting the well" with my intention to figure out intention)
+
+phrase: after knowing what I don't want, I'm immediately aware of what I do want.
+physical: disabled
+emotional: confused
+spiritual: arrogance
+mental: intention
+
 ### - perception vs information
   - if you perceive yourself as a thing,
-
 ### - magnetic field may be the medium whereby the "random" becomes less random
 ### - pinning the future -- again as a reflection of the person's perception
