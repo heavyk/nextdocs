@@ -87,6 +87,24 @@ emotional: confused
 spiritual: arrogance
 mental: intention
 
+### 2022-07-19 06:25 - first meditation results
+
+I didn't have much difficulty quieting my mind to focus on the phrase, "as soon as I know what I don't want, *immediately* I know what I do want" -- some of the ideas that came to me were to sign up for the newsletter schwartz report and every night before meditating, focus on those report items and see them as becoming a reality. then, begin the meditation and focus just the same.
+
+the other idea that came to me is to setup a steady time (even though it's exactly opposite of what I normally do), so that others can join me in the meditation, and we can focus our intention together. I can't say what others are going to do, but I'm going to get better and better at powerfully focusing my intention on these things becoming a reality. I noticed it was pretty easy to do. I think it's actually going to be easier without coffee. I noticed that with coffee, I couldn't feel as powerfully as I normally do when I focus.
+
+there was another idea that I can't remember now.
+
+when I got to the part with the words, I felt disabled. I pictured myself with difficulty and stiffness in my leg and arm while trying to walk/run and my left arm while playing pool. I definitely notice a lot more stiffness in my arm and leg since that focus exercise, so it seems to be working.
+
+I went to the emotional one of confusion, felt that for a while. I actually had a difficult time with it because I expereince so much clarity that I had to imagine myself conversing with someone and the interaction itself was the confusing part. I'm going to try and figure out how to improve this one, because I don't at all feel more confused.
+
+I then went to the spiritual word, arrogance. I started feeling it and noticed that I also wanted to feel superior and condescending, pompus and pious. I felt it and it really felt like I was rising up above the ones below me. I was really starting to feel superior to them.
+
+I couldn't remember what the last word was -- and when writing this now, I can't remember what I wanted to think now, so I instead felt my mind as very rigid and sluggish. though it was an iron box, I asserted its rigidity on those around me and forced them into my mental jail and caused them to drag around this box like a weight. I felt a light open up in the middle of my head, and a doughnut shaped thing started to eminate around my head and it really felt like I was asserting this mental state onto those around me. it felt very effective and powerful.
+
+I then noticed that I couldn't feel disabled anymore because I was so superior to everyone now. I didn't know how to integrate my superiority complex into the same space. I choose (apparentely) to return to disability because I feel stiffness, and not really at all superior. to get the superiority complex, I'm probably going to have to take on a super hotshot posture and movement regime to be able to maintain that feeling of superiority.
+
 ### - perception vs information
   - if you perceive yourself as a thing,
 ### - magnetic field may be the medium whereby the "random" becomes less random
