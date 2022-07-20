@@ -159,9 +159,11 @@ that data is "astral projection". if you can see that, you can remote view. even
 
 OH, interesting. I didn't see the connection till just now, but that image of chuleria that I was conjuring last night is very very numinous. that's the illusion.
 
+OH, I just now also noticed that's why I get so tired trying to read the sonnets and shakespere's works -- because it too is encoded with that extra visual data, so likely that extra data conjures similar images in many people's imaginations. that's why his stuff is so moving!! I don't see that though, so I get the vibration behind it. in that sense, his entire works contain on top of the words, both cconceptual and astral data. however, the people that see beyond the words, probably get the image, and not the conceptual data behind that even. wow, it's like to left me a message that nobody else can get because it's not visual -- it's conceptual.
+
 tonight's meditation is going to be very productive :)
 
-[1]: an interesting word to use because that's zailm's last name and his life, certainly became very numinoso.
+[1]: an interesting word to use because that's zailm's last name and his life, after the publication of dtp, certainly became very numinous.
 
 ### - perception vs information
   - if you perceive yourself as a thing,
