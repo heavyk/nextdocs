@@ -105,6 +105,64 @@ I couldn't remember what the last word was -- and when writing this now, I can't
 
 I then noticed that I couldn't feel disabled anymore because I was so superior to everyone now. I didn't know how to integrate my superiority complex into the same space. I choose (apparentely) to return to disability because I feel stiffness, and not really at all superior. to get the superiority complex, I'm probably going to have to take on a super hotshot posture and movement regime to be able to maintain that feeling of superiority.
 
+### 2022-07-19 22:21 - thinking about what happened
+
+I looked into the concept[^1], and it seems that what happened is when I was writing down the words, I wrote down "smoothe" and "flying" was thinking about the last two words, but I was getting this sense that I shouldn't put words that will cause a manifestation -- or cause things to get too easy. I remembered my commitment to go all the way to the end without a manifestation or kundalini rising, and it felt as if I shouldn't be picking words that would make things better.
+
+I gave up trying to come up with words that I wanted, because I didn't really know what I wanted, so I decided I would go with unwanted -- because I know that unwanted produces wanted.
+
+I picked my words, and then just now I noticed that when I was saying them at the end of the meditation, I could feel their "we need to remain superior" kinda vibe when I was feeling the disabled word (kinda like, "yeah, he's choosing disability. allright, we're on top"). confusion was difficult for me to conjure effectively but when I got to arrogance, that's when I really began to start to feel the superiority thing start to rise up really strong. I believe I was, to some extent, channeling my "angels(?)" -- dunno the right term for them.
+
+by the time that I had taken on their vibration and began to assert myself as some super hotshot (just like how they feel), I couldn't at all remember the last word, intention. it was completely inaccessable. so, instead I just went with the feeling that I had which was (huh, now I can't get to it) -- rigid iron box mentality and sluggish dragging all of that extra weight around.
+
+I was just channeling these guys.
+
+---
+
+as a result, I was thinking today, if I would try and medittate in the positive direction, as in what I wanted -- but like I said, I don't really want to have any manifestations, and just that little bit of meditating (even focusing myself on unwanted thoughts), my visual capacity started to open up quite a bit because of it. I didn't push it to keep going, but I could have started to project the little bouncing balls of fun that take on the shape of the music out of my eyes into 3d space for everyone to see (like I did that one time a long time ago when smoking with francisco at vera's house -- I believe it was 3-11 -- the day of the madrid bombs).
+
+I could just go toward wanted stuff, or I could just keep going the unwanted route. the reaction that I got about that was reminding me of neo in the matrix after he starts to see the world in code and he's so busy showing off his powers to the agents that the nebu-chad-nezzar  (chad for short) get nearly destroyed by the sentinels, making it a really close call because of chuleria.
+
+it's probably OK, because I'd just been practising to feel chuleria at the end the meditation, so it's all good to go with a few power displays. I'm just reflecting their own vibration back to them, and anyway, I can feel anyway I want to, so it's not like this is a life commitment anyway.
+
+I learned so much from the experience and from the countless reactions afterward, as well. also, today was pretty hot; I wonder if the extra resistance increased the heat.
+
+in any case, I'm going to continue to work on that meditation for a while and see where it takes me.
+
+[1]: shephan does remote viewing of physical things, but I "remote view" concepts theirselves, to try and figure out what was really happening. all the same rules apply, but there are no visuals -- even though I often use visual words to describe it, it's entirely a sense that's kinda difficult to describe -- the most similar maybe "knowing" or remembering something conceptually. I'll try and talk about this more in the future, but as far as I know, I'm the only person that has ever suggested that it's possible to remote comprehend a concept.
+
+### 2022-07-19 22:53 - memory and astral projection
+
+I was talking with mom about astral projection cause she was watching harry potter and talked about how these creatures are probably there, but we can't see them. the discussion devolved into an argument because I didn't see astral projection as a bad thing and she did. I made a statement that, memory, remote viewing or projecting your consciousness into any other position in space or time is astral projection.
+
+therefore, if I were to move my consciousness over to paris right now I can do that even as I'm typing this, but I doubt anyone could possibly see me, cept perhaps maybe a little orb floating around as I have a look around. however, if I were to project an image into some plaza in paris of a bird, it's quite possible that someone sensitive enough to see a strange bird could see the image that I'm projecting.
+
+---
+
+I started to think about memory and how that same thing may be happening. like, if I remember something in my past, and it's "as if I'm there" -- I may be able to smell the smells or to, perhaps if I'm not quite as convinced that the computer in front of me is what I'm looking at, perhaps I'll see it as if I'm there, too.
+
+if that's the case, my projection is the memory itself, and so let's say that it were possible to remove all of the atoms in that moment -- you'd still see the astral image there floating in space. now, if I remembered that same thing, say hundreds of times in my life, there would be hundreds of those images stacked there floating where the atoms once were.
+
+when I was a kid, I remember that my world was very distorted, and I remember having a really difficult time figuring out what's what at times. I had glasses to help me to focus -- but, it occurred to me that perhaps that distortions were actually the astral projections of the future when I was trying to remember things. the distortions are present because as I grew up, the image became smaller and differently shaped because of the effects of memory and changes in perception, so I was seeing hundreds of layers of astral imagery stacked on top of each other.
+
+stephan talkes about numinous[^1] things being easier to see when remote viewing, and so I'm beginning to wonder if the astral plane is sorta like the collective imagination, and in some way, the way that everyone has seen somthing is kinda like stays there as like this thin vapour. the word it'self "numinos" for me conjures an image of clouds or vapour in my mind and it reminds me of nublado. I suspect the word has very ancient roots.
+
+---
+
+so, for example, when I read the book dtp, there was a lot of extra visual data that I couldn't see, but could sense that it was there while reading it -- and in the part with the "special treat" probably also contained visual data as well, so I think that those with astral vision are just tuning into the most powerful image associated with those words -- like that device that phyris gives him to see the image in the author's imagination or the explanation for the painting of the ship sinking.
+
+    It is another example of the power of an occult mind over matter; the artist's will changes the speed of the color, and either reduces or raises it so that the vibrations making red are increased and range up through all degrees of color-force, always exactly in harmony with the astral image put on the canvas by the creative power of the occult artist.
+
+it also reminds me of what I was "seeing" in the matrix 4 resurrections, and the reason why the fights were so hard to follow. it's that extra visual data that people with astral vision can see.
+
+that data is "astral projection". if you can see that, you can remote view. even if you can't see anything, you can remote comprehend (a new term I'm making for RV'ing concepts without visuals) the vibration behind that image.
+
+OH, interesting. I didn't see the connection till just now, but that image of chuleria that I was conjuring last night is very very numinous. that's the illusion.
+
+tonight's meditation is going to be very productive :)
+
+[1]: an interesting word to use because that's zailm's last name and his life, certainly became very numinoso.
+
 ### - perception vs information
   - if you perceive yourself as a thing,
 ### - magnetic field may be the medium whereby the "random" becomes less random
