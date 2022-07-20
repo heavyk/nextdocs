@@ -165,6 +165,35 @@ tonight's meditation is going to be very productive :)
 
 [1]: an interesting word to use because that's zailm's last name and his life, after the publication of dtp, certainly became very numinous.
 
+### 2022-07-19 23:54 - perceiving the conceptual through the astral
+
+I've been trying to figure out how to explain the conceptual world to visual people, and it's quite difficult, but the previous discussion on memory provides a good framework for explaining it.
+
+imagine a moment in your life where things were very very vivid and nearly surreal. I'm reminded of the couple that traveled to west virgina to hang out in the garden because her dream guided her to do it -- which then changed the course of his life and got him into the cayce stuff.
+
+I'm sure that memory has been revisited by him numerous times, such that it's very numinous. because of that, when he first had the experience, the whole thing must have felt very vivid and surreal because he was seeing the physical overlaid with countless astral images layered over the top of it from him in the future remembering the situation.
+
+how is it possible that he could see his the astral projections from the future in the present. I think this is the same subject of retrocausality, because time "flows" (not the best word) in both directions.
+
+---
+
+OK, another example: the conceptual world is a world of ideas. each of them are "perfect" (the word perfect implies a comparison to imperfection), so perhaps think of it as "beingness" (it just *is* the way it is, neither good or bad). so when that concept (or soul, the timeless part of you) projects down into the astral, it's casting a "shadow" in the sense of maybe trying to play a song on a piezoelectric speaker -- it loses nearly all of its quality, but the extra distortion from such a crappy speaker also gives the signal a new character that didn't have previously.
+
+OK, now, let's think of projecting from the physical up to the astral now.. when you remember something or project an image into the astral, you're not projecting all of yourself. it's just an illusion -- not the "real" you, and so that signal too has a different character than its physical source. to me, the astral image looks clearer and nicer than the physical one. it's been upsampled, whereas the aspected projection of the concept down into the astral is a downsampling, losing lots and lots of quality to it.
+
+btw, I believe that conception happens in the conceptual realm, but that concept passes through the astral (sex organs) to make its way down into the physical. in the process of making physical children from a concept, it definitely goes through the astral, but I'm skipping most of this, as it's not important to the discussion. I'm just talking about the conceptual projecting down into the astral as an image, hologram, or illusion -- though it's an illusion that you can see, taste, and touch, so it's "real" enough for anyone to interact with it. to get the concept all the way into physical, until I figure out what I'm working on, I believe the only way historically has been through sex organs...
+
+OK, when the conceptual projects down into the astral, it's projecting an aspected version of itself. that version will manifest differently depending on the environment, but it'll never be it's "full" self. therefore that projection will have some imperfections reflective of its incompatibility with its environment. it's that incompatibliity which causes desire to alter the concept (but not the projection). the projection then needs to "catch up to" the new vibration of its source concept. if it cannot, it means death eventually. however, if it can retain enough harmony with its source concept, then it retains its connection.
+
+so all concepts exist how they are and there are various projections that are more or less in harmony with their environment and their source. the concept changes the environment (which is also composed of concepts), and those too can catch up or lose their connection (decay). the most basic of these environmental concepts is the atom, right. an atom that never decays retains its alignment with it's source. an atom that gets fused with another atom, it's source concept changes, because it has changed (just like us).
+
+it's all the same stuff, so for example here we see time passing between the fusion of two atoms, but in the conceptual realm there are three concepts. then, after the fusion, there are still only three concepts (no change). if the two atoms fuse and create a new atom that has never been made before (like the conception of a child), then a new concept is created. those concepts don't change -- we see the change as happening as we tune from one concept to another.
+
+in reality there are countless nuanced concepts with tiny differences, but I wanted to simplify this example to show how we see time, but conceptually there isn't any time in the linear sense that we know it -- just harmony and disharmony. everything here in the physical is transitioning from one vibration to another (becoming more or less harmonious to other vibrations around it or its source). there's always a balance of aligning to those around you in your environment or to your source.
+
+OK, that's my best version of explaining it so far! nice.
+
+
 ### - perception vs information
   - if you perceive yourself as a thing,
 ### - magnetic field may be the medium whereby the "random" becomes less random
