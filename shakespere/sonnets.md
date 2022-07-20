@@ -2466,7 +2466,7 @@
     Then churls their thoughts (although their eyes were kind),
     To thy fair flower add the rank smell of weeds:
       But why thy odour matcheth not thy show,
-      The folly is this, that thou dost common grow.
+      Thy folly is this: that thou dost common[ly] grow.
 
 #### sonnet-69 - 1609 quarto
 

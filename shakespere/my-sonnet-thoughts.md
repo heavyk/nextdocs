@@ -269,3 +269,79 @@ after writing this, I think I'm going to have to take a deep dive into S153, S15
 [1]: I have some thoughts on jupiter and the sun which I'll write about elsewhere, but it was a resonance because I just finished watching a japanese metal band called jupiter and his name is apollo (sun) -- in da vinci's diagram, jupiter and the sun have a 100:1 relationship with each other. some of the wheat will produce 30 fold, 60 fold and some 100 fold.
 
 [2]: rich may be a reference to penelope rich
+
+### 2022-07-20 04:31 - the uprising of the weeds
+
+I decided to read some sonnets tonight, to kinda try out my theory that there is more encoded in the sonnets that I have access to. I read a few of them, but I wasn't feeling anything particular until I did a search for weeds. this is sonnet 69. I personally really like the number 69. I'm 69" tall, and when you type my name (kenny) on the phone, it's 53669, so my old aol instant messenger name was "ke669". additionally, if you add up all of the letters in my name (kenny), they equal 69. the name kenny invokes quite a different reaction from me than kenneth does. various people in my life have insisted on calling me kenneth, and the way it feels is very different (kenneth adds to 77). therefore, this seemingly has meaning for me.
+
+when I first started to read it, the emotional encoding that it was imbued with feels the same as the ones addressed to the "dark lady" -- so I just assumed he was talking about the queen. it makes perfect sense that way because he's talking about her false image that she conveys to the world, and the part about "uttering bare truth [truth without substance], even so as foes [spanish armada] commend" -- with their accents -- it's clearly talking about the deceit that she pulled off as the "virgin queen", culminating this with the line "to thy fair flower add the rank smell of weeds" -- flower referring to her "virginity" -- and the emotion it was charged with even gave me the impression that it *was* written about her.
+
+I got to the last line though and the modern translation is clearly wrong. they say, "The *ſolye* is this,that thou doeſt common grow." should be translated as "The *soil* is this, that thou dost common grow". I don't see it. I know the 'ſ' is an 's', but it's clearly a play on shapes, because if I write, "solye" it looks nothing like "soil" -- whereas "folye" looks very much like "ſolye". clearly, it's folly because it even makes sense that she's a weed -- her folly is that she grows commonly (she's not that special).
+
+that doesn't make sense at all because the dark lady is portrayed in every other place as being so special, that maybe vere is the landscape architect and he's noting that there are lots of vaginas (soil for sowing seeds) all over the place.
+
+I liken myself to a weed-like (resiliant and thriving in difficult circumstances), and my *goal* is to make it so that I/we are what commonly grows. I think it would be really cool if there were lots and lots of people that are as creative as I am all around. that'd be a dream come true for me. so, I thought I'd reread it thinking with the idea that it's written to me.
+
+---
+
+    Those parts of thee that the world's eye doth view
+
+world's eye is nosebook. and the parts they view are whatever nosebook thinks is broadcast worthy, I imagine. I don't have (or want) control over what is presented about me. I control my perception of me, and have no intention of controlling or influencing others' perception of me.
+
+    Want nothing that the thought of hearts can mend;
+
+I didn't understand this at first but "thought of hearts" is "pensamientos del corazon" -- or thoughts that come from the heart, so, it reads to me like:
+
+nosebook broadcasts out aspects of me which reject the repairing that could happen from thoughts and reactions coming from people's hearts..
+
+- the curated aspects of me which are broadcasted out to the world
+- don't want the things (that)
+- thoughts and reactions coming from people's hearts
+- are able to fix
+
+    All tongues, the voice of souls, give thee that due,
+    Uttering bare truth, even so as foes commend.
+
+everybody give me good reactions (the heartfelt reactions), and because of my continual truth/honesty/openness, even my "foes" (I don't think I have any -- so maybe those that perhaps disagree with me) commend he for my honesty and truthfulness.
+
+    Thy outward thus with outward praise is crown'd;
+
+the illusion here is unfortunate because I have no intention of being any sort of crowned ruler or anything of that sort (I've spoken at length about this in the beginning of blahblog)
+
+    But those same tongues, that give thee so thine own,
+    In other accents do this praise confound
+
+not totally sure what this means, but probably in countries that don't speak english, perhaps I'm not so praiseworthy? the illusion at the end is that, I am, in fact, not worthy of the praise because there are lots more like me. I'm really nothing all that special.
+
+    By seeing farther than the eye hath shown.
+    They look into the beauty of thy mind,
+
+when people look through my eyes, they probably can see quite a ways out. I noticed the other day in walmart parking lot I commented on the power station (it looks enormous to me), and she was surprised that I can see it. it's really really big and I can see a really long distance (I call this "seeing more") however it is pretty blurry. that's probably pretty impressive.
+
+additionally, when I listen to music and I begin to translate the sounds into images, though I usually can't see them, I do get reactions about it, and so it's kinda fun for me to figure out what's there based on the reactions. for me, it's just a "landscape of sensation/emotion" and I don't really know what it looks like. I also frequently get these bouncing balls that transform with the music and are really fun to play with. again, I don't know how those work either, though smoking weed, sometimes I can get it so I can see them, too.
+
+beauty of my mind my also be referring to other things that I'm not totally aware of. it's hard to say exactly what it is, because I don't see what others see. my experience is pretty non-visual, so beauty, in that sense could be referring to the beauty of the feelings that I feel, but since I don't really get any reactions on that, it's probably just the stuff those feelings manifest into.
+
+    And that in guess they measure by thy deeds;
+
+probably everyone has an opinion about how I behave/respond to things. measure is usually performance though, and I'm not so good at performances.
+
+    Then churls their thoughts (although their eyes were kind),
+
+because I sorta just do what I want to do, I'm likely causing problems for those that want subservient peasants. I lookedr up the word for churl:
+
+> A churl (Old High German karal), in its earliest Old English (Anglo-Saxon) meaning, was simply "a man" or more particularly a "free man", but the word soon came to mean "a non-servile peasant".
+
+so it sounds like you guys watching me is breeding a lot of "non-servile peasants" -- weeds.
+
+    To thy fair flower add the rank smell of weeds:
+      But why thy odour matcheth not thy show,
+      Thy folly is this: that thou dost commonly grow.
+
+I take this to mean I should add to the "fair flower" (my beautiful mind), the rank odour of weeds -- which are non-servile peasants that thrive in difficult conditions.
+
+I don't really understand why weed smell doesn't match what I show, other than perhaps nosebook is curating and putting a bit of a spin on the narrative (potentially).
+
+my "folly" (IMO goal) is that I'm becoming "common" now. which is the point. I fashion myself after the borg, and though I've never seen it, I heard they assimilate everything and convert it to their own utilisation. I encourage everyone to do the same. take everything I have (it's free) and improve on it. you may also think of it like a virus, if weeds have such a foul scent. a virus that don't need to alter the aroma of its host.
+
+welcome to my world: planet 69.
