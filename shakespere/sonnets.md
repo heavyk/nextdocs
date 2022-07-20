@@ -40,7 +40,7 @@
 
 #### sonnet-2 - modern
 
-    Whenforty winters shall besiege thy brow,
+    When forty winters shall besiege thy brow,
     And dig deep trenches in thy beauty's field,
     Thy youth's proud livery so gazed on now,
     Will be a totter'd weed of small worth held:
@@ -179,7 +179,7 @@
     Beauties effect with beauty were bereft,
     Nor it nor noe remembrance what it was.
       But flowers diſtil'd though they with winter meete,
-      Leeſe but their ſhow,their ſubſtance ſtill liues                                                                                           ſweet.
+      Leeſe but their ſhow,their ſubſtance ſtill liues ſweet.
 
 ### sonnet-6
 
@@ -215,7 +215,7 @@
     Then what could death doe if thou ſhould'ſt depart,
     Leauing thee liuing in poſterity?
       Be not ſelfe-wild for thou art much too faire,
-      To be deaths conqueſt and make wormes thine                                                                                     heire.
+      To be deaths conqueſt and make wormes thine heire.
 
 ### sonnet-7
 
@@ -431,7 +431,7 @@
     Since ſweets and beauties do them-ſelues forſake,
     And die as faſt as they ſee others grow,
       And nothing gainſt Times ſieth can make defence
-      Saue breed to braue him,when he takes thee                                                                                           hence.
+      Saue breed to braue him,when he takes thee hence.
 
 ### sonnet-13
 
@@ -461,7 +461,7 @@
     So ſhould that beauty which you hold in leaſe
     Find no determination,then you were
     You ſelfe again after your ſelfes deceaſe,
-    When your ſweet iſſue your ſweet forme ſhould                                                                                           beare.
+    When your ſweet iſſue your ſweet forme ſhould beare.
     Who lets ſo faire a houſe fall to decay,
     Which husbandry in honour might vphold,
     Againſt the ſtormy guſts of winters day
@@ -575,7 +575,7 @@
     Neither in inward worth nor outward faire
     Can make you liue your ſelfe in eies of men,
       To giue away your ſelfe,keeps your ſelfe ſtill,
-      And you muſt liue drawne by your owne ſweet                                                                                           ſkill,
+      And you muſt liue drawne by your owne ſweet ſkill,
 
 ### sonnet-17
 
@@ -935,7 +935,7 @@
     And puts apparrell on my tottered louing,
     To ſhow me worthy of their ſweet reſpect,
       Then may I dare to boaſt how I doe loue thee,
-      Til then,not ſhow my head where thou maiſt proue                                                                                      me.
+      Til then,not ſhow my head where thou maiſt proue me.
 
 ### sonnet-27
 
@@ -1157,7 +1157,7 @@
 
 #### sonnet-33 - modern
 
-    Full many a glorious morninghave I seen
+    Full many a glorious morning have I seen
     Flatter the mountain tops with sovereign eye,
     Kissing with golden face the meadows green,
     Gilding pale streams with heavenly alchemy;
@@ -1538,7 +1538,7 @@
     For all the day they view things vnreſpected,
     But when I ſleepe,in dreames they looke on thee,
     And darkely bright,are bright in darke directed.
-    Then thou whoſe ſhaddow ſhaddowes doth make                                                                            bright,
+    Then thou whoſe ſhaddow ſhaddowes doth make bright,
     How would thy ſhadowes forme,forme happy ſhow,
     To the cleere day with thy much cleerer light,
     When to vn-ſeeing eyes thy ſhade ſhines ſo?
@@ -2015,7 +2015,7 @@
     Come daily to the banckes,that when they ſee*:*
     Returne of loue,more bleſt may be the view.
       As cal it Winter,which being ful of care,
-      Makes Somers welcome,thrice more wiſh'd,more                                                                                           rare:
+      Makes Somers welcome,thrice more wiſh'd,more rare:
 
 ### sonnet-57
 
@@ -2075,7 +2075,7 @@
 #### sonnet-58 - 1609 quarto
 
     THat God forbid, that made me firſt your ſlaue,
-    I ſhould in thought controule your times of                                                                                  pleaſure,
+    I ſhould in thought controule your times of pleaſure,
     Or at your hand th' account of houres to craue,
     Being your vaſſail, bound to ſtaie your leiſure.
     Oh let me ſuffer( being at your beck)
@@ -2326,7 +2326,7 @@
 
 #### sonnet-65 - 1609 quarto
 
-    SInce braſſe,nor ſtone,nor earth,nor boundleſſe                                                                                           ſea,
+    SInce braſſe,nor ſtone,nor earth,nor boundleſſe ſea,
     But ſad mortallity ore-ſwaies their power,
     How with this rage ſhall beautie hold a plea,
     Whoſe action is no ſtronger then a flower?
@@ -2463,10 +2463,10 @@
     By seeing farther than the eye hath shown.
     They look into the beauty of thy mind,
     And that in guess they measure by thy deeds;
-    Then, churls, their thoughts, although their eyes were kind,
+    Then churls their thoughts (although their eyes were kind),
     To thy fair flower add the rank smell of weeds:
       But why thy odour matcheth not thy show,
-      The soil is this, that thou dost common grow.
+      The folly is this, that thou dost common grow.
 
 #### sonnet-69 - 1609 quarto
 
@@ -2915,7 +2915,7 @@
     And toungs to be, your beeing ſhall rehearſe,
     When all the breathers of this world are dead,
       You ſtill ſhal liue (ſuch vertue hath my Pen)
-      Where breath moſt breaths,euen in the mouths of                                                                                    men.
+      Where breath moſt breaths,euen in the mouths of men.
 
 ### sonnet-82
 
@@ -3023,7 +3023,7 @@
     And ſuch a counter-part ſhall fame his wit,
     Making his ſtile admired euery where.
       You to your beautious bleſſings adde a curſe,
-      Being fond on praiſe,which makes your praiſes                                                                                  worſe.
+      Being fond on praiſe,which makes your praiſes worſe.
 
 ### sonnet-85
 
@@ -3126,7 +3126,7 @@
     And for that ritches where is my deſeruing?
     The cauſe of this faire guift in me is wanting,
     And ſo my pattent back againe is ſweruing.
-    Thy ſelfe thou gau'ſt,thy owne worth then not                                                                                  knowing,
+    Thy ſelfe thou gau'ſt,thy owne worth then not knowing,
     Or mee to whom thou gau'ſt it,elſe miſtaking,
     So thy great guift vpon miſpriſion growing,
     Comes home againe,on better iudgement making.
@@ -3265,7 +3265,7 @@
     SOme glory in their birth,ſome in their skill ,
     Some in their wealth,ſome in their bodies force,
     Some in their garments though new-fangled ill:
-    Some in their Hawkes and Hounds,ſome in their                                                                                  Horſe.
+    Some in their Hawkes and Hounds,ſome in their Horſe.
     And euery humor hath his adiunct pleaſure,
     Wherein it findes a ioy aboue the reſt,
     But theſe perticulers are not my meaſure,
@@ -3345,7 +3345,7 @@
     But heauen in thy creation did decree,
     That in thy face ſweet loue ſhould euer dwell,
     What ere thy thoughts,or thy hearts workings be,
-    Thy lookes ſhould nothing thence,but ſweetneſſe                                                                                           tell.
+    Thy lookes ſhould nothing thence,but ſweetneſſe tell.
       How like *Eaues* apple doth thy beauty grow,
       If thy fweet vertue anſwere not thy ſhow.
 
@@ -3987,7 +3987,7 @@
     OFor my ſake doe you wifh fortune chide
     The guiltie goddeſſe of my harmfull deeds,
     That did not better for my life prouide,
-    Then publick meanes which publick manners                                                                                           breeds.
+    Then publick meanes which publick manners breeds.
     Thence comes it that my name receiues a brand,
     And almoſt thence my nature is ſubdu'd
     To what it workes in,like the Dyers hand,
@@ -4094,7 +4094,7 @@ centre of the pyramid
 
 #### sonnet-114 - 1609 quarto
 
-    OR whether doth my minde being crown'd with                                               you
+    OR whether doth my minde being crown'd with you
     Drinke vp the monarks plague this flattery ?
     Or whether ſhall I ſay mine eie ſaith true,
     And that your loue taught it this *Alcumie?*
@@ -4173,7 +4173,7 @@ centre of the pyramid
     O no,it is an euer fixed marke
     That lookes on tempeſts and is neuer ſhaken;
     It is the ſtar to euery wandring barke,
-    Whoſe worths vnknowne,although his higth be                                                                                  taken.
+    Whoſe worths vnknowne,although his higth be taken.
     Lou's not Times foole,though roſie lips and cheeks
     Within his bending ſickles compaſſe come,
     Loue alters not with his breefe houres and weekes,
@@ -4280,7 +4280,7 @@ centre of the pyramid
     Still looſing when I ſaw my ſelfe to win?
     What wretched errors hath my heart committed,
     Whilſt it hath thought it ſelfe ſo bleſſed neuer?
-    How haue mine eies out of their Spheares been                                                                                  fitted
+    How haue mine eies out of their Spheares been fitted
     In the diſtraction of this madding feuer?
     O benefit of ill,now I find true
     That better is, by euil ſtill made better.
@@ -4425,7 +4425,7 @@ centre of the pyramid
     Our dates are breefe,and therefor we admire,
     What thou doſt foyſt vpon vs that is ould,
     And rather make them borne to our defire,
-    Then thinke that we before haue heard them                                                                                  toulde:
+    Then thinke that we before haue heard them toulde:
     Thy regiſters and thee I both defie,
     Not wondring at the preſent,nor the paſt,
     For thy records,and what we ſee doth lye,
@@ -4457,7 +4457,7 @@ centre of the pyramid
     YF my deare loue were but the childe of ſtate,
     It might for fortunes baſterd be vnfathered,
     As ſubiect to times loue,or to times hate,
-    Weeds among weeds,or flowers with flowers                                                                                  gatherd.
+    Weeds among weeds,or flowers with flowers gatherd.
     No it was buylded far from accident,
     It ſuffers not in ſmilinge pomp,nor falls
     Vnder the blow of thralled diſcontent,
@@ -4465,7 +4465,7 @@ centre of the pyramid
     It feares not policy that *Heriticke*,
     Which workes on leaſes of ſhort numbred howers,
     But all alone ſtands hugely pollitick,
-    That it nor growes with heat,nor drownes with                                                                                  ſhowres.
+    That it nor growes with heat,nor drownes with ſhowres.
       To this I witnes call the foles of time,
       Which die for goodnes,who haue liu'd for crime.
 
@@ -4521,7 +4521,7 @@ centre of the pyramid
     She may detain, but not still keep, her treasure:
     Her audit (though delayed) answered must be,
     And her quietus is to render thee.
-      (                                           )
+      (                                            )
       (                                            )
 
 #### sonnet-126 - 1609 quarto
@@ -4538,8 +4538,8 @@ centre of the pyramid
     She may detaine,but not ſtill keepe her treſure!
     Her *Audite*(though delayd*)*anſwer'd muſt be,
     And her *Quietus* is to render thee.
-      *(                                                     )
-      (                                                       )*
+      *(                                           )*
+      *(                                           )*
 
 ### sonnet-127
 
@@ -4604,7 +4604,7 @@ centre of the pyramid
     The wiry concord that mine eare confounds,
     Do I enuie thoſe Iackes that nimble leape,
     To kiſſe the tender inward of thy hand,
-    Whilſt my poore lips which ſhould that harueſt                                                                                  reape,
+    Whilſt my poore lips which ſhould that harueſt reape,
     At the woods bouldnes by thee bluſhing ftand.
     To be ſo tikled they would change their ſtate,
     And ſituation with thoſe dancing chips,
@@ -4646,7 +4646,7 @@ centre of the pyramid
     Had,hauing,and in queſt,to haue extreame,
     A bliſſe in proofe and proud and very wo,
     Before a ioy propoſd behind a dreame,
-      All this the world well knowes yet none knowes                                                                                           well,
+      All this the world well knowes yet none knowes well,
       To ſhun the heauen that leads men to this hell.
 
 ### sonnet-130
@@ -4707,7 +4707,7 @@ centre of the pyramid
 #### sonnet-131 - 1609 quarto
 
     THou art as tiranous,ſo as thou art,
-    As thoſe whoſe beauties proudly make them                                                                                  cruell;
+    As thoſe whoſe beauties proudly make them cruell;
     For well thou know'ſt to my deare doting hart
     Thou art the faireſt and moſt precious Iewell.
     Yet in good faith ſome ſay that thee behold,
@@ -4922,7 +4922,7 @@ centre of the pyramid
 
 #### sonnet-137 - 1609 quarto
 
-    THou blinde foole loue,what dooſt thou to mine                                                                                  eyes,
+    THou blinde foole loue,what dooſt thou to mine eyes,
     That they behold and ſee not what they ſee :
     They know what beautie is,ſee where it lyes,
     Yet what the beſt is ,take the worſt to be.
@@ -5000,7 +5000,7 @@ centre of the pyramid
     Vſe power with power,and ſlay me not by Art,
     Tell me thou lou'ſt elſe-where;but in my ſight,
     Deare heart forbeare to glance thine eye aſide,
-    What needſt thou wound with cunning when thy                                                                                  might
+    What needſt thou wound with cunning when thy might
     Is more then my ore-preſt defence can bide?
     Let me excuſe thee,ah my loue well knowes,
     Her prettie lookes haue beene mine enemies,
@@ -5042,7 +5042,7 @@ centre of the pyramid
     And in my madneſſe might ſpeake ill of thee,
     Now this ill wreſting world is growne ſo bad,
     Madde ſlanderers by madde eares beleeued be.
-      That I may not be ſo, nor thou be lyde,               (wide.
+      That I may not be ſo, nor thou be lyde,      (wide.
       Beare thine eyes ſtraight , though thy proud heart goe
 
 ### sonnet-141
