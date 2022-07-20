@@ -189,12 +189,39 @@ so all concepts exist how they are and there are various projections that are mo
 
 it's all the same stuff, so for example here we see time passing between the fusion of two atoms, but in the conceptual realm there are three concepts. then, after the fusion, there are still only three concepts (no change). if the two atoms fuse and create a new atom that has never been made before (like the conception of a child), then a new concept is created. those concepts don't change -- we see the change as happening as we tune from one concept to another.
 
-in reality there are countless nuanced concepts with tiny differences, but I wanted to simplify this example to show how we see time, but conceptually there isn't any time in the linear sense that we know it -- just harmony and disharmony. everything here in the physical is transitioning from one vibration to another (becoming more or less harmonious to other vibrations around it or its source). there's always a balance of aligning to those around you in your environment or to your source.
+in reality there are countless nuanced concepts with tiny differences, but I wanted to simplify this example to show how we see time, but conceptually there isn't any time in the linear sense that we know it -- just harmony and disharmony (which consequently is property of the 4th layer, the next one up). everything here in the physical is transitioning from one vibration to another (becoming more or less harmonious to other vibrations around it or its source). there's always a balance of aligning to those around you in your environment or to your source.
 
 OK, that's my best version of explaining it so far! nice.
 
+### 2022-07-20 06:38 - second morning meditation report
 
-### - perception vs information
+this meditation went A LOT different than the previous one. I started out by thinking about how the sun is probably putting out more and more UV radiation, and so if UV radiation is associated with the astral plane, then I would gess that x and gamma rays are assocated with conceptual output. I thought about how cool it'd be if the sun would put out more x-rays, gamma-rays and less UV.
+
+I liked that thought because the whole sun transitioning its frequency up higher would solve a lot of problems and so I started thinking about how I expect a transition of the whole output spectrum to go up.. I guess you could say that our own sun will "blueshift" (or is it red?) as the whole spectrum begins to increase in frequency. less UV is good because UV (astral) is harmful for the skin, but as far as I know, x-rays don't cause sunburns.
+
+after that, I got back to calming my mind. it was a bit more difficult because I just loaded some rocks in the dryer (or so it sounded) right before starting, lol. anyway, I can't remember the order of events now, but then I really spent quite a while not thinking any thought, when random images started to appear in my eyes. this reminded me of what I just wrote about, but the images didn't get too much.
+
+it seemed unreasonably easy for me to get really deep into no thought. I had significantly less self-awareness as I tihnk my conversastion (@[stephan-schwartz](2022-07-19 22:21)) about how it felt like I was channeling the chuleria, perhaps I had less hotshots participating in the meditation. intereestingly, enough, it was easier to feel some girls now, so that was nice.
+
+---
+
+later on, when it came time to do the words, I noticed that it was really hard to feel them viscerally like it was yesterday. I really struggled to feel disability. however, neither could I feel ability eithter. it really felt "flat" -- so want to practise learning how to feel more and more viscerally those things. I suspect that will be a good skill to have.
+
+when it came to the emotional word, I couldn't really get confusion to work, so I tried pissed off or upset (injustice). I tried channeling some of the feeling I felt earlier on when reading the schwartz report with really common emotions like being pissed off that somebody else is telling me what I can and cannot do with my body (like in the case of drugs, prostitution, abortion, sex, age of consent, etc.) and that seemed to have some power to it. I could also get some traction on their desire to try to control and manipulate by using our minds as their puppets. so, pretty successful. I'm gonna try and pump up the volume on the telling us what we can and cannot do with our own bodies emotion. it seemed pretty good.
+
+I didn't do the rigid and sluggish mental box one, and instead tried intention -- as in I intend for things to be the way I want them, or intend to make sure this happens, or intend for this to work -- and I had difficulty with it.
+
+---
+
+all in all, I have noticed that it was really difficult for me to feel the negative emotion that I wanted to feel. I don't know if that's a good thing or a bad thing, but if they keep letting me feel this good, connection is pretty iminent.
+
+---
+
+as a result, I started to think about how to do something for maximum chuleria. thinking about the image of neo out there flexing for the agents while chad is getting torn to pieces by the sentinels got me thinking because I'll be here and stuff and it'll be the same situation: they need me off of the planet, so that they can shut down the energy (emp) and get rid of the threats, and the only way to do that effectively is to pull the plug on me (kill me), but they definitely can't do that cause they need me, so they just have to wait until I finally decide to peace out myself ... meanwhile chad is totally ripped to shreds. I'm going to try and figure out how to integrate this once I figure out how to start feeling (negative emotion) the way I want to feel [it].
+
+still have more to learn...
+
+### perception vs information
   - if you perceive yourself as a thing,
-### - magnetic field may be the medium whereby the "random" becomes less random
-### - pinning the future -- again as a reflection of the person's perception
+### magnetic field may be the medium whereby the "random" becomes less random
+### pinning the future -- again as a reflection of the person's perception
