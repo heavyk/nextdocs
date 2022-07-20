@@ -5045,6 +5045,44 @@ the passage in the bible of jesus' baptism and the "holy spirit" descending on t
 
 still more to understand there.
 
+### 2022-07-20 10:04 - the sense I get...
+
+so I've been trying these meditations for the last two days now (see stephen-schwartz) and they're extremely effective. like, I may consider discontinuing them because they're so effective. I encourage others to try them though. the technique that I'm using seems to have an effect that I never considered possible until now.
+
+I decided to do two contradictary things at once: every time that my mind wanders, I bring it back into the meditation by saying, "when I know what I don't want, immediately I know what I do want". that's good because it focuses my mind to be receptive to the things that are both unwanted and wanted (the extremes of them). so, when a thoughmt comes into my head that feels especially wanted or unwanted feeling (different than good and bad), I let the thought play out for a while. I try to refrain from adentifying it as either good, bad, unwanted, or wanted. because unwanted-and-wanted-are-same, any of those definitions can become either wanted or wanted just by the way that I perceive them. it's best to stay away from good and bad because these are social constructs.
+
+---
+
+case in point, I wrote @[my-sonnet-thoughts](2022-07-20 04:31), and how I perceived sonnet 69. I felt quite some anxiety over a verse in there and I didn't understand what the fuss was about. I went back to look at the original and it says, "All tongues (the voice of souls) give thee that end" -- which is something way different than the "All tongues, the voice of souls, give thee that due" -- because the voices of the souls is the conceptual realm and the end is way different than due. end means finish, completion, but they're getting it all wrong; it's not that the voice of the souls is a means to an end. I'll fix it after this.
+
+anyway, I said that because the reaction to it was very similar to a reaction to me trying to figure out the "bath" sonnets at the end. alan said they're practically the same sonnet, but to me they look, but most importantly *feel* way different. they feel like two paths that I can take. in short, one seems to have her as the initiator and the other is sounds like cupid is the initiatior.
+
+the important part about it is the part about the brand -- because remember those symbols related to mithras with one guy holding the brand up and the other one holding the brand down. they're opposite results, but the same guy. seems this decision is perched at the top of the pyramid there, both of these paths are causing anxiety.
+
+I don't find either of them either good, bad, unwanted, or wanted. personally, my goal is to try and "land the plane" -- so no brands at all. I don't see any reason for a cataclysm at all, and neither do I see any reason for a split.
+
+I haven't returned yet to where I left the discussion in @[stephen-schwartz](2022-07-19 04:54), but the short answer without all the discussion is that, no I don't believe that the future is fixed at all. I think his remote viewing of the future is a consensus, and so if, for example the world consensus was that atlantis existed, cayce's predictions about atlantis would have reflected the world consensus just the same as his remote viewing of 2050 represents the world consensus now.
+
+I'm not going to tell him that in that document (cause I may send it to him some day as data from my meditation and general thoughts), but I will say here that, the consenus perception doesn't mean anything. there are countless examples of one person that has a different perception than the world consensus and (s)he completely changes the world. well, I'd like to do that. not only am I good at what I do, there is nobody more prepared to do something like that on this planet, than me. so why don't I dogfood my own ideas here?
+
+I say that there's nobody that's going to come and save you, unless of course you manifest them yourself (or enough people want that saviour, and so therefore collectively manifest it).
+
+I also say, "don't wait for the other guy (or girl) to do what you want them to do for you for you something you don't feel capable of accomplishing yourself" (ie be your saviour and bail you out of an experience that generates negative emotion)
+
+to summarise those ideas, I say, "you're the guy. nobody else is going to do it. you have to do it. nobody can feel for you the way you want to feel, think for you the way you want to think, or behave for you the way you want to behave. the only person that can do this is YOU".
+
+so, if I'm the guy that's going to figure out how I want to feel, think, behave, etc. -- then, obviously, it's me. it's not you guys.
+
+I'm not interested in trying to go too fast, neither am I trying to slow things down, either. I want "next logical state (of being)" and nothing more. this meditation feels like it's starting to push me to going too fast, but it does also feel like I'm superando (overcoming) the feelings that I'm trying to force myself to feel, much easier. time will tell, but trying to force myself to feel negative emotion while my mind is focused to knowing what I want from what I don't want, seems to be *destroying* bad emotional habits at record speed. again, time will tell, cause I've only done it twice, but I can feel the shift in my consciousness and it feels like the most powerful technique I've ever done, so far -- and I was just being a cheeky about it my implementation of it, because I don't think they wanted me meditating to produce positive results.
+
+however, because I'm meditating for both extremes of wanted and unwanted, I can then perceive them however I want. by forcing myself toward unwanted, I automatically produce wanted. it's great because it validates (with data) so many of my "crackpot" ideas about the biggest disaster actually being the most wanted.
+
+I'm gonna just keep working on perfecting my ability to perceive the way I want while heading straight down the middle[^1]. when they feel they can't take anymore they're welcome to create their own reality. sure it's max unwanted, but it'll buy us more than enough time to keep improving our perceptual capacity and my goal is to keep it steady all the way to the end without anything going wrong. my perceptive capacity will definitely be *much* more dominant than the consensus.
+
+I guess we'll have to see what happens...
+
+[1]: the other reaction that I got was in the matrix (3?) neo and trinity fly right into the middle of the machine city while the others defend the base.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
