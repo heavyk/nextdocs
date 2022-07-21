@@ -5083,6 +5083,80 @@ I guess we'll have to see what happens...
 
 [1]: the other reaction that I got was in the matrix (3?) neo and trinity fly right into the middle of the machine city while the others defend the base.
 
+### 2022-07-21 15:52 - a trip into materialism
+
+yesterday, there was kinda a big solar flare. I can't remember the circumstances now, but I think I was just waking up or something. it's very strange how fuzzy all of this memory is as if I can't really even remember yesterday hardly at all. there was the mail carrier and brandon garage doors that came by, and that's all I remember -- but anyway.
+
+I think I went to sleep after finishing up pulling some weeds and woke up after only a few hours of sleep. all of this is really hazy, and I remember at the time I felt desire to watch thijs videos again. I watched about 4-5 and then I had to turn it off because I was noticing that the twitch mentality is completely incompatible with my own. I don't mind exploring other things, so I went outside and took a break, because I was going to start in on the meditations again.
+
+I remember feeling desire to watch thijs again so I went back in and watched a few more. I finally got sick of it and laid down to clear my head a moment before starting in on the meditation. I woke up one time along the way with another dream which I can't really remember but it was an older girl that was trying to seduce me but I wasn't going along with it. I can't remember the conclusion now but I think it was something to do with them not wanting me to go with young girls. not totally sure about it. anyway, that's my "memory" of it now (memory is just your perception of a vibration, the vibration could be different and my perception could prevent me from seeing what's really there, so I don't really count memory as much more than an illusion). I probably got put back to sleep and I woke up this afternoon with the dream I wrote earlier: @[dreamlog](2022-07-21 12:27).
+
+---
+
+after that, I went upstairs and mom wanted me to consider going to amorina's house with them and I didn't really have a feeling like it was something I wanted to do (I mean I feel desire to pull weeds more than I felt desire to go there). it really felt "meh" to me, so I said that.
+
+I looked into the feeling of why it felt meh and I considered that I may be feeling like I don't really want to alienate amorina. melissa and patrick's life is built almost completely on illusion, so when I start talking about illusion, I'll almost certainly bring up relevant examples of recent interactions with those two and illustrate the incongruence between the feeling they feel on the inside and the feeling they project on the outside.
+
+obviously, I can't prove how someone feels, and most of my work figuring out how people really feel has been my own study of patterns. I've found that a person almost never reveals how they really feel; instead, they often divert attention away from the way they feel with things of similar vibration. it would be my effort to illustrate to amorina how melissa's or patrick's outward gestures may be resonant with how they really feel, but projected in the opposite direction (unwanted-and-wanted-are-same). therefore, largely all of my ideas would be completely unprovable and pure conjecture.
+
+RC (remote comprehension) is kinda like RV (remote viewing) in that it's purely subjective because there's nothing provable, so I look for long term trends and patterns in the data before beginning to make up my mind. I noticed that things are either right/opposite/wrong (resonant) or incorrect/dissonant, so I tended to focus my mind on the right/opposite/wrong stuff, because unwanted/wanted extremes are much easier to deal with. whatever they are, they can be looked at the opposite way.
+
+so for example, let's say that melissa or patrick is feeling insecure, so they do a thing like make an accident happen so that they can point out that they're clumsy or that things don't always go the way they want them to go. well, that same insecurity is also security (in their clumsiness).
+
+"see how clumsy I am, you and I can be secure that this is how I always am going to be -- therefore, if you want that I continue to be clumsy, then you can feel security that we can be that way together"
+
+why try and prove yourself as being stable and secure in something like clumsy to make you feel secure? it makes no sense to me, so I try to see through the illusion (my own and others).
+
+illusion is built on perception, and so when building an illusion, you're just making the thing that you think others will want to see to allow them to feel about you the way you want them to feel about you.
+
+so, for example if I want someone to think of me as beautiful, my goal is to produce an illusion that makes them think I'm beautiful -- but I know it's an illusion, so I know that as soon as they find out that it's an illusion, they'll actually see me as the opposite of what I wanted them to see me as.
+
+the illusion is based on perception, so why don't I just make an illusion for myself that I'm actually beautiful?
+
+well, I've noticed, the reason is that I know it's an illusion so I don't really believe it. I can't belive something I know to be false.
+
+so then why don't I train myself to believe the thing that I want to believe?
+
+I've found that the belief has been built on a foundation of other beliefs, so that if I find a way to believe that I'm beautiful, then the person that told me I'm ugly isn't right anymore and I think (or my data says) that they're right. if I start shaking up some of these foundational beliefs, the whole thing starts to come down.
+
+---
+
+the belief in how this reality works is quite a fragile one for many, which is why reality shattering ones are illegal;their illegality reflects our perception of not wanting reality to be any different than the way we believe it to be. do *not* shatter my illusion of how reality works, says science, says diplomatic affairs, says the monetary sector, etc. you can see how there is a lot of effort to ensure that we continue on believing the same broken reality that we've always believed -- and it's because there are some people and organisations that have been here for a very long time and the idea of reshaping some of their foundational beilefs sounds the end of the world (as they percive it to be).
+
+---
+
+so then, finally we get to the real subject matter and that is what I was talking about when I was explaining to mom the idea that if I get connected now, the amount of beliefs the world will need to change will cause so much dissatisfaction, that my connection will cause more problems than it'll solve.
+
+reality is something that you *receive*, and so I was explaining that it could be possible for some people to accept the idea that you receive both the wanted and the unwanted aspects of reality. just the other day, mom was arguing with me because she did not beileve that she was receptive to someone astral projecting into her reality -- but I contend that you can only *receive* the things that you resonate with, therefore if it happened, she was receptive to it. you may imagine that this kind of thing could be happening to many people all over the planet. the discomfort that mom was feeling while she was trying to defend that astral projection is "bad" is evidence that her source thinks differently about it, and that's why she was experiencing so much discord.
+
+when reality becomes something you receive (see alan's trigonometry of manifestation), the way you feel is directly proportional to the speed of its manifestation. in that state of mind, there's no need to assert oneself[^1] and I hate to say it, but all of the material stuff no longer becomes the goal, but instead a medium for you to express how you feel.
+
+---
+
+this is probably the part you'll want to skip (if I were you): my goal is not to try and to get connected faster than is needed. there are lots of people out there that need the world to continue to be the way that they believe it to be, because if it doesn't continue that way, they'll have to rethink some of their beliefs, and they don't want to do that. so, from their perspective, the longer that I can continue to remain disconnected, the matrix they're creating will be more and more resiliant to someone realising there's more to reality than whatever is the latest twitch, netflix, hollywood, or whatever social media trend.
+
+so, on one side, the longer I wait, the greater capacity many people will have to finding out that you receive reality, rather than trying to make it happen[^2], however on the flip side of it, nosebook is also gaining more and more capacity to try and assert their reality into our brains.
+
+I don't think it's a problem, because like I noted in the dream, the physical stuff can be received at any time, so it loses its importance. if you can receive anything you want whenever you want, what you actually value shifts and changes into something that isn't quite as physical. I'll let them try and continue trying to prove their reality to everyone else. I figure if they have unlimited capacity to manipulate conditions, they *still* won't be able to make reality assertive.
+
+you could say, it's kind of like a competition, where they can have all of the time they need to call down the fire from heaven (strange cometary imagery) to consume the sacrifice, when I'll instead try and make the fire coming out of the sky as impossible as possible by allowing them to completely cover the altar with water, building even a moat around it (sounds like a firmament), till it would be impossible for it to light on fire by chance.
+
+I like the idea of removing chance out of the equation. the funny thing about my idea is to try and push this out as far as possible, is -- just imagine it's the absolute maximum.
+
+I am certain that eventually it will be impossible for them to hold it back, but before that happens, I want them to get their system as well setup as possible. finally, when that happens (the first), I'm going to try and find a way to get off of the planet. they'll run the system however they choose building up better and better solutions to try and keep their reality from shattering, and eventually when they've finally stabilised the system so that nobody is ever making it out, and that all reality is controlled by them, then I'll jump back into a body and try again. they'll have perfect knowledge of everything that I do, no desiring onlookers will be there to pull me forward, and it'll just be me and them in their completely controlled world, and I'm certain that I'll still find my way through it and figure out what I know today.
+
+by not wanting to get connected, I'm *purposefully* creating the maximum dystopia. it probably won't look like a dystopia though as good conditions will be plentiful. they're quite good at creating the illusion exactly opposite of what they feel. like the story of melissa and patrick's illusions having the intention of getting the other person to believe something about them because believing it theirselves would invalidate their other beiliefs that they hold to be true -- so, the those running the matrix will do the same thing to humans. they need to force us to believe good things and attract good things for them. by forcing someone else to do something, they aren't voilating their belief of needing to assert something to get what they want.
+
+most of the "bad-guys" will be your best friends[^3]. I put quotes around the "bad-guys" because they're not bad in any way. most will look, feel, and smell good. their only "bad" quality is their idea that they continue to live in a reality where things are done to them and they do things to others. their purpose is to maintain that "truth", and most will believe that illusion because it's what all of the "good" people believe: that, you have to do the right/good thing, or else the wrong/bad thing will happen to you (asserted into your experience). it's the law, you know.
+
+that is, likely going to be the function of team pluto. so, no fire from the sky to consume the sacrifice until they've been given ample opportunity to ensure it impossible for fire to come from the sky.
+
+[1]: sorry for the irony here, because in the story he talks about bypassing the guy's gate and knocking on his door, saying, "I know this isn't the way to do it, but you have to listen to my tape" -- but if you keep listening to his story, he didn't listen to the tape because he asserted himself. later, he listened to the tape because alan finally got the idea he can receive the reality he wanted.
+
+[2]: another irony here because, at the end of this tavern final, feno (one of the players) gave his victory speech saying just that: @[youtube](https://youtu.be/xLHt8Q_KBVM?t=1641)
+
+[3]: I'm reminded strongly of chris, for which I'm pretty indebted to because no matter how much I tried to convince him otherwise, he continued to want to hold on to his pain and suffering. eventually, when going off to live with adam and zaryn (a-z), it started to become pretty clear how much how much that whole thing was an illusion of his own imagination. he really believed his own troubling illusions.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
