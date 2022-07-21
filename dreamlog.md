@@ -143,3 +143,45 @@ all every interesting ideas. cool dream.
 [1]: not sure how much of it, but I think this is what sigils in chaos magic is about, and I've talked extensively on the idea of how your (symbolic, not verbal) "expectation" of an idea limits its manifestation -- so in terms of random, it begins to appear like you're "controlling" the random by expecting a thing out of it, but in reality this is just a limitation of manifestation potential. it's sorta like using doubt to "predict" something, and so then you're using something that was previously counterproductive to your advantage.
 
 [2]: an example of this might be that we don't *actually* know what copper is really capable of, so it's quite possible that we don't really understand the copper chisels and weapons because we're looking at copper with the standard model of assumptions and expectations, when the ancients may have had an entirely different conception of copper, and so therefore, for them it behaved differently.
+
+### 2022-07-21 12:27 - wierd encounter in front of remi's house
+
+in the dream I noticed that some of remi's family was arriving to their house. I waved to one of them, identified one as flo/flow (it looked like a guy in his 20s, but his name was, "flo" -- so I took it as flow. he reminded me a lot of the xagly's friend from NY...). I felt like I should go over there and say hi. as I did, I noticed a lot of other people arriving at the same time.
+
+I was trying to figure out what is happening, and he asked me some questions which I don't remember. he then made the comment, "looks like you've manouvered a lot in life" -- something like that. I wanted to know what he meant, because I thought that may be an opening to talk about something a little more profound than just material crap and "how are you doing" conversations. he started to go away from me, but I pursued him through the crowd because I wanted to know what I meant.
+
+there were girls all over the place, and it seemed like these documents were available to everyone to look at. one of the documents was called "girls" and anyone could put their name there if they wanted to, but it felt to me like many were quite shy and didn't think theirselves good enough or something, so they were looking from a sign from me or something. I couldn't really understand the experience.
+
+I finally got to where it felt like I had pinned him down enough to get the answer I wanted. he said I'm wearing an 80's t-shirt. I told him I grew up then. I then felt like if I talk about my age, I could explain that you are a reflection of how you feel yourself (conceptualise yourself), and so age doesn't really matter, in that if you live longer, it's possible to accumulate more limiting ideas about yourself from others. death is a good thing, and that you have complete power over your appearance.
+
+those are all things that I knew quite plainly in the dream, but obviously I don't quite believe that fully in real life.
+
+anyway, there was a strong feeling that people didn't want me to talk about age, so I just stopped pursuing him and let the conversation go. I focused my attention on the girls right before I was woken up from the dream, and it was difficult to explain that none of that matters.
+
+in the dream, I had the perspective that I could conjure anything I wanted just by wanting it to be there (like the loading program in the matrix). so, girls didn't mean anything to me, none of the material crap was worth anything, so I just wanted to talk about self-perception stuff because that's all that matters anyway.
+
+when anything can be conjured, it completely changes how life itself is perceived. even the things that I do like picking weeds made any difference to me, because I could just conjure a new front yard if I wanted to. the picking weeds is something that I do for myself.
+
+if I don't like something, I can make a new thing out of dissatisfaction, but then I'm just going to have a new thing that dissatisfies me soon. I could keep cycling in new things that I think I'll like and never change how I feel, OR, I could just find a way to feel how I want.
+
+the good conditions on the outside (girls, material crap, whatever) are not what shape how I perceive myself. I enjoy difficult things because they cause me to find a new way to look at myself. good conditions don't do that. they make me lazy and lethargic about how I feel because I focus my attention externally, thinking that's the source of what I see.
+
+---
+
+the final thing that I was waking up thinking about after that dream is that I was reminded of what I wrote yesterday in @[blahblog](2022-07-20 10:04) where I was talking about holding perception...
+
+when I wrote that I was considering that I would maintain roughly the same circumstances that I have now, and neither would I be in a connected state either. I'd simply just keep finding new ways to feel the way I want to feel.
+
+it's really not hard at all, however, it feels like many others think that I need to have good conditions to justify their own good conditions, but I don't believe that to be so. I don't find that good conditions focus me very well.
+
+in fact, I would say that I'm not entirely sure that I can hold the perception if my life were to change in such a way where once again I become externally focused.
+
+let's just take the subject of climate change because that's an easy one to see an external thing that affects the way I feel about my present situation. I don't feel climate change to be a very large threat at all.
+
+the biggest problem (IMO) is the sun, and I'm fairly certain that there are solutions to that problem, however I belive the solutions involve other people gaining a more expanded awareness. besides that, the better people feel, the more their environment will reflect that, so it'll probably become a really good feeling place to live here on earth, rather than more harh climate.
+
+other problems I've heard about are sea level rise, which just isn't happening like they said it would. I belive this is because the sun's rays separate the ocean water into HHO. the earth receives so much electricicty from the sun in its poles, even if we converted 1/10 of that into DC electricity and used it to separate the ocean water into HHO, I think the problem would actually be the opposite: oceans would fall dramatically.
+
+all of these and many other problems are easy to solve. the reason why they're not getting solved isn't for technical capablity, but because of *perception*. we still believe that the things outside of us are what's responsible for how we see the world. that's it. that's *literally* the *only* reason.
+
+I'm still in the process of gaining more and more capacity to see the world like I did in the dream. I figure that eventually, I *will* see the world like I did in the dream -- and from there, everything will 100% sure to be fine (at least for me). I leave it everyone else to make their own reality however they want.
