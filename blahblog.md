@@ -4995,7 +4995,7 @@ yesterday when writing @[my-sonnet-thoughts](2022-07-17 15:58), I said (added ne
 
 > say what you want, but I think it was probably jesus that expanded the visual capabilities of mary's bloodline, not necessarily mary
 
-the way I believe this works is that there are likely two components to this: first is the mitochondrial DNA stored outside of the cell. this turns protons into ATP, and I'd give a pretty high likelyhood that it's more likely that men cause evolutions in this -- though I don't really know for certain.
+the way I believe this works is that there are likely two components to this: first is the mitochondrial DNA stored outside of the cell. this turns protons into ATP, and I'd give a pretty high likelyhood that it's more likely that men cause evolutions in this[^1] -- though I don't really know for certain.
 
 the other way to look at this (and the location of the code which encodes conceptual/perceptual layout in the genome) is in the x-chromosome. I may be wrong about this but let's just assume that's the case.
 
@@ -5018,6 +5018,10 @@ obviously jesus' x-chromosome is going to be considerably stronger in it's perce
 however, the case is going to be considerably more different for an x3. I really don't know how this will work, but my suspician is that it has a similar (36y) clockspeed to it, and if I base it off of my own experience, I would say that you will have two *pairs* dualing for perceptual dominance... I imagine they switch off... so like let's say X0 and X1 are dominant at first. then Y0 and X2 take over at 36y, then back -- or maybe they switch off taking all possible pair permutations each 36y -- I just really don't have any data to really say one way or another what it could be like. someone at nosebook, able to see what our perception is and sequence our DNA on the fly could probably figure this out with statistical analysis. I have no idea.
 
 it's a really interesting thing to think about, but it doesn't affect me much. I just do my perception thing and not worry about manipulating bloodlines.
+
+[1]: my untested hypothesis on this comes from the "y-chromosome bottleneck" where it seems to me that all of a sudden quite a few males seem to drop out. this happened at roughly the same time as the megafauna dieoffs. I postulate that many organisms didn't have enough energy to sustain such enormous bodies in the new solar regime and this came from a desync in perception between the males and the females, and so as a result, many daughters were born to try and produce a compatible perception with the males[^2]. also, the males that did survive, I can imagine that their combined desire to produce male offspring resulted in upgrades to what frequencies of protons the mtDNA can convert to ATP. again, just an untested hypothesis, and I have no way to really test it or falsify it either.
+
+[2]: this is another untested hypothesis of mine where, because I believe DNA is a reflection of perception, when the mother and the father have a serious desync in perception, it's much more likely to produce a daughter. this is because her father's x and her mother's x will be in the same body, so it's much more likely that the daughter will find a way to integrate her father's perception into her mother's "bloodline". I imagine that one way to test this hypothesis would be to statistically look at gay fathers and rape victims. perhaps other extremely male-dominating environments may also produce more daughters, as well.
 
 ### 2022-07-18 12:16 - set, osiris, and horus
 
@@ -5197,7 +5201,7 @@ I think there is something very similar going on in elijah's time that is simila
 
 I noted in dtp that YHVH sounds a lot like a conceptual entity gaining power by people's belief in him, and then projecting downward its energy into the astral, very similar to fae, fairy, aliens and demons. so whether these "gods" were actually real or not, it seems that they were interacting with humans in the same way by projecting down into the astral.
 
-it seems that elijah is getting the force of desire confused with an astral entity. this seems to be a deliberate illusion that's being done to elijah to garner more belief, but he eventually starts to just use desire directly, for example, by calling fire down from the sky by his own desire, without petitioning enlil for it. he's disobeying the law with unearned/unauthorised access to desire, and so therefore enlil needs to put an end to elijah's misuse of power, so he takes elijah to "heaven" (probably to kill him).
+it seems that elijah is getting the force of desire confused with an astral entity. this seems to be a deliberate illusion that's being done to elijah to garner more belief, but he eventually starts to just use desire directly, for example, by calling fire down from the sky by his own desire, without petitioning enlil for it. he's disobeying the law with unearned/unauthorised access to desire, and so therefore enlil needs to put an end to elijah's misuse of power, so he takes elijah to "heaven" (probably to kill him[^2]).
 
 elijah made such a powerful impression on people, it seems that he has had the capacity to project down into the astral/physical in moment's of desire in the non-canon literature (which is why I suspect he "died"). those things probably weren't canonised because again, unauthorised use of power (not the will of "God")...
 
@@ -5220,6 +5224,8 @@ this is the eventual goal, because why not just let them do all of the focus on 
 so anyway, I guess you can consider that I'm doing things all the wrong way by amplifying the "bad", but why not, doesn't YHVH harden the egyptians hearts so that more power-displays are possible?
 
 [1]: the law will probably be something of restriction, where you need to do certain things, in order to maintain harmony and balance. a good example of this is the CO2 thing, where in order to stay in harmony with nature we can't be burning fossil fuels.
+
+[2]: my reasoning here is that he seems to be projecting down from the conceptual realm. to get there, I figure you have to die or to find alignment with that perspective. I find it difficult to believe that someone as troubled as elijah could be finding that alignment. so I figure either YHVH taking him to heaven is a cover story to him doing something very different than the narrative says in order to find that alignment -- or he got taken from earth and then some time passed or immediately he was killed. from there (from the perspective of his "oversoul"), he must have learned how to use desire as a way to project himself down into physical reality. if he saw himself as a protector of humankind, I find it possible that he may use desire to produce all sorts of "third man" effects (or angels). the form those entities take on doesn't matter, because they're whatever is necessary to satisfy that desire (for help, or to stay alive or whatever). this once again would place him into the reborn deity category which I'll talk about again in the future because I think I've figured out why 2-6-4 are the other reborn deities, but he's an odd (7th) ray, not an even. all of it seems purposeful.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
