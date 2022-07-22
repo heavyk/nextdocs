@@ -5157,6 +5157,70 @@ that is, likely going to be the function of team pluto. so, no fire from the sky
 
 [3]: I'm reminded strongly of chris, for which I'm pretty indebted to because no matter how much I tried to convince him otherwise, he continued to want to hold on to his pain and suffering. eventually, when going off to live with adam and zaryn (a-z), it started to become pretty clear how much how much that whole thing was an illusion of his own imagination. he really believed his own troubling illusions.
 
+### 2022-07-21 23:42 - shattering illusions
+
+in the last entry, I mentioned that I didn't really want to go around shattering people's illusions. it's not really my job and I don't really want to be stuck in the middle of the thing, anyway. my solution is always to just let them continue to try and figure out their own illusion by theirselves.
+
+I was reminded a lot of chris in the final part where I was talking about how the designers of the new matrix will almost certainly appear as good. they'll have this appearance because they need to maintain their beliefs that reality is asserted on to you, and you have no control over it, unless of course you're good and follow the law[^1]. there were various times in my life where chris was having difficulty and he wanted someone to join him in his misery, but I would not. I don't want to try and save him from his own illusions, because that's his thing, not mine. if he wants sympathy or whatever from people, his illusion is good for him to keep doing.
+
+just the same, I don't really want to get involved in trying to shatter her illusion. at the present, it feels to me something like, I don't believe that I can perceive myself as [whatever], until I have a boy come along and joins me in my clumsiness/low opinion of self/whatever, and then finally with him, we can have a mutual illusion agreement where I believe your illusion if you believe mine -- which, I'm more describing melissa than amorina, but I can feel the same thing already. I don't really want to be a part of that, because I believe that I should use my knowledge of perception to see things for myself differently, rather than try to get others to see if differently, for me, so that I don't have to change my underlying beliefs.
+
+I *prefer* to change my underlying beliefs, and have no problem admitting I'm wrong, because I *want* to change my underlying beliefs (it's circular, I know). this is exactly the opposite of how most are. most believe that they need to get some sort of law in place, and if everyone abides by that law, then all will be well.
+
+this was the foundation for atlantis -- and meanwhile the leaders weren't corrupt, it worked (kinda) great. the ones in charge kept things in order by using magnetic therapy to get rid of unwanted thought patterns like selfishness, greed, and destruction. we're going in that same direction again. I figure that the ones that are interested in holding on to their good conditions will need a law and a system of keeping that sort of destructive (desirous) behaviour away. you're to just enjoy the good conditions within the confines of the illusion that we all agree upon.
+
+---
+
+so, when I say that I don't think a cataclysm is necessary, that is what I believe and meanwhile I'm around and I remain the dominanat perception, it won't happen.
+
+however, just consider the idea of the belief that you have to earn something, and consider that not only will I be able to conjure things that I didn't earn, so too will others figure it out pretty quickly as well. the energy on earth will be such that near instant manifestation will be easy and routine. the amount of dissatisfaction from watching others get what they want without having to earn it will rise to unbelievable levels. all of those that need others to be below or inferior to them will suddenly have to try and work harder to maintain their position that others are accomplishing effortlessly.
+
+it sounds like a pretty big disaster to me, and I don't know that I'd be able to maintain the dominant perception in that situation. it's quite possible that enough people focused on dissatisfaction like that could overpower me in their attraction. neither do I want to try and convert them over to receiving reality.
+
+instead, I think it's a much better idea just to just stay out of their way and let them hold on to their illusion for as long as they can keep it going.
+
+going on the 1000y idea, I think it would be great if they established a really good tradition and legacy of reality being this way. I'll jump into a body, and over the course of the next 1000y or so I'll try and integrate myself into the tradition and ritual established on the earth. obviously, it'll go poorly because I hate having to work so hard for everything. I want to just desire and receive with no effort.
+
+so in a sense, it's kind of like a really big proposition in the sense that I think it'll be great for them to establish their matrix, get everything controlled so that you can't just "get whatever you desire" or "feel the way you want to feel" -- you have to *earn* your conditions and how you feel. you have to conform to the laws that the matrix has set, not the ones that the universe runs on.
+
+I believe that even still, with a matrix that's fully capable of neutralising every signal that I get in response to LOA, I'll still find a way to do it.
+
+---
+
+unfortunately, this is reminding me too much of elijah, and after having read a pretty good amount of the "becoming elijah" book, I have some thoughts which are relevant to this discussion.
+
+in that book, elijah is constantly interacting with YHVH, but I strongly get the sense that this was a sort of UFO-type craft/phenomena, rather than an inifinite being. I also am coming from the lbe part where it sounded to me like "heaven" just meant mars, and in so many of these cases, YHVH sounds a lot like enlil.
+
+I get the sense that elijah is a bit confused, because he recognises this power which he calls YHVH, but it sounds a lot like what I call desire. he desires that something happen, like fire from the sky, and it happens. so, how could YHVH when elijah is interacting with it behave like desire, and when he's talking to it, YHVH sounds like enlil?
+
+I think there is something very similar going on in elijah's time that is similar to what is going on now. I'm going to now call YHVH by desire (the force), and enlil (the petty martian "god"). it seems that at that time there was a competition between the "gods" to get worship from humans, and you had these petty pissing contests between the gods to try and garner more worship to increase their power.
+
+I noted in dtp that YHVH sounds a lot like a conceptual entity gaining power by people's belief in him, and then projecting downward its energy into the astral, very similar to fae, fairy, aliens and demons. so whether these "gods" were actually real or not, it seems that they were interacting with humans in the same way by projecting down into the astral.
+
+it seems that elijah is getting the force of desire confused with an astral entity. this seems to be a deliberate illusion that's being done to elijah to garner more belief, but he eventually starts to just use desire directly, for example, by calling fire down from the sky by his own desire, without petitioning enlil for it. he's disobeying the law with unearned/unauthorised access to desire, and so therefore enlil needs to put an end to elijah's misuse of power, so he takes elijah to "heaven" (probably to kill him).
+
+elijah made such a powerful impression on people, it seems that he has had the capacity to project down into the astral/physical in moment's of desire in the non-canon literature (which is why I suspect he "died"). those things probably weren't canonised because again, unauthorised use of power (not the will of "God")...
+
+elijah doesn't seem to mind breaking the law from time to time.
+
+---
+
+so when I look at this situation, to me, it looks like there's been too much unauthorised use of desire to attain wanted, when the controllers of physical conditions don't like that we can bypass their laws and just get things without having to earn it from them.
+
+the thing is, there are a lot of people that believe like they do, and it's my opinion that instead of trying to pluck up the ones that need good conditions so that the the ones that thrive in difficulty can grow, I figure we should just give both of them time to grow to full maturity in the same place. by their own efforts, they will divide humans into being parasites or those that can host so many parasites.
+
+if you think about it, imagine a world with hundreds, thousands, or millions of hosts like me, where we're able to host quite a few parasites. though there are so many parasites, they won't provide enough resistance to keep desire from manifesting.
+
+I know that it's impossible for them to ever find a way to completely stifle desire, so I think it's a great idea to give them full capacity to try it. the bigger the illusion it is, doesn't make it "too big to fail" -- and neither does it make the illusion more real. you could have the biggest lie on earth that quite literally everyone believes, and it still doesn't make it real because the ones promoting the lie, know it's not real. they're bound by their own belief to shatter their own illusion at some point. it's inevitable.
+
+though inevitable, who knows, maybe at the end of the next section of time, I/we'll decide to yield again and let them build an even bigger illusion. how big can we get it, I wonder.
+
+this is the eventual goal, because why not just let them do all of the focus on unwanted for us? we'll just get really good at finding the wanted no matter what.
+
+so anyway, I guess you can consider that I'm doing things all the wrong way by amplifying the "bad", but why not, doesn't YHVH harden the egyptians hearts so that more power-displays are possible?
+
+[1]: the law will probably be something of restriction, where you need to do certain things, in order to maintain harmony and balance. a good example of this is the CO2 thing, where in order to stay in harmony with nature we can't be burning fossil fuels.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
