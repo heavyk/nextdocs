@@ -221,6 +221,22 @@ as a result, I started to think about how to do something for maximum chuleria. 
 
 still have more to learn...
 
+### 2022-07-23 07:18 - meditation #3
+
+for various reasons, the last two days I was going to meditate, I was put to sleep instead, and when I woke up I didn't really feel like doing them. interestingly enough, both of those nights I hadn't drank coffee. tonight I did drink coffee again, so it seems like it's much easier to meditate with coffee. I definitely would have done much better without coffee as I'm *much more* clear-headed.
+
+I did attract the words that I was focusing on in the previous two meditations, and it only took a day or so to arrive, so that's pretty quick manifestation of them. I was definitely feeling very pissed off and stuff like that. I had to rearrange my perceptions to feel good about the same thing. it wasn't that hard, and I can't even really remember now what the problems were they were fixed so quickly.
+
+I'm finding this meditation to be a really effective way of curing myself of all the stuff I don't like about myself. I attract the way I want to feel, it shows up in the form of events and perceptions that cause me to feel that way. I then take my present situation and find a new way to look at it. I'm planning on going through every single negative emotion that still bothers me and manifest them into my life so I can rearrange my perception of those emotions so that they no longer feel bad. I'm finding it very effective.
+
+---
+
+this meditation I found I had a really easy time in the first few minutes to quiet my mind. it the started to think about things, mostly relating to @[metal-lucifer](2022-07-23 03:46), and I couldn't feel the thoughts as either good or bad feeling -- just like my mind was wandering so I stopped it, but then later I thought about it and it may have been one of the extremes I was looking for, but my sense of good or bad feeling wasn't working well, which was interesting.
+
+one of the thoughts, I was thinking about how it would be cool to make a 1st ray sun as a first project. I was then thinking about the combo of how it would integrate to the system because it matches my own configuration. I my target configuration is become a 1-2-7. so if charon is a 2 and earth is a 7, then the only thing left is a 1, so I think it would be cool to do that. I'd want it to be either a +-1-+ or a -1 configuration, so I'd kinda be modeling it after myself. I thought that was cool, but I felt like my mind was wandering so I stopped the thought.
+
+I can't remember what the other thought that I shut down was.
+
 ### perception vs information
   - if you perceive yourself as a thing,
 ### magnetic field may be the medium whereby the "random" becomes less random
