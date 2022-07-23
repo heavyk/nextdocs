@@ -2453,20 +2453,20 @@
 
 #### sonnet-69 - modern
 
-    Those parts of thee that the world's eye doth view
-    Want nothing that the thought of hearts can mend;
-    All tongues, the voice of souls, give thee that due,
+    Those parts of thee that the world's eye doth view,
+    Want nothing that the thought of hearts can mend:
+    All tongues (the voice of souls) give thee that end,
     Uttering bare truth, even so as foes commend.
-    Thy outward thus with outward praise is crown'd;
+    Their outward thus with outward praise is crown'd;
     But those same tongues, that give thee so thine own,
     In other accents do this praise confound
     By seeing farther than the eye hath shown.
     They look into the beauty of thy mind,
-    And that in guess they measure by thy deeds;
-    Then churls their thoughts (although their eyes were kind),
-    To thy fair flower add the rank smell of weeds:
+    And that in guess they measure by thy deeds,
+    Then churls their thoughts (although their eyes were kind)
+    To thy fair flower add the rank smell of weeds,
       But why thy odour matcheth not thy show,
-      Thy folly is this: that thou dost common[ly] grow.
+      Thy folly is this: that thou does commonly grow.
 
 #### sonnet-69 - 1609 quarto
 
@@ -2741,7 +2741,7 @@
 
 #### sonnet-77 - modern
 
-    Thy glass will show thee how thy beauties wear,
+    THy glass will show thee how thy beauties wear,
     Thy dial how thy precious minutes waste;
     The vacant leaves thy mind's imprint will bear,
     And of this book, this learning mayst thou taste.

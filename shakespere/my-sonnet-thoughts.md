@@ -284,37 +284,50 @@ I liken myself to a weed-like (resiliant and thriving in difficult circumstances
 
 ---
 
-    Those parts of thee that the world's eye doth view
+    THoſe parts of thee that the worlds eye doth view,
 
 world's eye is nosebook. and the parts they view are whatever nosebook thinks is broadcast worthy, I imagine. I don't have (or want) control over what is presented about me. I control my perception of me, and have no intention of controlling or influencing others' perception of me.
 
-    Want nothing that the thought of hearts can mend;
+    Want nothing that the thought of hearts can mend:
 
-I didn't understand this at first but "thought of hearts" is "pensamientos del corazon" -- or thoughts that come from the heart, so, it reads to me like:
+I didn't understand this at first but "thought of hearts" is "pensamientos del corazon" -- or thoughts that come from the heart (but the plural is on the hearts, because it's referring to the thoughts/reactions coming from the people's hearts), so, it reads to me like:
 
-nosebook broadcasts out aspects of me which reject the repairing that could happen from thoughts and reactions coming from people's hearts..
+thoughts and reactions are able to fix certain things (probably stuff like misconceptions and bad ideas), but they don't want that to happen, so they curate and select the aspects of me that they want broadcasted out
 
 - the curated aspects of me which are broadcasted out to the world
 - don't want the things (that)
 - thoughts and reactions coming from people's hearts
 - are able to fix
 
-    All tongues, the voice of souls, give thee that due,
-    Uttering bare truth, even so as foes commend.
+I'm pretty aware of this already, and I don't really mind. I've noticed that they've faked reactions from people and other things. there is a massive illusion that they've built up, and I'm not really in the business of trying to shatter their illusion. they can do that all by theirselves.
 
-everybody give me good reactions (the heartfelt reactions), and because of my continual truth/honesty/openness, even my "foes" (I don't think I have any -- so maybe those that perhaps disagree with me) commend he for my honesty and truthfulness.
+    All toungs(the voice of ſoules)giue thee that end,
 
-    Thy outward thus with outward praise is crown'd;
+the "voice of souls" to me is "source" -- the dead people, the all. they give me an end. so, what is that end? well, as in the previous lines, I talked about how they're building up a pretty big illusion, and I imagine it's getting further and further desynced from reality. eventually, it'll all fall apart though. that's probably the end.
 
-the illusion here is unfortunate because I have no intention of being any sort of crowned ruler or anything of that sort (I've spoken at length about this in the beginning of blahblog)
+    Vttring bare truth,euen ſo as foes Commend.
 
-    But those same tongues, that give thee so thine own,
-    In other accents do this praise confound
+so source (the voice of souls) are uttering bare truth, even as my foes "Commend". I don't really think I have any foes, because I'm really only fighting myself and my own perception, anyway, so it's telling me that bare truth is what causes the "end".
+
+also, the word that stands out to me is "Commend" and I read it as co-mend (a reference to the second line), but it could also be seen as an "attaboy" (commendation).
+
+    Their outward thus with outward praiſe is crownd,
+
+I've mentioned in various places that I don't want to be king of anything, however, I do think there is a general trend toward wanting someone or something to do all of the thinking for them.
+
+"just tell me what to do, and I'll just follow the laws and directions given to me"
+
+those that want to have "the right way" laid out for them will need a leader. that leader (perhaps I should say council cause it's plural) apparently comes from those who "co-mend" me. "their outward thus" also gives me an illusion of having some sort of radiance. being crowned, they're the ones who set the laws.
+
+    But thoſe ſame toungs that giue thee ſo thine owne,
+    In other accents doe this praiſe confound
 
 not totally sure what this means, but probably in countries that don't speak english, perhaps I'm not so praiseworthy? the illusion at the end is that, I am, in fact, not worthy of the praise because there are lots more like me. I'm really nothing all that special.
 
-    By seeing farther than the eye hath shown.
-    They look into the beauty of thy mind,
+however, in the context of the previous lines, that praise comes from my "foes", so I can imagine why perhaps for the foreigners why it would be so weird that I would give power and the crown to my "foes". that must be such a headtrip for them, because they see things on the surface, yet I see the opportunity to allow them to grow their illusion to magnificent sizes. they have so much rightness to prove, and I don't.
+
+    By ſeeing farther then the eye hath ſhowne.
+    They looke into the beauty of thy mind,
 
 when people look through my eyes, they probably can see quite a ways out. I noticed the other day in walmart parking lot I commented on the power station (it looks enormous to me), and she was surprised that I can see it. it's really really big and I can see a really long distance (I call this "seeing more") however it is pretty blurry. that's probably pretty impressive.
 
@@ -322,26 +335,28 @@ additionally, when I listen to music and I begin to translate the sounds into im
 
 beauty of my mind my also be referring to other things that I'm not totally aware of. it's hard to say exactly what it is, because I don't see what others see. my experience is pretty non-visual, so beauty, in that sense could be referring to the beauty of the feelings that I feel, but since I don't really get any reactions on that, it's probably just the stuff those feelings manifest into.
 
-    And that in guess they measure by thy deeds;
+    And that in gueſſe they meaſure by thy deeds,
 
 probably everyone has an opinion about how I behave/respond to things. measure is usually performance though, and I'm not so good at performances.
 
-    Then churls their thoughts (although their eyes were kind),
+    Then churls their thoughts(although their eies were kind)
 
-because I sorta just do what I want to do, I'm likely causing problems for those that want subservient peasants. I lookedr up the word for churl:
+because I sorta just do what I want to do, I'm likely causing problems for those that want a socialist system full of subservient peasants. I looked up the word for churl because it appears that's the effect that I'm having on people's minds:
 
 > A churl (Old High German karal), in its earliest Old English (Anglo-Saxon) meaning, was simply "a man" or more particularly a "free man", but the word soon came to mean "a non-servile peasant".
 
-so it sounds like you guys watching me is breeding a lot of "non-servile peasants" -- weeds.
+so it sounds like you guys watching me is breeding a lot of "non-servile peasants" -- weeds. regarding the first two lines, this is probably one of the main results of their efforts: nobody trusts the "authorities" anymore, because I imagine their illusion is getting more and more out of control.
 
-    To thy fair flower add the rank smell of weeds:
-      But why thy odour matcheth not thy show,
-      Thy folly is this: that thou dost commonly grow.
+    To thy faire flower ad the rancke ſmell of weeds,
+      But why thy odor matcheth not thy ſhow,
+      The ſolye is this,that thou doeſt common grow.
 
-I take this to mean I should add to the "fair flower" (my beautiful mind), the rank odour of weeds -- which are non-servile peasants that thrive in difficult conditions.
+I take this to mean I should add to the "faire flower" (my beautiful mind), the rank odour of weeds -- which are non-servile peasants that thrive in difficult conditions.
 
-I don't really understand why weed smell doesn't match what I show, other than perhaps nosebook is curating and putting a bit of a spin on the narrative (potentially).
+I'd also like to note that "ad" in latin means "toward" -- so it gives me the illusion that I start out as a "fair/fairy flower" (something really good), but then over time I go toward the rancke smell of weeds. that's probably what's happening now, so I'm not far enough into the future to be able to analyse what the rancke smell is..
 
-my "folly" (IMO goal) is that I'm becoming "common" now. which is the point. I fashion myself after the borg, and though I've never seen it, I heard they assimilate everything and convert it to their own utilisation. I encourage everyone to do the same. take everything I have (it's free) and improve on it. you may also think of it like a virus, if weeds have such a foul scent. a virus that don't need to alter the aroma of its host.
+I also don't really understand why the rancke smell of weeds doesn't match what I show, other than perhaps nosebook is perhaps curating and putting a bit of a spin on the narrative (potentially). it could also mean that from the perspective of others, the weeds aspect is very unwanted because I'm thriving in harsh conditions (like a weed), but at the same time what I show is something of beauty. it's a perception thing, and if you're a landscape architect, the weeds issue may be starting to get out of control.
+
+my "folly" (IMO goal) is that I'm becoming "common" now. which is the point. I fashion myself after the borg, and though I've never seen it, I heard they assimilate everything and convert it to their own utilisation. I encourage everyone to do the same. take everything I have (it's free) and improve on it. if weeds have such a foul scent, you may prefer to think of it like a virus -- a virus that don't need to alter the aroma of its host.
 
 welcome to my world: planet 69.
