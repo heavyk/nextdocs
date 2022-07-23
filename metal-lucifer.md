@@ -290,3 +290,63 @@ in a world where someone has infinite capacity to limit me, they need to have in
 it's by design though because they're different than me, meaning they'll come up with unique and novel solutions to finding their connection, despite the difficult conditions. each time that one of the others finds their connection, they expose a weakness in the matrix -- which obviously will get fixed and improved upon.
 
 therefore, after billions (perhaps more) have figured out how to find their connection, the matrix will get harder and harder until it's actually "impossible" to get out of. it's not really impossible, though. that's just a perception, so then I jump in and try it for myself; the absolutely most difficult run ever possible.
+
+### 2022-07-23 03:46 - I don't want anything to do with them
+
+yesterday, I edited my thoughts on sonnet 69 in @[my-sonnet-thoughts](2022-07-20 04:31), because I had copied the "modern" translation which changed a few really key words and some punctuation. after looking at it again, one of the main differences was the part about the praise and the mending.
+
+the part about the mending is causing a bit of dissonance for me because ... well, let's just go over it real quick...
+
+I've expressed in the past that I had no intention on being crowned king or to have any such power. I liken it to the tuenti departure of my past. I've learned a lot from that and I don't really think I would have decided to become the boss. I would have done a lot of other things attitudinally different, but I really enjoyed going off to the canary islands and doing my own thing there. it didn't work out well because I didn't understand the dynamic of dani[^1] and how to actually do what I wanted to do. the thing is, I didn't really know what I wanted to do anyway, so I was just sorta following him. I also sabotaged anything that we wanted to do by feeling like I lost my big opportunity to create the thing I want (tuenti) -- so I just wanted to drink, hang at the beach and smoke.
+
+I related that again because there are a lot of parallels here. I don't want to be the boss at all. I figure there are a lot of people that want to run the show, so why would I try and suffer through doing something I don't want to do when there are others that want to do the boss thing. I relinquish that completely.
+
+it basically goes like this: we keep doing what we're doing, and eventually I'll find my connection. once I'm connected, I'll do whatever I want to do. nobody can stop me. well, if they want to kill me, that's totally fine, as I'll just find my way through again. I don't really mind whatever it is they decide to do. I'm doing what I want to do and I don't really want to be involved with them.
+
+the reason why I say that, is I started to get reactions about the idea of "mending" something -- and even when I looked into patricia, who I would consider that I have the most affinity to, it just feels like massive amounts of chuleria to me. I don't really want to be around people that see themselves as so much more superior to the rest. I prefer that everyone is equal, but the problem with that is there has to be a lot of secrets uncovered because secrets create inequality. it would require so much of their structure to be upended, that I don't believe it's a good idea to try and level a structure that has a very very tall power structure at its core. trying to change that is not only impossible, but a completely fruitless activity. it would be like me trying to get zaryn to run a flat company, when he wants power structures and chains of command. it never will work, no matter how hard I could possibly try.
+
+I take the opposite path: I don't try and change anyone's structure anymore because it causes massive difficulty in their conceptualisation of reality. they don't know any other way to do it than to have power structures and secrets at the core. they need inequality for their system to work because if they were on the same level as thte others, they would be seen for who they are, not the image they present from up on high. I don't want to burst their system. they'll burst their own system by theirselves.
+
+I don't think it's possible or even want to try and change their system. I also don't want to be apart of their system. I'll be a problem for them at every opportunity because I will want to know how all of the things work but they'll inevitably be secret. I'll also want to get rid of inefficiencies, but again, those are certainly not going to want to change either. there's *NO* no other option for me but to go and do my own thing, and that's exactly what I intend to do.
+
+I don't mind if they want to use some of the technology that I'm going to develop. I also don't care if they try and meddle either, because they'll be part of the "contrast" and the unwanted part of the equation.
+
+---
+
+I want to take it step by step, but probably the first thing to do is to get off of the planet. I'll peace out on my own, so there's no reason to try and push me out. obviously, it's going to take a bit to get off of the planet, so I'll have to figure out how to do that.
+
+the whole idea is so far out of my scope of vision right now, it's too hard to say all of the things it entails. obviously nosebook and them probably won't want me to leave, so we'll probably have an exodus sort of thing while the pharoahs try and keep me grounded.
+
+probably the first thing to do is to try and figure out how to start my own star and build planets too. it seems like a big thing, so probably it's going to take a bit of planning and a lot of tests to figure out not only what's possible but to start getting an idea of what exactly will end up happening. I'm not really in any rush to do things, but obviously I'm going to want to go in the direction of creating a galaxy. I want to do it my way and I don't really want nosebook involved in it. I'll figure out how to do it the way I want to do it.
+
+I can't really say how long it'll take me to figure it out, but it definitely doesn't need to be rushed, so I'll probably just fly around and visit various places around the earth (more fun than drinking) and just kinda hang out I guess. I'm sure they definitely won't want that, because it'll probably expose secrets or cause problems, but I mean dude obviously as soon as I can fly around I'm obviously going to... duh.
+
+that's what "the one" gets to do. all of the secret society members have to show temperance and keep all fun out of it. they can have the ability, but they can't use it, unless it's justified, of course. poppycock, that's complete silliness. I'm going to have fun, of course. enjoy being serious and keeping everything all under control.
+
+---
+
+there's a second discussion here as well, and that is, "why would I allow them all the time to build their control systems and power structures, and then just peace out, leaving humans imprisoned?"
+
+I definitely am not going to be doing that. everyone is inside of the system that they want to be in. the idea of living in a system where there isn't any secrets is terrifying to a lot of people. I can also say that it's my experience that given the opportunity to talk to me about anything they want to, they prefer to keep things extremely superficial. I'm not imprisoning anyone. this is the system that people want to be apart of.
+
+I don't really have enough information, but it seems to me that nobody is forcing anyone to be a part of it, and instead it seems that people have *chosen* to be in it. even I doubt that I'll be able to escape their system -- just after some point I'll be able to do whatever I want and nobody can stop me anymore. that's the only difference. everyone has the opportunity to do that, too.
+
+the only way to accomplish that is to feel the way you want to feel. it's not as hard as it sounds, but it may need some rearranging of beliefs and perceptions. most don't want to do that, so they prefer to stay where they're at.
+
+if you ignore what others think of you and that you'll have to change some beliefs, making your only goal to feel the way you want to feel, I propose that if you are able to do that for 5 years consistently, nosebook won't be able to stop you. it sounds pretty easy, and it is, but you'll need to give up needing certain conditions or others' behaviour to be what you want. for example, whatever I do, shouldn't bother you because you know how to feel the way you want to feel.
+
+I really don't want to be a part of any of this. as soon as I have the opportunity to do my own thing, I'd much prefer that than to anything they could possibly try and offer me.
+
+---
+
+OH, there's another question which is wondering about taking people with me... I don't even know what I want to do yet or what kinds of things are even possible. I'm completely unable to even conceptualise anything further than I'm sure there will be something that'll catch my interest.
+
+anyway, imagine that I did come up with something cool to  do somewhere else -- would I just let everyone that wants to go, go? yeah, I guess... however, that many people would probably require another with a stable planet. I just don't know what the possiblities are, or even if there's another star (like vega) that has a planet waiting to have visitors. I really don't know what the situation is like, just I know that I don't want to hang out here with the chulos or try to integrate with their system. I really like the idea of figuring out what I want to do and then doing it. that seems like fun.
+
+---
+
+also, mending is kinda like forgiveness. if I want to go do my own thing, I can do what I want because it's what I want to do, or I can do what I want because I don't like what you have -- in otherwords, I can go toward wanted or away from unwanted. so, the part where I just hang out and do fun stuff and figure out what I want to do is important, so I go toward wanted, rather than away from unwanted. see what I'm saying?
+
+eventually, I'll get bored of whatever it is, and eventually get go another direction again or crash and burn, so it's not like I'm planning on taking over the world. who knows, I could decide to just hand over the whole thing to them. I like creating much more than I like maintaining.
+
+[1]: that reminded me of a really weird dream last night where dani got in really close to me and was kinda like putting the moves on me, and I feared repulsing his advances, so I just let him touch me without any repulsion. it was weird to say the least. I looked into it right after I awoke and it seemed like they were testing to see if I was gay or something, because I remember I consciously had the thought that I don't feel aroused by his closeness and breathing.
