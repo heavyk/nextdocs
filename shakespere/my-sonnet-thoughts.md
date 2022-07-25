@@ -360,3 +360,45 @@ I also don't really understand why the rancke smell of weeds doesn't match what 
 my "folly" (IMO goal) is that I'm becoming "common" now. which is the point. I fashion myself after the borg, and though I've never seen it, I heard they assimilate everything and convert it to their own utilisation. I encourage everyone to do the same. take everything I have (it's free) and improve on it. if weeds have such a foul scent, you may prefer to think of it like a virus -- a virus that don't need to alter the aroma of its host.
 
 welcome to my world: planet 69.
+
+### 2022-07-22 23:06 - the TH sonnets
+
+I noticed a lot of words changed in the "modern" versions of the sonnets, and additionally, some punctuation and capitalisation. one of the things I noticed is that sonnet 69 starts with "TH". I wanted to know how significant that is so I looked for sonnets that begin with "Th", there are two. there are 22 that start with "TH", so I figured that 22+2=24, so maybe this is significant.
+
+TH:
+@[shakespere/sonnets](sonnet-5)
+@[shakespere/sonnets](sonnet-6)
+@[shakespere/sonnets](sonnet-42)
+@[shakespere/sonnets](sonnet-45)
+@[shakespere/sonnets](sonnet-51)
+@[shakespere/sonnets](sonnet-58)
+@[shakespere/sonnets](sonnet-68)
+@[shakespere/sonnets](sonnet-69)
+@[shakespere/sonnets](sonnet-70)
+@[shakespere/sonnets](sonnet-73)
+@[shakespere/sonnets](sonnet-77)
+@[shakespere/sonnets](sonnet-90)
+@[shakespere/sonnets](sonnet-94)
+@[shakespere/sonnets](sonnet-99)
+@[shakespere/sonnets](sonnet-115)
+@[shakespere/sonnets](sonnet-120)
+@[shakespere/sonnets](sonnet-129)
+@[shakespere/sonnets](sonnet-131)
+@[shakespere/sonnets](sonnet-132)
+@[shakespere/sonnets](sonnet-137)
+@[shakespere/sonnets](sonnet-145)
+@[shakespere/sonnets](sonnet-154)
+
+Th:
+@[shakespere/sonnets](sonnet-31)
+@[shakespere/sonnets](sonnet-41)
+
+there are quite a few pairs there, and I notice some strange words that show up like howery... in S5, I took that to mean the plowing of the ground.
+
+I noticed some other things too that for example, S45 talks about these other two (perhaps referring to S36), "are both with *thee*, where ever *I* abide" -- so how can two be with someone else wherever he also is? I think there's a hidden message between these. additionally, in S42, he concludes, "my friend and I are one", so there is some pretty strange multiplicity going on here.
+
+I also noticed that I believe the other "Th" sonnets seem to be linked to these as well.
+
+I need a break. I'll come back to this.
+
+I also noticed there are 16 of "VVH" sonnets, and again two really important "VVh" ones (29, 43). these seem centred around eyes. the VVH sonnets seem to be centred directly or indirectly around "time".

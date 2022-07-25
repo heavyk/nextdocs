@@ -4,7 +4,7 @@
 
 #### sonnet-1 - modern
 
-    From fairest creatureswe desire increase,
+    From fairest creatures we desire increase,
     That thereby beauty's rose might never die,
     But as the riper should by time decease,
     His tender heir might bear his memory:
@@ -581,7 +581,7 @@
 
 #### sonnet-17 - modern
 
-    Who will believe my versein time to come,
+    Who will believe my verse in time to come,
     If it were filled with your most high deserts?
     Though yet heaven knows it is but as a tomb
     Which hides your life, and shows not half your parts.
@@ -1194,7 +1194,7 @@
 #### sonnet-34 - modern
 
     Why didst thou promisesuch a beauteous day,
-    And make me travel forth without my cloak,
+    And make me travail forth without my cloak,
     To let base clouds o'ertake me in my way,
     Hiding thy bravery in their rotten smoke?
     'Tis not enough that through the cloud thou break,
@@ -1265,7 +1265,7 @@
 
 #### sonnet-36 - modern
 
-    Let me confess that wetwo must be twain,
+    Let me confess that we two must be twain,
     Although our undivided loves are one:
     So shall those blots that do with me remain,
     Without thy help, by me be borne alone.
@@ -2402,7 +2402,7 @@
     And with his preſence grace impietie,
     That ſinne by him aduantage ſhould atchiue,
     And lace it ſelfe with his ſocietie ?
-    Why ſhould ſalſe painting immitate his cheeke,
+    Why ſhould falſe painting immitate his cheeke,
     And ſteale dead ſeeing of his liuing hew?
     Why ſhoulde poore beautie indirectly ſeeke,
     Roſes of ſhaddow,ſince his Roſe is true?
@@ -2995,11 +2995,11 @@
 
     Who is it that says most, which can say more,
     Than this rich praise, that you alone, are you,
-    In whose confine immured is the store
-    Which should example where your equal grew?
-    Lean penury within that pen doth dwell
-    That to his subject lends not some small glory;
-    But he that writes of you, if he can tell
+    In whose confine immured if the store,
+    Which should example where your equal grew,
+    Lean penury within that pen doth dwell,
+    That to his subject lends not some small glory,
+    But he that writes of you, if he can tell,
     That you are you, so dignifies his story.
     Let him but copy what in you is writ,
     Not making worse what nature made so clear,
@@ -3553,7 +3553,7 @@
 
     THe forward violet thus did I chide,
     Sweet theefe whence didſt thou ſteale thy ſweet that
-    If not from my loues breath,the purple pride,       (ſmels
+    If not from my loues breath,the purple pride,  (ſmels
     Which on thy ſoft cheeke for complexion dwells?
     In my loues veines thou haſt too groſely died,
     The Lillie I condemned for thy hand,
@@ -4666,7 +4666,7 @@ centre of the pyramid
     I grant I never saw a goddess go,
     My mistress, when she walks, treads on the ground:
       And yet by heaven, I think my love as rare,
-      As any she belied with false compare.
+      As any she believ'd with false compare.
 
 #### sonnet-130 - 1609 quarto
 

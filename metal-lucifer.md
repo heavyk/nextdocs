@@ -352,3 +352,60 @@ I'm only looking forward anyway, so -- if I want to go do my own thing, I can do
 eventually, I'll get bored of whatever that turns out to be, and probably will want to go another direction again or crash and burn or whatever. it's not like I'm planning on taking over the world. who knows, I could decide to just hand over the whole thing to them because they want more power and control again. personally, I like creating much more than I like maintaining, so perfecters and maintainers are always welcome.
 
 [1]: that reminded me of a really weird dream last night where dani got in really close to me and was kinda like putting the moves on me, and I feared repulsing his advances, so I just let him touch me without any repulsion. it was weird to say the least. I looked into it right after I awoke and it seemed like they were testing to see if I was gay or something, because I remember I consciously had the thought that I don't feel aroused by his closeness and breathing.
+
+### 2022-07-25 14:38 - speak to me
+
+listening to left (2021-09-12) and there's a song that came on presumably called "speak to me" -- and I started off thinking about how whom are you asking to speak to you? or, are you pleading that someone speak to you in a way you can understand them? I dunnno really, but the song had a great phychedellic guitar bit that totally defocused me and was a pretty cool experience.
+
+I was sitting there watching this game, "captain of industry" -- and I honstly don't know why I like it so much, but it's kind of like a visual way to see my mind at work.
+
+I was watching this other guy on youtube (JD) make some builds and it was interesting to hear his thought patterns. it's a really self-introspective game for me because I'm not really playing it. I'm in a whole different world, where there isn't really much that's relatable to explain it. it's not even like it has psysicalness to it. I'm just sorta inside myself and there's this automaton playing the game ("me"), and I'm watching a bunch of automatons on the screen. the expereince is kind of like watching insects.
+
+most people get scared of insects, so they never sit long enough to really get a good expeirnce watching them mill about. they're like tiny like robots. they show no emotion or anything recognisable as what we think of as conscious. they just go about doing stuff completely unaware of it possibly being a good or bad idea.
+
+---
+
+long explanation. I'm watching this game like I'm viewing a bunch of insects that are just following some sort of sequenced reactions to their environment, and the game is the same way.
+
+I started to really begin to appreciate automatons, and I was thinking about the "observer pattern". it's a probramming term, and you have a piece of data or a varaible that you "observe" and any time it gets changed, it performss an action in response (usually calling a function with its new and previous value). they're not too dissimilar this "observer pattern" and insects.
+
+ever since I started to write programs using the observer pattern, it totally changed my life. I've been looking for something to program using that pattern. I've been thinking about AI using that pattern, but my head can't quite logically perceive the result of lot's of variables anymore. I prefer things to be simple, and that was my problem with the observer pattern -- is that it's soo simple. if I tell you (as a probrammer), "with this code, everything that your code does is a reaction to their action -- and you'd look at me like, "duh dude, that's what computers are *supposed* to do. good job" -- so I've been pretty discouraged at how general it is -- cause let's say that I was writing a bot for a chat server or whatever -- again, (any server really follows this pattern), but it just listens and then reacts to some trigger words. it's nothing special.
+
+---
+
+anthor thing that I noticed is that in notwork games, you often want some sort of privacy or or element of surprise -- cause like imagine poker where you can see the other preson's cards, right, so an open communication protocol takes the fun out of games -- so I've been trying to figure out what kinds of games would be fun, if programatically, you could know, find out (or query for) anything in the the game at any time.
+
+so that's when I started to think about how insects-like species are kinda like that. so imagine a game where the world is composed of millions of insects, but they're all users code that running. you're intereacting with millions of tiny bots in a world that's completely artificial.
+
+in that world, you wouldn't really care to know what the opponent has becaues the wohole experience is novel. you're already interacting with a unique code that has been specIfically programmed by someone to do react in a certain way, so really anything could happen.
+
+I suppose that competition could emerge in this world beween certain insect types, but they would have to be programmed in. factions could exist, and if they did, almost certainly, they would be a virtual representation of the progragrmmer's ideas in a visual space.
+
+you could also have power structures and things like that, but because nobody ever acts directly (it's just their code that's interacting, and it'd be cool if it's possible to query their code, just like it's possible for anything in the world to be queried. the world is the code) -- because in the end, each bot script is self-contained and acts only on it's own programmed way -- so there's no way for the programmer to get into the world and act directly. they can only observe it through perspective of the bots.
+
+you'd say, well what about complicated stuff like a neural network? I say, no. it has to be human-readable text and images that that has a defined scope. the programs are given a limited world to exist in (think like a virtual machine or something where native code never directly executes), so you don't even get outside access. you can only play the game fro the prespective of the bot. there are just a bunch of people writing npc code and then pushing up their new version to the server. they have all the same functions that an npc would have like entity lookups and stuff like that. you're wrinting your game character, but you can never directly control the character -- just put the char in the infinite diversity of environments that others will come up with and just see how it responds.
+
+I believe that the first thing people will do is give up trying to make a bot that acts like a human. you'll have all sorts of bizarre stuff that you see only in the insect world, like impaling your partner with with a sex organ, then bleeding to death as the insectlings are born -- insect stuff, right? -- like that -- cept, you can't really "kill" a program, so these sorts of things would become very strange interactions. I just like npcs, they're endowed wih the features of the game, so maybe haelth for one game, but another may have health and armour, while another could have a whole clothes system with leveled up stats -- stuff like that.
+
+like, ther's this one scene in half-life where the guy get's pulled into a vent and makes screaming sounds and then guts fly out. that was his moment in that game. your character doesn't have to be  designed to be somenthing big and spectaular.
+
+as more of of these characters get created, you could imagine making moviess where you put all the stars into the world, and just see what turns out. some may be like reading madlibs, and other times it could take things a different direction. stuff, like "did you see the woman in the red dress? I programmed her" -- as you're never directly doing any action. you just write a scrit and then see how it plays out with other characters and in different environment rules.
+
+---
+
+blah. enough of thta idea. I liked the part about the observer pattern much more.
+
+peace.
+
+so, I'm listening to metal bjork, perhaps, space pads and ambience. yep, can't understand anything she's saying... lol. I guess it was just an epic intro and in my mind it felt like I'd been listening to the same song for at least 5-10 mintutes.
+
+sabias nocturnos
+iniciando la senda
+fortalecen su pasion
+observa -- su, ilusion
+
+---
+
+anyway, I've always found it strange that the "observer" is a system of reacting, while I've never used "react", but I know it's more about models than reacting.
+
+I really like the idea of automatons
