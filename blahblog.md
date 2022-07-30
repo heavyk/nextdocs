@@ -5227,6 +5227,74 @@ so anyway, I guess you can consider that I'm doing things all the wrong way by a
 
 [2]: my reasoning here is that he seems to be projecting down from the conceptual realm. to get there, I figure you have to die or to find alignment with that perspective. I find it difficult to believe that someone as troubled as elijah could be finding that alignment. so I figure either YHVH taking him to heaven is a cover story to him doing something very different than the narrative says in order to find that alignment -- or he got taken from earth and then some time passed or immediately he was killed. from there (from the perspective of his "oversoul"), he must have learned how to use desire as a way to project himself down into physical reality. if he saw himself as a protector of humankind, I find it possible that he may use desire to produce all sorts of "third man" effects (or angels). the form those entities take on doesn't matter, because they're whatever is necessary to satisfy that desire (for help, or to stay alive or whatever). this once again would place him into the reborn deity category which I'll talk about again in the future because I think I've figured out why 2-6-4 are the other reborn deities, but he's an odd (7th) ray, not an even. all of it seems purposeful.
 
+### 2022-07-30 13:24 - no idea what's going on
+
+last night my feet were really really hot for no reason. I looked to see if there was solar or geomagnetic activity and there wasn't anything super sigfificant -- though more elevated than this time previous solar cycle, for sure -- it's by no means near the maximum.
+
+---
+
+earlier in the day jaron wanted to play captain of industry -- or rather, that I play it and he watch. when I played it, I seemed to be doing OK, and then again after he went to bed I seemed OK at it, but after my feet started to get really hot, I noticed that it was getting more and more difficult to do simple things in the game, and each thing I tried lead to disastrous results. I finally quit the game and decided I wanted to do something else.
+
+for whatever reason, I felt attracted to look around inside of the directories of the game. I read the README.txt file, and in it, it said:
+
+```
+Welcome to the family,
+
+We are a strong and friendly community, we upload the latest games every day as well as update them regularly.
+Everything is free, if you love our website, please introduce it to your friends, or any ideas you want.
+
+"We are gamers – We are a family"
+
+
+https://igg-games.com/
+https://pcgamestorrents.com/
+```
+
+so, I thought to myself, "huh, I'm going to finally look at that site." I opened it up and they have all of the games I used to download from torrents directly downloadable from google drive. I originally got captain of industry because it sounded interesting to me so I downloaded it. I saw another game that looked interesting, "sapiens" -- and downloaded that. I checked to see if they have the latest version of COI, cause I have a pretty old version (0.4.7a). they have the one from last week (0.4.8) -- so I downloaded that one and decided to play the game again and see some of the changes that I saw JD had.
+
+when I opened it up, it felt like I wanted to play a map called "crater" which is like a crater in the ocean and if you destroy the mountains around it and let the water in, everything is downhill, so the whole thing floods.
+
+the weird thing is, it felt like I was being led or guided to go back to playing again. very strange.
+
+---
+
+OK, now to give some context on this, when I first started to play this game, I started to get a lot of reactions. one was how I was talking about how I could hold the perception, but then when I play this game I get so lost, I completely lose track of reality. I'm annything but "holding the perception". the other main reaction is that the game is stupid and you don't actually *do* anything in the game; just kinda watch progress bars and build things. it's nothing that has any real objective and is a huge waste of time.
+
+I also had the sense that ... totally lost my train of thought ... I'll come back to it. seems that the thought has resistance associated with it. so, the next one...
+
+at times, it feels to me like nosebook *wants* me to play this game, and I don't really care either. perhaps it gives them more time. I'm just not really sure what could be the reason why it feels to me that they want me to play the game.
+
+the other thing is the not caring issue. I really don't know what's going on here either. I don't care to go out and pull weeds, and yesterday I went out and pulled them anyway, and usually I feel good afterwards, but yesterday I didn't really. I just don't seem to care one way or another about anything anymore. it's sorta like, "OK, I'll play a game mindlessly for hours, no big deal."
+
+---
+
+my personal hypothesis on this is that the meditation thing worked *too well* -- and I mean way too well, and this is the pushback from that. though I'm drinking coffee again, I'll probably stop one more time -- but I enjoy a much longer period of consciousness that I had previously. I believe their system is trying to hold me to a "normal" sleep schedule, so they're trying to make me tired -- and that's why my eyes feel like they're burning after the end of the night -- though I don't actually feel nearly as tired as I probably should. there's also an artificial tiredness that I often feel when they want me to go to bed. it's so strong that it's like I can barely hold hy eyes open.
+
+just now I was outside in the sun and I had that kind of tiredness when sitting in the sun -- and the sun felt so good, and I had strange sensations of weightlessness, soaring, and a lifting feeling inside of my body just sitting out there, meanwhile my whole body felt like it was coming back alive like when a limb goes to sleep and sensation starts to come back to it -- all the while, barely able to hold my eyes open and nodding off.
+
+I associate that artificial tiredness with their efforts to try and negate when I feel really good -- like whenever I feel that first rush of a thing, like coffee or a really good food, I suddenly become very tired.
+
+---
+
+so, another weird thing is that I'm playing games right -- and I still seem to be getting vision upgrades and stuff. it happens almost every night now, but the one last night seemed more emphatic than usual. all of the angles changed, and now I can see something at the end of my vision (at the far end of the dream center), but now I can see a whole window and not just a blur -- and it's as if the blur in the centre of my vision is moving farther away.
+
+yeah, so I have no idea what's going on.
+
+---
+
+OH, OK a little more...
+
+yesterday, I also noticed reactions like, "oh no, this is just another time sink; at first, it was listen the snake-bros episodes from the start, then now it's this game -- this is going to take forever" -- and I don't really have much to say to that other than, I'm not known to ever finish anything, so it's unlikely either of those will happen. I've always wanted to be one of those people that finishes things, but I appear to be the person that perpetually starts things and, gets bored, then moves on. I wouldn't expect me to adhere to anything for too long.
+
+also, when I awoke yesterday, I noticed a feeling like I maybe I needed to be pushed to go in the right direction. I don't really know what the right direction is, anyway, and also I'm kinda heartset on making sure these guys have all the capacity they can get to try and get every aspect of this planet within their realm to manipulate and try to control. in otherwords, I'm already going the wrong way. my whole goal is essentially to allow the creation of the most dystopian system possible -- though you'll never know it's a dystopia because you'll all believe that you're making the choices that nosebook is making for you. abraham calls it, "creation by default" -- which is automatically doing the "right" or "acceptable" thing -- you know, the thing you're expected to do.
+
+you can try to fight it by doing the "wrong" or "unacceptable" thing, but it's the same thing really. the only way out is to not worry about any specific action and instead worry about how you feel. this is why I'm not terribly worried about their attempts to try and manipulate me. as far as I'm concerned, the more they believe they can control me, the better; they think they're the ones in control, but really the way I feel is the real steering. they'll go to a reality that feels like how they feel (out of control) and I'll go to a reality that feels like how I feel.
+
+you know, it's possible that we could end up in the same reality -- and here's a little "secret", because it's fun to think about it like this -- they could in fact find a way to steer me all over the place, thinking they're in control, but because I really "control" how what manifests feels, I we they could take me down the longest most circuitous route to something that feels good to all of us.
+
+yesterday, there was a funny reaction to mr. motor while I was picking weeds, because I thought about the phrase that I find funny: "are you ready to get in front, and *stay* in front?" -- I find it funny because in a gay relationship, you may think of the one in front as the steering and the back as the motor. anyway, mr. motor is funny.
+
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
