@@ -185,3 +185,35 @@ other problems I've heard about are sea level rise, which just isn't happening l
 all of these and many other problems are easy to solve. the reason why they're not getting solved isn't for technical capablity, but because of *perception*. we still believe that the things outside of us are what's responsible for how we see the world. that's it. that's *literally* the *only* reason.
 
 I'm still in the process of gaining more and more capacity to see the world like I did in the dream. I figure that eventually, I *will* see the world like I did in the dream -- and from there, everything will 100% sure to be fine (at least for me). I leave it everyone else to make their own reality however they want.
+
+### 2022-07-30 19:19 - becoming the thing you're looking for
+
+I just had a dream which was so long and complex it would be impossible to even try and relate a significant portion of the details here. the resume of it is that there was this hero/prince (someone important, perhaps a king) that was on a quest to find these magical things, and along the way he encounters a number of challenges and things which change his goal. there was a maiden, immortality, dressing up as the commoners do, and all sorts of different things that he kept having to do. his mission even changed a few times as the magicaal item he was looking for couldn't be found, but he did run into someone else instead with a different magical item, so he stole that one and went after that new mission for a while. very very long and complex storyline.
+
+during the whole thing, the man was constantly lieing to everyone else and trying to manipulate to get the things that he wanted -- like I said, maidens, immortality, magical createres, and he was just going around endlessly in a series of disguises to try and obfuscate the fact that he was a king/royalty from the people he was interacting with.
+
+at the end, he's finally starting to give up on the quest because of a number new unforseen turn of events, that he finally starts to *become* the thing that he wanted. it's too difficult for me to relate that part of the dream in a meaningful way because by then I'm pretty much awake and reality is very blended with the dream now.
+
+I believe that the becoming the thing he was looking for was purposefully not seen by me, because the dream perhaps wasn't for me -- well, actually, it kinda was, so I want to explain the dual nature of the dream, now...
+
+---
+
+when looking into why the king kept becoming more and more selfish in the dream, I could see that in the previous parts of the adventure, he was so worried about what other people would think about him, and why would such a noble king be willing to engage in so much subtrfuge and manipulation to get his magical quests... try again.
+
+if I lie so that I will appear as a certain way to others or to try and keep my disguise, that's one thing, but if I lie so that I can manipulate things to get what I want, that's another -- and this king eventually stopped trying to manipulate his appearance so that others wouldn't identify him as a king. one of the things that was holding the king back from *becoming* the thing he was looking for was that. he had to give up hiding his identity to become the thing he was looking for. by becoming the thing he was looking for, he lost his identity as king, anyway -- so it didn't really matter.
+
+undoubtedly this aspect of the dream is for someone else.
+
+---
+
+the last thing I looked at/noticed, was that the king (as it relates to me) fully embraced his selfishness. I just wrote @[blagblog](2022-07-30 13:24) right before I went to sleep where the conclusion that I came to was that the whole goal is to actually make a dystopia, and try and ensure that they have all of the power and capability to manipulate and control every facet of human interaction.
+
+as this dream relates to me, that would be the "identity" that I would be trying to hide (the opposite of the king), and so by fully embracing that my goal/mission is actually become the anti-christ/anti-king/creator of the matrix (whatever you wanna put the word on it), I eventually fully embrace my selfishness. I embrace my selfishness (from the perspective of the people), by throwing an entire species of human beings into slavery to accomplish the goal that I have of becoming stronger than any matrix can possibly come up with. it's pure selfishness on my part because I *know* that I can get out of it, but I don't have quite as much certainty of others. it's kind of like imprisoning a whole bunch of others into a prison that I know that I can get out of. it's perhaps the most selfish and egotistical thing that I could possibly do. I have to embrace that.
+
+I know that it's fully possible for others to get out as well, and anyone that actually wants to, can -- but you gatta want it. nobody is going to come along and give you a blue/red pill choice. the *only* way out of this one is going to be with desire.
+
+(if you keep doing what you're trying to do, you'll own the world; you know that don't you)
+
+you could also see that from the perspective of those working at nosebook, they have a similar situation from me. because of the way the system is setup, they're forced to maintain a system that they (from their perspective) is used to manipulate other people. they're now required to manipulate people and perform all sorts of strange things to try and keep their identity hidden, just like the king in the dream. they're on the same path as thing and and me: the only way for them to actually get what they want is to forsake their disguise and *become* the thing that they they want -- otherwise, they, like the king, are subject to forever going around with the boring job of maintaining a kingdom that serves him, and it's this maintenance that he loaths. he doesn't know what he really wants, because the kingdom is just the outward representation of what he thinks he wants.
+
+you can't become the thing that you really want to *become*, if you're constantly concerned with how everyone else identifies yous.
