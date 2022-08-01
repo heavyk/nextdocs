@@ -5294,6 +5294,57 @@ you know, it's possible that we could end up in the same reality -- and here's a
 
 yesterday, there was a funny reaction to mr. motor while I was picking weeds, because I thought about the phrase that I find funny: "are you ready to get in front, and *stay* in front?" -- I find it funny because in a gay relationship, you may think of the one in front as the steering and the back as the motor. anyway, mr. motor is funny.
 
+### 2022-08-01 05:25 - thinking about normal
+
+one of the interesting trends of yesterday's reactions was a very strong feeling of how "normal" I am -- as in I'm not anyone special and I represent pretty much the average person. I'm average height, weight, body frame -- pretty much everything. the only thing that makes me "exceptional" really, is that I had a brain haemorrhage and had to relearn how to use my left-side again. in the process of that, I learned a lot about myself.
+
+the other thing that I do a lot of, which is far from normal, is I consider the abstract world, the world of emotions and ideas to be a real world, just as real as this one or any other. most people need to see, hear, etc. it with their senses before it becomes real to them. in the realms where things are very abstract, I'm quite astute because I reason about similar things based on how similar they feel to me, rather than physical details. that really is the only difference.
+
+the rest of me, I'm pretty normal, and I tell people all the time that *anyone* can do this; and really, you know the only barrier is usually your own belief system. only you can limit you. nobody else can hold you back because it's all an internal battle that seemingly manifests as other people doing things to you, but really it's just the way you're looking at it, so you're only battling your own definitions and percoeptions. *everybody* does that, and to try and pretend that you do not, is usually trying to maintain that image.
+
+---
+
+one more thing I forgot about this morning's dream (@[dreamlog](2022-07-30 19:19)), and[^1] -- what I forgot to talk about in the dream was that the kingdom that the king had required so much maintenance. we create a persona for ourselves that we think that others want to see, and concern ourselves so much with our identity in the perception of others, yet don't ever take a moment to look at how much maintenance it accumulates over time. in the dream, the king was so careful to constantly keep his identity a secret, so he went to great lengths to ensure that nobody would ever suspect that he is a king.
+
+in some ways, the magical items he was looking for, were a sort of magical solution to improve upon that situation, but no matter wherever he went, there were always other people and he had to constantly obfuscate his identity. because of this, his disguise identities became more and more extreme to where he eventually started to lose track of what "who he is" -- right; he has a title, "a king" or royalty or whatever -- but, then he's forced to conform to the requirements of that identity. in disguise, he can be whatever he wants to be, so there's a bit of freedom in the disguise that isn't otherwise felt in everyday life.
+
+---
+
+that king describes many people, and it describes who I was before I had the brain haemorrhage. after that, I ended up deciding to go the opposite way of that king and instead of finding freedom in alternate identities, I would find freedom in being whatever I want to be. others have a lot of ideas how I should be and how I should do things, but it's not their choice to decide the identity that I have. I'm supposed to conform to a box or a label, or else their definitions break down and need updating. so, to save them the effort of updating their definitions, I tried to conform to their definitions.
+
+instead of conforming to an identity and then switching to another conformist identity, I just see myself as dynamic. I can be whatever I want to be. I just adopt the characteristic that I like. I don't care if it's a big jumble of stuff because I'm not exactly any one of those things by itself -- and if I don't like that, I just change it.
+
+you don't *have* to be the same all the time. you *can* change as often as you want to and do something a bit unexpected. maybe you could think of that as following your feelings (or heart or whatever) instead of some rules.
+
+the reason why people don't just follow their feelings, I believe is because most people think that if they did, they'd turn into a sex-crazed spaz -- or something like that -- you know, like "OK, so if I see something that I really like, then I just take it" -- as if desire is something that *must* produce action.
+
+desire does not need to produce action. desire can just be felt, just as you feel someone giving you the "stink eye" behind your back. -- that's an expression of desire on their part, usually something like I don't want you to be here, or I don't want you to be here wrecking something I've got setup -- it's desire just pointed in the opposite direction. you feel that sensation, and it often feels bad to you, but as soon as you realise that by desiring you to be there, they're attracting you there, and so they can get bent out of shape all they want, but ultimately they're the one that keeps attracting you (ever notice how they seem to expect you to show up at just the wrong time?)
+
+I often times do jump into action and ditch the situation immediately, often cracking a good joke on my way out, so I guess it can inspire action -- but you can also just feel a desire without having to act on it.
+
+we often times shut down our sensitive side because we think that a feeling reqires an action as a response. in the case of my left-side, I considered that feeling side needed to be protected and cared for, and so obviously in a moment of danger or disprotection, action seemingly needs to be taken. this, then is saying that in moments of extreme pleasure or attraction, it too triggers the danger reaponse, and so therefore, action most be made to resolve the situation into a binary solution (win-lose, hurt-healed, love-hatred, etc.)
+
+just pay attention to yourself. forget about everyone else. when you do, you'll find out that everyone you looked up to is normal, but not in a bad way -- in a way that makes them approachable.
+
+you don't fear others if you know yourself. you'll be surprised how similar everyone else is to you. study yourself, and you'll start to understand others.
+
+how do you think I came to realise that it's my own desire that's attracting the people I don't really want to be around? I studied what was happening when others were getting what they didn't want (and what they thought they did want), and noticed my own behaviour in others.
+
+if you watch others, you'll notice a little bit of yourself in everyone you look at. if I really like myself, perhaps it's the ultimate egocentricity, but notice how if I hate myself, noticing myself in others is truly miserable.
+
+---
+
+"know thyself", sure -- but, what I recommend is to study yourself, figure out what makes you tick. try to find all of your patterns and figure out how to exploit yourself -- then, tell others how to do it too. you'll see that in that process, the vulnerability is actually strengthened.
+
+you'll notice as you go along, that naturally it gets harder and harder to figure out what makes you tick, making you more like "the tick". you gain tons of self-confidence that way because you actually know yourself, and everyone else out there is just a similarly operating program. also, I sorta didn't like the idea of reducing myself to a simple set of instructions, and so naturally I became more dynamic as a "defence mechanism" to my own attempts to predict myself. that dynamicness makes me able to be different in different situations easier and not feel like I need to adhere to any set of definitions. as a result, I usually now conform mostly to the expectations of others (within my operating parameters or limits).
+
+beep boop! know yourself like a robot.
+
+I don't do that anymore. I just do whatever I want to do, and so I take the opinion that every moment that I'm living is what
+
+[1]: uhhh, I just realised I woke up at 7 in the *evening* yesterday... yikes. anyway...
+
+[2]: or, what "makes you 'the tick'"
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
