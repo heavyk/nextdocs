@@ -113,3 +113,41 @@ so, the things that can appear in your dreams appear to be the ones that you don
 those two levels of understanding are totally different, and that's why those reactions feel bad in the first place -- because I know that's not how I *really* see the same thing.
 
 so really, you can't have resistant things in dreams that you don't understand, or else they'll be nightmares. however, if something resistant shows up in a dream that you do understand, it won't cause resistance in the dream, but it will in real-life.
+
+### 2022-08-03 13:59 - hexagonal microprocessors
+
+two times recently I've woken up thinking about hexagonal microprocessors. I've been playing captain of industry, but I can't help thinking about reimagining the game with the hexagonal layout of "Unciv". it would be arranged subdividing hexagons of larger and smaller varieties, just the same as COI. the game would loook very different -- much more futuristic, because for some reason we associate hexagons with the future for some reason.
+
+anyway, the other reason why the game would look different is because each main trunck line would have 4 inputs and outputs coming off of it, rather than only 2.
+
+this methodology could be applied to any circuitry, really, but the basic idea is that electricity when it hits a 90(degrees) angle produces a lot of heat as a biproduct. we know from astrology that trines (60(degrees)) and sextiles (120(degrees)) are easier angles, and so I kinda look at it similarly.
+
+inside of a quad-circuit microprocessor, there are a lot of square shaped circults, and so the problem I believe is heat dissipation. however, inside of hex-circuit microprocessor, I would imagine that your new problem will be induction because electricity will have to move in circular shapes. I think this can be used to an advantage, because imagine for a moment that you have a main trunck line and the top-left one spirals off in a anti-clockwise fashion, the top-right, in a clockwise, the bottom-right in anti-clockwise and bottom-left in clockwise. each of these would kind of cancel the effects of the other out.
+
+that's about as far as my imagination can go on trying to imagine how microprocessors are built as there isn't a lot of information about it out there and lots of industry secrets. therefore, now I'd like to talk about two "unrelated" (but probably related) subjects.
+
+---
+
+the first one is that right before this, I was in a dream where we were in a well-lit discoteca, and I was waiting for people to come in and join us for the party (I think). I remember noah showed up and there was a lot of gay sort of stuff that showed up with him. zaryn was also there and it seemed like he was getting dragged into the whole thing. I was very confused because it felt to me like I had to pick between gay or straight. it was a binary setup and in the dream I wasn't feeling too comfortable going either way. I kinda wanted to go my own way (the third option). I imagine that there's a probably (hidden) fourth option, which is like the memristor.
+
+to visualise this, think about the question marks: you have the physical details: who, what, when -- then the metaphysical details: why -- then the implementation: how. now imagine that you want to stay on the physical train, you go with the implementation and the physical details, so (who,what, when) and how. if you want to inspire or motivate people to action, you have to talk about the metaphysical -- the why aspect. however there is a hidden fourth option here. it's the implementation detail, the how -- combined with a phmysical detail, and out of it emerges a metaphysical component. I call this the "how should I *feel*" question (perhaps I'll call it the attitude or vibe question).
+
+it's like a memristor in the sense that another physical thing can program it's state, and so it has, in a sense, "it's own way of going" -- a sort of custom resistance -- and that custom resistance in a RLC circuit can have a dramatically different effect of the tuning of the circuit.
+
+I believe that we're arriving to a time in human consciousness where the third option (and potentially the fourth) becomes available. a square can only have binary two directions for it, but a hexagon, I think of as having three directions, but when visualised with a trunk line going down the centre, it has 4 directions -- but really only two if you think of them as spiraling opposites. the hexagon and square are very similar -- just, the hexagon adds an extra dimension.
+
+---
+
+the other one is a complaint that I have about COI. the part I dislike most about the game is the constantly having to put out fires because all of the entities are too obedient.
+
+I rely on feeling for most of my logic, and the game makes it very difficult for me to *feel* what's going wrong. last night, I had a diesel shortage, and this caused my coal excavators to stop mining coal. well, both my diesel and power plant run on coal, so it turned into a big disaster. after getting the diesel going again, I thought I was fine, but I didn't know that the coal reserve is going too low and my power plant would shut off. obviously distillation needs power, so I have two systems that depend on each other.
+
+the way that JD gets around these kinds of failures is by buffering everything in a tank, and then setting an alarm on the tank to notify him when it's below a certain level. I rely on feeling to make my decisions. in real-life, I would sense that there is a problem at the power plant because someone there is putting coal into the boiler and seeing that the supply is dwindling, and so naturally they would start to worry. I would sense that worry and I would do something about it.
+
+without having any feeling feedback from the game, I find it very difficult to manage large infrastructures. in another game I played, you put your mines on little resource fields and they produced a constant amount of resources each second, and so therefore the entire system could be assured it would run because I have a guaranteed input and a "clock rate" for the whole setup. I probably need to try and convert my whole system over to belts so that a truck failure won't cause an outage -- but that's not the point of this.
+
+I don't know why I think this, but I would imagine that if microprocessors are producing spirals, certain logic patterns would produce certain frequencies -- so, for example in a game loop, you have to update all of the entities in the game, and I could imagine that certain update patterns would feel to me as different than other ones and so my own brain could selectively "feel" those things as going either good or bad a little easier.
+
+I know that microprocessors don't really have a "buffer" of things that need to be processed in the sense of a tank of water and a loose storage of coal is necesssary to ensure steam is redily available, but it seems to me that buffering is linked to this electricity going in a circular motion (maybe like it produces a magnetic field and that eventually collapses if not sustained, returning energy back into the system -- not sure) -- and this circular motion is linked to "feeling" what the microprocessor is doing.
+
+in either case, if I felt my computer, I would probably be more conscious of what types of programs I was writing and running.
