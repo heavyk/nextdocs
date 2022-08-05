@@ -5346,6 +5346,105 @@ I don't do that anymore. I just do whatever I want to do, and so I take the opin
 
 [2]: or, what "makes you 'the tick'"
 
+### 2022-08-04 17:48 - going my own way
+
+I have a number of things that happened recently which are all related, but I don't know how to get them all out in a cohesive structure, so I'm going to just try to explain the idea, then I'll add in the events.
+
+I used to think of three numbers as being important: in the beginning (0) was the word (1). the word (1) was with God (Infinity) and the word was God (Infinity). this is john (the fourth book of the NT) and contains the theree numbers which I find important. it talks about the "all" and then how the "all" became finite, even though the "all" is still inifinite. more on that in the future because the "all" is an interesting concept to think about.
+
+so, when I talk about binary relationships, we think of a thing and it's opposite, so, 1 and 0 -- but is 0 really the opposite of 1? I've noticed that binary choices often take the form of 1,0 and 1,-1. so, if 1 is forward, then you can either go forward or not, or you can go forward or away.
+
+so, for example yesterday in the dream I was being pushed to make a decision to choose gay or straight. I consider this a 1,-1 binary, which means that the third option is actually 0 -- neither. I don't have to go toward either; I can stay right where I am.
+
+you also see a binary option to do something (1) or not do something (0) -- so, now after thinking about these numbers a while, I consider 1,0,-1 all to be in binary opposition to each other. I believe this is the science behind the "triad relationships" because each partner is the opposite to the other, but the "opposite" effect can be perceived between [1|-1],0 and -1,1.
+
+I spoke of a fourth option yesterday and I introduced it as the other unseen metaphysical option which is based off of an emotional perspective of implementation (how). in otherwords, "how do I want to *feel*" -- rather than "how is is it to be *done*". action is the more physical aspect of that word (compared to the concept/attitude/vibe).
+
+---
+
+related to that, I was thinking about the thing about patricia and how she (like many others) is stuck behind a number of oaths, committments, or agreements to maintain secrecy on some things. because she's stuck in the system, she probably won't be able to interact with me in the physical again -- probably because it's too much of a risk for those that are trying to run the show.
+
+I get that there are limitations that are binding because of commitments. I've noted that it's pretty unlikely that I'll actually interact with robert grant or randall carlson, either for the same reasons. I'm simply too much of a problem and almost certainly because they have such greater expanded perception, just being in the vicinity of me, reality would start to happen very rapidly. even if there isn't any resistance to us meeting, the speed at which reality would be created would be considered undesired and the guys with the time machines would reset us back and prevent our meeting anyway. I don't have any direct evidence of this, but I've noticed more and more lately memories of being with people that produced too rapid of reality creation, that it seems pretty evident to me that's the reason why we're on this reality instead. they'll ensure that something will come up or it'll never be possible.
+
+so, even if it is physically impossible to try and make an interaction happen (how), the easy solution to this is not to try and figure out physically how it'll work out -- but go instead, for how do I want to feel.
+
+so, for example, do I like the way it feels for someone to tell me what I can and cannot do? probably not. so, remove the situation, all of its commitments, and constraints and limitations that seem to oppose the doing-how, and just focus on how do I want to feel. I like feeling the freedom of being able to do whatever I want -- and then just practise that feeling. the situation may never actually happen (usually because deep down you don't believe it can happen), but at least you can feel how you want to feel.
+
+everything that we think we want, is actually so that we can feel a certain way -- so just ask yourself, "how will this manifestation make me feel?" and then find a way to feel that way without the manifestation. what I've noticed is that reality rearranges itself so that manifestations that are compatible with that feeling begin to manifest.
+
+---
+
+this brings me to the conversation that I had with remi. I was trying to come up with a more acceptable excuse than, "I didn't feel like it" as to why I haven't been pulling weeds, and I explained to her that I learned a new way of feeling about my situation and then reality rearranged itself to produce a manifestation that corresponds with the way I feel. that expanded my vision tremendously and a bunch of things happened as an opposite to that. I'll explain in long form here -- something difficult in conversation.
+
+I started doing [those meditations that I developed in response to stephan schwartz](/stephan-schwartz.md) and I noticed they had an extremely powerful effect of pulling those unwanted feelings into my reality. I was choosing to feel the way I wanted to feel, and I think it was something like a tug-of-war scenario where I suddenly decide to go the direction they're pulling, so they all fall into the mud and then I pull the direction that I want to go and because they're in the mud, it's an easy win.
+
+when I pulled the unwanted into my reality, I then pretty rapidly (within a few days or less) returned back to feeling the way that I wanted to feel and this was an enormous boost, hence the vision upgrades.
+
+well, then that means that they need to exert just as much opposite force, and that new opposite force prevents that reality from manifesting. I'm sorta back to where I started, but I'm much stronger since the last one.
+
+I consider this to be a really beneficial thing, and talk about it in terms of "being perfected" because each time, my physical body (DNA and genetics) better reflects the idea (or source) that is behind my physical body. this is why I look better and see better. this is the "secret" that I explained to remi about how it is to stay "young" -- which really is the very wrong way of getting it, just like looking for "healing" is also the opposite way. you can't feel good, if you need healing. you have to find a way to feel well, now. in just the same way, you have to find a way to think and perceive yourself like a young person does to have a younger body. do young people worry or have responsibility or self-inflicted things they *need* to do? you are a reflection of your perception.
+
+so anyway, I like that they keep bringing me back to step one over and over because I'm getting better and better at feeling the way I want to feel. I enjoy the challenge, but to remi I expressed it something like, "they have to emit the opposite energy so that I'm not flying around doing superman stuff, because that would be bad" -- which got a lot of reactions.
+
+---
+
+this brings me to the next subject of power-displays. the reason why it would be bad if I were flying around and levitating stuff, conjuring things, etc. is because most people would consider this to be a power-display, even though it's not really -- because I have no interest in getting any power. you shouldn't need to see me perform signs and wonders in order to believe me, therefore there's no reason to be doing any of that stuff.
+
+if I had the ability to do it, I would do it because it's *fun* -- which is a word that came up with remi as well. I told her I didn't really find COI *fun* -- but maybe soothing or something else, but not really fun. I don't really know what "fun" actually means anymore -- cause I think we use the word to mean, "feeling better than I normally do". COI doesn't make me feel better than I normally do. I feel pretty much the same playing it as I do in all aspects of life -- a sort of low-grade irritation, that I channel into something that feels like satisfaction. I can do that with any subject. I know that I can feel good if I went to the impact counseling thing, but just the same I could feel good staying at home pulling weeds. I think the weeds was a good choice because it allowed me to talk to remi so I could write this.
+
+I don't really need "fun" -- in the sense that I need something to cause me to feel better than I normally do. that's a choice that I make regardless of the activity.
+
+---
+
+the final subject here is a hidden one. it's under the surface, and that's the subject of the christ. I've explained in the past that the mushrooms told me the christ is the part of the brain which causes reality to be created rapidly. I think it's involved with the pineal, and the function of this part of the brain is to keep attracting the reality that feels strongly to you, so that you can adjust what's manifesting until it's what you want. therefore the christ is the fulfiller of desire and makes the impossible possible -- because if you can feel it, it'll manifest.
+
+however, in a physical sense, the idea of a christ being a person is exactly the opposite of that -- and here's why: first, let's get our definitions in alignment. a person that is a christ to someone else, is their:
+
+- proector (cause they're unable to defend theirself)
+- preserver (because they're dying)
+- strengthener (because they're weak)
+- ... etc.
+
+a person that needs to save another person is a preson that is going around looking at others and seeing them as "not good enough". not-good-enoughness is a concept that I've touched on a few times because it's the underlying frequency to thinking that you need a saviour.
+
+the way that the not-good-enoughness fits in here is that that one of the reactions was related to a thing in the sirian guide... (full quotes from lesson 10 and 3 but I'll semmarise at the end)
+
+  The SECOND RAY has within its equipment the active intelligence of the THIRD RAY. The FIRST RAY has within its equipment the quality of love and active intelligence, all of which is powered by the relentless pursuit of purpose. This means that the FIRST RAY has all the assets and liabilities of the other two. The quest of mental pursuits is strong within them; so is the desire of and for love but the THIRD RAY attribute harmonizes with the FIRST RAY better and is more useful in the pursuit of the purpose so the FIRST RAY hides and even tries to deny all of the SECOND RAY qualities. Of course, this does not work and creates conflict within.
+
+  The whole of the FIRST RAY triad is influenced by this inner battle. Most overtly affected is Jeortau, a beautiful creature, powerfully driven toward his goal of cosmic Quin; yet he is inwardly haunted by the need to be loved, to socialize as other SECOND RAYs and to be admired for his sacrificial role. He is a dove of peace and beauty at war with his desires and purpose. Actually, he was the most admired, appreciated and loved for the work he did cosmically by the whole of this galaxy; but was never able to accept it as being good enough.
+
+  The SECOND RAY is the divine preserver, nourisher of life, fanner of the flames of consciousness in all forms, binder, cosmic lover, Savior of all life, the Great sacrificer, the cosmic Q'in, and the Christ.
+
+they say that the 2nd ray ist he preserver, nourisher, etc. and that sounds good in spiritual sense, but I have problems with the preserver thing because like I said, it seems to me that in order to preserve something you need to see it as fragile or weak. I don't want to go around looking at everyone else and saying, "you're not good enough by yourself, so you need someone to nourish or preserve you". that to me is detestible.
+
+the other thing is they talk about the 2nd ray as having an internal conflict between social acceptance (that is fair in the sight of men) verus "mental pursuits" -- so for example programming or wanting to do science things. you see this all the time with me, as I tend to go toward mental pursuits over socialisation. I'm kind of the opposite of their description of jeortau there. I don't feel a need to go out and try to socialise with others so that I can feel good (fun). I'm perfectly content to just stay around myself and do what I want to do. this is why I'm much more strongly aligned with the 1st ray.
+
+they talk about the 2nd ray having a sacrificIal role. over time, I've come to associate jeortau with alalu, the main guy that lived on the planet between mars and jupiter (zyron, tiamat) -- where he did create something that was very very superior to what the martians had, so they, feeling not-good-enoughness decided to destroy anything that rivaled their superiority.
+
+I also associate jeortau with the creator of the mexican pyramids and probably the khem/cam civilisation -- which also was likely superior in a lot of ways, so others feeling not-good-enoughness went and took it over with force.
+
+in that way, I tend to think of jeortau as being similar to me and what I'm doing now. I don't mind that nosebook keeps me held to step one perpetually. that's the point. they want to make a system where they can fully control and manipulate all aspects of the planet, and by being able to do that, they'll be able to remain on top and in a superior position. that's the goal from my perspective. I think it's important to know that they're trying their hardest to hold everyone down physically, because they can't really do anything about the 4th option there -- how do I want to *feel*?
+
+their entire setup is built on a foundation of not-good-enoughness, which is why they have to try and use force to maintain their reality.
+
+it's quite possible that some "christ" may come after me complete with many power-displays to ensure that people believe him/her so that he can save them from some problem (probably me). I don't mind. go nuts.
+
+you see, this whole thing comes down to not-good-enoughness. I don't need to prove anything that I'm saying with power-displays. you can try it for yourself, and if you're any good at it, you'll notice yourself getting reset back to step one over and over like me. you won't be able to prove to anyone that it works, but you'll know it because you feel better and there's no physical condition (fun) that caused it.
+
+after you get to there, you'll probably be where I am now where everything has a low-grade irritation to it, so limiting perceptions pop up pretty frequently and a new way to look at the same thing needs to be found.
+
+---
+
+although I'm on the frequency that children are, most children still want things that can make them feel better (fun). so, in that sense, I'm not really at all on the same feeling as children.
+
+I think that children probably go through stages... first, not feeling good enough (need fun), then acquiring a lower self-image, and so then turning that needing of fun into general not-good-enoughness as they turn into an adult.
+
+you gatta want it.
+
+this was a long one. there were many sections to this. I started out with 0,1,Infinity and binary opposites of 0,1 and -1,1. then I talked about how I want to feel is the fourth option. I explained that you don't need to look at the situation and its limitations, but can just look at how you want to feel. as you get better and better at feeling the way you want, certainly there will be opposition to manifestations that would disrupt their "we're the best and everyone else is not good enough" -- cool-kids club. those manifestations, especially the ones that could be perceived as power-displays will be seen as a threat to power structures, won't be allowed, so it'll give ample practise to feel the way you want to feel without the manifestation.
+
+there were a lot of really good things in this one... pretty cool :)
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
