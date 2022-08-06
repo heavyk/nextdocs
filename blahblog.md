@@ -5445,6 +5445,74 @@ this was a long one. there were many sections to this. I started out with 0,1,In
 
 there were a lot of really good things in this one... pretty cool :)
 
+### 2022-08-06 08:15 - stirring up the snake pit
+
+yesterday, mom asked me about orion's belt and I went off on a few tangents about various things, because I wanted to talk about reborn deities, apparently. it was a scattered conversation which I left a lot of ends open. in the process, I talked about egypt, and the pyramids -- cause I wanted to explain some of the background behind some of the items -- but I regret it, because an hour or so afterward I started to get reactions that felt a lot like other reactions to things regarding anything snake-bros.
+
+when I say "regret", I don't mean like something that I really wish I hadn't have done, but the regret feels more like picking up a cigarette after having quit for a while -- it's something that I know I don't really need to do, but for some reason I did it anyway.
+
+I have noticed that whenever I'm in the process of quitting something, I often times return back to it a number of times until I get a handle on it. like, for example, I'm not drinking coffee right now, but I think twice in the past month I went on a 2+ day coffee binger. this is pretty common for me to do, so I'm not all that worried about it.
+
+what was surprising to me though is how returning to talk about large stone structures and old religions felt the same way as quitting an "addiction" did. that part was fascinating to me because I'm not really all that much into large stone structures anymore. I just don't care. sure, they're magnificent feats of engineering, but I can't really get into that anymore. I honestly think it's because I don't have an engineer's mind anymore. I don't program anything, I even kinda got tired of captain of industry as well. I just don't really have any desire to build anything anymore, either -- so, a big pile of well-engineered rocks, is just a bunch of rocks to me now. I'm totally in egytologist territory now, rather than the engiener's perspective...
+
+...which is sorta funny because that's where I haven't been able to continue on with the snake-bros episodes, too. I'm at "lost technology of ancient egypt", a book by chris dunn, which celebrates the magnificient engineering that went into many of the structures. a while back, I really enjoyed how amazing all of that stuff is, but now I just don't care. I think it takes an engineer to actually appreciate fine engineering. this seems certain to me.
+
+---
+
+OK, with that out of the way, I want to try and fill in the gaps that I left open with my conversation with mom. I'm going to start over and take it a different direction. first, a recap:
+
+if you'll remember, early on in the conversation, I noted that the great pyramid is taurus mountain, and so I don't know why it's related to the orion's belt, other than the pyramids are similar in arrangement to the belt stars. there's a guy on youtube (I thik AIP research) says that if you extend out the orion constellation using the pyramids as the refrence points for the scale, he says that other structures can be found in locations for other stars (I'm asssuming like betelgeuse and tho others that make up orion's shape) -- but I've only heard him say that and he was very defensive when I tried to understand why he thinks that one of the shafts points to a star, when in fact, it would point to lots and lots of stars, depending on the day of year and time of night, so I can't really say for certain anything about the orion correlation. I still think it's taurus.
+
+I went on to talk about enlil and how he is associated with the bull, and it's funny how the taurid meteor shower could possibly be the cause for the destruction recorded in the epic of gilgamesh, but the bull symbolism may also have relation to the great pyramid and also to enlil.
+
+I then talked about enlil and how he behaves strangely similar to YHVH of the OT. I then talked about how the abrahamic religion was called the enlilites, and then tied in the strange resonance between moses and elijah, because when the exodus was happening, this was around the time of akhenaten -- which to understand this, one must understand that black was the original colour of egypt, which is I believe related to the really old oriris and stuff like that. somewhere along the line, south egypt got turned to the white bowling pin hats, for reasons we don't really know.
+
+I believe that south egypt was also successful, just like alalu was, but red egypt in the north, red is the colour of the martians at the time, as cairo literally means, "camp of mars"[^1]. it also features the serpent symbol as well (uraeus). the red and white fought for a long time and they maintained the black female bloodline for their source of perception. but during the time of the exodus, egypt was destabilised because of akhenaten, who had a new superior mental capacity (he's a longhead), and so he is the blue enlongated hat, and his akhenaten's female bloodline survivedr through queen nefertiti, nefertari, and rameses the great, as they reestablished the amun priesthood.
+
+when moses came down from the montain, he saw them once again returning back to cow worship, and got pissed off. it seemed very important that we're leaving the taurus behind and moving on to the ram (aries). I draw a lot of connections between moses, elijah, and the god aries. I figured out why you would want to make the reborn deity pattern go from 2-6-4-7, and it's because each of these is the inflection point or the point where things reverse direction. jeortau was the end of the age of the first ray triad, and so then I believe that jeortau/alalu then made a foe to defeat himself, enlil -- so enlil, *is* jeortau, but his dual version.
+
+when enlil defeated alalu (who has fire element and phoenix bird symbol), that was the end of the 1st ray desire, and handed things off to enki (who has water element and serpent symbol[^2]) who then implemented the water firmament on earth, to produce the ideal conditions that were present in the atlantian and previous eras.
+
+next, it was set[^3] that defeated osiris (+-6-+). I believe that this was around the time of the introduction of the 7th ray. ra (+3) established the rituals and ceremony that would be used to in the 7th ray stuff. ra would define the method whereby one must attain sufficient status in order to "earn" your position of power. I like to think of him as establishing the rules of engagement for secret societies and religions that would continue on through the ages (secret teachings of the ages).
+
+finally, it was the people and their own lust for pleasure and greed that defeated saturn (+-4) in atlantis. again, this is too far back to say exactly what it was, but I would say that a number of forces caused this to happen. I consider this about the time that the human race is beginning to become adolescents and we're beginning to attract for ourselves, and so even though the "sons of the solitude" tried to continue to keep everyone on the straight and narrow, we had an insatable lust for pleasure and things at the time -- you could consider this something like the prodigal son, when he first goes out and spends his inheritance on prostitutes and other physical pleasures. this, I believe was the final implementation of the 7th layer of reality.
+
+up until then, the entire planet had been living partially inside of the atsral, and so reality was not at all like it is now where things are very stable and things. I believe the reason why miracles were so much more common in the past was because our reality was much less concrete.
+
+reality has become more and more concrete because of the need for those in power to be able to control things. the system that's being setup now, simply couldn't exist back when reality was so much more malleable. now, the default form of perception for humankind is now the slowest most stagnated, physical reality.
+
+this paves the way for mars, a 7th ray male, so by default he inputs 1st ray and outputs 7th. however, in the presence of a 1st ray female, he's a 1st ray male, which means he inputs 7th ray and outputs 1st ray. I didn't cover it, but it all makes sense if you realise that jeortau inputs 6th ray and outputs 2nd (like the sun). osiris is the opposite, but because he's a ground, he inputs both 6th and 2nd and outputs 6th (but perhaps also 2nd and 4th as well).
+
+mars, I believe is the next "reborn deity". to understand the pattern of these "reborn deities", I follow the pattern that they go off and do their own thing, but because their way of doing it involves something that inevitably the mainstream powers don't really like (for example, just imagine how much people hate that I keep bringing up LOA and how you *attract* your reality. that's very annoying for someone who just wants to give commands and see the commands carried out) -- so, inevitably, whatever their method is, it needs to be converted to the more concrete way of going about things, where one can just have inputs that can be controlled in order to get the desired outputs.
+
+this is why nosebook is all computers and AI with lots and lots of little controls that they can manipulate to get us to do whatever is that they want. take my life as an example. almost certainly anyone that *is* attracting their reality, is more difficult to control because LOA is much more powerful than any effort they can exert. therefore, I sorta (at the moment) represent the most difficult to control, and that's even with me nearly letting them do whatever. once they figure me out, the rest of the humans will be really easy to control.
+
+I completely fit the pattern that all of the ones before me have. I talked about how the pyramids use water, and so they depend on the source of the nile for everything to be working properly. almost certainly mars started to become dependent on tiamat and all of the great things that it had. they needed to figure out how to replicate what he was doing, and then get rid of him. same for osiris and the nile, and same for the power structures of atlantis that tried to force feed the population morality and proper behaviour. (poorly constructed sentences there. don't care to fix it)
+
+well likewise, the same thing is happening with me right now. presently, they depend on me to run their entire system, and if I get connected, they'll completely lose all of their ability to control things like they can while I'm subdued.
+
+each of these reborn deities previous to me knew something similar to what I know now, which is that it's not a problem getting reset back to step one all of the time.
+
+step one is ask. you do that automatically every time that you feel negative emotion, and that creates a conceptual reality of what it is that you do want. that conceptual reality can manifest in many diffreent shapes and sizes, but you have to figure out how to tune into that concept. that's step three. (don't worry about step two, because the process of perceiving the negative emotion in a way which produces the dual is already done by source)
+
+finding a way to attract or receive that reality doesn't have much to do with action or with conditions. it has to do with how you feel and how you conceptualise your reality. you'll always live the reality that reflects your concepts of it, and the stronger you attract it. others can try and prevent those concepts from manifesting, which is what nosebook intends to do, but they can't change the way you feel or your perception of the current state of events. just imagine how frustrating it is for so many world leaders to be so worried about so many things, and it all looks like a big comedy to me. I'm sure it's very upsetting. they can't change that, no matter how hard they try.
+
+so, each time I get reset back to step one, I have another opportunity to find my way forward again, and that to me is absolutely amazing. this whole process is turning me into one of the most confident people I know. if I had've just got the kundalini rising a while back, I would be scared of losing it. at this point, I'm so confident that I can get it any time that I want it, I'm not even worried about it. I can approach any subject or do any thing and I know I can find my way back *with ease*.
+
+---
+
+some may disagree with me, but I think it's probably time I start talking pretty openly about the matrix and how to feel the way that you want to feel. mom already told me it was inappropriate to mention the network in front of amorina, but the network is unable to be separated from me, so I think it's important to talk about it, so that it's *not* scary, and so that people to know that it exists and it's not a problem because it's basically making us step 5 masters. when it's out in the open like that,  it's no longer a big mystery that everyone is scared of.
+
+almost certainly, after I'm gone, they will have completely erased it from people's everyday thought -- which is good, because that'll mean when I come blasting through the next time, there won't be anyone to tell me that it exists. that means, I'll be called crazy even more than I am now, and I'll really have to try and figure out how to feel the way I want to feel, because almost certainly everyone will be completely under their control by then (the swarms of people will call me crazy and reject me on a social level -- something they don't do now, because nosebook still needs me, but later they won't need me like they do now, so they can treat me really poorly by then). sounds like a pretty good challenge if you ask me. we'll see how that turns out, I suppose.
+
+my goal is to keep getting reset back to step one for as long as they can continue to do so, then have the rest of the humans help them find other flaws in their system and get it completely patched up so that nobody is making it through, then I'll jump in and try it again. I'm guaranteed to make it through, just like this time, so it's only of seeing how much infrastructure I tear through along my way.
+
+[1]: Cairo’s official name is al-Qāhirah, which means literally: “Place or Camp of Mars“
+
+[2]: which is interesting because the symbol of tiamat (the planet where alalu/jeortau was at) is a water serpent.
+
+[3]: set could mean satan, but it could also mean mercury the planet (aka thoth) -- but it's too far back to say exactly what this force was, however, I predict that this force whatever it was, was osiris, and it was his dual.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
