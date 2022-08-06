@@ -5513,6 +5513,32 @@ my goal is to keep getting reset back to step one for as long as they can contin
 
 [3]: set could mean satan, but it could also mean mercury the planet (aka thoth) -- but it's too far back to say exactly what this force was, however, I predict that this force whatever it was, was osiris, and it was his dual.
 
+### 2022-08-06 16:52 - some thinking about my dual
+
+I went to sleep after the last entry there and I've woken up and sat in the sun a moment before writing this. when I woke up, the thing that was on my mind was following the pattern, it would mean that as soon as nosebook no longer needs me, then a dual of myself can come and "defeat" me.
+
+I propose that this guy (or girl) probably already exists, and they'll be pretty close to the exact opposite of me, so they'll be really into secrets and maintaining a very tall power structure. they'll probably be a bit of a pretentious duchebag in the sense that they'll see everyone as less-than or lower than they are (not good enough) -- stuff like that. they'll be considered by most to be the "christ".
+
+I've talked various times about the christ, but a christ in human form doesn't really save anyone from anything, because it's not possible. nobody can cause you to feel the way that you want to feel. they can offer good conditions though, and I think that this christ, being the opposite of me *will* try and make the conditions on this planet quite pleasant for people. I do think that's the future, and not chaos and difficulty like is present now with me[^1].
+
+the thing that most people don't really realise is that even if you had all of the great conditions and things that you wanted, it wouldn't solve a feeling of dissatisfaction. you will *still* be upset at things not going your way, no matter how good the conditions are (first-world problems). so, even though there is no conflict and all secrets can be perfectly contained, that in and of itself is kind of like a punishment to many. imagine a world of abundance where everybody had all of the money that they needed to do whatever they wanted. money would lose so many of the qualities that it has now.
+
+the feeling that it kind of reminds me of is those sports competitions where everybody gets a participation trophy, so it looses a lot of the competition factor out of it. it's kinda hard to describe the feeling so I'll work on presenting the idea better in the future.
+
+I see a system that will be very similar to the one that's described in the beginning of dtp of the atlantians. the system will suppress all of the unwanted things (magnetic therapy, aka nosebook) and control all resources and ensure that they're divided amongst the people evenly and based on some form of justification or need. again, this is likely to ensure that the system can be 100% stable all of the time and distribute people in a way which fits some sort of statistical modeling for the most optimal interrelations.
+
+this will have the effect of dramatically reducing the amount of competition, and again, I think that's kind of the point. just like how the atlantians made it the law to suppress greed, lust, and other bad behaviour by using magnetic therapy, so too will this system ensure that things are fair and balanced (very 4th ray setup). obviously, this will end up having the opposite long-term effect in the long-run, just like the suppression of greed and lust with magnetic therapy eventually caused such an uprising of desire for greed and lust that we're still living with today, so too will this system produce more and more competition by trying to suppress it (that is, to keep it balanced).
+
+I think this is kind of like the beginning of the "return back to the source", because once all 7th ray things are stable (physical stuff), then the return is back to the 1st ray, which is desire (and purpose). well, people don't really know how to relate to desire as just another thing that you *feel*, so the closest thing that is similar to desire is experienced in the form of competition. they ran the mile in 3 minutes, so I want to try for 2.5 minutes. eventually, it'll get sorted and desire will no longer be perceived as a threat to others, but first it has to be perceived as a threat (ie competition), because that's what is recognised right now as the source of desire.
+
+the other aspect of the 1st ray energy is one of purpose. I don't really talk much about this because it's overdone. a government system where you're just a cog in a machine, you lose your sense of purpose, or you gain it in the sense that your purpose becomes what the system desires from you (like someone joining the military). to a large extent, the system will suppress purpose on all fronts, from the top to the bottom, and that I think again, is on purpose.
+
+you gatta want it. do you want to feel good, or do you want to have control? the christ will ensure everything is controlled and secrets can be kept safe.
+
+until then, I think that my job, if I can put it that way, is to keep going back to step one over and over until they don't need me anymore. each time I get reset back to step one, that's another bit of desire that they have for the dual version of me (the "christ") to gain power over me so that I'm not upsetting their system.
+
+[1]: reaction wondering why. I cause chaos and strife because I operate on LOA, and that is very undesirable because of how impossible it is for nosebook to control what I desire and how I feel. the nosebook system aims to reduce all of the unpredictable factors of LOA out by making an alternative system of getting what's wanted for people so they don't need to use LOA anymore. if people are using the nosebook system to get what they want instead of LOA, things are stable, making it difficult for any single person to upset unbalance the system. the system will be very 4th ray, perfectly balanced where the system can ensure that for every unit of good-feeling, it'll be balanced with an equal amount of bad-feeling -- which, because dissatisfaction is so easy to come by -- really, lots and lots of people can feel really really good, and that's the point.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
