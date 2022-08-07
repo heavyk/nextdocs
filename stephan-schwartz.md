@@ -20,6 +20,8 @@
     - repeat for the emotional word, the spiritual word, and the mental word.
     - all of these words are to be felt as if you have them presently just as you desired them.
 
+https://www.schwartzreport.net/
+
 ### 2022-07-19 04:33 - first impressions of him and his meditation technique
 
 I just binge watched a nearly all of the video interviews available on [new thinking allowed with jeffrey mishlove](https://www.youtube.com/c/NewThinkingAllowed). I have so many thoughts, and I wanted to get some out now initially before they vanish.
@@ -236,6 +238,54 @@ this meditation I found I had a really easy time in the first few minutes to qui
 one of the thoughts, I was thinking about how it would be cool to make a 1st ray sun as a first project. I was then thinking about the combo of how it would integrate to the system because it matches my own configuration. I my target configuration is become a 1-2-7. so if charon is a 2 and earth is a 7, then the only thing left is a 1, so I think it would be cool to do that. I'd want it to be either a +-1-+ or a -1 configuration, so I'd kinda be modeling it after myself. I thought that was cool, but I felt like my mind was wandering so I stopped the thought.
 
 I can't remember what the other thought that I shut down was.
+
+### 2022-08-07 10:24 - returned back to meditation
+
+this morning, I returned back to the meditations, and I found it *much* more difficult than I ever have before. there was this observer of me that was constantly noticing everything that's happening, and the observer was conscious of itself, and so there was this internal chatter even noticing the internal chatter. it felt very difficult to stop observing myself and any changes that were happening in the meditation.
+
+later on, maybe 15m into it, I could get the chatter to stop, but then I would lose capacity to control my mind and go off into these sensory experiences where I start talking to things as if they're there. it felt like I needed a reality to be present for me to observe and interact with.
+
+the mantra, "as soon as I know what I don't want, immediately, I know what I do want" wasn't helping at all becazuse I was so unfocused. I couldn't get the unwanted or the wanted into focus.
+
+clearly, I need a lot more practise because this morning was a pretty significant reduction in capability from where I was in the weeks previous.
+
+---
+
+I also did a meditation a few days ago where I listened to music while I meditated and that was pretty difficult because I had to focus my mind to guide my mind to not think when the music would continually stimulate thought. I enjoy listening to music, especially when I write like this because it's a constant rate focusing mechanism and so therefore it's easier to hold on to an idea for longer.
+
+the effect that I had when meditating with the music playing was something a little similar to what I experienced this merning, but without music. I stopped meditating because it was attracting too much too quickly, which means it was quite successful, and then this sudden extreme difficulty, makes it seem possible that the influencers of my brain have kinda learned from the music session and are using that pattern of brain activity to make it harder for me to focus. I did notice ever since that meditation a lot of things as different.
+
+whatever the case though, whether it's intentional or not, the new difficulty to focus my mind means that now I have a new thing that I can conquer again. I like the challenge, and these sorts of mental activity stimulate me to getting better at something. I know I can easily get back to where I was previously. it shouldn't be a problem.
+
+just now, I was outside sitting in the sun with my mind pretty quiet, but not really intending to be in a meditatite state, thinking about the latest livestream interview, and I noticed that I still have focus -- just I didn't have anything to focus on.
+
+what I think helped in the previous times is I read the schwartz report beforehand so that my mind would focus on receiving the two extremes of only wanted or unwanted. I did that right before sitting in the sun and noticed better focus. I think exploring negative subjects helps me to focus, whereas prior to the meditation, I was watching thijs videos and so my brain was more on that frequency.
+
+I notice that same sort of thing when I take psychedellics or smoke weed -- that the prior activity greatly affects the drug experience -- and it really felt that way in the meditation too. I belive it is a sort of natural psychedellic, as when I would lose control of my focus, my mind would spiral off, similar to if I were stoned, but more like it would have been when shrooms or the ayahuasca is when it starts to come up -- you start to lose that mental control and have to sorta just ride the wave.
+
+### 2022-08-07 10:48 - the subdivided USA
+
+@[youtube](https://www.youtube.com/watch?v=hWiYzGUUOb4)
+
+as I mentioned in the previous entry, I went to think about the latest interview in the sun. I don't really get anything visual, so I think I'll call mine remote conceptualisation or something like that. the sense that I had is that it seemed pretty obvious to me that states would begin to succeed and start to go their own way. next, it's pretty easy to see that those christofascists (as you call them), will be dissatisfied even if their state succeeds from the union and does things their own way. those types of people are dissatisfied and are just using this thing to point the finger at and blame for their dissatisfaction. before trump, it was probably their wife, their job, their car, whatever. succession won't solve their problem.
+
+they'll inevitably see the problem in the future as the state and say, OH, the state isn't making me feel satisfied, and they're the problem, so what I need is to be around more people that think and believe like I do -- and so once again, they'll want to succeed from the state and start their own community. undoubtedly, they'll still find the people they think are like-minded with to be dissatisfying, so that'll just be a moving problem that others will begin to recognise the patterns of and avoid these people.
+
+simultaneously, you can imagine other groups of like-minded people beginning to make small communities of their own. you can imagine that any "minority" group that wants to start  to live separately from the mainstream, and no longer depend on the mainstream will begin to separate and go where there are resources. inevitably, that won't be the city where real-estate is very costly and things are run by the city.
+
+these different communities will have varying rules regarding sex, religion, drugs, and other things (all the taboo stuff).
+
+it's hard to describe the sensation, but it feels to me like people are just going to start joining together to do things that they're passionate about. imagine, for a moment that a bunch of doctors and nurses got together and offered their health services -- and they were good at what they did -- well, then people will begin seeking out their services, because they're going to perform the medical service how they want to do it, not how the government mandates it to be. imagine perhaps that abortion clinics could pop up designed to provide that exact service or whatever. now imagine that as this group of doctors and nurses are doing so well, they need to expand, so they a bunch of people build them a new facility to work...
+
+you can see how an increase in communication between people and availability of services will enable many people to just start doing things the way they want to do it. this trend toward doing things "my own way", will decentralise the whole system of services, and naturally, the result of it will be that people are much more spread out to take advantage of the available space.
+
+---
+
+the other thing that I felt, and I personally don't really know how to quantify this, but I felt a pull towards the "brothers of the serpent" community, as, for example that box that "gets warm" is the device that I want to create -- it turns human energy into real usable power able to run our devices and appliances.
+
+what needs to happen in order to enable these migrations, is *communication*. computers and electronics needs to be used to enable easy networking of services and things like that. I wanted to work on a project like that with a guy named mike at friendly harbor, and just brainstorming on that project made me realise how easy it is to make a system that can distribute and make services available to people.
+
+anyway, I'll have to think more on that, but that's my initial sense impressions as a result of the interview. cheers.
 
 ### perception vs information
   - if you perceive yourself as a thing,
