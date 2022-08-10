@@ -124,4 +124,42 @@ I hate the first and the last words there. truth is relative, and justice requir
 
 gross.
 
+### some more thoughts on time travel and stuff
 
+I woke up this morning thinking a lot about time because I didn't address certain things. I know that you can change the past, because it's happened to me many many times that I remember a different past than is present in the present. good examples of this is @[dtp/dtp](chapter-3-7) where I remember specifically reading about gwauxln being transfigured before him, and it was revealed that gwauxln was the perfected 7th ray that blasted mainin before zailm in the stone structure before his death. same with tesla's autobiography.
+
+so, there has to be a way to change the past, because obviously it's happening. those instances are something like the "mandela effect", because I remember things as having happened differently. I think the way that works is like this...
+
+somehow, they have a machine that allows them to tune into the past (see through they eyes of those in the past) or they are physically able to move people into the past with a machine where they can monitor the time travelers (see through their perspective) and bring them and the machine back. the bringing of the machine back is important because that's effectively the same thing as attracting the reality back.
+
+lemme explain with an example. imagine that the confederates won the civil war and they wanted to go back and change it so that the unions won. they're in the present and they send people back to that period and put different ideas into the heads of various generals at the time to give them good ideas which if acted on, will give them an edge in the war. they do that and have other actors in period appropriate clothing perform actions in the past that alter events as well.
+
+in the perspective of those that just went there and all those in the mission that are observing the operation through the perspective from both the union and confederate sides, literally see a different set of events turn out. for them that *is* reality, because it just happened and they just saw it, so they can believe it. OK, hold that thought.
+
+now, let's imagine a purely psychological version of the same thing. imagine that you had a past thing that happened and either you or somone else told you all the time that it was different than how it happened. maybe you play a movie in your head of a different version of the past (better or worse, doesn't matter), so however it is, you soon begin to believe the alternate history as reality. let's also say that this event was a major trauma that completely changed your life and if it really hadn't happened, you would actually be living in another location. when you finally accept the alternate reality as real, you don't suddenly teleport over to another location and start living in another place instant.
+
+the point where you are now is fixed in time, such that even if you think the past is diffeernt, your now stays the same. so, reality needs to reorganise itself to accomodate for the changes. since you're in the same spot, it's now a new path that includes the past event not happening, but you're still arriving to the present moment. when thinking of a point in time, think instead of it as a vector, so while the position may stay the same, the orientation of the vector may have changed (along with the velocity). this is why I like to think of timelines, sorta like strings, and each point in time, is an inflection point. for example, you pull the string (down) on one side and it causes an opposite pull (upward).
+
+so, we're coming back from civil war changing of the events, and because it's so far back in time, it's not difficult for many people to believe that the civil war had a different outcome, because afterall, we're still in exactly the same spot that we were as if civil war was won by the confederates. imagine the other timeline where the confederates won -- somehow we still decided to abolish slavery and to get to where we are in the present. it's just a different trajectory toward the same point in the present.
+
+---
+
+not all people will be able to accept that alternate set of events, so they'll remember things slightly differently; the mandela effect. however, those people are still very resonant with other people on a number of other things so we still share the same reality. nelson mandela having died is not a big enough vibrational difference for me to no longer be compatible with this reality we all share.
+
+the shared reality is something that I think of as a resonance thing. if there are enough harmonious vibrations, we stay together in reality, but physical or emotional conditions tune us to a differnt period in time or space, then you teleport there.
+
+---
+
+so kinda quickly, I have some thoughts on the bermuda triangle. look up the modelling of the vortexes that an airplane produces when going through the air. you'll have many diffrent vorticies that are deaccelerating, so their pitch is dropping.
+
+a while back kyle from snake-bros related a story where he had the amps cranked up really high and he was detuning a bunch of strings while playing, and then he started to hear someone else's conversation coming in from just above him. I think that is something similar to what is happening with airplane vorticies interfacing with the "magnetic anomaly" in the bermuda triangle.
+
+we know the bermuda triangle events seem to be associated with electric storms, but one thing that we don't really know is that if there are any secret experiments or high tech machines (UFO type technology that alters the atmosphere of the planet[^1]).
+
+it seems very likely to me that it's the vortex action produced by these boats and air planes that are causing them to tune into another space and/or time.
+
+[1]: a while back I saw this person post a video of the moon displaying these ripple-like effects on it, and they came to the conclusion that the moon is a hologram, but I think it's much more logical to believe that the earth's atmosphere is strongly controlled in a spherical grid, so that any perturbations to it can be monitored and also it probably ensures that there's more definite barrier between us and space (a kind of shield). it seems very likely to me that they would want to be sure to control any holes that are punched into the upper atmosphere and to ensure it stays homogeneous.
+
+
+
+### the way I see genetics
