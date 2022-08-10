@@ -287,6 +287,58 @@ what needs to happen in order to enable these migrations, is *communication*. co
 
 anyway, I'll have to think more on that, but that's my initial sense impressions as a result of the interview. cheers.
 
+### 2022-08-10 07:32 - internal chatter and the uber man
+
+today, I decided to return to drinking coffee to see how it went, because I suspected that the chatter could possibly be because the previous times I had had coffee and coffee focuses me a bit. unfortunately, the chatter was still present. it was louder even.
+
+therefore, I have to conclude that one possiblity is that the chatter has always been there, but I didn't notice it. so for example, when I would notice my mind wandering, I would refocus on my breathing. I would notice the inhales and exhales and I had even an analysis on how rapidly and deeply (or shallow) I was breathing. these sorts of meta thoughts, concerned with my action were not previously noticeable. or, for example, I wanted to scratch my nose or something, and the individual commands (efforts) to meve my arm and hand were noticeable, as well. it's as if I have now a very high consciousness of my motion even down to the movements of my breath that I was previously not conscious of.
+
+I don't know if that is a good thing or not, because I liked it a whole lot more when I was unconscious of those things, and to empty my mind was easier because it was just to not think any of the macro thoughts.
+
+I have a funny reaction that feels like it's from some tibetan monks or some people pretty experienced in meditation, so it seems like that's one of the prior stages to attaining the nirvana stage -- first it's the macro things, but then life gets so detailed that the micro things start to become noticeable. so I guess I'm doing well... cool.
+
+---
+
+the next thing I want to talk about is the uber man
+
+@[youtube](https://www.youtube.com/watch?v=jeFD4rnWOVk)
+
+in the beginning part of that clip jason is raising some similar concerns to the prospects of genetic engineering and the potential inequality that it could present.
+
+I'm not at all concerned about this. last entry, I talked about how I could see that the concept of succession will start to produce a desire to go one's own way. I call it, "to go my own way", and jason calls it (I think) "radical individuality" -- but the concept is essentially that you simply cannot try and get the whole world on the same page and to agree with the same thing.
+
+I feel like this is going to become the backbone of the major event/singuarity of 2048 (funny this number is a power of 2). I believe that there will be a whole lot of people that are going to be pushing for global regulation of certain things like carbon output, genetic engineering, etc. -- and there will be various parts of the world that simply won't comply with those efforts to get people on the same page.
+
+one example of this is china. in [this article](https://www.schwartzreport.net/2022/08/08/climate-bill-could-slash-us-emissions-by-40-after-historic-senate-vote), it says that the US can potentially reduce emissions from ~5.5 down to ~4 bn/tons of CO2 emissions. meanwhile, china at it's current rate of increase could easily increase its output by 4-5.5 bn/tons in less than 2-3ys. so, even if the US completely halted *all* forms of CO2, the amount will still be increasing. after 5yrs, it's certain that no matter how much the US cuts output, the output will still be increasing and there's nothing we can do about it.
+
+in a situation like this, it can be really easy to say that the other person needs to change their behaviour so that I can feel good about the global situation. this simply isn't sustainable.
+
+I predict that the need for others to change will be the major thing that will cause many people much difficulty.
+
+---
+
+OK, back to the uber man... in the context of people that desire to run their own clinics, you can imagine that some will use the traditional medical techniques, but others may choose to do things differently, perhaps choosing to do a more wholistic or natural approach (whatever that means) -- and some may choose to provide medical services in the form of genetically engineered viruses designed to restore genetically proper function to various organs. a virus can be used to cause harm, but it can also be used to administer temporary and permanenet upgrades to the genome of the receiver.
+
+it seems to me that this idea could potentiall garner more pushback and desire for a regulatory body than china's CO2 output, but it's the same topic.
+
+---
+
+although it's possible for someone to pay a lot of money to have their genome improved upon with CRISPR tech, there are also people like me that are willing to do the opposite.
+
+imagine a lab that's run by a bunch of amature geneticists that are out there harvesting and designing new viruses. I would willingly test these malicious (and beneficial) viruses because I know that perception trumps genetics, so that no matter what the condition of my body is, those genetics will have to conform to my perception. by nature, my body will produce an antedote to the virus.
+
+so, if they were to sequence my DNA before injecting the virus, and then a week or so later after I've produced the requisite changes to my gennome, they could look at the differences between those twe sequences and that could be synthesised into another virus which is designed to patch up the genome of another person to include that new perception.
+
+that clinic, run by amatures, could gain quite a bit of understanding on the human genome and the ability to perform very interesting things, available to (probably most likely) volunteers. I certainly would volunteer, at least.
+
+---
+
+the next thing I want to point out is that even if a person upgrades their genome to improve various things, that sequence is *still* subject to the concept which powers it. so, for example, if you subject my genetics to a malicious mutation, my genetics will produce a correction and defence to that mutation, whereas others if you give them an upgrade, their genetics will go from the upgraded version and degrade over time reverting slowly back to how it was before the upgrade (but not exactly). there are always evolutions in these stabilisation processes that the genome goes through to adapt to the vibration of the environment and the incarnating concept/soul.
+
+therefore, no matter how amazing their genetics are, the unsavoury rich with oppressive ideas will still need constant upgrades. to illustrate this, imagine that every year there are discoveries that prolong life by 2 years. you would think that they would be able to live forever by constantly improving the agespan, but because each year lived increases the amount of vibration contrary to their source, if every year you lived, you lived one less, then think of it like this: the first year you live 1y less, the second, 1+2y less, the third 1+2+3y less and so on -- so even if you added on 2y of lifespan each year, 2y is not enough to prevent death after only the second year. what you'll see is that those that are boosting their genetics will decline very very rapidly at the end of their lives (that equation is simplistic in that it assumes a constant aquistion of resistance of 1 per year, when in reality adults acquire resistance much more rapidly than children do).
+
+OK, I guess that's all I have to say for now...
+
 ### perception vs information
   - if you perceive yourself as a thing,
 ### magnetic field may be the medium whereby the "random" becomes less random
