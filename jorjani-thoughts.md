@@ -275,7 +275,7 @@ I fully agree with this. if you give your attention to the things in the past th
 
 I'm noticing reactions that are enjoying my rewriting the concepts of these videos. so, I'll continue on doing it. I don't know the origin of these reactions, but at any rate, I'm learning tremendously by doing it.
 
-the tale that plato relates in protagius(?) states that when his brother (afterthought) wants to help out with the creation of the species of the earth. when creating all of the species of the earth, he gives each of them a specific function and capability (instinct), and gets all of nature covered and perfectly in balance, but when he gets to the humans, there aren't any functions left to appropriate to the humans.
+the tale that plato relates in protagoras states that when his brother (afterthought) wants to help out with the creation of the species of the earth. when creating all of the species of the earth, he gives each of them a specific function and capability (instinct), and gets all of nature covered and perfectly in balance, but when he gets to the humans, there aren't any functions left to appropriate to the humans.
 
 therefore, because humans have no inherent function or instinct, we rely on tools to perform function for us. we have no specialisation and built in programming (species-being) like each of the other species of the planet.
 
@@ -293,7 +293,63 @@ I just reread what I wrote and I think I'm right: non-sentient machines capable 
 
 anyway... that's probably a foreshadow... moving on...
 
+---
+
+@[youtube](https://youtu.be/29hXsCWu7y8?t=1060)
+
+I'd also like to mention that afterthought is the slipping into mass consciousness ("das man"), the generic 3rd ray perspective of things where each part is designed to be generically interchangable and not specialised because the big picture is not yet known, so the part does not yet fit in to any location.
+
+while forethought, represents the 2nd ray quality of seeing the big picture, and so therefore one can then specialise the part into the whole.
+
+the thing I would like to mention here is that forethought *requires* afterthought to be able to work properly. when you think of 2nd ray qualities, you'll notice that it's a lot like sales. you will tell of how great the thing is and how it solves all of these problems, relating the "big picture" to the potential buyer, but if you never produce the parts (the afterthought), the forethought is just a vapour that never turns into something substantial.
+
+many people spend so much time "vendiendo humo" (selling an illusion) that they often neglect to turn that illusion into something real and tangible. so while prometheus is really great at finding the big picture, it needs working parts to create the whole.
+
+I think of this like stem cells and DNA. the DNA has the big picture, and so many stem cells, or generic parts are created, and they'll eventually become specialised cells, but at the beginning, they're just generic cells.
+
+the image of creating humans without any specific form or attribute means that we're like the stem cells. we're generic machines that are waiting to be put into the big picture so that we can specialise into the requisite function of our position in the big picture. the attributes and things that afterthought created are sort of akin to functions -- so you can imagine that stem cells, although they're generic, they still require protein assemblers and all the other tiny machines that make up the functioning of the cell (the ecosystem). in a lot of ways, we live in symbiotic relationship with our ecosystem, and I don't think that humans could have evolved if there were no animals to hunt or fish to catch. we depend on all of these "afterthoughts".
+
+---
+
+another thing I'd like to add is that epimetheus (enki) can be looked at as an afterthought, but I like to think of this in the software development way of looking at it, which are the "stabilization processes" in which a form adapts to its specific environment. what I mean by this is, when you're designing a large world, like imagine a MMORPG, you need to create all of the components for the system, but inevitably there will be some components that have unanticipated consequences, and so these components need to be have their function modified and optimised (buffed, nerfed, corrected) ao that the whole ecosystem remains balanced.
+
+these stablisation processes are all afterthoughts, and they're very important. in software development, these afterthoughts are what turn an OK, mediocre, or unbalanced product into a great product.
+
+in addition (@[youtube](https://youtu.be/29hXsCWu7y8?t=1117)), the tendency for the afterthought to be concerned with mass consciousness (das man), the inclination towards the lowest common denominator, is all about quality control. you have to create interfaces that maximise utility for the lowest common denominator of your target market (not to everyone, but to those that use the interface). so, while it could be perceived as a bad thing to be concerned too much with what others think, maximising utility for maximum adoption is quite an important aspect of product development.
+
 ### truth
+
+there is a predominant forgetfulness, concealment or occultation of things in nature, and that -- truth is always exceptional to that occultation. to see the truth about something is to make a dis-covery -- to uncover something that is predominantly hidden, concealed or occulted.
+
+so every discovery is a sort of theft from the occultation from that occultation.
+
+---
+
+I'd like to point out that what occulted means is chaos, and so to dis-cover is to make sense of chaos. to turn something that is occulted or chaotic into something ordered and conceptual. this is the 1-5 relationship, where one takes something that appear otherwise as noise (desire), but because you have a set of concepts that will resonate with part of that noise (that's the fourier transform), one can use an existing set of concepts to begin to make sense of that noise -- this is the dis-covery. the synthesis of various concepts to produce a waveform which will resonate with the chaos (desire) and produce a new concept.
+
+### time
+
+@[youtube](https://youtu.be/29hXsCWu7y8?t=1368)
+
+    we're always reinterpretting our past in terms of a projection of our future.
+
+project (to produce a product) = projection. it's the ability to plan ahead and to attract the future with that prject manifest into reality.
+
+---
+
+I'd just like to appreciate jason for a moment because as I'm writing these things out, I'm gaining an understanding of 2nd ray aspects that I hadn't really thought about. for me, I neglect my 2nd ray aspect, trying *not* to see the big picture, because every time that I spend too much time on the big picture, the thing fails. in order for something I want to actually manifest, I stifle the big picture and just rely on desire and implemention (1-3) which is the sanatau-anatau relationship that we had when this planet was started (ninhursag-enki).
+
+I suppose it's possible that the reason why I neglect the 2nd ray aspect for so long is because every time that I look to try and see the big picture for something that I want to create, nosebook somehow is able to make that picture go away, so it kind of aborts the thing entirely. therefore instead, because of the repeated abortion of every idea that I've wanted to create, I've taken the tactic of instead explaining (as I'm doing now) all of the various parts and how they fit together with the hope that someone else will turn that into an implementation.
+
+little by little, you can see that I'm weaving a lot of various threads together in the form of concepts which all form part of a bigger picture that I can "see" (maybe a better way to say it, is I "know" or can feel strongly).
+
+jason's discussions on the topic of prometheus allows me to look a little more carefully into this idea of forethought. what I notice that I'm doing is... have you ever bought one of those lego sets that has the image of the finished product on the front, and so you look at that and without having built it before or looking at the instructions, try to make the thing from memory of that picture with no parts left over? I remember doing this various times when I was a kid and I found it very difficult because my creation seemed to differ from the image on the front. I could look back at the picture and count the blocks to make a more accurate try but even then, sometimes I still had parts left over.
+
+what I can see that I'm doing is I'm sorta just doing that. because I can't "see" the big picture, I'm forced to relate the big picture in words and ideas. this eventually will turn into a whole new thing. I imagine that somewhere along the line I may have created something like this before -- so imagine if alalu or jeortau were to take the ideas of his ideal man and relate them to enki so that enki could build it to his own specifications, rather than having to be destroyed in the process.
+
+in a sense, that's kinda what I aim to do. I think it's quite possible that all three of the original cards that I drew (the streessed man and the little girl, this is my reality, and machine capable of desire) perhaps none of these will come to pass. instead, what is likely to happen is that I'll, unable to see the big picture, lay out a lot of the ideas in conceptual form (the dis-cover aspect), and then those concepts will eventually be arranged into different big pictures by many different people and implemented in many different ways.
+
+OK, time to meditate now (it's 6:20) and then, back to the show...
 
 
 
