@@ -277,7 +277,7 @@ I'm noticing reactions that are enjoying my rewriting the concepts of these vide
 
 the tale that plato relates in protagius(?) states that when his brother (afterthought) wants to help out with the creation of the species of the earth. when creating all of the species of the earth, he gives each of them a specific function and capability (instinct), and gets all of nature covered and perfectly in balance, but when he gets to the humans, there aren't any functions left to appropriate to the humans.
 
-therefore, because humans have no inherent function or instinct, we rely on tools to perform function for us. we have no specialisation and built in programming like each of the other species of the planet.
+therefore, because humans have no inherent function or instinct, we rely on tools to perform function for us. we have no specialisation and built in programming (species-being) like each of the other species of the planet.
 
 so, to solve the problem that his brother did, prometheus decides to take the fire essence from the gods and give it to the humans. jason states that this fire is the fire of the forge (ie toolmaking), but I'm of the persuasion that fire is the ability to attract what one desires. therefore, if you want to get ants out of an anthill, that desire will inspire you to find or make a straw out of materials available.
 
