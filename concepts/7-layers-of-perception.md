@@ -90,3 +90,25 @@ likewise, the same thing happens if you dare to explore this layer and maintain 
 ### 5-conceptual - concepts, code, ideas
 ### 6-imagination - transforms/relates concepts <-> physical
 ### 7-physical
+
+### 2022-08-11 18:09 - the 2nd ray christ aspect
+
+I woke up just now and I was talking about conceptual-viewing in the sense that it's very similar to how I dream. when I dream about things, usually it would be too much effort to really know the skin colour, race, or gender of a person, and so I don't see them unless it's important. again, remember, I use the word "see" but actually no image is present. they're just formless things that interact with each other. however when I "look" at them, the important aspects of their concept are apparent to me.
+
+what will make an aspect more pronounced has three (that I've identified so far) reasons for it: 1. my perception (what I'm looking for/attracting), 2. the frequency/feeling of the environment as perceived by me, and most importantly 3. it's relevance in the encompassing symbol. the first two have obviously a lot to do with my perception, so it's the third item here that I want to talk about.
+
+for example, if I see two people and one of them is degrading or making the other to feel less than (this is also a symbol), where one of then concepts has certain skin colours which correspond with my definition of racism, then I'll see the interaction ofthose concepts as "racism". as an example, if I think that black people can white people feel awful and I see that, it won't *trigger* that symbol, however, if I think that white people making other colours of people to feel less-than, then it'll trigger the symbol of racism.
+
+in the context of that symbol, colour is important. another one could be the symbol of gender inequality. same thing. imagine I have a view that females tend to berate and try to cause males to feel less-than. therefore, when I look out into my world (or am looking at a dream in my case), and I "see" that one gender is causing another gender to feel less-than, then it'll *trigger* that symbol.
+
+that symbol usually causes an emotional reaction, which then attracts the manifestation of that symbol into reality again.
+
+---
+
+to understand why this is so, we need to look at the top three layers. the 3rd ray is all about symbols and the "right way". these are the programmed ways in which we need to go. our "cultural heritage" or whatever. it's your default programming no matter where you got it from. these are all the definitions of these symbols... usually, the differenc between two concepts over gender or skin colour is very very subtle, so you need to be able to have those important aspects of the symbol illumiated in a strong way, otherwise you would miss those fine details[^1]. the brain is just emphasising and amplifying the relevant parts of the image that fit the symbol. this amplification of thy symbolically relevant stuff is likely the underlying mechanism that "the language of the birds" uses to give extra *meaning* to things.
+
+above the 3rd layer is the 2nd layer, the "office of the christ" -- the pineal gland basically, and this is the part of the brain that's responsible for amplifying all of the things that cause strong emotion or a strong sense of meaning. each time you notice something that produces a strong response (like noticing a synchro or hating some thing that just happened), because those symbols were activated in the 3rd ray, they get turned into desire by your *perception* (the 2nd ray is were most of your symbolic perception lives, just like your imagination is where most of your physical perception lives). this symbol converted into desire then passes upward into the 1st ray where the universe begins to make that a reality for you. this is why dreams often times have a powerful effect on creating reality, because the symbols, as perceicved by you, are then synthesised into desire, which is the attractor of reality.
+
+the 2nd ray is also capable of turning desire into symbol. this is why when we feel desire, we often jump to many conclusions about the symbolic manifestation of that desire. the 2nd ray works strongly with the 5th ray because you need to have the proper concept instantiated to be able to *feel* that symbol strongly and then attract it further.
+
+[1]: I strongly believe that the area of the brain that is responsible for processsing these symbols is in fact the same area of the brain that's responsible for "edge detection" (what separates one concept from another in your vision), and so this area of the brain is also responsible for seeing more dimensions. I've noticed a strong correlation between 3rd ray (symbolic) thinking and the ability to see more dimensions.
