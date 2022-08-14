@@ -5539,6 +5539,48 @@ until then, I think that my job, if I can put it that way, is to keep going back
 
 [1]: reaction wondering why. I cause chaos and strife because I operate on LOA, and that is very undesirable because of how impossible it is for nosebook to control what I desire and how I feel. the nosebook system aims to reduce all of the unpredictable factors of LOA out by making an alternative system of getting what's wanted for people so they don't need to use LOA anymore. if people are using the nosebook system to get what they want instead of LOA, things are stable, making it difficult for any single person to upset unbalance the system. the system will be very 4th ray, perfectly balanced where the system can ensure that for every unit of good-feeling, it'll be balanced with an equal amount of bad-feeling -- which, because dissatisfaction is so easy to come by -- really, lots and lots of people can feel really really good, and that's the point.
 
+### 2022-08-13 18:29 - not ready yet and why
+
+I woke up this afternoon having had a pretty abstract dream that's very difficult to relate because there was such little physicality to it. in the dream, there were things happening where it felt like they weren't ready yet. there was also a lecture on why it's a bad idea to push someone to do something before they're ready.
+
+after that I was reminded of the old sirian/kuthumi origin story for why we're here. the synopsis of it is that when the guiding elite of the past universe decided it was time to cause the last universe to begin its transition, there was a corruption that happened. it was revealed to me that the 7th ray that got corrupted wasn't ready yet.
+
+any transition like that is kinda like death, because you transition into a completely new form, and you may not be ready for it. anyway, apparentely, this 7th ray wasn't quite ready for the transition, and the guiding elite's decision to just push something through before he was ready was the cause of the corruption.
+
+they report that the corrupted 7th ray was very arrogant and taught people to be selfish, to think highly of theirselves and to have greed...
+
+you know, at times, it often wonders to me about this origin story because I see the story from the side of the 7th ray. those kinds of things are really annoying. I too don't want to be pushed to do something just because other people are getting bored or whatever and need something new[^1]. the story has a weird parallel to my life is all I have to say...
+
+---
+
+next I wanted to talk about yesterday and the day before. one of the reactions that I felt went something like this... I the day before I went from listening to jason and contemplating complex ideas to playing a mindless video game. in both cases, I felt myself very absorbed into the activity and it felt dificult to pull away (kinda, though I can easily just go outside and take a break). the thing is, they kinda feel very similar to me. I just start in on something and then the time flys.
+
+a most notable one to see were the two videos of "luci'fer luscious violenoue" thmt I watched. the first felt to me no longer than 5m but because I know it contained more than one song in the video, my reason tells me it was 10-15m -- but it was 35m! the other one was like ~40m and that one too did not at all feel that long.
+
+I have no concept of time anymore. it passes at an incredible rate when I get inside of myself. when I'm outside doing yardwork, time passes at a normal speed, but if I lay on the ground and close my eyes for a bit I'm always surprised at how rapidly the time passes. any internal perception and time blows by at an incredible rate. the other thing too is it has to do with focus too. the same capacity that causes me to get stuck playing COI for hours on end is the same "ability" that I have when I meditate and can get really deep. it's all the same thing.
+
+the other strange thing is the effect of coffee. it's very strange because it's kinda like alcohol -- you know how alcohol blocks out a lot of other people's perception of you (like you stop noticing what other people think about now), but then at other times, alcohol heightens the effects of other's perception on you and you have a breakdown worrying too much about what other people think -- well coffee is kinda the same way for me when it comes to feeling other people. I barely notice how other people feel when drinking coffee (only able to feel myself and the coffee), but then other times, other people's feelings/concepts come through loud and clear, and they cause trouble? it's weird, huh?
+
+---
+
+OK, so now a re-view of the concepts presented and some of my interpretation. the other day that I was talking to mom (and in jorjani notes), I presented an idea of a cell and how it divides when it's in the growth phase. I do think that's kinda in the stage that humankind is getting to now. if we consider the earth as the nucleus and we're in a runaway feedback loop of expansion, and at some point the cell will have to divide or face catastrophic circumstances.
+
+you could just decide to force the transition because people are getting bored and need somthing new, but I personally don't feel very ready yet.
+
+the day before yesterday when I had so much extra energy, my behaviour was commendable to some and deplorable to others. the main reaction that I got (most likely from nosebook) is that they simply cannot have someone like me running around talking about all of this stuff in the open, and they need a way to shut me down. they must have figured out a little bit of a way because I didn't at all have any energy the next day, and considering to try and think about philosophical concepts like jason presents felt it would require a level of mental energy and focus that I simply didn't have ... so I played a game instead, and I did have the focus, but as my play style shows, I didn't have the mental energy levels...
+
+that kind of variability, is a sign to me at least, that I'm clearly not as ready as others may think I am. I can't really do something that I don't feel like I can do. remember the days prior to me going over to remi's house and pulling weeds? I hadn't gone over in a while because I didn't feel like it was something that I wanted to do, and I can't do something that I don't feel I can do.
+
+I feel like there was a conclusion that I had for this which is escaping me now (good thing it's called "blahblog" -- hehe). I'll think of it later. it had to do with the 7th ray which is why I started there. I also think it had something to do with pushing to do something before it's ready and how that feels like the concept of ageing.
+
+---
+
+sure, I can talk about that a moment. when you're ageing, you're not "ready" for your next year and you feel like you get the stuff done that you wanted to get done. in opposition to this, when you're growing, you can't wait to get to the next age. you're ready for the next transition.
+
+not sure what else to say on that. I keep almost thinking about the conclusion but it's not coming to me. the concept is probably not ready for it's transition yet :)
+
+[1]: I belive they said that the universe had reached it's "maturation point", but to me the concept felt like "too old" -- kinda like a person entering into their 40's: now they're boring and unexciting -- which is kinda where I'm at now in life; I'm really excited to turn 40 as I feel like it's going to be an ENORMOUS jump forward in my consciousness capablities.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
