@@ -451,4 +451,22 @@ personally, I find the asians to be very interesting because by nature, they're 
 
 that's all speculation; I just don't know.
 
+### root races and ruling elite
+
+@[youtube](https://youtu.be/qHgR3jGwgOQ?t=3260)
+
+in this one jason is talking about what he thinks is the end goal of the "disclosure", which is that the bad-guys are they grey aliens, and these tall beautiful blondes are here to protect us.
+
+he thinks it's a "good cop / bad cop" situation. I think he's right. this reminded me of a thing that I don't remember if I wrote about, but madame blavatski talks about these "root races" of humankind, and the next "root race" is the aryan race.
+
+well, continuing on the discussion from the previous sections where I talk about using a triad of good / bad cops in order to produce change, I think that the "root races" are actually the ruling elite -- and each wave of root races are designed to impose a unwanted thing on us, which we then have to figure out how to overcome.
+
+as an example, imagine you have kids and you want them to learn to not steal, so you bring in a guy and his whole job is to teach kids to steal. so he comes up with all the good reasons to justify theft (I don't have enough money, I need it, they have too much, they're not going to miss it, etc) and the goal is to eventually let the kids arrive to their own conclusion that theft isn't the way they want to go. it may take them years for kids to arrive to the conclusion, so perhaps imagine this as happening over generations.
+
+another experiment for another set of kids will be to force them them to only eat candy and play video games. so, now you bring in a woman this time and she's the "babysitter" and she won't let them do anything but play video games. when they want food, she can only offer them candy, etc. she takes care of them for an extended period of time. it may sound cool at first, but I imagine that eventually, perhaps after years, they're going to get so sick of candy and video games, they'll figure out for theirselves other things they want to do.
+
+so, when I think of these root races, these are undesirable concepts dressed up in a nice outer facade, designed to deceive us into adopting that concept.
+
+obviously some people will adopt the aryan way of constant wars and in-fighting, (plus, according to robert sepehr, guarding esoteric rituals and other secrets to inducing altered states of consciousness/perception). eventually though, you can imagine that somebody out there is going to figure out a different way to do things.
+
 ### the way I see genetics
