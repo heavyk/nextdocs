@@ -351,6 +351,104 @@ in a sense, that's kinda what I aim to do. I think it's quite possible that all 
 
 OK, time to meditate now (it's 6:20) and then, back to the show...
 
+### 2022-08-15 03:14 - atlantis and individuality
 
+@[youtube](https://www.youtube.com/watch?v=bg1rUE6T7tI)
+
+I listened to that interview and I have a few ideas. there are a number of things that caught my attention...
+
+
+#### antarctica
+
+the first major thing he brings up is the atlantian civilisation and it's connection to antartctica. I definitely think it is the case for a lot of the reasons that he mentions.
+
+I'd also like to point out that there seem to be three major zones talked about in connection to the atlantian civilisation. the first is the azores area, the second antarctica, and the third is richat structure. all three of these seem important to me, but I can't fully see why. what it looks to me in my mind is that these form a triangle and though things have probably changed a bit since then, I do think that "saturn" ruled the underworld (antarctica) -- probably in connection to nergal. ra/zeus seemed to have been pretty big in egypt, etc.
+
+what it looks to me is that each of these points were sort of like strongholds or power structures (probably also earth energy nodes as well).
+
+I believe that the atlantians could perceive and subsequently valued (it's hard to value something etheric) the type of energy that increased psychokinesis, telepathic, and other things. so, essentially, if you controlled these power nodes, the more powerful you are, and so therefore you could exert a lot more power over others.
+
+#### war over individuality
+
+it's interesting that jason beings up the idea of the anti-deluvian world being a very dark place, because I too don't see it as some sort of utopia at all. sure, if you controlled the power nodes and had the capability to exert your will, then you had good conditions -- however, this comes largely at the disadvantage of others.
+
+I've paid a lot of attention to how different organisations manage individuals, and how, at the same time, they accomplish their desire -- and quite honsestly it seems that there isn't an easy way to retain individuality and also pursue the goal of the group; it seems to kinda be one or the other.
+
+as a result, I believe there were a lot of laws and guidelines for each culture to adhere to in order to retain some form of cohesion. this is largely for practical reasons, as anyone who is a parent knows that if the children just obey the commands they're given, everything runs a lot smoother.
+
+I believe that a young child does not yet have enough mental capacity to really to attract what is is that they want, and that's largely a focus thing. so, the parent or guardian guides their focus for them, telling them what are the "good" and "bad" thing to focus on. however, later on when the child begins to want to decide for theirselves what they want to focus on, this is when adolescence begins, and it's at that time that the child begins to convert all of the things that they've been paying attention to in their childhood into more material reality.
+
+so, for example, if a child grows up in a broken home, they will experience a lot of "trauma". it's not really "trauma" in the traditional sense, so I like to look at it as emotion that they feel as a result of the various circumstances they were in -- and it's that emotion that attracts more situations to amplify that emotion.
+
+this is exactly what I see in the atlantian civilisation. they had overbearing parents that needed things to go just a certain way so that things wouldn't fall apart, and the children began to manifest the emotion of their childhood. I think this is important because slavery was a very common thing at that time, so it was the dog eat dog world out there and an attitude of kill or be killed (enslave or be a slave).
+
+at the same time they were developing individual mental capacity. when I was younger and my mental capacity was developing, I noticed that I could use my mind to manipulate people, most notably my father, and that I could affect things to get things I wanted. we were a christian family though so I kinda had to adhere to the code of conduct outlined by the religion. I took certain choices because of the circumstances I was in, but I imagine that if I had've grown up in a more broken family, I would have turned out to be a pretty awful person because I could affect my will pretty strongly.
+
+this is precisely what jason outlines as the reason for the conflict that coincided with the sinking of atlantis, and I tend to agree. I belive it all comes down to individuality and the the parents not wanting their child to begin to exert their own will, because what if the child grows up to be better or more superior to the parent?
+
+there are a lot of reasons for that, but one thing that I've noticed in a lot of places, specifically in parts of academia and some secret societies -- that, to ensure that the initiate/student does not grow up to become superior and endanger the sponsoring organisation with new ideas is to ensure that the child/initiate/student is indoctrinated into the "way things are" so that they continue to follow the same protocol. this ensures that by the time that someone gets to a powerful enough position, they're so fully indoctrinated into the system that they perpetuate the system rather than endangering it.
+
+these systems do not promote individuality because a radical individual could destabilise the whole system. this is enforced by ensuring that the individual never has individual power, because if they can just "do whatever they want to do", they can begin to use our "godlike" psychic capabilities to affect our will -- and this could turn the world into a chotic place. obviously, unwanted.
+
+therefore, we need laws and code of conduct and things like that to ensure that individual desire does not diverge too far from the purpose and desire of the group, which is usually to maintain power.
+
+this, I believe is what it's all about. individuality is perceived as a very dangerous and destabilising thing to a lot of power structures.
+
+#### breakaway civilisation and time travel
+
+jason brings up the idea that not only did many atlantian survivors go and repopulate the earth, that additionally a number of them still exist today and are wanting to remain hidden.
+
+the most interesting aspect to this is that he combines this idea with time travel, claiming that it's possible that human civilisation is seeded from a future set of humans (can't remember the exact quote) -- and this aligns pretty well with my own beliefs...
+
+a think that a large portion of the antarctic breakaway civilisation and even the olympian gods are all created beings. in my estimation, they were purposefully created to be as dysfunctional as possible. I have a lot of reasons for thinking that, but if [my theory on time travel is right](#ontological-paradoxes-about-time), then I don't at all see why we wouldn't want to purposefully create a very dark and ugly world.
+
+even if I simplify the concept and propose that if we had the capability to do genetic engineering, I'd create the most superior species ever possible to be the sort of "bad-guys" and then create a race of beautiful and desirable humans for them to dominate. I would almost certainly be able to ensure my success of figuring out my own psychic capabilities, but also becoming superior to the very olymbian "gods" that are trying to keep me down, that I would create these two (potentially more) species that each have a part to the full being, and that it's desired that they mix and interbreed because out of that conflict is the resulting "exodia" human. it's final result cannot be predicted at the beginning of the experiment, only the knowledge that *something* will happen, so why not make the experiment and see what comes out? I'll call it the "alchemical method for species"
+
+obviously, I'd eagerly jump into that disaster situation and see where I emerge. it's sort of like the application of "chaos theory" to the maturation of species. when we think of "chaos theory", we think of "random" -- but I don't think that random exists, and even the most chaotic systems are an expression of desire.
+
+I honestly think that we are the product of desire, and if we aren't, then I will be wanting to take my concept of desire an chaos, and apply it in the "alchemical method for species' development" and see what happens, jumping into the experiment myself -- esentially as a way to try and create more and more difficult situations for me (as the "archetype" of the species) to figure out my way out of. sounds exciting to me.
+
+#### astral dinosaurs and faries
+
+a lot of these creatures, especially the faries, are created beings and are too fragile to exist in such a dense reality as the physical plane.
+
+I talk about these things as "conceptual programs" -- so when I'm contemplating how I would create the environment for my above experiment, I'll need a lot of violent creatures, tricksters, thiefs, etc. -- but these types of beings couldn't exist in our plane because they would destroy theirselves too easily. as a result, they need to reside in the astral or conceptual planes.
+
+I bring this up because the beings theirselves are nothing more than a concept or a feeling, but as humans began to develop higher psychic capacities (the psychic war), these feelings or concepts will begin to get a visual aspect to them for the mind to begin to make sense of it. you see this kind of "delusion" happening in all sorts of psycology areas as the need to manifest something to make sense of it. consequently, this is what I call the "[office of the christ](/concepts/7-layers-of-perception.md#2022-08-11-1809---the-2nd-ray-christ-aspect)", and it's what has us to continue to manifest the things that we feel into reality.
+
+therefore, I believe that a lot of these fantasical creatures are also created beings, but not creations of the gods. they are, in fact, our own creations. they were manifested as a visual feeling of the way we feel. it'd be interesting to me to get more information from nikkita on how she was feeling in that moment, because you can imagine that a "portal" is just a more powerful version of what we experience when walking into a room and all of a sudden, it seems like everything changes. looking carefully, I've noticed my eyesight change, fantastical creatures, etc. so, the story of the egyptian deity being seen on the ceiling in the great pyramid is the same thing. you get that feeling going powerful enough and that being takes on a more "material" form.
+
+I believe all of these things, including the "sinking of the atlantis" were all manifestations that affected the physical in the same way that the spell can cause a being to materialise. the astral dinos were the beginning of it, but the culmination was the destruction of atlantis.
+
+obviously, the conclusion that we should come to is that individuality is the problem here. see! that's what happens when humans don't follow the laws which ensure that everyone behaves in a compatible way.
+
+#### the factions in play
+
+I believe that the factions which are running the show will continue to do so, and they've been created to ensure that we don't start becoming too individual in our attraction. however, like an oppressive parent with a child, they can't prevent a child from growing. the adolesence stage is inevitable, and they want to try and prevent as much demage being done to their infrastructure.
+
+the way I see it, there are two main "bad-guys" though one appears good. one wants total control (the olympians), and the others want a republic (the platonians) where everyone can agree on a system that is compatible for all.
+
+I personally belive that the republic structure will win out in the end, and that humans will eventually arrive to a system that allows for a watered-down form of individuality. this is the role of enki, the water god. the third party is the party that I represent, which will likely be perceived by most as the real "bad-guy" which is the way of the fire.
+
+I recognise that EVERYTHING is attraction, so no matter how much you try, you cannot actually influence my attraction. it's only me and all me that's doing the attraction. I represent "rampant indivuduality" which is very undesirable to people that are not very individual, and still think that I can affect their reality.
+
+#### what does it all mean?
+
+it's your classic triad relationship. the picture I get is of the triad saturn/nergal in antarctica (the base), thoth/quetocoatl in africa area and the americas (the technical imrovement - emitter), and the female, probably somewhere in atlantic.
+
+this is probably the same catalyst for change in consciousness found in the harry potter crew:
+harry - half-blood (salt - africa/americas)
+ron - full-blood (sulfur/fire - antarctica)
+hg - no-blood (mercury - atlantic/erope)
+
+---
+
+I don't really know what all of this measns, but one thing I've wondered a lot about is the asians and russia area because the magnetic north pole is traveling toward russia area. I belive the north pole travels around the eqilateral trangle at the bottom of the chestahedron (our north pole), and so the power node is shifting, and the antipode to its new location is going to be the bottom of argentiana area.
+
+like I said, I don't know what it means, but I belive that there's a reason why power is shifting in that direction. because I truly believe that unwanted is the catalyst for wanted and that the ultimate goal is an exodia human, I imagine that the asians probably offer the next bit. I really can't say for sure. it's like that thing where nothing keeps moving.
+
+personally, I find the asians to be very interesting because by nature, they're lacking a lot of individuality because physically they all look so similar. in this new globalised world, they're going to adopt a lot of western perception pretty quickly and it'll open their mind rapidly. I'd say that's the next upcoming adolescent. after that, I'd say africa will be next.
+
+that's all speculation; I just don't know.
 
 ### the way I see genetics
