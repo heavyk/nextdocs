@@ -430,7 +430,7 @@ the way I see it, there are two main "bad-guys" though one appears good. one wan
 
 I personally belive that the republic structure will win out in the end, and that humans will eventually arrive to a system that allows for a watered-down form of individuality. this is the role of enki, the water god. the third party is the party that I represent, which will likely be perceived by most as the real "bad-guy" which is the way of the fire.
 
-I recognise that EVERYTHING is attraction, so no matter how much you try, you cannot actually influence my attraction. it's only me and all me that's doing the attraction. I represent "rampant indivuduality" which is very undesirable to people that are not very individual, and still think that I can affect their reality.
+I recognise that EVERYTHING is attraction, so no matter how much you try, you cannot actually influence my attraction. it's only me and all me that's doing the attraction. I represent "radical indivuduality" which is very undesirable to people that are not very individual, and still think that I can affect their reality.
 
 #### what does it all mean?
 
