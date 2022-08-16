@@ -485,7 +485,7 @@ I beieve that this corresponds to the sirian triad of vulcan, aries, and genxica
 
 the aryans came along with a lot of culture preinstalled, with many fairy tales and songs. well, if you know my hypthesis on this, you'll know that I belive that abstract content like stories, songs, and fables have symbols built into them designed to make a future more likely (hence the reason for the socrates change of pace on his views of comedy and tragedy).
 
-for example, one of the stories (TODO) that is stable in aryan tradition is a story of a blacksmith that makes a deal with the devil to be able to fuse anything together. the devil gives him the ability, and he then uses the capacity to fuse the devil to an immovable object, thereby ensnaring the devil. I believe we're living in that symbolic future now.
+for example, one of the stories (@[youtube](https://youtu.be/wLj0Pp8Q5o8?t=351)) that is stable in aryan tradition is a story of a blacksmith that makes a deal with the devil to be able to fuse anything together. the devil gives him the ability, and he then uses the capacity to fuse the devil to an immovable object, thereby ensnaring the devil. I believe we're living in that symbolic future now.
 
 after a very chaotic event such as a catastrophe or war, you can move a lot of things around, and because the world is in upheaval, large changes are easily accepted. whereas, if in a time of peace, all of a sudden an entire new race of people just suddenly appeared in the indus valley region all of a sudden, it'd be harder for them to assume a leadership role.
 
@@ -523,8 +523,24 @@ what I'm saying is that the ruling elite, I believe will continue to limit the u
 
 this is why I continue to carry on about needing to see it to belive it and needing the manifestation (something visual that you can show to your friends) rather than just feeling it.
 
-I believe that this is the next expansion to human perception, and so sure, the ruling elite will have control over the visual capacity, controlling how we use our imaginations, but I assure you the the ability to interact directly with the conceptual world is far superior. you can access *ANYTHING*, and unike remote viewing, which relies on the astral, you can get access to much more specific data, such as words, names and numbers (essentially anything your brain uses as a concept). I believe that many peeple in this "simulation" are here with the specific goal of acquiring that capacity.
+I believe that this is the next expansion to human perception, and so sure, the ruling elite will have control over the visual capacity, controlling how we use our imaginations, but I assure you the the ability to interact directly with the conceptual world is far superior. you can access *ANYTHING*, and unlike remote viewing, which relies on the astral, you can get access to much more specific data, such as words, names and numbers (essentially anything your brain uses as a concept). I believe that many peeple in this "simulation" are here with the specific goal of acquiring that capacity.
 
 imagine you before jumping into the sim you trained your capacity to perceive concepts directly, but then you need some practise that isn't just contrived flashcards or whatever -- so, you jump into a sim in order to try out the new capacity in real-world situations to get good at it. something like that, I'd imagine.
+
+### meaning of the smith and the devil story
+
+I had some reactions wondering what I meant by saying that I think we're living in the attracted reality of the smith and the devil story.
+
+the devil represents the common view of the devil -- the tempter. the one that's wheeling and dealing to try and get some sort of advantage (hence the deal with the blacksmith of a physically useful skill relevant to his trade) in exchange for his soul (ie. immortality). in general, this is commonly the tradeoff that is commonly believed, when you make when you focus too much on physical things, and neglect the spiritual aspect of it. I belive the opposite, and that the emergence of the 7th ray is the return "back to the source" for those that are very physically and ritually oriented.
+
+the blacksmith makes the deal and the devil thinks that he's trapped the blacksmith into physicality, but the blacksmith uses the skill that he acquired from the devil in order to lock the devil into the physical realm. the blacksmith plays the role of the trickster here.
+
+the way that I believe these symbols are playing out in the present is like this: they've accumulated such an inertia with all of the secrecy, they must remain hidden, and in order to do that, they have to prevent others from gaining the ability to see their secrets. this locks them into the astral realm. they have to ensure that everyone on the planet only can perceive the physical because if the astral begins to be seen, the psychic capabilities that we have can completely destabilise their whole setup.
+
+so, they're sorta stuck keeping their secrets hidden. any one of them could get out any time that they want to, but it would require them to go against the group and to give up on keeping their secrets hidden. misery loves company though so the aryan nobility have to teach us to keep secrets that way they can continue to have power, because if everyone stops having secrets, they lose their power.
+
+this is why the aryans have been given control over the network which keeps track of everything that everyone is seeing and thinking, so they know all of our secrets.
+
+the only way out of the system is to recognise that secrets don't exist and that anything can be accessed in the form of a concept. any time or place can be tuned in to, and the capacity to tune to anything that we want to tune in to is the capability that we want. they have to provide resistance to our acquisition of that capability because it would reveal their secrets.
 
 ### the way I see genetics
