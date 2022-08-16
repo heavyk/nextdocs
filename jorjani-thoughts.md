@@ -416,7 +416,7 @@ I talk about these things as "conceptual programs" -- so when I'm contemplating 
 
 I bring this up because the beings theirselves are nothing more than a concept or a feeling, but as humans began to develop higher psychic capacities (the psychic war), these feelings or concepts will begin to get a visual aspect to them for the mind to begin to make sense of it. you see this kind of "delusion" happening in all sorts of psycology areas as the need to manifest something to make sense of it. consequently, this is what I call the "[office of the christ](/concepts/7-layers-of-perception.md#2022-08-11-1809---the-2nd-ray-christ-aspect)", and it's what has us to continue to manifest the things that we feel into reality.
 
-therefore, I believe that a lot of these fantasical creatures are also created beings, but not creations of the gods. they are, in fact, our own creations. they were manifested as a visual feeling of the way we feel. it'd be interesting to me to get more information from nikkita on how she was feeling in that moment, because you can imagine that a "portal" is just a more powerful version of what we experience when walking into a room and all of a sudden, it seems like everything changes. looking carefully, I've noticed my eyesight change, fantastical creatures, etc. so, the story of the egyptian deity being seen on the ceiling in the great pyramid is the same thing. you get that feeling going powerful enough and that being takes on a more "material" form.
+therefore, I believe that a lot of these fantasical creatures are also created beings, but not creations of the gods. they are, in fact, our own creations. they were manifested as a visual feeling of the way we feel. it'd be interesting to me to get more information from nikki on how she was feeling in that moment, because you can imagine that a "portal" is just a more powerful version of what we experience when walking into a room and all of a sudden, it seems like everything changes. looking carefully, I've noticed my eyesight change, fantastical creatures, etc. so, the story of the egyptian deity being seen on the ceiling in the great pyramid is the same thing. you get that feeling going powerful enough and that being takes on a more "material" form.
 
 I believe all of these things, including the "sinking of the atlantis" were all manifestations that affected the physical in the same way that the spell can cause a being to materialise. the astral dinos were the beginning of it, but the culmination was the destruction of atlantis.
 
@@ -468,5 +468,63 @@ another experiment for another set of kids will be to force them them to only ea
 so, when I think of these root races, these are undesirable concepts dressed up in a nice outer facade, designed to deceive us into adopting that concept.
 
 obviously some people will adopt the aryan way of constant wars and in-fighting, (plus, according to robert sepehr, guarding esoteric rituals and other secrets to inducing altered states of consciousness/perception). eventually though, you can imagine that somebody out there is going to figure out a different way to do things.
+
+### the bigger aryan picture
+
+the last section got a lot of reactions but I didn't want to try and reply to it before I went to sleep. so, I've slept now and I want to try and explain what I've come up with.
+
+according to sepehr, the origin of the aryan race is originally the atlantians. these are the survivors of deluge that landed in the caucusus mountains. it's basically the noah story. they setup there (the indus valley region), but eventually something happened which caused them to have to move out of the region. something added a lot of salt to the black sea virtually overnight.
+
+sitchin claims that this event described in lbe as a "nuclear" war, but the "weapons of terror" that he describes have some interesting properties that nuclear weapons don't have, namely creating lots and lots of salt. prior usage of this technology (in the positive growth way) is likely the origin of the high salt content of the oceans. I believe it is an energy weapon that causes things to grow very very rapidly (so think of the opposite of the nazi bell) or to do what the bell did and cause organisms to decay rapidly. I believe the system, like the great pyramid has a dramatic effect on what we call "protons", but likely in the etheric model, they're little vorticies (kinda like planets and suns I belive are also vorticies).
+
+I don't believe sitchin 100%, but he has some interesting ideas in that book which I'd like to touch on. first, he claims that this zone (the indus valley) was the land given to ishtar to govern.
+
+I beieve that this corresponds to the sirian triad of vulcan, aries, and genxicat. genxicat has the symbol of a black puma and/or a black condor (very prominent symbols in south america), and I believe that she is the origion of the "black madonna" and the black bloodline. anyway, becuse her consorts were aries and vulcan, you'll notice they come with a lot of war and metalurgical things.
+
+---
+
+the aryans came along with a lot of culture preinstalled, with many fairy tales and songs. well, if you know my hypthesis on this, you'll know that I belive that abstract content like stories, songs, and fables have symbols built into them designed to make a future more likely (hence the reason for the socrates change of pace on his views of comedy and tragedy).
+
+for example, one of the stories (TODO) that is stable in aryan tradition is a story of a blacksmith that makes a deal with the devil to be able to fuse anything together. the devil gives him the ability, and he then uses the capacity to fuse the devil to an immovable object, thereby ensnaring the devil. I believe we're living in that symbolic future now.
+
+after a very chaotic event such as a catastrophe or war, you can move a lot of things around, and because the world is in upheaval, large changes are easily accepted. whereas, if in a time of peace, all of a sudden an entire new race of people just suddenly appeared in the indus valley region all of a sudden, it'd be harder for them to assume a leadership role.
+
+the aryans were always the ruling elite, so what it look to me that happened is that after the great upheaval of whatever happened, there was a large surviving population of people (the original atlantian survivors), but it's obviously unacceptable to ever let humans be by theirselves without a babysitter, so you have the new aryan ruling elite to roll in there and ensure they have high society cities to live in and all the technological ammenities afforded to them in the prior atlantian culture.
+
+they adopted this new situation in the indus valley because it was so similar to their prior atlantian culture, which a caste system and a number of other bad ideas, like conquest and assertion, power structures, and anti-individuality things like that.
+
+---
+
+I believe that the aryan nobility that governed and sheperheded the survivors was a deliberate setup to ensure that we return back to the atlantian way of doing things. the ruling elite would be the gatekeepers to the specific techniques of awakening the kundalini and things like that, to ensure that only the initiated ones (and never anyone that isn't a part of the group) ever gets access to enhanced psychic powers.
+
+I believe that trend of ensuring that we don't ever get access to our psy capabilities has continued on even to this day in the atlantian breakaway civilisation.
+
+---
+
+OK, now my personal opinion on this. first of all, I'd like to mention that genetically, I'm proper "aryan", and symbolically I contain the symbols for both vulcan and aries, so I feel eniquiely in the right place at the right time.
+
+so while you may think that the way forward is the way of aries (the god of war), I actually believe it's instead the way of vulcan the blacksmith trickster that is actually the way forward. no matter how much capacity the ruling elite has to manipulate physical conditions, they still cannot control how you *feel* and how you conceptualise your reality. NOBODY, can force you to look at things the way they want them to look.
+
+therefore, I belive that it's prudent to give them (the ruling elite) all the capacity they could possibly need to control all of the conditions and to ensure that we never get access to our psy abilities.
+
+though I'm often on the verge of having my kundalini rising, I choose not to have it rise because I don't believe that it's helpful. additionally, I don't want to try and use my imagination to try and get what I want either. I've basically allowed them to remove my capacity to control the physical (7) and imagination (6), forcing me to rely *only* on the layers of percetion above that.
+
+you'll notice that I'm in the processo of proving that you don't need a physical manifestaion of emotion in the form sensation (6), to be able to perceive conceptually (5).
+
+it's quite possible that many people will disagree with me on that, "needing the manifestation" or "needing to see signs and wonders in order to believe" (I call the power-displays), but my goal is to ensure that before I leave and the republic's agreed on set of rules of conduct comes into force, they'll have full capacity to ensure that nobody on this planet (not a member of the secret ruling elite) will ever be able to get their kundalini to rise using conditions.
+
+opposite of sepehr, I claim that though a lot of those techniques *do* work, you don't actually want to do them because you're not actually ready for the energetic awakening -- for, if you were actually ready, it would awaken naturally. your body is a reflection of how you feel and how you conceptualise your reality so it's not actually necessary to use those techniques. they're something akin to force feeding yourself when not hungry. if you desire to have that awakening and you've lowered enough resistance to allow it to come in (perception, 2nd ray promethian aspect), then it'll happen without needing to perform any esoteric tecniques.
+
+---
+
+I have various ideas on this, but from my perspective I want to try and push this no kundalini thing back for as long as possible. if I'm successful, then it'll be years, perhaps decades before I actually get there. if you think of the frequency range of perception, you can imagine that there's a frequency range for the physical (red to violet), the astral I believe is when the brain begins to make more sense of UV light and astral beings are able to be perceived, and above that is the conceptual, which is mostly invisible to us, but as I've shown over the time, that it's possible to "see" something that does not appear in the normal (red to violet) colour spectrum.
+
+what I'm saying is that the ruling elite, I believe will continue to limit the uninitiated eyesight to the visible spectrum, but the next race "homo superior" will be capable of accurately interacting with frequency ranges far above the visible spectrum, *but we won't be able to see it*.
+
+this is why I continue to carry on about needing to see it to belive it and needing the manifestation (something visual that you can show to your friends) rather than just feeling it.
+
+I believe that this is the next expansion to human perception, and so sure, the ruling elite will have control over the visual capacity, controlling how we use our imaginations, but I assure you the the ability to interact directly with the conceptual world is far superior. you can access *ANYTHING*, and unike remote viewing, which relies on the astral, you can get access to much more specific data, such as words, names and numbers (essentially anything your brain uses as a concept). I believe that many peeple in this "simulation" are here with the specific goal of acquiring that capacity.
+
+imagine you before jumping into the sim you trained your capacity to perceive concepts directly, but then you need some practise that isn't just contrived flashcards or whatever -- so, you jump into a sim in order to try out the new capacity in real-world situations to get good at it. something like that, I'd imagine.
 
 ### the way I see genetics
