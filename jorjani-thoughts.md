@@ -563,4 +563,28 @@ I believe it's these aryan (cro magnon) people that survived the catastrophe whi
 
 we see over and over again these "mavericks" show up saying that you can connect directly, bypassing the need for the priest and heirophant -- and then repeatedly the teachings of these mavericks are turned again into a "works-based" religion (ie. you gatta earn the knowledge by appealing to the proper gatekeepers for their permission). gross.
 
+### 2022-08-16 08:30 - concepts can view anything?
+
+one of the reactions to the previous entry and the one before it is to my claim that you can access *anything* -- and that can be very spefific things like names and numbers.
+
+I stand by that claim, and I'll even expand on it even further saying that there are what I call "conceptual programs" which are very similar to computer programs. they run on "source energy" -- or perhaps you may consider this the attractive part of the energetic force. we call this concept or emotion. it takes in desire and outputs a concept (1-5). anything you desire to know is immediately answered and is available to receive. that's step 1 in the reality creation process -- and so then the only thing remaining to do is to receive the answer (that's step 3).
+
+so, let's say that I wanted to know the winning lottery numbers for the next mega million or whatever. automatically, that answer exists and is present and you can tune to it, but it's a bit like finding a needle in a haystack, so you need some relevant thing to get that number out easier. this is pretty easy, as looking at the lotery ticket (or even hearing someone talk about it) is probably sufficient. only a minimal reference is needed.
+
+the next thing that's needed is that one needs to become capable of receiving the idea. so, for example if I believe I don't have enough money, I can't ever tune to the lottery number, because that is tuning into a point in time that feels *very* different from how I feel.
+
+conceptual viewing is outside of time and space because concepts transcend that dimension. when you feel sadness, you can tune into any other moment in time that feels similar to that moment. likewise, you can tune to another moment in time that is happy and not only are you perceiving that reality (precognition), but you're also attracting it.
+
+so it's kinda one of those chicken and egg things because the moment you're capable of feeling the way you want to feel is when you can get the lottery ticket number out of the ether -- but then if you can feel the way you want to, you don't need (or probably even want) the lottery ticket because lottery feels so bad in comparison. so, you say, well then just do it to prove it to others. in order to get the number then in that case, I have to feel like I want to prove things to others, and I don't. that feels bad to me.
+
+---
+
+so now, I will refer back to my experiments with this in relation to figuring out how gravity and magnetism works. I got the concept and it took me a bit to figure out what I was looking at, but once I got it, it's easy to see. the reason why it worked so easily is because I wanted to feel like I understood gravity and magnetism. by feeling myself in the future as understanding gravity and magnetism, I was able to receive the concept.
+
+if I had've received the concept and felt disbelief or extreme excitement, I wouldn't be able to receive it. instead, it felt something more like memory: "oh yeah, I know that; let me explain it so that others can know it too."
+
+so, I stand by my claim that you can know *anything*, but do you *want* to know some of the things? your desire is what creates that moment in time when you realise it, and then you tune into that moment in time.
+
+accessing conceptual programs is *exactly* the same process as creating your reality. get good at one and the other will follow naturally because they're both attracting and tuning to what you want.
+
 ### the way I see genetics
