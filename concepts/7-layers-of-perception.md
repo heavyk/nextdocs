@@ -112,3 +112,23 @@ above the 3rd layer is the 2nd layer, the "office of the christ" -- the pineal g
 the 2nd ray is also capable of turning desire into symbol. this is why when we feel desire, we often jump to many conclusions about the symbolic manifestation of that desire. the 2nd ray works strongly with the 5th ray because you need to have the proper concept instantiated to be able to *feel* that symbol strongly and then attract it further.
 
 [1]: I strongly believe that the area of the brain that is responsible for processsing these symbols is in fact the same area of the brain that's responsible for "edge detection" (what separates one concept from another in your vision), and so this area of the brain is also responsible for seeing more dimensions. I've noticed a strong correlation between 3rd ray (symbolic) thinking and the ability to see more dimensions.
+
+### 2022-08-16 20:12 - 4th layer of perception and evolution-of-desire
+
+earlier when writing @[jorjani-thoughts](2022-08-16 08:30), I was writing about evolution-of-desire but didn't specifically name it. the process of going from need to want to IAM is roughly the difference between 6th ray (need), 5th ray (want), and 4th ray (IAM) perception.
+
+I have only had a few experiences where I've experienced 4th ray perception, and the few times that I did, because I didn't know what I was doing, they caused extremely fast attraction.
+
+the transition layers (2,4,6) are the most authentic form of self perception. in 7th ray, you're essentially looking at a screen and in 5th ray, you're looking at yourself or any other concept from outside of it and from all directions at once. it's only in 6th ray perception does it actually look like you're looking through your own eyes. well, just the same as the 7th ray screen differs in experience from the "in the driver's seat" experience of 6th ray perception -- so does 5th and 4th look.
+
+when I perceive a thing with 4th ray perception I AM the thing I'm looking at. if it's a person, I feel all sensations they feel, see everything they see, experience all of their emotions, and have access to all of their memories and concepts -- exactly as if I were them. however, I do know that I'm not them to some extent, and I can draw a comparison between that experience and my own when I get back to my body.
+
+this form of perception would be the ultimate sexual experience (which I did experiement with), however -- in my case, for example, I really wanted to know what raquel felt like and how she perceived some of her more stubborn concepts. I was able to see and feel it from her perspective (though I didn't get the full physical body experience in this case, because can control what you feel from them), and by feeling very strongly the concepts behind her reluctance to accept herself as someone "worthy" or justified to have good things happen to her, only attracted that sense even more. quite frankly, I was very surprised that someone could believe theirself so unworthy of having something they wanted to have happen, to happen.
+
+my experience of her insecurities seemingly amplified them greatly attracted that feeling even stronger for both of us. that experience may have been the apex of our relationship, so I just want to say that most people have these concepts locked down pretty well, and they don't want theirselves or other people to be able to look at them, so going in and amplifying some unwanted concepts is probably not a good idea (though I'd have to do some more experimentation).
+
+I bring this up because 4th ray perception is going to be the next big hurdle for humankind. astral perception was a closely guarded secret for a long time, but the ability to explore concepts, instead of looking at them from the outside, and looking at them from inside of the perspective of another concept is a whole nother thing.
+
+3rd ray perception is a little bit too abstract to relate, but to understand it, it's pretty easy to see the 2nd ray perception of seeing the whole everything and how it relates to the all from the inside out. you're getting pretty far into "God" or "Christ" perception at that point, so I don't really have much I could say on that which would be tangible or explainable. an analogy of it would be to see a microprocessor from the inside out. there are a lot of things going on inside of it, but you are able to see and understand all of the inputs and outputs of it, seemingly in real-time. I would consider that to by quite an information overload, though the microprocessor takes it pretty easy. (that actually reminded me of another thing: @[jorjani-thoughts](2022-08-16 20:38))
+
+there is more to say on this subject. I'll get to it soon. 
