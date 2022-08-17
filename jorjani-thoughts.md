@@ -642,6 +642,10 @@ have fun fun figuring your way out :) lol
 
 j/k, in reality I do think that we should look again at our perception of time (perennial, monumental, critical, etc.) which I may do later, as it interests me a lot. I'm of the opinion, before even haven written it, is that what we're really looking for is individuality, and not a universally agreed upon order. the NWO is, something like the rocket scaffolding that's there until the rocket has liftoff. what we're dealing with in the NWO is scaffolding that's hanging on to the rocket. it's effect will, in my estimation, allow for a more secure liftoff -- in that it won't be something like, "wow, we barely made it off of the platform; hopefully, I'll reach escape velocity" to more like, "haha, I've got so much thrust, they had to let go so I've definitely achieved escape velocity"
 
+in short, what I mean is that ALL (who want it) humans are about to become these tricksters. sure, some will use time travel to get good conditions, but I believe boredom will set in at some point, and the final manifestation of this is that humans all reach the consciousness capability of these "mavericks" that can say, "I don't need some order to dole out mental capabilities at glacial rates, but I can discover them for myself at my own pace". different people will do things differently, but all will be in command of the conditions for their own advancement; just gatta produce enough thrust to get off of the launch pad.
+
+some will settle for some kind of advancement, others for good conditions, and some even will decide that they want to produce (and inhabit) new species of humans that take that concept even further. why not, right? that's what I want to do anyway... I've been thinking a lot about all of these concepts, and I believe that it is my "destiny" one day to produce and eventually inhabit a new race of hominids that take this categorical imperative to new heights.
+
 ### percption of time in terms of individuality
 ### jack parsons
 ### the way I see genetics
