@@ -604,4 +604,44 @@ mechanism[^1], it'll cause a huge expansion of consciousness.
 
 [1]: in all of my time studying these things, I've found that the best thing to do is to give any and all technology advancements to those who want to use it for malevalent reasons, usually control. after they've got the technology, they'll expand the technology, but it can only get better from there. it's awful to see a good thing get worse, but it's great to see a bad thing get good (one of your basic hollywood formulas, as they know that deep down we like to see bad things turn out for the better).
 
+### 2022-08-17 01:37 - paragon of perfection and time travel
+
+@[youtube](https://www.youtube.com/watch?v=lecgrOlOoXI)
+
+watching this episode, he's responding to nikki's question about where and these nordics are coming from. later on, in a similar thought about incoherent facism, he talks about the clash of the futurists (everything is constantly improving) vs the parenialists (antiquarian perspective of time, where there's a universal order or harmony with nature, and that as time passes, we lose that alignment to the celestial order).
+
+this is an interesting idea for me to think about because I clearly fall into the first cagegory, but want to have nothing to do with facism. I also thought for a moment that he was going to bring up the subject of individuality, but he didn't.
+
+like he says, both of these concepts are conveniently aligned in their desire to establish a kind of order or "right way" to do things -- and I believe that they trample individuality too because it requires a society that aligns to the order, whatever it may be. I'll come back to this.
+
+---
+
+the next thing I noticed is when he talks about how the first society to develop time travel will be tempted into turning theirselves into these sort of overlords that have "the right way" to achieve a utopian society -- because after all, they've modified their timeline sufficiently to come up with the proper formula to ensure the production of a utopia.
+
+this may be true, and I don't have any reason off hand to doubt it, but what I noticed even worse for that society is in their future, is boredom. a society like that would platau at their technological capacity, only iterating on their technique, producing nothing novel. you see this all the time in software development. a society is something like an flagship product that many entities depend on, and so it's never a good idea to upset the userbase by doing something novel.
+
+although time travel, I believe allows one the capability to go back and try out new and undesirable things to see what comes out of them, I imagine that the first society to discover time travel will behave very similar to how rich people behave. they'll do anything they need to do to protect and ensure their good conditions. at the same time, their children will grow up bored out of their skulls, and a lot of troublemakers are bored rich kids. just saying.
+
+---
+
+I read this book last night called "[the smokey god](https://www.gutenberg.org/files/3007/3007-h/3007-h.htm)" -- a pretty short book about a scandinavian guy that travels to the inner earth -- and I found it funny because all of the super duper high tech stuff matched the descriptions of similar machines in dtp, all of that super technology seemed to me pretty primitive. it really left an impression on me how if that story is true, how good conditions do not inspire novelty. they didn't sound very bored, but I noticed how incredibly bored I would be living in that culture.
+
+I don't really know how to reason about this, but I simply couldn't be able to live in a culture where I can't even begin to start my life until I'm 20yo, and a pleasure cruise is singing with a bunch of hippies on a ship going down a river. no thanks.
+
+---
+
+imagine for a moment that proposed inner earth civilisation perceived the outer earth humans as a threat to their existence, and so in order to stay alive, they needed to intervene on our development and to ensure that we too developed into a society that was either compatible with theirs or has similar values as theirs. again, no thanks. I would personally be bored out of my skull. I'm fairly certain that in order to inspire something novel in that society, I would start to cause trouble.
+
+this brings me right into to his next point which was kant's categorical imperative of what the most advanced consciousness that we can conceive of -- which would be infinite creativity.
+
+the idea here is that this trickster is a sort of manifestation of that. it has seen so many things and done so many things that it craves novelty. he says, as a survival mechanism -- which I sorta disagree with because a being that creative is not interested in survival. it would be about fun and enjoyment. a sort of, "let's see what I can come up with in this situation" -- a sort of personal challenge.
+
+so then now I want to go back to the opposite end of the facist -- the futurist but the futurist focused on individuality, not on the establishment of an order... you can imagine that if you had a time machine, you could eventually figure out all of the diffrent things that you yourself are capable of overcoming. you could focus on good conditions, or you could see it as an eternal way to improve yourself. I explored this idea at length in leapfrogging-time-pickles and finally solidified the idea in fuzzing-time-pickles a little bit more -- which because I believe that *is* what I'm doing, then according to jason here, I kinda fit the description of that categorical imperative in the form of a trickster.
+
+have fun fun figuring your way out :) lol
+
+j/k, in reality I do think that we should look again at our perception of time (perennial, monumental, critical, etc.) which I may do later, as it interests me a lot. I'm of the opinion, before even haven written it, is that what we're really looking for is individuality, and not a universally agreed upon order. the NWO is, something like the rocket scaffolding that's there until the rocket has liftoff. what we're dealing with in the NWO is scaffolding that's hanging on to the rocket. it's effect will, in my estimation, allow for a more secure liftoff -- in that it won't be something like, "wow, we barely made it off of the platform; hopefully, I'll reach escape velocity" to more like, "haha, I've got so much thrust, they had to let go so I've definitely achieved escape velocity"
+
+### percption of time in terms of individuality
+### jack parsons
 ### the way I see genetics
