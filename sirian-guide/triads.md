@@ -172,11 +172,31 @@ the idea here is that just like the other hidden triad is to make stability so t
 - (-1) anatau, (+1) allayandra
   - (-7) genxicat, (+7) thoth
 - (-2) isis
-  - (+-4) saturn
+  - (+-6-+) osiris
 - (-3) unessa, (+3) ra, (+-3-+) sanatau
   - (-5+) vulcan
 - (+-4) saturn
-  - (+-6-+) osiris
+
+it's possible to think about isis (-2) as reflecting saturn (+-4) if you look at simply reversal of directions. imagination (6) is running in the same direction as relational perspective (2) but saturn's midpoint/source perspective will be rotating in thm opposite direction.
+
+I see 3 inflection points where things go backwards, and one is the top 3.5 vs the bottom 3.5, which is what divides the 4th ray in half. half is "non-physical" and the other half is physical (though not visual until after the 6th).
+
+the 6th divides the top 1.5 and the bottom 1.5 into two and you can think of top 1.5 as being "not visual" but still physical (which is why I call it conceptual). electrically speaking, this layer would be tesla technology, based on attraction, where as the lower 1.5 would be more similar to trasditional radio transmission (emissive).
+
+likewise, the 2nd layer divides the top 1.5 in a very similar manner. on the top, you have desire and chaos -- no structure -- just potentialities that will eventually become coherent, just like how concepts, as they pass through the 6th take on tangible form and can be felt, heard, smelled, etc. the bottom 1.5 is purely structured and you can think of these as geometric transformtions on consciousness.
+
+as a simple example, if I were to look at a symbol, it has a "frequency" to it just as if I were to take a bunch of pictures of a thing from different perspectives, each of those perspectives, repeats in perfect stability -- so it would look like zillions of small orbs bouncing between geometric configurations (much like how I believe DNA works), and because everything has to make these transformations on perspective, in sync with each other to maintain equilibrium, this structure of orbs perceiving other orbs remains stable.
+
+these "frequencies" or sequence of consiousnesses perceiving itself continues on forever until something purturbs it (desire), and then it has to find a way to regain equilibrium. that new equilibrium that it reaches, is the instant manifestation of that desire into your "vibrational vortex".
+
+it's designed on purpose that these layers are in opposition with each other. we usually perceive that physical is opposite of non-pmysical, but there are actually four cases:
+
+1 - chaotic, change - doesn't make "sense" yet (probably something like "junk" DNA). I like to think of this like mastering a song, so I imagine that I were to take all of the frequencies that I removed from the song and play them, then infinitely let them interact with and transform each other until they begin to produce some stray harmonics that begin to resonate again with the mastered song one more time. you know how if you listen to white noise you can begin to hear people whispering or talking to you? that's a perfect example of desire self-transforming until it becomes something that fits in with a 3rd ray sequence...
+3 - ordered, sequential - visible in the sense that there are perceived local trasformations to get from one perspective to another
+5 - parallel - "invisible" in that so many vibrations are all happening at once, you have to isolate a concept/frequency to make sense of it. it's kinda like wathing millions of roller coasters at once, while 3rd is kinda like being on one rollercoaster looking at your relation to other rollercoasters. see how one is sequential vs. the other happening all at once? there is order in the 5th, but only if you pay attention to only one of the rollercoasters (vibrations). none of these signals have been isolated yet, so there's nothing visual or sensual to experience yet. that happens in the 6th layer where those individual frquencies are isolated and the "junk" filtered out (this isolation and individualisation of the frequencies into concepts is the process newborns go through to begin to learn how to see, hear, touch, smell)
+7 - individual, separated - chaotic and unpredictable. you now have all of these recognised concepts all bouncing around simultaneously in this 3d world and, and the the result is that these individual things (as conceptualised by you) are interacting/colliding with eachother, which is creating a lot of chaos because nobody has (or can have) everything all conceptualised, and these interactions/collisions are producing new frequencies/concepts, exactly like desire does. this is how reality is created. the individuality between the frequencies are your own concepts. your conceptualisation of reality defines how these frequencies interact.
+
+wow, that's my best explanation thus far!
 
 #### midpoints
 
