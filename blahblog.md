@@ -5581,6 +5581,42 @@ not sure what else to say on that. I keep almost thinking about the conclusion b
 
 [1]: I belive they said that the universe had reached it's "maturation point", but to me the concept felt like "too old" -- kinda like a person entering into their 40's: now they're boring and unexciting -- which is kinda where I'm at now in life; I'm really excited to turn 40 as I feel like it's going to be an ENORMOUS jump forward in my consciousness capablities.
 
+### 2022-08-18 23:10 - why do I play stupid video games?
+
+I noticed this reaction a whole lot, in addition to ones considering why I would want to waste my time on something so meaningless when I could be doing something far more productive with my (mental?) capacity.
+
+---
+
+I don't have anything to say other than, what do you suggest that I do? I've tried to apply my mental capabilities to programming and that is strongly discouraged by nosebook. I can only really consume so much information in the form of youtube videos at this point before I totally burn out on videos. I'm already kinda back to seeing it sorta like a chore.
+
+I suppose I would rather talk to others about subjects, but I don't really know that I'm ready or something, because I feel tremendous resistance to the idea of sending emails to people -- like yesterday I [mentioned in the intro here](/nikki-ana-jones.md) that I should probably just write here instead of actually trying to make any contact -- and since I don't usually have too much resistance to just send out emails to people (like one really weird one I sent to rupert sheldrake when I was pretty high), or have too much resistance to talk with people either -- I'm not entirely sure that the resistance is 100% mine. what I *do* know is that I'm receptive to the resistance though. that's certain.
+
+what I don't know is if I should try and "fix" this or to attempt to make it any different than it is. I don't really mind not talking to people, honestly. I just play stupid video games. it's not like I'm sad that I don't have anyone to talk to -- or, need someone to entertain me.
+
+---
+
+I don't really know what to do about the reactions. I'm pretty sensitive, so if you have any good ideas of things and they're things that I would want to do, then I'll pick up on them, for sure. it's also not like I'm completely isolating myself from everyone either. like, for example, I haven't really wanted to go back to remi's house because I feel like I upset a few things the last time I went over there. I don't think it was talking about the drugs; I think it was my comment about being shameless and not wanting to feel shame because "shame is something that adults use to affect behaviour. it doesn't feel good, and it's the reason why kids lose their creativity -- because they start to become scred of bringing shame to someone else or theirselves."
+
+clearly, I don't think think that shame is a good idea to experience. you have to just be you and not try to modify your behaviour for anyone, no matter how much authority they have. like, for example, I'm not going to misbehave around a police officer and call him names or something, but I'm also not going to put out the joint when he walks up because it's my body and I can do what I want with it. they're on the lookout for drugs for economic reasons. they're interested in controlling the market. they know they can't really make someone do something they don't agree to do. if they take my weed, I just find some more. it's not like it's a big deal. there's *never* a good reason to feel shame for your behaviour, unless of course, that you yourself think your own behaviour is bad, then the feeling of shame will be unavoidable on your part, because you're doing something you don't want to do.
+
+shame is felt all the time with "addiction[" and other things like fasting or dieting and making an exception to the rule. in reality, there's nobody preventing you from eating the food (or smoking, drinking, whatever), so you're only breaking your own rule. all aspects of society are like this. we all agree on a set of rules, and the largest punishment you can get is your own shame. religions have been using it for millenia at this point because they know you'll enforce your own rules better than they can, so you have to *feel* your own punishment.
+
+the thing they fear the most is someone who is honest, has no secrets, and has no shame -- because this person cannot be controlled in any way. that person has access to unlimited creativity because they are not held back by anything.
+
+---
+
+as a side note of this, yesterday I was talking about potassium alum -- a crystal used for deodorant. I remember raquel telling me that aluminium in deodorant is bad for you, so I was confused about the "alum" part of it. I've put unbrushed (cleanly cut, no oxidisation layer) aluminium in my mouth to taste before and was surprised to note that it extracted the smell and taste of my mouth and afterward the metal tasted and smelled similar. I also know that aluminium is slightly diamagnetic, so I thought that it was interesting that it seemingly pulls out smell.
+
+what I didn't tell her is that I think that smell is vibrational, which is why I can seemingly smell things at an impossible distance -- or animals can as well, so it has to be vibrational in nature -- which means that unoxidised aluminium has interesting properties to it.
+
+anyway... in the process of telling her that, I had to use the word "aluminium" which made me feel really weird because mom expects me to say it the american way -- and I do for thins like "aiuminum cans" because that's what I said when I recycled them when I was younger and it sounds weird to prounounce the "i" like in spanish -- and my brain went through some gymnastics on how to say it, but I finally opted just to say whatever I'm expected to say.
+
+I contemplated this idea a lot because this was the most recent example of my brain getting thrown off by expectations of others. it really bothered me that it bothered me how I say things, because usually I just talk and don't really try to think too much about what I sound like (I mostly care about the content, not the sound).
+
+this, for me is a pefect example of the exact thing that I was saying in my comment to remi about how shame (and thiking too much about how others will perceive my presentation) is the leading cause to losing my creativity.
+
+those concerns about what others think take many prevcious brain cycles for me, and usually my brain runs so slow, I don't have space cycles to just throw away like that.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
