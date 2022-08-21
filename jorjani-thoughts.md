@@ -684,6 +684,42 @@ in a [discussion in 7-layers-of-perception](/concepts/7-layers-of-perception.md#
 
 the way that other discussion applies to this one is that desire emerges out of a lot of chaotic things interacting with each other, that over many iterations, harmonics begin to form which do eventually resonate with the stable structure -- and so it's for this reason that I believe the greek (and also islamic) invasion of the persian empire resulted in the fusion of these ideas as the dust kinda settled from the carnage. this is the positivist (in the form of the philosophers) beginning to make sense of the new (intermediatist) spectrum.
 
+### UFOs and the trickster
+
+@[youtube](https://www.youtube.com/watch?v=HeqO7ZdH-Q0)
+
+I really like this discussion because it takes the idea of the trickster and starts off with its parallels in the technology of language -- where, in writing you have have an extra angle of reflection that can illuminate more aspect, yet at the same time, it can be used to deceive.
+
+he then takes it a step further and claims that the UFO phenomenon has this same trickster element to it where it bypasses the binary aspects present in the conceptualisation of society by interacting with the absurd -- that is, things which do not fit into the boxes/concepts that society is used to interacting with. by doing this, the trickster bypasses the learned and educated types (they'll bypass the phenomena as because of its absurdity), and appeal to the nieve and gulliable.
+
+---
+
+this concept perfectly aligns with my personal perspective of the "breakaway civilisation" where I see their externally facing aspect as being something similar to taking a heavy dose of mushrooms. you're literally dealing with your own concepts, but they're distorted in a way which causes you to reconsider reality as you know it.
+
+therefore, all of the UFO phenomena cannot be separated from the experiencer and the concepts that they hold of reality, because the UFO trickster will behave in a very similar fashion to a drug experience.
+
+as an example, if I were able to put signals inside of your brain telling you that you're touching something and interacting with something -- a sort of virtual reality, isn't that just the same as reality? (matt. 5:28) we would say yes, but it's not really there -- right?
+
+well, what if instead of putting signals in your brain that give you physical sensation, and instead I put signals inside of your head of more abstract things like a feeling of hatred or of love? are those things just as real as the real feelings?
+
+what I mean to say is that I believe the phenomenon of focusing on a tring can turn something into reality is a thing, and so materialising spiritual entities is a creative capacity that all of us have -- though some have it more developed than others. so, what if these UFOs are something sorta like "atoms" -- in that they're just a frequency or wave, but when observing them, they materialise into something tangible that we can observe the individual behaviour on. it goes from a spectrum/gradient to a a unit/part.
+
+if all reality is this way, the capacity to "see" atoms as a unit is itself a concept that our culture cas cultivated in order to make sense of that wave. well, in the same way, the "UFO" is a concept that our society has cultivated in order to make sense of a wave.
+
+our obsession with needing to turn everything into a unit or concept *is* the source of the manifestation of the UFO phenomenon.
+
+---
+
+now, to understand this, I want to relate that desire has this trickster aspect to it. you think that you want something, only to find out that it is severely disappointing. then, you see another person with a similar manifestation of desire, yet for them, the outcome is quite a different experience. that desire manifested to them in accordance with their concepts, and for you in accordance with your own concepts.
+
+one may say that some sort of trickster is at work, turning something that should be noble, and fair into something terrible and unfortunate, yet it's only your own concepts manifesting.
+
+I propose that the manifestation of desire into reality (1-7) is this exact "trickster phenomenon". I find it very very interesting the invocation of thoth/hermes and the technology of language as a means to reveal new aspects with another layer of reflection, yet at the same time can be used to deceive or to trick. I suppose that the receiver of those thoughts will see in those words the concepts that they're capable of perceiving.
+
+as an example, I'm sure many people have viewed this video before, yet I strongly doubt that others perceived the same concepts that I did. this is a micro example of the "UFO phenomenon". we all see what we want to see, and the stuff that doesn't fit into our boxes get filtered out.
+
+like desire, it's a very "broad spectrum" (chaotic) signal capable of harmonising with quite a bit of things (like hearing someone talk to you in white noise or a "babbling" brook)
+
 
 ### jack parsons
 ### the way I see genetics
