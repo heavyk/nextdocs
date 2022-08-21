@@ -54,7 +54,32 @@ this opens up an interesting conversation though, which is how the pipe should b
 ---
 
 - inside of blueprint mode, once I've placed a pipe or building, it'd be nice to be able to upgrade (and also downgrade) the blueprint.
+- it'd also be nice to convert from u-shaped conveyor to flat -- and if possible, even from conveyor to pipe (though that may be a bit harder)
 
 - it'd be nice to be able to assign storage to tree harvesters, so that the trucks assigned to them are just putting the trees in a box instead of running across the map
 
 - it'd be nice to have buildings that have full output, no input, or whatever automatically release their workers to do other tasks. that way, if I have factories sitting around with no work to do, they aren't taking population.
+
+- it'd be cool to be able to plant trees and also have trees reduce air pollution as well.
+
+- making ramps go up elevation is quite difficult. if I lay down a conveyor, and then I cut it and put it down with shift held, it copies the section, so then I shift it up an elevation, and even though the ramp is under height 4, it still won't let me place it. conveyors can't ride on top of each other up or down slopes.
+
+- small bug that if I hold shift when deleting a pipe, it begins to deconstruct, but then if I hold ctrl (to unity delete) the pipe and select a section (or hold shift to delete the whole section), it doesn't unity delete the pipe
+
+---
+
+machine designer mode: it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere. these are just magical sources and sinks for belts and pipes.
+
+so, for example, if I want to blueprint out something, I can say for example that there's a pipe that produces 60 water/min and another that produces 100 copper ore and maybe 10 sulfur ... etc.
+
+the point of this workshop is to test the machine as if it's running without needing to save the game, build it, figure out all of the bugs in the build, then reload the game and make the changes. deconstruction and construction are instaneous and resources are not consumed.
+
+by being able to plan out the whole thing and see it working with all of the inputs and outputs, this will dramatically decrease the number of failures.
+
+this mode should have the ability to save blueprints and sections of blueprints (in the form of modules), so that the build can be expanded to the size needed.
+
+perhaps a total resource consumption and production output panel would also be really cool, as I can never seem to remember all of the exact values a design produces and consumes.
+
+in a future version of this, it'd be nice to also copy existing terrain (present in the map) to ensure that the design will actually fit onto the terrain.
+
+also, in a future version of this, it'd also be cool be able to copy in existing infrastructure to try out upgrading the existing infrastructure and ensure the upgrade goes smoothely.
