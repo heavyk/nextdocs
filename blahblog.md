@@ -5615,7 +5615,7 @@ I contemplated this idea a lot because this was the most recent example of my br
 
 this, for me is a pefect example of the exact thing that I was saying in my comment to remi about how shame (and thiking too much about how others will perceive my presentation) is the leading cause to losing my creativity.
 
-those concerns about what others think take many prevcious brain cycles for me, and usually my brain runs so slow, I don't have space cycles to just throw away like that.
+those concerns about what others think take many prevcious brain cycles for me, and usually my brain runs so slow, I don't have spare cycles to just throw away like that.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how

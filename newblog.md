@@ -12021,7 +12021,7 @@ I talk a lot about how I enjoy the feeling of it. I don't actually want the mani
 
 this is sort of the same thing. the discovery and figuring it out process is the fun part. I know that because that's what I live for. I'm so in love with that feeling, you'll see me trying to figure everything out, generalise the pattern, categorise it as best as possible.
 
-I'm not as positivist as you may think I am, though. I'm a true immediatist -- but, that doesn't stop me from striving to constantly find better and better ways to explain and relate things -- cause that's the fun part.
+I'm not as positivist as you may think I am, though. I'm a true intermediatist -- but, that doesn't stop me from striving to constantly find better and better ways to explain and relate things -- cause that's the fun part.
 
 as you can see, I really do want to just keep getting close to the manifestation -- but not actually manifest the thing. "they" make that easier for me, and make a safety net, just in case I go too far -- I just lose consciousness and get back to the physical again. no manifestation. the enjoyable thing is, no matter how close I get, there's always something more to discover, and that's the fun part.
 
