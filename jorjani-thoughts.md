@@ -778,5 +778,29 @@ so, if mithras is mars/aries, the warlord, what this means is that he is not nec
 
 I had a lot of thoughts, but I feel a bit saturated and nothing has evolved into a full concept. I'd like to watch this one again.
 
+### elaboration of new concepts
+
+@[youtube](https://www.youtube.com/watch?v=uTNON7Rz1PY)
+
+above, when I watched the video for the first time, I was disgusted by the idea of "truth, beauty, and justice" -- but I have a different look at it now. he's talking about how a true philosopher has to be able to invent (or come up with) new concepts -- a new way to distinguish one concept from another which allows for new forms of thought.
+
+these new definitions or boundaries between ideas is largely one of asthethics. a concept that takes a jumbled mess and makes sense of it in a way which is *also* beautiful and aesthetically pleasing is going to be a more successful concept, just like attractive people are more memorable.
+
+I also agree that concepts don't already exist in the world of forms and one is just pulling ideas out of this ether which contains all ideas in perfect form. instead, I suppose that one could think of the ether as this very chaotic rarified liquid/gas/??? vibrational medium, something similar to white noise which makes up our reality. it's then our brains which look for patterns in that noise and begin to make sense out of it. these then become the concepts which our brain uses to interpret all of the senses, seeing, hearing, smelling, etc. -- but these concepts are also used for much more abstract things related to "knowledge" (sophia, daat, etc.).
+
+so essentially what jason is describing here as the role of the philosopher is to take a bunch of data that may either be chaotic or perceived in the current paradigm one way, to then propose a new way of organising that data, placing the boundaries between concepts in a new way which is aesthetically pleasing (ie. resonates with the person)
+
+---
+
+just as an aside, I do also believe that plato's "world of forms" does exist, but it's not how "plato" says it is. there have been some deliberate (as in, the real explanation is retained in the vaults of the secret society) or accidental distortion of this idea to support the unalterable revelation of certain ideas.
+
+I'll come back to this soon.
+
+so, after listening to the whole discussion now, I guess I would suppose that I am actually a philosopher -- which wouldn't have been the case before listening to this because I like to dwell in the realm of the tangible and actionable -- even though my version of tangible (including abstract ideas, emotions, and concepts as all being tangible) and actionable (any action which can be performed in the imagination is an action) is a bit different than most.
+
+### thoughts on philosopher kings and the grail quest
+### plato's world of forms
+- is it "perfect"
+- what does "perfect" mean
 ### jack parsons
 ### the way I see genetics
