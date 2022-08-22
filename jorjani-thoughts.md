@@ -720,6 +720,39 @@ as an example, I'm sure many people have viewed this video before, yet I strongl
 
 like desire, it's a very "broad spectrum" (chaotic) signal capable of harmonising with quite a bit of things (like hearing someone talk to you in white noise or a "babbling" brook)
 
+---
+
+I'd also like to point out that uranus the titan and also anu (also associated with the planet) were both reportedly "castrated" -- which I believe is because uranus/anu was actually a woman (anatau) and because females in positions of power were unacceptable, "he" had to be "castrated" by the userper (in lbe, it was alalu, and other myths, it was saturn which was the original founder of atlantis).
+
+saturn is a really interesting figure because the romans celebrate him, and I've noticed a trend where the romans (and americans) tend to celebrate and make memorials out of their stepping stones.
+
+anyway, anatau is a 1st ray female, so she operates on desire (which is what I propose is the backing frequency behind these UFOs and the manifestation of these different concepts into opposite polarities). I see extra irony in these channeled trickster messages coming from a 1st ray, because that is the proper archetype -- and should ignore it because it's empty; nothing to see there.
+
+I need to revisit this section and talk about trickster and desire because I can sense that it's not all that well understood. the simple answer is this: desire is chaos pure, and the other two layers where chaos exists is in the conceptual and in the physical.
+
+in the conceptual, everything is just a jumble of frequencies, and so therefore in order to make sense of it, one has to isolate it. that isolated thing is the concept, so if you have a sufficiently noisy signal, you can make anythting out of it (like smoke or white noise).
+
+in the physical, two concepts interact (like two atoms, two cells, or two ideas, etc.), but it's never certain what the other consciousnesses that are observing the event are perceiving or believing the other concept to be, and so a difference in definition or expectations can lead to unexpected results.
+
+therefore the trickster can exist in the physical in the form of language and money and other physical things like that (manifestations of concepts), but the trickster can also exist in the form of conceptual, in the form of technique and technology. for examples of this, I'm writing a whole section on perception of time, as all of those perceptions are the trickster operating through perception. for example, if something "bad" happens, is this unwanted or is it wanted? it's both. you decide what it feels like and so therefore you decide how it is conceptually. a trickster in this area makes the lines of definition between bad and good very blurry because bad can be good and good can be bad, and they can be swapped at will just by feeling differently about it.
+
+desire incorporates both of these physical and conceptual aspects of the trickster, but in reverse. so non-physical and also non-conceptual. that's why I think the empty joke is funny. I'll try and figure out how to explain the trickster form of desire, but it's very difficult to explain something that is both non-physical and also non-conceptual. it's nothing which is whatever you want it to be :)
+
+### abrahamic religions and power-displays
+
+@[youtube](https://www.youtube.com/watch?v=RTZ0FGcKPuE)
+
+in the beginning of this discussion, jason notes that zarathustra is a very different sort of outlook on things because first of all, zarathustra presents an idea of progress, which was unheard of previously, where time was perceived as cyclical repetition decline, where the gods intervene to reestablish and maintain order.
+
+the other thing that is notably different is that zarathustra presents...
+
+OK, I just went out to contemplate what he said there and when I came back, the part that I listened to in that video has completely disappeared. time slip, I suppose. so I'm going to write this section based on a ficticious (cause it no longer exists) part of that video from memory. it's actually really hard to remember, so I'm going to be a bit vague.
+
+the idea was that abrahamic religions relied on power-displays to become the authority, meanwhile zarathustra is not trying to make any power-displays to establish his authority. instead, there's a bit on the pursuit of truth... I can't remember more, unfortunately -- which is why I went back to rewatch it. anyway...
+
+so I wanted to talk about these power-displays as being the most attractive part of these abrahamic religions -- and so, this is ultimately the attractor. these are religions that are designed to attract people that believe that one needs to *see* something powerful in order to believe in its authority. it's funny that this is largely the sentiment of a lot of the UFO reports made by the US govt, meaning that it's pretty likely that these supernatural things that happen are manifnstations of the observer's concept of what an advanced UFO could possibly do (hotshot behaviour).
+
+anyway... this section is a total fail... bleh.
 
 ### jack parsons
 ### the way I see genetics
