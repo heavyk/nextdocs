@@ -83,3 +83,11 @@ perhaps a total resource consumption and production output panel would also be r
 in a future version of this, it'd be nice to also copy existing terrain (present in the map) to ensure that the design will actually fit onto the terrain.
 
 also, in a future version of this, it'd also be cool be able to copy in existing infrastructure to try out upgrading the existing infrastructure and ensure the upgrade goes smoothely.
+
+### mining designations
+
+when clicking on a mining designation, it'd be cool to have a little icon on the (bottom?) of the square that links me back to the tower, because it's often the case that I cannot remember which tower is which designation.
+
+it'd also be nice to be able to resize the designation like resizing a window in OSX or windows (click and drag the side of it). move would also be nice, but move can be accomplished with two resizes.
+
+in addition to the icon which links me back to the tower, it'd be nice to have an ability to draw within the mining designation in some lines which look like arrows (click and drag to draw lines. right click to delete) where these lines define the angle of attack for the miners. in implementation, these lines resolve to "weights" or priority of mining squares (higher priority squares get mined first). this is especially useful if I don't want want my miners to dig theirselves into a hole or to open up the high traffic part first before digging out the rest.
