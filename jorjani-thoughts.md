@@ -734,7 +734,7 @@ in the conceptual, everything is just a jumble of frequencies, and so therefore 
 
 in the physical, two concepts interact (like two atoms, two cells, or two ideas, etc.), but it's never certain what the other consciousnesses that are observing the event are perceiving or believing the other concept to be, and so a difference in definition or expectations can lead to unexpected results.
 
-therefore the trickster can exist in the physical in the form of language and money and other physical things like that (manifestations of concepts), but the trickster can also exist in the form of conceptual, in the form of technique and technology. for examples of this, I'm writing a whole section on perception of time, as all of those perceptions are the trickster operating through perception. for example, if something "bad" happens, is this unwanted or is it wanted? it's both. you decide what it feels like and so therefore you decide how it is conceptually. a trickster in this area makes the lines of definition between bad and good very blurry because bad can be good and good can be bad, and they can be swapped at will just by feeling differently about it.
+therefore the trickster can exist in the physical in the form of language and money and other physical things like that (manifestations of concepts), but the trickster can also exist in the form of conceptual, in the form of technique and technology. for examples of this, I'm writing a whole section on perception of time, as all of those perceptions are the trickster operating through perception. for example, if something "bad" happens, is this unwanted or is it wanted? it's both. you decide what it feels like and so therefore you decide how it is conceptually. a trickster in this area makes the lines of definition between bad and good very blurry because bad can be good and good can be bad, and they can be swapped at will just by feeling differently about it. I believe these aspects of the trickster can be seen in thoth as the trickster, and also with vulcan as the trickster (remember he fashioned pandora, the minataur, and other (I believe) conceptual technologies for zeus)
 
 desire incorporates both of these physical and conceptual aspects of the trickster, but in reverse. so non-physical and also non-conceptual. that's why I think the empty joke is funny. I'll try and figure out how to explain the trickster form of desire, but it's very difficult to explain something that is both non-physical and also non-conceptual. it's nothing which is whatever you want it to be :)
 
@@ -753,6 +753,30 @@ the idea was that abrahamic religions relied on power-displays to become the aut
 so I wanted to talk about these power-displays as being the most attractive part of these abrahamic religions -- and so, this is ultimately the attractor. these are religions that are designed to attract people that believe that one needs to *see* something powerful in order to believe in its authority. it's funny that this is largely the sentiment of a lot of the UFO reports made by the US govt, meaning that it's pretty likely that these supernatural things that happen are manifnstations of the observer's concept of what an advanced UFO could possibly do (hotshot behaviour).
 
 anyway... this section is a total fail... bleh.
+
+### mithras and mars
+
+@[youtube](https://www.youtube.com/watch?v=WjYpghe1bCc)
+
+watching this episode, I totally had my mind blown because as I'm listening, I just wrote about vulcan and thoth being the the trickster, and so when listening to him talk about zarathustra, I keep feeling like zarathustra is vulcan and he's paired with a warlord type figure. well, this corresponds perfectly to the 7th ray triad:
+
+- (-7) genxicat / (ishtar)
+- (+7) allayandra / mars / aries / (mithras)
+- (-5+) vulcan / (zarathustra)
+
+so then when he's talking at the end about how concerned the roman leadership would be about the majority of their legionnaires (I just noticed it's spelled legion-aries) believed that mithras is the coming world saviour figure at the end of time.
+
+the other interesting aspect about this video is that it conjures the translation of humankind into some sort of super human. very interesting[^1]...
+
+so, if mithras is mars/aries, the warlord, what this means is that he is not necessarily a "saviour" figure, but this describes a reform in character from one of war, conquest, power-displays and constriction, to one of progress, individuality and self-confidence (opposite of group-confidence), and of opening up (opposite of constriction).
+
+[1]: especially considering that aries/allayandra, according to the sirians (which strangely enough is *another* aryan name), is mentally connected to anatau (uranus), and that it's the goal (I believe) that these combination of these aspects will resurrect the 1st ray triad but from the 7th ray perspective. I called it the "5th ray triad" because the sirians name thte triad after the ray type of the female, and it's my belief that vulcan takes on the female role. anyway anatau, which is opposite of genxicat beocomes joined with allayandra, which her twin is also jeortau. this allows for things to be done backwards... it makes sense in my mind. maybe one day I'll try and explain better. previous attempts have failed misably because it's too difficult to get what I see into words.
+
+### iranian rennaissance
+
+@[youtube](https://www.youtube.com/watch?v=BQWtJY9Z29s)
+
+I had a lot of thoughts, but I feel a bit saturated and nothing has evolved into a full concept. I'd like to watch this one again.
 
 ### jack parsons
 ### the way I see genetics
