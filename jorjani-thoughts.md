@@ -798,6 +798,34 @@ I'll come back to this soon.
 
 so, after listening to the whole discussion now, I guess I would suppose that I am actually a philosopher -- which wouldn't have been the case before listening to this because I like to dwell in the realm of the tangible and actionable -- even though my version of tangible (including abstract ideas, emotions, and concepts as all being tangible) and actionable (any action which can be performed in the imagination is an action) is a bit different than most.
 
+### warlord vs benevolent
+
+@[youtube](https://www.youtube.com/watch?v=SCx9XZb2kwY)
+
+new day. I'm on the artemis video now, but I had an idea come to me as I'm listeneing to jason. I'm starting to see the iranian inner conflict where on one side you have war and conquest vs just letting things go.
+
+I had a dream just a few hours ago before I woke up and I was in as iranian army, and we went around conquering various empires, installing improvements and then just sorta peacing out. it was something like a forced upgrade for all cultures that we touched. I can't remember what happened in the dream, but I remember waking up and thinking about how awful that was because so many cultures, while from our perspective, it sure looks like they could benefit from the upgrades, they didn't really adopt them well, and even rejected the improvements to their own culture.
+
+this reminded me of the american way of exporting democracy out to nations that "need intervention". the problem with just leaving a place alone like iraq or afghanistan is that they remain isolated with their dictators or whatever (I'm saying this from the american perspective) and so then it looks like there would be no hope for this society to ever make an improvement, unless some sort of saviour figure (america) comes and liberates them from their oppressive regime. ignore all of the problems with those sentences; that's not what I wanted to say.
+
+this is the essential conflict that I see described by jason in this video of the persian, scythian, sarthian(?) empires that conquered from catalonia to mongolia, up to the nordic regions. they have an improved form of society, but it was propagated using war, and the empires which were peaceful and science loving, eventually fell to other warlords.
+
+---
+
+before I continue on with my thought, I want to interject that this is the conflict between vulcan and aries, because vulcan would see that all matters of a society are a reflection of the way the society feels. so, the very fact that the peaceful science loving empires got taken over means that somewhere in there they had the capacity to fear the coming invasion for it to be successful.
+
+it's clearly impossible to have a society where everyone is capable of feeling the way they want to feel, and there will always be those that choose to feel fear or whatever. neither is it possible to enforce (with war, edicts, or laws) the way that a single person or society feels. so the emotional/conceptual aspect is *always* going to be a point of weakness in any operations (this is why the most effective hackers and spy ops use social engineering to get in).
+
+therefore, because one cannot enforce conceptual homogeneity, any empire will always be vulnerable to social/emotional engineering (for example the fall of constantanople). therefore, then the obvious other way to go is with physical strenth and cunning (the aries path).
+
+this dichotomy between conceptual security vs physical security seems to be a common thread through all aryan conflicts.
+
+---
+
+OK, so we can see that the aryan conflict between conceptual and physical security will continue on and on forever until there is a point that we arrive to in our technological capability where that is no longer possible.
+
+for example, nowadays, if one wanted to inject improvements into a society, war would be the least effective method. instead, for example, to take over afghanistan, one would not attack them and bring in a new improved form of government, a society that has a tremendous abundance of wealth would simply provide better and more effective services to the people and "conquer them" from the inside out with their own desire to adopt the improvements that are offered.
+
 ### thoughts on philosopher kings and the grail quest
 ### plato's world of forms
 - is it "perfect"
