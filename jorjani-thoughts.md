@@ -826,6 +826,28 @@ OK, so we can see that the aryan conflict between conceptual and physical securi
 
 for example, nowadays, if one wanted to inject improvements into a society, war would be the least effective method. instead, for example, to take over afghanistan, one would not attack them and bring in a new improved form of government, a society that has a tremendous abundance of wealth would simply provide better and more effective services to the people and "conquer them" from the inside out with their own desire to adopt the improvements that are offered.
 
+### speak truth and shoot strait the arrows
+
+I'm very much a cowboy in the persian sense, because I hold that idea as my default form of interaction. I'm realising that without having even known anything about this culture, it seems that by nature, I tended in the direction of its values.
+
+tbe only place that I differ is in my interpretation of shakespere and don quixote where I believe that this was a transition away from chivalry. it's not that females should be lowered in stature, but I find chivalry in itself to be patronising and condescending in its implementation for the same reasons that I dislike the "saviour" archetype -- and that's because I need to perceive a person as weak, feeble, or not good enough to feel like I *need* to protect them.
+
+I feel it's a much better thing to just look at everyone as capable of accomplishing anything they set their minds to, no matter the gender, race, or any defining physical attribute.
+
+the method whereby *anyone* can accomplish anything they set their minds to doing is to "not have split energy" -- that is, to speak the truth because you fear nothing from anyone[^1].
+
+it's therefore ironic to me that the keepers and propagators of this message have been secret societies...
+
+[1]: fear is opposite desire, and so if you fear nothing, you're only allowing your desire to attract that reality. there's no reason to try and hide anything because it's only attraction.
+
+### truth vs secrecy
+
+due to the revelation in the previous section, I'm now considering this to be the second defining aryan conflict, which is truth vs secrecy.
+
+on one hand you have to keep these ideas a secret because if you don't, they'll get stamped out by those opposed to individul power (self-empowerment), but at the same time, if you keep them secret, you're being a hypocrite. the very nature of keeping things a secret will introduce corruption, however, not keeping it a secret will also introduce corruption, too.
+
+so how could you propagate a concept like this without using force? again, like the peaceful science loving aryan cultures that got stomped into the ground by warlords, this is a conceptual problem that itself cannot ever be solved until sufficient communications technology (like the internet) allows for the propagation of any knowledge without intermediate modification. thankfully, the internet and hashes exist so this can be done reasonably well at this point, and it's funny to me too that what I think a lot of technologies that were originally designed to keep things a secret, will soon be used to ensure truthfulness, instead.
+
 ### thoughts on philosopher kings and the grail quest
 ### plato's world of forms
 - is it "perfect"
