@@ -848,6 +848,38 @@ on one hand you have to keep these ideas a secret because if you don't, they'll 
 
 so how could you propagate a concept like this without using force? again, like the peaceful science loving aryan cultures that got stomped into the ground by warlords, this is a conceptual problem that itself cannot ever be solved until sufficient communications technology (like the internet) allows for the propagation of any knowledge without intermediate modification. thankfully, the internet and hashes exist so this can be done reasonably well at this point, and it's funny to me too that what I think a lot of technologies that were originally designed to keep things a secret, will soon be used to ensure truthfulness, instead.
 
+### gnostic thoughts
+
+@[youtube](https://www.youtube.com/watch?v=NO8pLlbCr6I)
+
+#### plato's wall figures
+
+first of all, plato seems to be the origin of the gnostic form of comprehending reality where there is a demiurge seems to have originiated with plato because I believe he started it. instead of writing what's really there, he chose to write about these figures that control the world from a higher dimension.
+
+the prisoners in the cave are isolated from the outside world (space) and kept viewing a 2d screen where only the shadows of 3d figurines are seen on the wall of the cave. this is a one lower dimensional version of what is happening in present day culture. in present day culture, the entire ruling class of people all exist in the 4d astral plane, and ensure that we only see what they want us to see on the 2d screen of reality -- now, whether you percieve the 2d screen as your eyesight or your television/computer/phone screen is entirely up to you.
+
+however, this story that plato shows is really disingenuous because he skips over the whole bit about there being higher dimensions, and instead only the people that have seen this extra dimension will see this "truth" that plato has left in there. what plato is doing is making it so that 3d people read the story and say, "wow someone is controlling me", thereby attracting it, and 4d people read it and notice, "hey I'm a dimension above the others, so I should be controlling and putting the figurenes on the screen for the cave dwellers" -- thereby manifesting that thing the others are attracting. the popularity of this story says that somehow, many people resonate with it because it has become a reality.
+
+now, the part where one of the prisoners gets free and goes up a dimension and sees the figurenes casting the shadows is exactly the reason why "the book has been opened". it's no longer possible to keep the secret that there are not higher dimensions of perception.
+
+where I diverge from this story is that I do not believe that the guy who figured a way out should try and liberate the other prisoners, because that's where they are. instead, he should just do his own thing and let others figure out for theirselves what is above their own dimension of perception.
+
+where I take this even further is the story of the blacksmith and the devil aryan folklore where the blacksmith binds the devil into the physical in exchange for the blacksmith's immortality. obviously the devil is stuck in the physical now forever, and cannot leave. that kind of immortality is usually considered a curse.
+
+so, let's say that I'm the guy that figred out how to go up a dimension and see the figurenes. I wouldn't try and liberate the prisoners at all, because of many reasons I've stated in the past (see mainly my thoughts on critical perception of time and why you will always find yourself in a location reflective of your concept of reality). a person with a prisoner mindset will always remain a prisoner, and a person with a free mindset, will, no matter how well the prison is built, *always* find their way back to freedom, because they still feel free even inside of the prison.
+
+therefore, I wouldn't try and liberate the prisoners, because each individual can choose what they want and I don't want to go around seeing everyone as incapable and feeble, so instead I would do my best to give the archons improvments to their prison, then find my way out again, then improve the prison and find my way out again, etc. the other prisoners, if they only saw one prisoner escape will think it impossible, but after having seen me (and others) escape from the prison many times, it will gradually look less and less like a prison and more like a rite of passage.
+
+#### redemption through transformation
+
+I kinda want to watch this video again, because I feel something on this idea of phillip k. dick and redemption through transformation, but I want to come back to it in the future. it feels related to the promethian egregore. you can't fight against something hard enough to get rid of it (war on drugs, war on gnostisism, war on terrorism, etc.), otherwise, of course if that worked, many gnostic ideas would have been exterminated. therefore, it's necessary to *transform* something rather than to fight against it.
+
+I think these archons are no different in this respect. we could try to fight against them, but ultimately it'll just keep coming back. instead, I think this arrives me to the third aryan conflict which is the one of absorption and assimilation of foreign ideas. on one hand this will reduce the "purity" of the core aryan ideas, but on the other hand, you see that assimilation of external ideas is the greatest factor of growth and expansion.
+
+therefore, it's important to consider transformation of unwanted aspects rather than just adoption of their ideas. we know that in history, a conquering force that adopts and subsequently transforms core concepts of a culture, it undermines that aspect of the culture, rendering it powerless. I don't see why this shouldn't be used in a positive respect. there's no need to fight against something; just assimilate it and keep going.
+
+### promethian egregore and science
+- https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
 ### plato's world of forms
 - is it "perfect"
