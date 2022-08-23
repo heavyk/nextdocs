@@ -41,14 +41,11 @@ thoth and allayandra (+7) both take in will/desire (1) and output order form and
 
 ra (+3) takes in a concept or an abstract idea (5) and then produces a form, structure, or reality that can contain the idea. he's more like the path rather than the desire to walk it. he embodies "the right way", religion, or the instruction manual. just as thoth (+7) produces ceremony/ritual, order, processes, etc to produce a physical form or manifestation -- ra produces the ceremony/ritual, order or processes to produce a conceptul form or manifestation.
 
-
 ### first ray triad
 
 - (-1) anatau / sekhmet
 - (+2) jeortau / teonackaeeon / teonakaeean / (alalu)
 - (+-3-+) sanatau / prahakatah / ptah / (enki)
-
-anatau and jeortau are twins. allayandra was also created with them, which gives me the impression that allayandra is going to be the reversal and opposite polarity of anatau. they are both mentioned as loving to war.
 
 ### second ray triad
 
@@ -68,13 +65,60 @@ anatau and jeortau are twins. allayandra was also created with them, which gives
 - (+7) allayandra / mars / aries
 - (-5+) vulcan
 
+### pairing and sets
+
+#### opposite polarity
+
+- (-1) anatau ?? (+1) allayandra
+- (+2) jeortau || (-2) isis
+- (-3) unessa >>|| (+-3-+) sanatau ||<< (+3) ra
+- (+-4) saturn
+- (-5+) vulcan
+- (+-6-+) osiris
+- (-7) genxicat ?| (+7) allayandra  |? (+7) thoth
+
+#### reversals
+
+- (-1) anatau, (+1) allayandra
+  - (-5+) vulcan
+- (+2) jeortau, (-2) isis
+  - (+-6-+) osiris
+- (-3) unessa, (+3) ra, (+-3-+) sanatau
+  - (+7) thoth, (-7) genxicat, and (+7) allayandra
+- (-2) isis
+  - (+-4) saturn
+- (+-4) saturn
+  - (+-6-+) osiris
+
+#### reflections
+
+(sometimes I say "opposite ray type" -- when it's a reflection about the midpoint)
+
+- (-1) anatau, (+1) allayandra
+  - (-7) genxicat, (+7) thoth
+- (-2) isis, (+2) jeortau
+  - (+-4) saturn
+- (-3) unessa, (+3) ra, (+-3-+) sanatau
+  - (-5+) vulcan
+- (+-6-+) osiris
+  - (+-4) saturn
+
+see [discussion in 7-layers-of-perception](/concepts/7-layers-of-perception.md#reversals-and-overview) for further discussion on why 4 is the reveral on 2 and 6
+
+#### midpoints
+
+- (+2) jeortau, (-2) isis
+- (+-6-+) osiris
+- (+-4) saturn
+
+
 ### family ties and a hidden 5th ray triad?
 
-- (+7) allayandra
+anatau and jeortau are twins. allayandra was also created with them, which gives me the impression that allayandra is going to be the reversal and opposite polarity of anatau. they are both mentioned as loving to war.
+
 - (-1) anatau (twin)
 - (+2) jeortau (twin)
-
-though anatau and jeortau are twins, it says that anatau is the youngest and sanatau is the oldest. it also says of allayandra:
+- (+7) allayandra
 
 > Being a SEVENTH RAY warrior, he also worked with Anatau. Within her energy domain, he could wield her energy as if he were a FIRST RAY male.
 
@@ -98,7 +142,31 @@ so that forces anatau to be the stability for the triad, meaning she will now em
 
 it's essentially the return of the 1st ray triad, but with the opposite polarity. instead of being seen the first ray (desire/will) perspective, it's now seen from the seventh ray implementation perspective.
 
----
+### 5th ray triad as catalyst
+
+- vulcan (-5+)
+- allayandra + anatau (+-1-+)
+- genxicat (-7)
+
+I don't really know how to present this concept, so I'll just go for it....
+
+first, it's important to notice that vulcan has polarity issues because vulcan is emitting and receiving their ray type (5th), which makes them energetically similar to a female but with the added bonus of being able to receive 3rd ray energy as well (but not emit it). vulcan is the female here, which is why I've chosen the name "5th ray triad"
+
+allayandra plays the ground, but an interesting thing to note is that he's emitting and receiving 1st ray energy, which is his opposite ray type (he's 7th ray male, which usually receives 1st ray and emits 7th). the fact that he's also emitting his ray type makes him similar also to a female or to the ground.
+
+so if both of them are emitting and receiving their opposite ray type, then that means that there is a missing part, in the placement of genxicat. she is a 7th ray female receiving and emitting 7th ray energy, however if the ground is allayandra as a 1st ray in opposite fashion, he's looking for other 7th ray females in opposite polarity (ie. 1st ray females).
+
+to understand this, we'll look at the triad relationships. the female is the attractor or the goal frequency. the ground provides stablity to get there and also kind of a bridge, and the emitter is kind of like the present state of mind of the leading thinkers in society: 1 -> 2 -> 3 -> 7. once you hit 7th, that's the most physical you can get and you're as far away (most materialistic/mechanistic) form of perception, the furthest away from the big picture (2) and desire (1).
+
+therefore, it's obvious to me that the next female will be 1st ray, which is like the first ray triad, but we have to get there. the reason why I think this is the catalyst triad to a number of new 1st ray triads is because it's happening in reverse. also looking at the previous triads, they each involved a midpoint cept the last one: 2 -> 6 -> 4 -> (7?) and these defined radical changes in human perception at least amongst the leadership (probably analogous to the "root races"). this last phase began the age of the individual, so it's for this reason that I believe that the 7th is the new "midpoint" (inflection point) which allows the new "leadership" to become individual.
+
+this hidden 5th ray triad is the 7th ray triad but perceived from an opposite perspcetive, and so therfore it becomes the inf a precursor to the next 1st ray triads. in short, the 7th ray female will become 1st ray female.
+
+there's also an inversion of the triad as well, where you have vulcan playing a decidedly masculine role with a female polarity (and probably body) -- so FMF rather than MFM.
+
+I have to quit here, as beyond this point, it'll sound like speculation, so I'll just summarise that speculation, which is that I believe there's a reason why pluto (4) is in the same system with charon (2), coming originally from tiamat, and is same polarity as our moon is here, because these will become the future males. I believe our sun is a 2nd ray female, so if these 7th ray females are getting transformed into 1st ray females, these become the new stars... so from 1-2-7 -> 7-6-1 (something like that. I don't see the 6-2-4 of the moon, charon, and pluto quite yet -- but working on it) like I said, speculation.
+
+### thinking out loud
 
 I haven't really thought about it, but this may also be able to be applied to the 3rd ray triad as well. lemme try...
 
@@ -139,55 +207,6 @@ the idea here is that just like the other hidden triad is to make stability so t
 - sun (-2)
 - mars (-7,+1)
 - unessa as male (+3) ???? - needs more thinking...
-
-### pairing and sets
-
-#### opposite polarity
-
-- (-1) anatau ?? (+1) allayandra
-- (+2) jeortau || (-2) isis
-- (-3) unessa >>|| (+-3-+) sanatau ||<< (+3) ra
-- (+-4) saturn
-- (-5+) vulcan
-- (+-6-+) osiris
-- (-7) genxicat ?| (+7) allayandra  |? (+7) thoth
-
-#### reversals
-
-- (-1) anatau, (+1) allayandra
-  - (-5+) vulcan
-- (+2) jeortau, (-2) isis
-  - (+-6-+) osiris
-- (-3) unessa, (+3) ra, (+-3-+) sanatau
-  - (+7) thoth, (-7) genxicat, and (+7) allayandra
-- (-2) isis
-  - (+-4) saturn
-- (+-4) saturn
-  - (+-6-+) osiris
-
-#### reflections
-
-(sometimes I say "opposite ray type" -- when it's a reflection about the midpoint)
-
-- (-1) anatau, (+1) allayandra
-  - (-7) genxicat, (+7) thoth
-- (-2) isis
-  - (+-4) saturn
-- (-3) unessa, (+3) ra, (+-3-+) sanatau
-  - (-5+) vulcan
-- (+-6-+) osiris
-  - (+-4) saturn
-
-
-see [discussion in 7-layers-of-perception](/concepts/7-layers-of-perception.md#reversals-and-overview) for further discussion on why 4 is the reveral on 2 and 6
-
-return 6&2 being reversals of 4
-
-#### midpoints
-
-- (+2) jeortau, (-2) isis
-- (+-6-+) osiris
-- (+-4) saturn
 
 ### polarity changes
 
