@@ -77,6 +77,8 @@ ra (+3) takes in a concept or an abstract idea (5) and then produces a form, str
 - (+-6-+) osiris
 - (-7) genxicat ?| (+7) allayandra  |? (+7) thoth
 
+notice that each ray type has both polarities, either in the same person or split between two people. the only one missing is +1 male which would be allayandra, which is nice because thoth already has the (+7) role, which means he's extra -- which also make it look like that's the goal for him.
+
 #### reversals
 
 - (-1) anatau, (+1) allayandra
@@ -111,6 +113,7 @@ see [discussion in 7-layers-of-perception](/concepts/7-layers-of-perception.md#r
 - (+-6-+) osiris
 - (+-4) saturn
 
+notice that each of the midpoints contain both polariities, either contained in the same person, or split between two people.
 
 ### family ties and a hidden 5th ray triad?
 
@@ -136,7 +139,7 @@ I also noticed that it says that allayandra (+7) when with anatau can wield ener
 
 - jeortau (+2)
 - allayandra in form of 1st ray male (+-1-+) -- playing position as ground
-- vulcan (in female form) as receiver of jeortau emitter of 3rd ray (-5,+3)
+- vulcan (in male form) is receiver of jeortau emitter of 5th ray (-3,+5), but with the '-' prefix, means he receives 5th in addition to 3rd ray energy, much like a 5th ray female (-5) receives and emits 5th ray energy.
 
 so that forces anatau to be the stability for the triad, meaning she will now emit like a male, the opposite ray (+7). this fits nicely with the 7th ray triad, as that's what genxicat is looking for.
 
@@ -146,7 +149,7 @@ it's essentially the return of the 1st ray triad, but with the opposite polarity
 
 - vulcan (-5+)
 - allayandra + anatau (+-1-+)
-- genxicat (-7)
+- genxicat v2.0 (-7+)
 
 I don't really know how to present this concept, so I'll just go for it....
 
@@ -154,17 +157,51 @@ first, it's important to notice that vulcan has polarity issues because vulcan i
 
 allayandra plays the ground, but an interesting thing to note is that he's emitting and receiving 1st ray energy, which is his opposite ray type (he's 7th ray male, which usually receives 1st ray and emits 7th). the fact that he's also emitting his ray type makes him similar also to a female or to the ground.
 
-so if both of them are emitting and receiving their opposite ray type, then that means that there is a missing part, in the placement of genxicat. she is a 7th ray female receiving and emitting 7th ray energy, however if the ground is allayandra as a 1st ray in opposite fashion, he's looking for other 7th ray females in opposite polarity (ie. 1st ray females).
+so if both of them are emitting and receiving their opposite ray type, then that means that there is a missing part, in the placement of genxicat. she is a 7th ray female receiving and emitting 7th ray energy, however if the ground is allayandra as a 1st ray in opposite fashion, he's looking for other 7th ray females in opposite polarity (-7+).
 
 to understand this, we'll look at the triad relationships. the female is the attractor or the goal frequency. the ground provides stablity to get there and also kind of a bridge, and the emitter is kind of like the present state of mind of the leading thinkers in society: 1 -> 2 -> 3 -> 7. once you hit 7th, that's the most physical you can get and you're as far away (most materialistic/mechanistic) form of perception, the furthest away from the big picture (2) and desire (1).
 
 therefore, it's obvious to me that the next female will be 1st ray, which is like the first ray triad, but we have to get there. the reason why I think this is the catalyst triad to a number of new 1st ray triads is because it's happening in reverse. also looking at the previous triads, they each involved a midpoint cept the last one: 2 -> 6 -> 4 -> (7?) and these defined radical changes in human perception at least amongst the leadership (probably analogous to the "root races"). this last phase began the age of the individual, so it's for this reason that I believe that the 7th is the new "midpoint" (inflection point) which allows the new "leadership" to become individual.
 
-this hidden 5th ray triad is the 7th ray triad but perceived from an opposite perspcetive, and so therfore it becomes the inf a precursor to the next 1st ray triads. in short, the 7th ray female will become 1st ray female.
+this hidden 5th ray triad is the 7th ray triad but perceived from an opposite perspective, and so therfore it becomes the a precursor to the new opposite polarity 1st ray triads.
 
-there's also an inversion of the triad as well, where you have vulcan playing a decidedly masculine role with a female polarity (and probably body) -- so FMF rather than MFM.
+perhaps one way to look at it would be to look at it like this. previously there are three aspects (I'll use 2nd ray triad as an example):
 
-I have to quit here, as beyond this point, it'll sound like speculation, so I'll just summarise that speculation, which is that I believe there's a reason why pluto (4) is in the same system with charon (2), coming originally from tiamat, and is same polarity as our moon is here, because these will become the future males. I believe our sun is a 2nd ray female, so if these 7th ray females are getting transformed into 1st ray females, these become the new stars... so from 1-2-7 -> 7-6-1 (something like that. I don't see the 6-2-4 of the moon, charon, and pluto quite yet -- but working on it) like I said, speculation.
+1st ray triad (8 aspects):
+
+- anatau (female): -1, +1
+- sanatau (ground): -3, -5, +3, +5
+- jeortau (emitter): -6, +2
+
+2nd ray triad (8 aspects):
+
+- isis (female): -2, +2
+- osiris (ground): -2, -6, +2, +6
+- ra (emitter): -5, +3
+
+3rd ray triad (6 aspects?):
+
+- unessa (female): -3, +3
+- thoth (emitter): -1, +7
+- saturn (ground): -4, +4, (+-2?), (+-6?)
+
+7th ray triad (7 aspects):
+
+- genxicat (female): -7, +7
+- vulcan (ground): -3, -5, +5
+- allayandra (emitter): -1, +7
+
+5th ray triad (9 aspects):
+
+- vulcan (female): -3, -5, +5
+- allayandra (ground?): -1, +1, +7
+- genxicat (emitter?): -1, -7, +7
+
+it's hard for me to conceptualise this, going by such little data, but they said that allayandra (-1, +7) adds in anatau (-1, +1), so that gives three components (-1, +1, +7), meaning that allyandra is very similar now to the 7th ray triad of vulcan but of 1,7 rather than 3,5. vulcan (-3, +5) in that triad is looks to have absorbed a 5th ray female (of which they don't mention), but I do wonder if he absorbed unessa (-3, +3) which would result (-3, +3, +5), but this is exactly the opposite of vulcan (-3, -5, +6), and so I wonder if this has to do with the physical body. what I mean is that if you were to put a female "soul" into a male body, what would result? likewise, what if you were to put a male "soul" into a female body? this is where I get this idea of gender swaps.
+
+the other thing I want to note is that each of the people in the 5th ray triad have three aspects to them, which is different from the other triads. therefore, it's my belief that the females in this triad will be something more like a masculine "soul" in a female body. I have no idea for notation on this, so perhaps (+7-) which translates into (+7, -7, -1). good enough for me.
+
+I have to quit here, as beyond this point, it'll sound like speculation, so I'll just summarise that speculation succinctly: which is that I believe there's a reason why pluto (4) is in the same system with charon (2), coming originally from tiamat, which is also the same polarity as our moon is here, because these will become the future males. I believe our sun is a 2nd ray female, so if these 7th ray females are getting transformed into 1st ray females, these become the new stars... so the next iteration will feature a triad of interconnected minds, not of 1-2-7 but of 7-6-1 (something like that. many holes still exist in my understanding, like I don't see the 6-2-4 of the moon, charon, and pluto connection quite yet -- but I'm still working on it) like I said, speculation.
 
 ### thinking out loud
 
