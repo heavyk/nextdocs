@@ -878,6 +878,46 @@ I think these archons are no different in this respect. we could try to fight ag
 
 therefore, it's important to consider transformation of unwanted aspects rather than just adoption of their ideas. we know that in history, a conquering force that adopts and subsequently transforms core concepts of a culture, it undermines that aspect of the culture, rendering it powerless. I don't see why this shouldn't be used in a positive respect. there's no need to fight against something; just assimilate it and keep going.
 
+### free will, intentionality and desire
+
+@[youtube](https://www.youtube.com/watch?v=JMckKmwIqyg)
+
+I wish to write about free will and its relationship to desire before actually watching that video.. so this is just my thoughts.
+
+free will assumes that you have an intentionality which is causing you to *want* to perform an action. I don't doubt this exists, and so to take a mechanistic angle at the whole thing is sorta like debating whether the RC car has a free will or not. one camp is saying that whenever it receives a signal, it turns left and another it accelerates, so therefore the car is a mechanistic thing that operates in a completely deterministic way -- which is true.
+
+this line of thinking gives rise to a form of thought that a puppetmaster would find invigourating. they would believe that if they could come up with the right set of signals and get those covertly into someone's brain, then they would have complete control and the receiver of those thoughts, like the RC car, will behave in a completely deterministic fashion. this style of thought probably is more reflective of the dominator mindset present in our society.
+
+---
+
+that setup gives us a good framework to look at free will though because imagine that there was some sort of system where you were under some kind of hypnosis and you didn't know that you were being controlled. the picture that comes to mind is the garden of eden scenario where they were given tasks to do, and did not have free will, but had to do what the gods wanted them to do. under that situation (hypnosis or even some more advanced system like the one that nosebook is developing), you still come into contact with this idea of, "if I know what 'I' want, then is my own desire more powerful than the hypnosis or the behaviour affecting system?" -- and to that I would say yes. let me elaborate why.
+
+the garden of eden and numerous other stories tell us that this has been a long-standing goal of the "opposition" which is to believe that you don't have your own desire. you'll notice that this is the first thing that kids lose as they begin to realise that everything they want gets an immediate "NO!" from those in charge. it's always more desirable for those in charge to have a way to affect behaviour.
+
+if you're trying to herd cattle and one of them just keeps going off on his own and doing his own thing, he's a real problem. this is why we have the expression, "it's like herding cats". individul desire is not desirable. instead, it's always preferrable if you conform to the desire of the "group" (which is often times determined by an elite or cabal).
+
+---
+
+OK, now let's look at why even the whole subject of "free will" is flawed, which is that free will is an assertive word. even if I look at my body like a RC automaton and I'm just battling to get the clearest reception for my automaton to do what it is that "I" want him to do -- that still, doesn't give me free will. in an electrical sense this is marconi radio transmission and is what your AM/FM radios use.
+
+alternative to this is tesla's system where signals are tuned into, and they're not confined by either time or space -- so that tuning into a radio station now is roughly similar to tuning into a different radio station broadcasting yesterday. in this system, what you resonate with is what you attract, and it's only the conditions of the *receiver* setup which inhibit the reception.
+
+so, for example, imagine that nosebook knows this (they do), so the way that they have to remain in control of my automaton would be to continue to make it difficult for me to receive the transmission of my desire (it manifests in the form of a feeling). that obviously only lasts for so long before it becomes impossible for them to keep it away. eventually, that desire will manifest as a feeling so strongly that the desire will manifest as a reflection of that feeling.
+
+---
+
+so now let me say what I said again in a different way. free will implies that I can assert something (will or purpose) and the motivator of that is willpower. the struggle becomes who has more willpower: the controller(s) or the controlled.
+
+this concept itself is flawed because that's not actually how it works. when you feel "willpower" notice how you *feel* like you can accomplish the thing? so is it the willpower that's making the thing able to be accomplished or is the *feeling* that you are capable which makes it possible? run the experiment trying to motivate yourself with willpower and then try the same thing by instead finding a way to feel like you can do something. I've noticed that it's the feeling that makes the thing possible, not the willpower.
+
+so then, you could say that the feeling then is the driver for the mechanistic thing, which is kinda true, but sorta not... vibration is inclusive, so if you add in the signal of the concept you want me to perform, I'll be attracting *both* what I want *and* what you want. LOA will find a way to make both manifest simultaneously or in close proximity. in order to prevent my attraction of my own desire, I would have to disrupt the manifestation of my own desire in the form of feeling while at the same time amplifying the concept of the action I want performed.
+
+that will work for a time, but not for too long because desire is both positive and negative in its form. so for example, if I were to feel like I could fly and nosebook didn't want me flying, they would have to instead make me feel the opposite of that desire -- so maybe restraint instead of freedom, or maybe fear of flight rather than desire of flight. let's say it's the fear one because that's easier to see. fear of flight/heights is the same as desire of flight/heights but perceived in the opposite way (going away from me rather than getting closer), so even though I feel fear, every time I feel fear, that desire is still amplifying. eventually one day, I'll feel flight stronger than I feel fear of heights.
+
+so no, there is no way to withhold free will, and instead I would say that it's probably easier to say that you want to attract what you want rather than try and motivate what's wanted, because when playing on the willpower playing field, there are always thos that have more powerful broadcasting towers. instead, ignore all of that and just tune to what you want, and don't mind from where or when in time and space it came from. your past can be of benefit, depending on how you tune to it.
+
+OK, now time for the video... :)
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
