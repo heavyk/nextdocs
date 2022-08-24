@@ -66,28 +66,34 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug that if I hold shift when deleting a pipe, it begins to deconstruct, but then if I hold ctrl (to unity delete) the pipe and select a section (or hold shift to delete the whole section), it doesn't unity delete the pipe
 
----
+- "cannot find valid pillars placement" is the most annoying thing ever. sometimes it requires me to delete entire sections of pipe because they went over the top of a balancer, and when putting them back, now it can't find pillars placement. also, it's often the case where I copy and paste something and the paste cannot find pillars so those bits don't copy. without the ability to control where the pillars are placed, it feels a silly restraint.
 
-machine designer mode: it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere. these are just magical sources and sinks for belts and pipes.
+### design/upgrade planner mode
 
-so, for example, if I want to blueprint out something, I can say for example that there's a pipe that produces 60 water/min and another that produces 100 copper ore and maybe 10 sulfur ... etc.
+it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
 
-the point of this workshop is to test the machine as if it's running without needing to save the game, build it, figure out all of the bugs in the build, then reload the game and make the changes. deconstruction and construction are instaneous and resources are not consumed.
+so, for example, if I want to blueprint out something, I can create a source pipe that, for example, produces 60 water/min and another that produces 100 copper ore and maybe 10 sulfur ... etc.
 
-by being able to plan out the whole thing and see it working with all of the inputs and outputs, this will dramatically decrease the number of failures.
+the point of this workshop is to test the machine as if it's running without needing to save the game, build it, figure out all of the bugs in the build, then reload the game and make the changes. the whole point is to test the setup before building it.
 
-this mode should have the ability to save blueprints and sections of blueprints (in the form of modules), so that the build can be expanded to the size needed.
+by being able to plan out the whole thing and see it working with all of the inputs and outputs, this will dramatically decrease the number of "whoops I missed a belt" moments (and other similar silly mistakes).
 
-perhaps a total resource consumption and production output panel would also be really cool, as I can never seem to remember all of the exact values a design produces and consumes.
+perhaps a total resource consumption and production output panel would also be really cool too, as I can never seem to remember all of the exact values a design produces and consumes.
 
-in a future version of this, it'd be nice to also copy existing terrain (present in the map) to ensure that the design will actually fit onto the terrain.
-
-also, in a future version of this, it'd also be cool be able to copy in existing infrastructure to try out upgrading the existing infrastructure and ensure the upgrade goes smoothely.
+in a future version of this, it'd be nice to also copy existing terrain and/or infrastructure (present in the map) to ensure that the design will actually fit onto the terrain and/or to ensure the upgrade goes smoothely.
 
 ### mining designations
 
-when clicking on a mining designation, it'd be cool to have a little icon on the (bottom?) of the square that links me back to the tower, because it's often the case that I cannot remember which tower is which designation.
+when clicking on a mining desZPignation, it'd be cool to have a little icon on the (bottom?) of the square that links me back to the tower, because it's often the case that I cannot remember which tower is which designation.
 
 it'd also be nice to be able to resize the designation like resizing a window in OSX or windows (click and drag the side of it). move would also be nice, but move can be accomplished with two resizes.
 
 in addition to the icon which links me back to the tower, it'd be nice to have an ability to draw within the mining designation in some lines which look like arrows (click and drag to draw lines. right click to delete) where these lines define the angle of attack for the miners. in implementation, these lines resolve to "weights" or priority of mining squares (higher priority squares get mined first). this is especially useful if I don't want want my miners to dig theirselves into a hole or to open up the high traffic part first before digging out the rest.
+
+### balancers and sorters
+
+often times I want to just have a balancer act sort of like a network hub, and then inside of it, I want to be able to set paths, the interface would be the same as the balancer is already, but in addition to the priority, I could also set which item would go into each input/output.
+
+perhaps later an advanced hub could have not only more ports -- for example, of 16 ports square, or some longer -- or maybe even expandable, so that I could make a hub the size I wanted, like say I wanted a 12x6 one... I could do that (within limits of course, so a 1000x2 hub couldn't be built)
+
+then, same thing: when I click on each port, I can set the item(s) I want output on that port and also its priority or not.
