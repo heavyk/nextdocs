@@ -916,7 +916,9 @@ that will work for a time, but not for too long because desire is both positive 
 
 so no, there is no way to withhold free will, and instead I would say that it's probably easier to say that you want to attract what you want rather than try and motivate what's wanted, because when playing on the willpower playing field, there are always thos that have more powerful broadcasting towers. instead, ignore all of that and just tune to what you want, and don't mind from where or when in time and space it came from. your past can be of benefit, depending on how you tune to it.
 
-OK, now time for the video... :)
+OK, now time for the video... :) not much to add actually... I covered everything I would have wanted to talk about. I noticed an idea pop up about the misunderstanding (or perhaps misapplication) of logic/logos, but it's not a full thought yet.
+
+
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
