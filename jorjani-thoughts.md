@@ -918,7 +918,45 @@ so no, there is no way to withhold free will, and instead I would say that it's 
 
 OK, now time for the video... :) not much to add actually... I covered everything I would have wanted to talk about. I noticed an idea pop up about the misunderstanding (or perhaps misapplication) of logic/logos, but it's not a full thought yet.
 
+### the cold war
 
+I just started reading "the blind owl" and in it, it's telling of his trip into soviet uzbekistan, where he was surprised by the large amount of ancient persian (aryan) literature present there.
+
+it occurred to me that the cold war may have been an extension of the aryan invasion of the germans, but instead seen as an aryan invasion coming instead from the soviet union.
+
+what I mean is this... I don't have my history down very well, but what I've gathered from sepehr's videos and other locations is that cro magnon (modern humans) were around since 24-12kya, but the aryan migration came from caucasus mountain region and spread over to india and into northern europe because of something catastrophic that happenned in the black sea area.
+
+this is where things get confusing for me because I know that the red ones are related to the aryans in some way, but I consider these red ones as being the ones in the book of enoch that taught mankind various forms of technology (metallurgy, makeup, soothsaying and divination, etc). now, regardless of whether they're good or not (maybe if enlil thinks they're good or not) is debatable, so I won't go there.
+
+there is a group of individuals that does not want humankind to have increasing technology and arts. I don't know if that's the red ones -- or if the red ones were infiltrated by this force or not.
+
+the reason why I say this is because I believe they are "fallen-angels", meaning that they're capable of transferring their consciousness into another body by "haunting" or terrorising the body until it's sufficienttly in a similar frequency for the "walk in" to occur. in this way they've been subverting empires from the inside out over the ages. therefore, there's no clear "good guy" or "bad guy", as they span all races and cultures. we're not really "battling" any defining entity, but a concept of domination and superiority, which means that these fallen-angels will continue to exist as long as there are humans that believe in (resonate with) superiority and domination. it's only when we no longer resonate with them that these "parasites" will no longer have a suitable host.
+
+---
+
+OK, so imagine for a moment that the real threat to those in power (IMO, these were/are in power in british and american governments), and that the real threat is not necessarily germans or societs, but technological advancements that are undesirable.
+
+what I mean, is that as long as we continue to make better and faster smartphones and game consoles, it's no problem, but anything that gets us connected to our spiritual or phychic side of things, is squelched by them.
+
+it's interesting to me that before even beginning the story and just reading about hedayat's life, I'm already beginning to see that the various wars had nothing to do with aryans the people, but with the ideas of improvement, progress and other such things. so, as usual, these guys have the standard playbook where they take the thing that actually has good ideas and mix in some bad ones. it's true that many aryan germans bought into a lot of those bad ideas (namely superiority and domination), and I'd say quite a few americans on the opposite side did as well. those wars, and the subsequent cold war, was about keeping a population focused on superiority and domination -- rather than on progress and improvement. it obviously worked, because those wars were fought and to this day we still have an "us vs them" perspective on things.
+
+I don't know if I explained myself very well, so I'll try and summarise: there are no "good-guys" or "bad-guys" that can be defined with a single physical characteristic (race, gender, skin colour), because the opposition are set of beings that are capable of moving their consciousness from body to body, and they do this by getting the body on a similar frequency before moving their consciousness in. therefore, the battle has no clear sides, because anyone (like agent smith) can take over the body of a similarly resonating person. a similarly resonating person, is one that believes in superiority and dominance. in order to fight against the aryan threat of the german socialist party, americans were taught to have a feeling of dominance and superiority over other groups. this continued throughout the cold war, as we saw soviet (these are just northern aryans) as a threat, so we need to maintain our dominance.
+
+as long as there are people that believe in superiority and dominance, the parasite will continue to have a host.
+
+### speriority and domination
+
+superiority is a corruption of having a high opinion of oneself. if you believe you're capable that means you can accomplish what you set out to do.
+
+superiority is conditional in that it believes that because of X, then I/we are better than the others that do not have X. therefore, the goal of superiority is to ensure that the others do not gain access to X, because if they did, then they would lose that extra edge. superiority resists progress because progress means that eventually it'll lose that conditional edge.
+
+in contrast to that, if one believes in themself, they may not have the conditions to believe that they can accomplish what they set out to do, but they know there is a way to get there.
+
+---
+
+domination is similar to superiority in that it resists progress. it sees other things around them as being capable of becoming superior, and so for fear of someone else gaining superiority over them, they must subvert or dominate them, to ensure they never gain an opportinity to become superior.
+
+in short, they resist progress.
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
