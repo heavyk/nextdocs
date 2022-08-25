@@ -958,6 +958,10 @@ domination is similar to superiority in that it resists progress. it sees other 
 
 in short, they resist progress.
 
+I did notice that many people or groups of people with superiority complex tend to promote progress for theirselves or those within the group, but resist it for others, considering them to be a threat to their superiority. the reason why so many empires that have focused on dominance and superiority have fallen is because you cannot focus on resisting progress for others without also attracting it for yourself.
+
+I find it most probable that any breakaway civilisations extant today, are not actually trying to resist human progress, for by doing so, they would be resisting their own progress. it's for this reason that I believe that the antarctic breakaway civilisation does have a system of entities that do interact with the outside world, but they would be bringing their own destruction if they were to try and enforce anything. instead, I believe they would be vibrational reflections, therefore any interactions with them and any perceived dominance or superiority must be viewed more as a reflective propery, rather than emissive.
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
