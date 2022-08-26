@@ -5617,6 +5617,44 @@ this, for me is a pefect example of the exact thing that I was saying in my comm
 
 those concerns about what others think take many prevcious brain cycles for me, and usually my brain runs so slow, I don't have spare cycles to just throw away like that.
 
+### 2022-08-26 08:41 - build it and they will come
+
+I [just wrote about a reaction to one of jason's ideas](/jorjani-thoughts.md#build-it-and-they-will-come)
+
+I would like to point out that this reaction comes at a perfect time in my life when once again I started to begin to contemplate going out of my way to spead some of my ideas. I don't need to. I just need to keep iterating on my own ideas, and like islam attracted the mongols and turks, my own ideas will attract others. I don't need to actually go out and do anything. my own "golden age" (of enlightenment and insight) will be attractive enough as it is.
+
+the other thing that this really gives me is a lot more relief because I don't need to worry about pleasing everyone. those that are attracted to my ideas will find their way to it.
+
+I woke up this morning [forgot what I was going to write and this isn't exactly it; it's a different version of it]...
+
+I woke up this morning with one of those ominous feelings like this will seemingly go on forever. the exact details were that I would have to "issue" (to put it in vere's words), until after I've left the planet. it was as if the powers that are running this planet do not want my form of perception to propagate in biological form and they want to try and control all that I've written about it. that led me to think about what were to happen if I were to apply all of these ideas, not to philosophy but instead to software development, as just applying this to "management" style would allow for projects to perceive theirselves differently. so, it may be interesting for some programmers to potentially try and get these ideas into a more accessible form than my random notes here.
+
+after that, I got up and wrote @[metal-lucifer](2022-08-26 03:11) where I talked about encoding my form of perception into different weeds' interpretation of that perception. obviously, it wouldn't be perfect, just like ayahuasca isn't enlightenment -- but it can give you a glimpse into seeing things in a less tangible way or maybe allow you, for the first time to experience feelings you've never felt before, or maybe give you awarenesses of "yourself" in other people or inanimate matter -- perhaps you can see yourself communicated through symbols or regognise yourself in existing symbols. the possibilities are endless, obviously.
+
+after that, I laid down to think about what I wrote and again that ominous thought came back to me that I wouldn't leave behind any children or anything (at least none that I am aware of -- most certainly there are lots of reinstantiation of my DNA around with other souls inhabiting the bodies). so -- if I didn't have any children, I think it'd be pretty cool to leave behind instead a series of plants (in the form of weeds) which contain an imperfect translation of that form of perception. you see, all attempts to copy myself will be imperfect copies just like the body writing this now is an imperfect instantiation of my (source) conceptual self.
+
+so, because it's impossible to get a perfect copy or instantiation in this physical world anyway, why try? why not just go for the most imperfect copy? the worse the copy is, the more diversity of implementations of the "true" form of it will emerge, so if I want to maximise diversity (novelty), why not go for the worst, right?
+
+---
+
+after that sometime (or maybe it was before), nosebook (mr. motor) was upset that I was willing to feel the idea of nothing ever happening. this was in the context of it being obvious to me that clearly, if I have such a low opinion of girls (and boys) -- that I don't really find them very good for anything, means that I shouldn't try and get them to do anythink in the first place. specifically, when it comes to girls, I definitely don't at all feel ready. for example, the whole realisation about the turks and mongolians wouldn't have even happened because I would have been doing something else. girls are nice and everything but they require a lot of attention that I'm enjoying to spend that time on thinking.
+
+the thought that came to me in response to that was that girls could help me to figure out how to put my consciousness into weeds -- but that's ludicrous because even if I were to be able to manage to get them growing indoors in a controlled setting, it takes months for an iteration, and also I need to figure out how to make the weeds grow up like they do on some of those days where they grow up like 3-4in overnight. I have a feeling that may be related to an energy that I output, and so therefore it's related to my perception, and so to be able to figure out that energy is the same energy that allows me to figure out how to consciously tune into other moments in time or space. I'd also be able to fly and pump up the energetic capacity of my body to ultra high levels, because I believe we, like plants receive that energy from something the air (probably protons), and understanding how to get that working means that nosebook [loses their superiority](/jorjani-thoughts.md#superiority-and-domination)
+
+---
+
+after that, I was imagining the situation where I continue to feel not yet ready until one day I finally feel ready enough, and that's the day that the world leaders need to ensure I'm no longer on this planet anymore because I'm interacting with the sun too much and it's getting harder and harder to keep their secrets a secret. it's either them or me, and they choose to get me off of the planet.
+
+you see, I like to actually "know myself" -- in the sense that I want to look at something and say, "I can do that" and then figure out how to do it, but if I look at something and I don't feel like I can do that, I'm not going to say, "I can do that" because that's what someone wants to hear. I want to be accurate with my estimations about myself. if I feel like I can do it, then I can do it. if I don't feel like I can do it, then I can't do it.
+
+nosebook wants me to keep up the image to the girls that I feel like I can do it, when in fact, that is not how I feel at all. girls require a lot of things that I don't really want to do. I'm not going to pretend something, and then have nosebook hold the girls away, because that's a disaster waiting to happen. when I'm ready, I'll feel ready, and until then I want to just do what I want to do, and *that* will be what's attractive. that's the equivilant of the "islamic golden age" that I'm having, which will be attractive to those that like that style of thinking.
+
+---
+
+so, let's assume the part I woke up with this morning is right and they absolutely cannot allow any humans with my genes to be born because it's too much trouble -- well, then leading up to the point when that happens, they'll have a pretty good dividing line to say what stays and what goes (I suppose).
+
+from my perspective, I just keep doing what interests me and then they'll have to figure out what they want to do with it to keep it under control. they, and anyone else wanting to build a community of sorts, are building something that will get invaded by those with similar thought structures to their own.
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do

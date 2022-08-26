@@ -962,7 +962,19 @@ I did notice that many people or groups of people with superiority complex tend 
 
 I find it most probable that any breakaway civilisations extant today, are not actually trying to resist human progress, for by doing so, they would be resisting their own progress. it's for this reason that I believe that the antarctic breakaway civilisation does have a system of entities that do interact with the outside world, but they would be bringing their own destruction if they were to try and enforce anything. instead, I believe they would be vibrational reflections, therefore any interactions with them and any perceived dominance or superiority must be viewed more as a reflective propery, rather than emissive.
 
+### build it and they will come
 
+@[youtube](https://youtu.be/GdYTaTzvypI?t=3360)
+
+jason talks in there about how these iranian feudal lords lost power, and betcause mithraism is a military religion, there wasn't a chance they would just sit on their hands. so, he speculates that muhammad was just a trance medium to these feudal lords that were dictating a new religion through muhammad. it worked well and they took pesria back over, and this is when there was the "islamic golden age" where all of the persian scientists now have to write in arabic. I imagine that such a golden age would have been very energetic and very attractive feeling.
+
+the problem is, that now the empire has this new totalitarian religion installed by the arab invaders, so this becomes the point of attraction now because even though the persions never took it seriously, the feudal lords wanted it to be in place, likely for power or control reasons.
+
+this attracted the turkish and mongolian invasions which brought in a bunch of people that loved that style of religion and adopted it as their own -- which, btw, this is the first instance I've ever heard of invaders coming in and adopting the religion of the place they conquer (usually it's the other way arround).
+
+this is a perfect example of LOA at work. I can't see a better example than this. it's unfortunate, but that's how you learn, right? I've had many such similar situations happen in my life, and I turned out OK, so I know it'll be fine.
+
+[personal followup thoughts here](/blahblog.md#2022-08-26-0841---build-it-and-they-will-come)
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
