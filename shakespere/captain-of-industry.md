@@ -84,7 +84,7 @@ in a future version of this, it'd be nice to also copy existing terrain and/or i
 
 ### mining and dumping designations
 
-when clicking on a mining desZPignation, it'd be cool to have a little icon on the (bottom?) of the square that links me back to the tower, because it's often the case that I cannot remember which tower is which designation.
+when clicking on a mining designation, it'd be cool to have a little icon on the (bottom?) of the square that links me back to the tower, because it's often the case that I cannot remember which tower is which designation.
 
 it'd also be nice to be able to resize the designation like resizing a window in OSX or windows (click and drag the side of it). move would also be nice, but move can be accomplished with two resizes.
 
