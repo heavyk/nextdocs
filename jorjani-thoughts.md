@@ -1020,6 +1020,12 @@ if dissatisfaction is what causes heat, they're going to have to point the finge
 
 there's a bit of humour in the idea that the UN and US governing bodies have been elevated to position of "philosopher kings" lol
 
+---
+
+whoops, I didn't finish up my thought about why I think this is a repeat of the arab invasion... so you have these feudal lords that are wanting to return a society that's gaining too much freedom back under control. to do this, they came up with a religion (islam), and so islam is nosebook. nosebook is the new way that they're going to keep all of these free people under control by putting ideas into their head which require top-down control (from the caliphate).
+
+well, as energies continue to rise higher and higher, attraction will become stronger and stronger, so in just the same way that the islamic control mechanism attracted the mongols and turks, so too will the nosebook control mechanism attract all kinds of people that have that same mindset -- and, like jason says, it'll get out of control. they'll start to really like the power too much that nosebook as a control mechanism will get overrun by people that like having that kind of power, and so the feudal lords will eventually lose control over islam. just the same as I don't think the ones trying to use nosebook as a control mechanism will be able to retain power.
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
