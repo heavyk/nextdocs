@@ -976,6 +976,50 @@ this is a perfect example of LOA at work. I can't see a better example than this
 
 [personal followup thoughts here](/blahblog.md#2022-08-26-0841---build-it-and-they-will-come)
 
+### the new mithras
+
+yesterday I had another big reaction to something I said. interestingly both of these big reactions seem to be correlated with somewhat large solar flares, which is a whole nother topic in itself.
+
+mom told me that 2022-08-08 was the day that we went through the "lion's gate" and that was the day that we entered into aquarius. immediately I know this to be one of those things where you assign something significant to it to give it more credibility (like large solar flares to the previous reaction and to this one .. lol). I explained that it's really easy to calculate where exactly the "age of aquarius" begins because the galactic centre is 0(degrees) and each zodical constellation is 30(degrees) off of that, so it's not too hard to caclulate out when the age of aquarius actually begins (or rather is in orb, because the galactic centre has a width to it, so it's the course of probably 10-15y, not an exact day like 8-8).
+
+she asked me why I don't calculate it, and I didn't want to get into too many technical details but it's not exactly that easy to get good data on that unless you're an astrophysist. also, I watched a few presentations by a guy named john mayor jenkins and he said that the range for this changing of the ages started in the 90s and continued untiil about 2016 when it left orb -- so, we may have actually entered the age of aqarius decades ago, and it's just taking a bit for the energy to take effect (just like the summer solstice isn't the hottest day of the year, though it's the longest, the heat comes a month or so later -- current follows voltage).
+
+I decided instead to just divert the subject of calculating it entirely by saying that I go outside and I notice the sun and the moon all over the place, which means that somebody has a method for rotating the planet without causing tidal disturbances (we definitely don't understand gravity), and so if they're able to move the sun and the moon around, that means we could be in whatever age they want to put us in. it's completely arbitrary and out of our control (which is interesting because the conversation that I was having with mom was about not being able to control the conditions to actally make a good judgement about the factors involved in farming).
+
+---
+
+I made a pretty tall claim there that the government is able to adjust the "precession of the equinox" to be whatever they wanted it to be. the implication of that and the remaining part of the reaction was that I'm claiming that the government has replaced mithras as the one that turns the world equator (the ash cross put on the forehead, etc.)
+
+well, I stand by that claim, until I have evidence that shows otherwise, but what I think on it, is that it doesn't really matter what the age is anymore. you can think of it as the age of taurus or piscis or capricorn if you want because they have all of those energetic conditions under their control now.
+
+every year the sun rises in all 12 of the constellations, so you may think of the precession of the equinox as the sun rising in one sign earlier. the day before yesterday, suzanne was explaining to me that she thinks that our calendars are a month behind, and we're really going into october, rather than september. or, you can think of it like the equinox has precessed backwards a whole sign. so say for example when the sun is rising in aries (march), beacause it's a sign behind, it's actually march energies happening in february. it's pretty much the same concept as the calendar being a month behind. so what I'm saying is that if we're getting springtime energies a month earlier, then energetically we're effectively back in the age of piscis.
+
+so, it doesn't really matter. the government has, at this point, complete control over time and the calendar. time is in their hands, so not only have the userped the position of father time, but also of his son mithras as well. it sounds weird to say this, but they're now the "saviour coming at the end of time".
+
+I don't recommend waiting for them to figure out how to be the saviour that you want. in the larger scheme of things, the situation on this planet looks like it's starting to become a sort of repeat of the feudal lords there.
+
+right before the islamic invasion (which jason thinks was staged by the feudal lords to regain control), the (from memory) persian empire entered into a brief period of free love and dissolution of all orthodox values, meaning that the feudal lords had lost control over the people and so they needed to return back to a conservative/orthodox form of rulership, and so that was the reason for the creation of islam in the first place.
+
+the point we're at now in time is very similar to that complete loss of control and free love. I have good reason to think that is largely what all of their efforts to control me are about, because if I get connected, they're going to lose control and there's going to be too much free love going around.
+
+I don't think they're wrong. in fact, I believe that would cause such a high amount of dissatisfaction amongst them, that it would ultimately cause a serious conflagration of the earth, because the sun puts out energy in response to the way we feel. this creates reality, and it's the mixing of these two energies, and their resisting each other that create the intense heat (resistance).
+
+because you cannont really get rid of anything, and fighting against something only attracts that thing more, fighting against these guys is not the way to go. they have to destroy theirselves or transform theirselves. there's nothing anyone can do about anything anyone else is doing.
+
+---
+
+it's kinda for that reason that I believe that it's pretty likely purposeful that the government has been given the power to be mithras. they can figure out their own way, and be the ultimate decider of when the conflagration comes.
+
+by giving them all of the power, it creates an interesting dynamic, in that they can see the heat rising, and being able to control all of the conditions (minus the sun), they can isolate and figure out what are the main causes of the heat. what they'll find is that it has to do with the way we feel and what we're attracting. I feel pretty good, so the sun feels pretty good because I'm usually pretty well in harmony with the energy that the sun is emitting (the sun's energetic reality is compatible with mine), and so I like the sun's energy and therefore attract more.
+
+the reason why I think there were large flares during these reactions was because a flare will be the new vibrational reality created in response to new realisations (ie. how do you feel about the thoughts that you think). these emitions play a large role in the geomagnetic field, which then attracts the solar wind sympathetic to the vibration of that. in short it's a response to emotion. when I say "reaction", I mean large emotional outburst. I don't hear people's thoughts as words in my mind. I *feel* what the other person feels, then I translate that into words. so when I say large reactions, I mean large emotional outbursts which I resonate with to some degree.
+
+all this means is that the government, now in the role of mithras will have to figure out for theirselves how to keep energy levels on the planet so that they're not creating too much heat. that's an interesting challenge for them because they cannot ultimately affect how one feels about their conditions. that's perception and thought the culture does guide some of that, until now, I've never seen a culture that teaches someone to feel the way they want them to feel. most cultures are interested in you respecting your elders, and following some kind of guidlines that keeps everyone on the same page. "the great schism" is making that become more and more impossible, so those guidelines are going to have to be relaxed, probably.
+
+if dissatisfaction is what causes heat, they're going to have to point the finger out at everyone else and try to get us to no longer feel dissatisfied with our conditions.. and then when we're no longer the problem, then they'll have to face their own dissatisfaction. some will adjust their dissatisfaction and some won't. then there will be a "refreshening of the world".
+
+there's a bit of humour in the idea that the UN and US governing bodies have been elevated to position of "philosopher kings" lol
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
