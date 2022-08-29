@@ -1042,6 +1042,48 @@ this positional difference between china and japan makes me wonder if the earth 
 
 also, it makes me wonder how the moon fits into the myth of prometheus. I know that there are a lot of top secret stuff that randall carlson says exists in relation to the moon. at the same time, he talks extensively about the myth of prometheus. I have to wonder if they're connected.
 
+### being bound for freedom initial idea
+
+in a recent interview (@[youtube](https://youtu.be/ae_PGHxuKPM?t=1733)), where he talks about his concept "being bound for freedom" has a number of different meanings to it (like the spectral revolution), and I still haven't listened to the latest video he has on this (@[youtube](https://www.youtube.com/watch?v=-7IVciE_YKQ)), but I noticed right away a double meaning to it especially relevant in my life.
+
+I've often said that the only true form of freedom, which isn't conditional and that everybody has, is the freedom to feel the way they want to feel about whatever they're looking at. this is interesting because jason just got done with the "deconstuting world view warfare" idea. in that idea, he explains that the elite have a brand new breakthrough where they can manipulate the way we perceive the world. he didn't name it by name, but he's clearly talking about nosebook.
+
+so, in my perspective, nosebook is the agent for this force. they have, in a sense, bound me in that they control nearly all of the conditions of my life -- and so therefore the only thing I have left to do is to exercise my freedom to feel the way that I want to feel despite the conditons.
+
+so, by feeling the way I want to feel I am bound (headed) for (toward) freedom.
+
+### mechanistic transhuman agenda
+
+while I'm at it, this is related: there's also a resonance in the beginning part of that interview where he talks about the transhuman agenda to setup a technological control system where they have unfair power to a thing I just wrote in @[metal-lucifer](2022-08-29 05:45) where I say that we're heading toward a system whereby a computer will become a governing system.
+
+this too falls under the concept of "being bound for freedom" because sure it looks like a system like this can be used to control people, but when taking a more careful look, one may notice that a system of this type will not tell anyone how to behave, but instead be a simple input and output system of contracts. it'll take probably a few iterations before it becomes something stable. I don't imagine it will be too complicated, because it's just going to be simple agreed upon exchanges and other contractual[^1] things.
+
+---
+
+it's quite possible that there is the publically available price for the resource, but if you make some sort of an agreement, a new contract could be created for different negotiated terms, but for anything public, those contracts could be viewed. so for example, if I made my own version of youtube, I would start out on the freely available contracts for computing power and data storage. anyone using the website could look to see who is providing those resources by looking at the contracts. eventually as the site grows, somone will make me an offer for a better price for the same resources. obviously it'll be possible to see by anyone using the site the contract that I'm using for the resources. all contracts are essentially public (cause they have input and outputs), but you kinda need to know where to look for them.
+
+it is possible, I suppose that an entire group of people could have an entire set of resources and prices specific to their club members. this is likely the way it'll go eventually anyway, but this doesn't inhibit others from getting those resources the more expensive way, or for another person to come up with a way to offer the same thing for cheaper. competition is good, in this case.
+
+I suppose it's also possible that some clubs could have super resources and keep everyone else out. like for example, imagine if HP decided they will only sell their memristor technology to certain clubs of people at certain prices so that they can have the monopoly on data storage and some types of processing -- well, then there's nothing that anyone can do about it accept for another company to get funded to develop memristor technology for theirselves. it's a total free-for-all, so they'll have their lead for a bit but it won't take too long until someone else wants to meet the competition.
+
+I estimate that for a free-for-all system like this to become a problem, it would require complete control of everyone with any technical capability. either that, or the controlling types would have to do lots of assassinations. I don't know how people will deal with that one, but it's all attraction, so they'll have to be a sort of oppressive mafia or something.
+
+at any rate, those are going to be over pretty top-end stuff, so I'm pretty certain that many people will have basic needs available, because it's not like they can hold the monopoly on all food and basic necesssities, so will always have sufficient conditions to be able to feel the way that you want to feel.
+
+---
+
+if you look at my thesis on these gods are still among us, and that their immortality is kept a secret by transferring from body to body, then you can see that some will go the factioned[^2] control of conditions route, while others will go the perceiving/feeling the way I want to perceive/feel route.
+
+nosebook's system will also likely be monetised even more than it is now to make physically feeling the way I want to feel a thing. this will certainly make an elite, but again, I don't think it's a problem, as they're stuck fighting over the good conditions.
+
+just imagine for a moment that you have hundreds of guys that are fighting over good conditions, and then you have millions of people that are beginning to feel the way they want to feel. well, my whole thing is that reality reflects how you feel, so nosebook right now has me "bound" so that reality does not manifest the way that I feel. their own desire to control the conditions will create more and more people like me, and so at some point, these hundreds of elite that are fighting over good conditions, will have to join together to ensure that these others don't get their reality to manifest the way that they feel.
+
+it's easy to control one person like me because I have various handlers and everyone knows the way that they should interact with me, but if there are millions of me, I just don't see their ideas of remaining a monopoly to be very sure.
+
+[1]: yes, I know I'm hearing the reactions on ethereum, but that's not exactly what I have in mind. ethereum is a good start, but I consider it to be way too slow and the gas prices are not good. also it needs to be easily integrated into general availability of computing resources (data storage, networking, and processing) so that it facilitates easy putting up of websites/portals, data (research and otherwise), into the cloud, kinda like how it was with geocities. in this system a proficient programmer could create their own version of youtube, and not have to worry about scalablity issues because the system itself insures that the contracts can be fulfilled as needed. but yes, it'll probably be something like that.
+
+[2]: I find it very difficult to believe they will ever all agree on anything, and history shows endless in-fighting between them, and I don't think that'll ever change.
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
