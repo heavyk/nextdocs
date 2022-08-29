@@ -1026,6 +1026,22 @@ whoops, I didn't finish up my thought about why I think this is a repeat of the 
 
 well, as energies continue to rise higher and higher, attraction will become stronger and stronger, so in just the same way that the islamic control mechanism attracted the mongols and turks, so too will the nosebook control mechanism attract all kinds of people that have that same mindset -- and, like jason says, it'll get out of control. they'll start to really like the power too much that nosebook as a control mechanism will get overrun by people that like having that kind of power, and so the feudal lords will eventually lose control over islam. just the same as I don't think the ones trying to use nosebook as a control mechanism will be able to retain power.
 
+### japanese and chinese, prometheus vs new world superpower
+
+@[youtube](https://www.youtube.com/watch?v=6xdzBhXBeyY)
+
+in this video I noticed a connection between the part where he's talking about the moon and now suddenly china is starting to go to the moon. he thinks that it's preposterous that a culture that is built on shame and fear of failure will endeavour to go to the moon; so, he postulates that instead, the chinese have made a deal with the megalithic society on the dark side of the moon, and that by making this deal, the chinese who's culture aligns quite well with the olymian pantheon (shame, punishment, hierarchical) are now positioned to become the next superpower.
+
+in contrast to that jason sees the japonese culture as having made a mutation because of the trauma introduced by the atomic bombs, and that the japanese culture will now represent the new embodiment of the promethian mindset (forward thinking, progress, etc.)
+
+---
+
+what's interesting to me is the positioning of these two countries, and the reason why I say that is because usually these sorts of relationships align to north/south, where the olympian ones like to be on the north -- and I think this has a lot to do with the energy that the planet receives from the sun. it's more energetic, so allows for more thought flexibility, and increases attraction. I think the nordic countries are good examples of this. I don't know my history very well, but it seems to me that at some point, battling and power struggles stop being a thing and they go the way of the scandinavians.
+
+this positional difference between china and japan makes me wonder if the earth may eventually turn sideways. the moon supposedly is capable of manipulating the tilt of the earth, and also seems to have an ability to maintain a very perfect orbit, so it makes me wonder if there are eventual plans to turn the earth sideways so that the north and south poles are now at what we would consider the equator.
+
+also, it makes me wonder how the moon fits into the myth of prometheus. I know that there are a lot of top secret stuff that randall carlson says exists in relation to the moon. at the same time, he talks extensively about the myth of prometheus. I have to wonder if they're connected.
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
