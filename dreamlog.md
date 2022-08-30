@@ -220,7 +220,7 @@ you can't become the thing that you really want to *become*, if you're constantl
 
 ### 2022-08-30 05:26 - coffee shop kenny
 
-I woke up this morning where I was a camarero in a coffee shop. the shop seemed very spanish in its design and the whole vibe reminded me a lot of spain. I don't really remember anyone else being there. I had a strong sense that I was like the main bar dude like alfredo (or the other guy I think his name also was alfredo below the office in plz de las cortes)
+I woke up this morning where I was a camarero in a coffee shop. the shop seemed very spanish in its design and the whole vibe reminded me a lot of spain. I don't really remember anyone else being there. I had a strong sense that I was like the main bar dude like alfredo, or the other guy adolfo below the office in plz de las cortes.
 
 I was there and I was doing things. people would often times talk to me, and I noticed that if I offered a dude another beverage (beer or coffee, I wasn't paying attention), they would stay a little longer and talk to me. however, if I offered a girl another beverage, she didn't want to stay longer. it reminded me a lot of patricia in berlin where I didn't really know how to get her to stay longer and talk to me. I could offer her a coffee, but she wanted to pay for it herself, and/or she didn't want to drink more than one coffee anyway (I may have convinced her to drink a second one once, but I can't remember).
 
