@@ -539,3 +539,41 @@ this type of setup would, I believe push these "fallen-angels" out to other plac
 I don't know how other countries are, but I can see this going in the direction that the united states (and possibly parts of canada, mexico, etc.) splitting into a bunch of communities, where at first each will be unique in the set of services that they provide, but the desire to interface well, will evntually emerge a system of inerchange of services and resources will eventually become the beginnings of a new codified government.
 
 I have more ideas, but I'm going to leave it there.
+
+### 2022-08-30 08:52 - selling everyone into slavery
+
+in the latest section I wrote [my opinions on the jason's ideas of needing to make an unsuveillable network and defend it it with a militia](/jorjani-thoughts.md#how-do-you-defend-what-you-build). the idea reminded me a lot of the matrix movie and when I was writing the part after my opinion saying that I think it's fine that some want to try and combat the enemy using psi or conditions, and that reminded me of a previous opinion that I had on the first matrix movie -- which I quite disliked because it's so opposite to my form of thought now. I quoted myself and then proceeded to try and lay out an argument that it's impossible to try and fight with any psi or physical conditions.
+
+that whole section really is an extension to my [previous section where I outlined what I think the long game is](/jorjani-thoughts.md#the-singularity). in that section I explained that there would be varying factions and levels within each faction that are interested in trying to gain superiority in terms of psi and conditional power, and that's all fine by me. in my opinion, anyone trying to fight a conditional battle is battling on that battlefield and so all of those get lumped into the group of factions battling over conditional superiority. these, just like the rest are capable of battling however they want, and when/if they develop singularity level technology, I'm pretty certain they'll be put on their own timeline so that their conflict isn't bothering others.
+
+personally, I don't believe that it's possible to win that war, but I imagine that someone will figure out how to be the most superior.
+
+---
+
+the really interesting thing about the battlefield over being the most superior is that most of us just want good conditions, but in order to keep those good conditions, you have to defend them -- which means, that I would have to become superior and actively make sure that nobody can take those away (defend them), or to go on the offence and prevent anyone from becoming capable of taking those conditions away.
+
+that whole part of trying to defend conditions is very uncharacteristically "promethian". I don't think that prometheus would engage in holding his opponents down so they never have the capacity to take his conditions away.
+
+on the subject of defence, I don't really know what to say, other than there is no way to defend because it's all attraction. I'm attracting a thing, and then I'm defending myself from the thing that's coming at me -- but it's me that's bringing it to me. this is a similar subject to secrecy because anything can be tuned into (remote viewing, clairvoyance, etc.), so really the only way to have any secrecy is to try and prevent everyoene else from tuning properly, which would mean that to have secrets, one would need to actively engage in disabling the capacity inherent in everybody to remote view. that's about the same thing as turning off the memory capability of every person. sure, it's probably possible, but society would fail pretty rapidly if nobody had the ability to remote view their own past.
+
+at any rate, if I wanted to keep a secret or to defend myself, I have to actively engage in very unpromethian activities.
+
+---
+
+after that, I had a strong reaction which went something like, "he's given all of the power to the controllers and they're now going to control our existence"...
+
+I guess so, sure; but this is my reality, so I can do whatever I want. I just don't think that they can get very far trying to control conditions so it's fine by me to take the path of learning to attract what I want. if others don't want to do that, they can join in on the battlefield of fighting over conditions and power.
+
+that personally isn't really my thing though.
+
+---
+
+there was another reaction as well, where the solution that I'm proposing isn't very dramatic and wouldn't make for a very good movie script. this is also true. the majority of people are inclined toward paying attention to power-displays. in fact, most of the entire OT and even considerable parts of the NT give authority and credibility to someone or some thing because of their capability to impress an audience with a power-display.
+
+I do agree that a power-display ("bullet time") or a magnificent display of chivalry does make for a better story ("for God so loved this world, he gave his only begotten son"). so why do I wish to take a narrative direction that is so anti-climatic?
+
+I don't really know, but if I had to guess, I would have to say, "the medium is the message" -- and so in a film or a story, you're looking at the characters on the screen, and so everything that is said and done has to have a specific meaning associated with it. the way that each scene is setup is not like real-life, but specifically arranged in such a way that the most meaning is conveyed in the shortest period of time. none of the mundande between the cuts, walking or driving around is seeen, so it's just pure symbol. however, inside of the body, you have to live everyday experience, and everyday experience is kinda mundane. the more lucid I become, the more I enjoy even the most mundane things (like pulling weeds and stuff), so really meaning for me inside of the body is an experience that's amortised over the whole day, rather than a few key events.
+
+the difference between these two is kinda the difference between a mind expanding drug experience and what happens to me every day now. it's hard to try and put into words what it's like to actually enjoy living and to see everything around me resonating with the concepts that I'm thinkg about. even small little lyrics in the songs corresponding with the concept that I'm contemplating is just a small example, but literally *everything* has a thread running through it that isn't really perhaps very self-evident to others that aren't living inside of my body. what I mean is, it's getting to the point where it would be impossible for someone conceptualise all of the resonant things that happen in my experience unless they were inside my body as often as I am. what I mean is, I imagine my life has much much much less meaning because it's distributed throughout the day instead of congealed into a few specific events.
+
+this makes it close to impossible to actually track everything meaningful, so that is actually an advantage that I have over nosebook. their system is designed to notice big things, so if my life is just a steady stream of small seemingly insignificant (but resonant) things, then they eventually add up (ref: tesla's mechanical oscillator)

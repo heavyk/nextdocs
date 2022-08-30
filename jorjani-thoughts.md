@@ -1176,6 +1176,8 @@ I guess the way I would describe it is a larger perspective. I'm able to look at
 
 I don't know what I could call that faculty because it's nothing I've ever heard of or seen anyone do before.
 
+EDIT: I think it's actually attraction power or something like that
+
 [1]: interesting, just when I was writing that, the song quote is the commander guy in the matrix (2?) that's not concerned with prophecies or oracles. he's concerned with stopping the army from destroying the city (zion).
 
 ### promethian egregore and science
