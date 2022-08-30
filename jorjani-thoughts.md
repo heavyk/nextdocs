@@ -1122,6 +1122,62 @@ extend that idea out further and it means that we'll all be on our own timelines
 
 that's the long game I see.
 
+### how do you defend what you build?
+
+this ending part of the interview, jason is talking about using crypto and blockchain technologies to create something that is unsurveillable and that you need to have a bit of a militia to defend it. he used rudolf steiner's anthroposophy as the model for making educational institutions and things like that.
+
+---
+
+I'll just give my opinion here -- and it's just an opinion, but if you're setting up defence, you're expecting an attack. that may not be what you want to attract.
+
+second, I disagree with the idea of trying to make something that's unsurveillable, and the reason for that is because that's completely impossible. everything is known or can be known. perhaps if you have an apple computer, you'll have more security, but any intel (and probably AMD as well) PC will be able to be accessed. that's just at the hardware level you don't have any secrets, but well before that in the human interface (your mind), they're already reading your thoughts and everything is recorded, so if you've typed your password at some point in the last 5 years or so (which is always gonna be true), there's a record of it somewhere.
+
+there simply isn't a way to make anything unsurveillable anymore. nobody has any privacy; we just have the illusion of privacy so that we'll keep storing things in secrets, which then they can use. the more secrets that you have, the more power they have over you.
+
+I recommend creating a system that is exactly the opposite of that, whereby everything is visible, and crypto is used not to secure the data, but instead to verify the integrity of the data. I have a few ideas on this, but they're too much for this small section.
+
+in addition to that, let's just say that by some miracle there would be a way to make a set of keys that are generated and held some location that only you have access to, and that key never gets into a digital form on any machine on the planet, so is therefore never readable by anyone other than yourself (obviously impossible) -- and you create an unsurveillable network of some kind. what you're doing is attracting more secrets and assymetry of access to information again.
+
+so let's just say the system works you've got the illusion of privacy for a while. after that you're now teaching people with this anthrophosophy model and you're gaining traction in the world as a race of beings that can become equal with the elite. that's a threat to their superiority, so they have to stop it.
+
+---
+
+now, I'm going to go on a bit of a philosophical tangent about why it's actually beneficial to let them destroy theirselves rather than trying to destroy them.
+
+they come from a perspective of "oh no, if we don't neutralise this, we're going to lose our superiority". in contrast, I (because I don't want to speak for others) come from the perspective that I'm constantly improving. they're holding on to the conditions that make them superior, so under it all they believe they're either stagnant or regressing (ahriman), which means that they'll eventually run out of superior conditions.
+
+I use my present situation as an example of the kind of system that everyone on the planet is under. obviously they don't have the resources to control everyone like they do me, so they just focus on the problematic (improving) types.
+
+because I'm constantly improving (and I'd say at a pretty rapid rate, too) they're going to eventually come to a point where my improvements are outpacing their capacity to hold them back. if I were trying to improve my physical conditions, then that would be something they could control, but because I'm improving things they can't control (how I feel and how I perceive my world), there's nothing they can do. it's literally just "riding the wave" left for me.
+
+I don't mind that other people want to try and confront the enemy[^1] on the physical plane, and try to use conditions to do it. that is largely what the matrix movie is all about -- the effort to defeat the machines with physical strength or (in the perspective of neo), the inside job of realising your mental capabilities. as mentioned, in my matrix notes:
+
+    I don't align with this perspective at all. I don't think that neo needs to be able to go faster than the machines to be able to win. I actually believe that desire alone is enough to make it happen. I'm actually completely in opposition to the final desires of neo expressed in his phone call at the end as well. if neo is symbolic of the "christ" saving people from the tyranny of the machines, I'm the opposite: my goal is to create a world where machines have complete control and that you don't need to get out of the matrix in order to free your mind.
+
+    why destroy the matrix when it's such a great thing? why not just assimilate it? if the machines are capable of running the whole show and they have everything all planned out, why not just let them do that? what if the matrix movie went a completely different route and instead of taking neo out of the matrix, he instead learned ego, hedonism, and how to feel the way he wants? if he never had to be released from the matrix to be able to bend reality to his desire, would he really want to actually leave a world where the machines are his "slaves" because he bends reality to his desire (including the machines).
+
+I'd like to further that discussion now by saying that I believe that the elite are developing capabilities to remove one's psi capabilities. I have a lot of psi capabilities, and they've been constantly trying to reduce their capability. what they're doing is neutralising the gross physical effect that the body receives in response to the emotion or concept that I receive from somebody. I've gotten pretty good at feeling the emotion rather than the physical effect, which is pretty impressive. it affords me the capacity to reach far deeper into the "akashic records" than most people are capable of because they usually lose focus when they feel something and focus on the feeling. I find it very probable that they'll be able to turn off and on the psi capabilities of people, so obviously only the elites will get those capabilities -- so, even the part of these movies where neo develops his psi capabilities are not even going to be relevant in the future.
+
+when all of the ultra power hungry elites have destroyed theirselves, the ones that are left over will either not have a body (absorbed into the system and exist inside of our collective bodies getting pleasure through us), or they'll have the ability to rapidly exchange bodies -- but the point is, that there will still remain an elite and they'll still control the network, meaning they'll be able to keep our psi capabilities low.
+
+I think this is the goal, and this power has been given to them for exactly that purpose, because it's not about fighting them on the physical plane or with conditions; it's learning that the way you feel and the way you conceptualise your reality is what creates it. so why look at all of this stuff as somethging awful that's happening.
+
+you may be in the matrix now, but the skill to attract the reality that you want will continue even after this matrix passes away. they're literally perfecting us (or at least me). I do see in the future that they'll gain full control over all of the conditions and their genetically enhanced IQs will be able to ensure it stays that way, too. they'll be really good at controlling our conditions, such that they'll alway be faster, but they're fighting their own attraction, which is of constriction.
+
+improvement is the only way. when I say improvement, I don't mean improvement of conditions; instead, I mean improvement of (something I don't have a word for this concept).
+
+---
+
+lemme try and figure out this concept. I want to say mental capabilities, but my mind is slow af. it takes me a very very long time to think about something and it often times involves the slow internal voice. my typing is slow and all physical movement is slow because my brain is being run at such a slow speed. so it's not improvement of mental capacity.
+
+I'd say it's probably my ability to tune, but that's clearly not the case either, as when I'm meditating, it's very difficult for me to maintain focus. I get distracted so easily my focus is never for more than a few seconds. I write here for extended periods of time, so I guess that's focus -- but it's not that.
+
+I guess the way I would describe it is a larger perspective. I'm able to look at (conceptualise) more things at once, but it's not in any tangible way. I don't see anything or feel anything -- just I desire to say something and open my mouth and it's there, so I kinda trust or even expect that I'll be able to translate the infinite knowledge of my "inner being" into something tangible with relative ease.
+
+I don't know what I could call that faculty because it's nothing I've ever heard of or seen anyone do before.
+
+[1]: interesting, just when I was writing that, the song quote is the commander guy in the matrix (2?) that's not concerned with prophecies or oracles. he's concerned with stopping the army from destroying the city (zion).
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
