@@ -1180,6 +1180,10 @@ EDIT: I think it's actually attraction power or something like that
 
 [1]: interesting, just when I was writing that, the song quote is the commander guy in the matrix (2?) that's not concerned with prophecies or oracles. he's concerned with stopping the army from destroying the city (zion).
 
+---
+
+further thoughts and opinions where expressed on this concept in @[metal-lucifer](2022-08-29 05:45) and @[metal-lucifer](2022-08-30 08:52). I separated them out because they're technically my opinions on the subject and they're mixed with a lot of personal ideas and expereinces, and so they're not really additions or enhancements to the subjects presented in his videos (as the previous sections have been). I likely will want to refine those thoughts down into a more condensed argument format, so that some of my experience is reformed into a logical argument rather than just anecdotal presentation of ideas. it'd be good to congeal some of that experience into logical form, anyway.
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
