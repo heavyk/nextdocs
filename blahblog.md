@@ -5655,6 +5655,34 @@ so, let's assume the part I woke up with this morning is right and they absolute
 
 from my perspective, I just keep doing what interests me and then they'll have to figure out what they want to do with it to keep it under control. they, and anyone else wanting to build a community of sorts, are building something that will get invaded by those with similar thought structures to their own.
 
+### 2022-08-31 10:05 - thinking inside the box
+
+this one will surely have some taboos and stuff in it, so be prepared; you may want to skip it. I'm going to present the idea as it happened, then I'll explain potential problems with the idea, and then things that I like about the idea.
+
+yesterday, I was over at remi's house pulling away a bunch of the weeds on the sideyard, when I started getting some reactions, and at first I remembered a long time ago probably in noseblog from about 2018 or something, an idea where we (me and the girls) formed a community, and it was a bit exclusionary in that only virgins were joining in there. when I remembered that idea, I had the thought come to me of why didn't I want to go with that one, and why would I want to instead go with girls that had previous relationships.
+
+I responded that I don't really care what another person has done with their life choices. it doesn't matter what they've done or whatever because I don't really see punishment as a thing (you only punish yourself by attracting that punishment with your own perception[^1]) it's all attraction anyway, so it doesn't really matter to me what anyone else has done or what their past is because I am attracting them in the first place, so it's all my fault for bringing them into my experience in the first place.
+
+I then stated that I can go either way, and if it's what's desired, then I can go that way. I'm definitely not going to try and mandate one way or another. I just need to sorta know the rules so I can stay within them.
+
+I can't remember now what happened after that, but that got me started thinking about such a setup. I've waited to sleep before giving my ideas on them. I figured that nosebook would have a perspective and/or fight against it somehow so I wanted to intergrate those ideas too.
+
+#### undesirable aspects
+
+the first thing that I thought about when I first looked at this idea (I was still at remi's house), is the possibility that this idea has come from allie, and that it's in response to another event that happened a few days ago when eva and one of her friends walked home from school while I was outside pulling weeds. her friend got picked up by her mom, but while they were inside, I was thinkng about the reactions, and I explained that I don't have any reason to think anything wrong with either of them. as I said above, I don't really believe in punishment, and I think it's all attraction anyway, so everything is fine from my perspective. from allie's perspective, that may be unfair that her sister can just go do other things with another boy, and then still be able to gain a reward for her actions -- meanwhile, she would have to wait.
+
+you can see the possible tension there, as this reaction may be coming from a sibling rivalry. if that's the case, then this idea is founded a bit on unwanted, and that's kinda undesirable -- in fact, previous events may have been the first manifestations of such attraction already[^2].
+
+whew that concept (adjusting-perception) completely changed how everything feels. I'll come back to this later...
+
+#### the placenta
+
+along time ago, I r
+
+[1]: if you never thought anything you were doing was wrong and never felt any negagive emotion over actions you made, then you wouldn't attract punishment. your inner being never feels negative emotion for anything that you or anyone else has done, so when you feel negative emotion, that means that concept is not in harmony with your source, which is why you feel the negative emotion in the first place.
+
+[2]: if that's the case, see adjusting-perception
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
