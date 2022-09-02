@@ -31,3 +31,17 @@ the brain is kinda like a filtering and focusing mechanism (tuning), and what yo
 I imagine that during physical activity, it feels like time starts to speed up again and more things seem to happen in the same amount of time again; perhaps, not hundreds of years worth, but the higher the frequency you allow yourself to receive, the more things will seemingly pass in the same amount of time.
 
 cool, yeah, so like cheers!
+
+### 2022-09-02 07:11 - feeling sequence meditation
+
+I've been thinking fairly frequently about the idea of having a quiet mind that I mentioned in the previous one about shealynn. a few weeks ago, I seemed to have relatively little easy time quieting my mind when going to meditate. I even got so far as I was observing myself observing myself and I felt a huge rush of energy after that. that was the only time it happened though, as since then my mind has been all over the place.
+
+yesterday I got the idea while meditating. it goes basically like this. pretend that you're a dancer or something while meditating and you have a sequence of postures or positions that you're going to go between. what I do is I just *feel* each one of them. I don't believe they produce a picture or even a posture in my mind because I don't see it. it's the feeling.
+
+---
+
+let me back up a little bit further and explain that it's my experience that a thought *always* produces a feeling. it's usually the case that a feeling produces a picture or a thought, but it doesn't have to. it is possible to just feel something without having it "manifest" into a thought or feeling. in fact, the longer that I can hold that feeling, the more powerful the manifestation will be. it's an exercise worth trying and a potential thing to try meditating by holding a feeling. I've done it before and it works well.
+
+but, what about a sequence of feelings? that was the innovation that totally made this new meditation completely different. I experimented a little bit with it, and I noticed that I didn't feel it nearly as powerfully when I tried to imagine what that feeling is. if I picked feelings that had physical counterparts like "sadness", "weakness", "irony", "labourious", etc. (yes, I like to often focus on negative feelings because they're so much easier to pivot into the wanted aspect of the same feeling) -- then it didn't work as well.
+
+it seemed to work best when I picked feelings that I'd never felt before, or feelings that I couldn't feel. I guess that's kinda hard to explain, so just try it I suppose :) the sequence part seemed to be pretty important too.
