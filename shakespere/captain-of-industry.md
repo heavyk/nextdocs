@@ -66,7 +66,20 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug that if I hold shift when deleting a pipe, it begins to deconstruct, but then if I hold ctrl (to unity delete) the pipe and select a section (or hold shift to delete the whole section), it doesn't unity delete the pipe
 
-- "cannot find valid pillars placement" is the most annoying thing ever. sometimes it requires me to delete entire sections of pipe because they went over the top of a balancer, and when putting them back, now it can't find pillars placement. also, it's often the case where I copy and paste something and the paste cannot find pillars so those bits don't copy. without the ability to control where the pillars are placed, it feels a silly restraint.
+- "cannot find valid pillars placement" is pretty annoying. without the ability to control where the pillars are placed, it feels a silly restraint.
+  - sometimes it requires me to delete entire sections of pipe because they went over the top of a balancer, and when putting them back, now it can't find pillars placement.
+  - it also happens sometimes where I copy and paste something and the paste cannot find pillars so those bits don't copy.
+  - if I run 6 pipes next to each other at height 2, it's often the case that the pillars don't line up with each other and can be diagonal, so it blocks truck traffic.
+  - one potential solution would be the ability to move the pillars up or down the pipe a bit (within their valid range)
+
+- it takes forever to add servers to a data centre. three possible solutions are:
+  - hold shift to add 5 at a time
+  - "max" button which adds as many as can be added
+  - a slider like the buckets/boxes to set how full you want the data centre to be.
+
+- it would be really nice to be able to click and drag a priority to a whole block of buildings.
+
+- small bug: if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building forever.
 
 ### design/upgrade planner mode
 
