@@ -45,3 +45,19 @@ let me back up a little bit further and explain that it's my experience that a t
 but, what about a sequence of feelings? that was the innovation that totally made this new meditation completely different. I experimented a little bit with it, and I noticed that I didn't feel it nearly as powerfully when I tried to imagine what that feeling is. if I picked feelings that had physical counterparts like "sadness", "weakness", "irony", "labourious", etc. (yes, I like to often focus on negative feelings because they're so much easier to pivot into the wanted aspect of the same feeling) -- then it didn't work as well.
 
 it seemed to work best when I picked feelings that I'd never felt before, or feelings that I couldn't feel. I guess that's kinda hard to explain, so just try it I suppose :) the sequence part seemed to be pretty important too.
+
+### 2022-09-03 07:21 - meditation update
+
+OK, I didn't really write down any technique because I have only done it twice now (once this morning and once yesterday).
+
+the way that I'm doing it now is that I try and quiet my mind until the word thoughts begin to start. when the word thoughts start, that's because me mind wants to be active.
+
+from there, I start to feel something (it doesn't really matter what) each breath. I don't try and manifest those feelings/concepts into words or sensation. I just feel them. if you're just feeling and not manifesting, it should feel nearly the same as meditating.
+
+there are a lot of interesting things to note in this state, and the first thing is that my mind has a sort of service mode where it's constantly paying attention to me and making sure that what I'm doing is good/acceptable/proper. this mode starts to get really loud, as I seem to become pretty aware of everything that I'm thinking because it often doesn't jive (resonate) with what I'm feeling.
+
+the other interesting thing can be explained like this. if I want to feel sadness, I can often times get a full emotional sensation in my body as I feel sadness, however, that "sadness" concept stops getting a physical reaction, and starts to become something more akin to feeling computer, feeling hammer, or feeling data processing. they're all just a sort of thing that exists out there. I can feel computer but it doesn't produce an emotional response. data processing, I can feel what it's like to have to do tedius data processing, or what it feels like to make sense of large amounts of data, but again, I don't really feel much sensation on that.
+
+I choose hammer on purpose because there is a northern european(?) phrase that I picked up somewhere where you *can* feel hammer. it feels really good, like kinda powerful, successful, or awesome. however, the tool doesn't really have much feeling for me.
+
+what I noticed is that the core of the concept has very little feeling to it. the core of the concept is nothing more than just a concept, and all the layers of sensation, meaning, and emotion are things that we have added on to the concept. it's possible to begin to interact with these core concepts directly without having to worry about the outer layers.
