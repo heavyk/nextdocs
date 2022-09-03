@@ -1,3 +1,6 @@
+# captain of industry notes
+
+inspired by things I've encountered while playing myself or watching [JD's videos](https://www.youtube.com/c/JDPlays/videos) (or both).
 
 - blueprint mode is extremely hard to see what I'm doing. after a while it just becomes a mess of blue. an option to enable normal view or to show the schematic of the build in a conceptual way would be nice while building.
 
@@ -79,7 +82,25 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - it would be really nice to be able to click and drag a priority to a whole block of buildings.
 
-- small bug: if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building forever.
+- small bug: if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building until I reload from a save.
+
+- small bug: when the tree harvester has a tree in its claw, if I tell it to move to another place on the map where it can't go, it gives me the error, then I tell it to go to a new spot it can go. the truck comes to get the tree, the truck gets the wood, but the tree doesn't disappear from the claw. it cuts down another tree still with the tree in its claw. after another truck comes, it's fine again.
+
+- bug: I'm not totally sure the conditions which produce this bug. I think it's something to do with scrapping the tree harvestor while he's paused. then if I try to recover him, he goes back to trying to harvest trees, and scrap doesn't do anything, and neither does pause. neither does unselecting the tree he wants to harvest. even more amazingly he can drive under belts and through buildings. it seems like a bad fsm state, probably from trying to scrap while being paused.
+
+- small bug: clicking on the recipe for glass will show me the recipe for making PCB in robotics assembly 2, when I don't even have robotics assembly 1 yet.
+
+- it'd be nice if crude oil pumps could have the same notification system as boxes, but no need for the full ones so I can alert if < 30%, 20%, 10%, empty (also see above suggestion for slideable alerts)
+
+- it'd be nice if the green chevrons that show something is being queued for upgrade, but then when it actually starts the upgrade process, it'd be cool if it changed colours again so that when I unity build the upgrades, I have confirmation that it started the upgrade.
+
+- instead of assigning a truck to a single box, I want to assign a truck to a zone which contains various boxes and their whole job is to service the boxes/buildings in that zone
+
+- in the research, it'd be nice if there were a list of researches, and the ability to reorder them. to make it easy, if trying to drag a research up to before one of its dependencies, just place the research below its dependency and flash the parent dependent red or something.
+
+- instead of up and down arrows to reorder recipes, it'd be nicer if there were like two/three horizontal bars showing that the recipe can be dragged up or down to reorder it.
+
+- when clicking on a save game, it'd be nice to see the game time as well as the local time (and perhaps a few other statistics which can help me identify which autosave is the right one to load)
 
 ### design/upgrade planner mode
 
