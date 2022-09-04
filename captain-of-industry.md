@@ -90,6 +90,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug: clicking on the recipe for glass will show me the recipe for making PCB in robotics assembly 2, when I don't even have robotics assembly 1 yet.
 
+- small bug: the recipe for toxic slurry in wastewater treatment is shown when I right click on brine.
+
 - it'd be nice if crude oil pumps could have the same notification system as boxes, but no need for the full ones so I can alert if < 30%, 20%, 10%, empty (also see above suggestion for slideable alerts)
 
 - it'd be nice if the green chevrons that show something is being queued for upgrade, but then when it actually starts the upgrade process, it'd be cool if it changed colours again so that when I unity build the upgrades, I have confirmation that it started the upgrade.
@@ -101,6 +103,16 @@ this opens up an interesting conversation though, which is how the pipe should b
 - instead of up and down arrows to reorder recipes, it'd be nicer if there were like two/three horizontal bars showing that the recipe can be dragged up or down to reorder it.
 
 - when clicking on a save game, it'd be nice to see the game time as well as the local time (and perhaps a few other statistics which can help me identify which autosave is the right one to load)
+
+- it'd be kinda cool to see some update on the loading screen. I notice the first seconds are loading things into GPU memory, then a few seconds after nothing (why?) the CPU goes up real high, so this is probably deserialisation of terrain and producing the 3D model from the resource layers... etc.
+
+- it'd be cool if the excavators temporarily prioritised the material of the truck that's waiting to be loaded. that would save various trips of low amounts of dirt when digging out a mountain with some green on the top.
+
+- it'd also be cool if fuel station trucks could also take jobs to fill up fluid storages with diesel instead of sitting idle (see trucks assigned to a zone rather than a single box suggestion above). another way to do it could just be to allow a truck to be assigned to more than one entity (assign on truck rather than on entity)
+
+- it'd also be cool if there were a way to set an alert on the global supply and have the border colour of the item on the right show below (or above) a certain level
+
+- small annoyance: if I cut a belt that is attached to an existing belt, it removes the connector, and if I paste it right back where it was, it doesn't reput the connector. one easy way to fix this is just to make an easy way to make a connector (I know I can just copy and paste one, but if it's at a different hight, I have to match its height)
 
 ### design/upgrade planner mode
 
