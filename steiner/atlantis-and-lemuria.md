@@ -107,7 +107,7 @@ we're living in a repeat of the atlantian thing, and I'm fairly certain that the
 
 it's not like it's a big deal anyway... I think this book has a bit of a trickster aspect to it already because I don't think steiner is saying what is written. I'm trying to describe above that his writings about manu are seriously bipolar and don't make a lot of sense. now, whether that's the edits that have been done, or if that's the way steiner encoded a message, I don't know, but he sounds exactly like what you might expect if you follow weird religious nonsense, but the opposite of what you would think if you gave it any thought. the irony being that the aryan root-race is learning how to compare, analyse, and think for oneself. so if that's the case, then why would he come to tell you how to think so that you can follow him. doesn't make any sense!
 
-### root-races
+### root-racism
 
 the word "race" is a bit unfortunate because we associate it with skin colour and bone structure, yet I don't get the impdression that steiner is "racist" at all, even though he uses the word race. the overwhelming sense that I have is he is talking about mental capacity. I've struggled with this very concept for a while because I want to say, "someone that is highly aware of their feelings" -- and, if I say a "sensitive person" that could mean a lot of things, especially in spanish (sensible means sensible and also sensitive) -- or, if I say, "indigo person" wtf does that even mean, right? my point is, there isn't a good way to define this characteristic.
 
@@ -120,3 +120,40 @@ that's actually kind of an interesting coincidence because "why" is the operativ
 meanwhile, the letter "I" is one of individuality. individuality means something that cannot be divided. it is singular -- so that, if you take one kenny and cut him into two pieces, you don't get two kenny -- you still have one kenny, now dead[^1]. I've been thinking about what the coming root-race would contain for qualities, and it has a lot to do with individuality. I'll make a case for it later.
 
 [1]: it felt like I was channeling hedayat when I wrote that there
+
+### root-races
+
+#### polar root-race
+
+...
+
+#### hyperborean root-race
+
+...
+
+#### lumurian root-race
+
+...
+
+#### atlantian root-race
+
+memeory based. they did not calculate using rules and ideas, but instead summarised the thing they experienced similarly in the past (like counting three things, four times and remembering that there were twelve), so any new advancements were attempted by trial and error, not really having a general rule (maths) whereby they could derive a result by calculations.
+
+picture based. atlantians thought in terms of pictures, so if they could see it, then it was "real" to them. this is very different from the way we think, which is in ideas, which don't have pictures. the link between the ideas and the pictures is that both have *feeling*. the capability to feel things in a stronger way produced better memory. it also had the detrimental effect of being linked to desire.
+
+the 4th atlantian sub-race (A4) had a strong feeling (meaning better memory) being the the notable attribute of the ruler-kings, but the beginning of the individualisation meant that they used that power to attain their desire to unbelievable proportions. that eventually caused them ruin.
+
+this 4th sub-race also forms the template for the decadence at the end of the atlantian period, and became the catalyst for the coming aryan root-race, because it became necessary to begin calculating and making a decision based on the calculation, instead of blinding following the desire and repeating the past over and over.
+
+education was passed from parent to child in the form of a comprehensive picture that contains a sequence of different things (it's very similar to memory), but each picture contains extra data that explains more things. the picture is the physical component, or rather the lookup address point of reference for the concept. the concept associated with the picture contains all of the educational information.
+
+an interesting note about that, I've experienced that kind of education happen much more between mother and daughter (or son before he gets too old and shuts down the capacity to receive those pictures) now rather than how this book says that this was how father transferred his knowledge to his son. I know that men do it too, but I've seen these kinds of intuitive transfers of knowledge happening much more often from the mother. she emits the concept and it forms a picture in the child's mind which represents the concept. like, if the kid is playing in the street and she doesn't want the child to be there, she'll emit the concept of danger and that will produce an image in the child's mind. the child then has the choice to see if mom's concept will come to pass or not. kids are smarter these days, so most of them know that mom's concepts are usually pretty fearful and don't really feel good. she'll persist in trying to get the child to feel just as bad about the thing as she does.
+
+I don't yet know what that kind of memory is, but all of my life I've received those kinds of "comprehensive pictures" from people all the time, and it's basically the reason why I don't look people in the eyes much, because I see those comprehensive pictures, not the concept I'm trying to talk about or listen to (usually the picture in someone's eyes is very different than the concept that they're emitting, so to save myself confusion, I tend to feel what the person is saying rather than get their picture)
+
+
+
+#### aryan root-race
+#### aquarian (?) root-race
+
+#### infinitian(?) root-race

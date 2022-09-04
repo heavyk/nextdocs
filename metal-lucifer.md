@@ -608,7 +608,7 @@ I haven't figured out his sub-races, but it seems like the fourth sub-race is th
 
 so, to summarise his book, I'd say that if you're believing and regurgitating what your told, you're from the "atlantian" root race, and you're going to be going the way of the dinosaur soon. the "aryan" root-race will be able to navigate the difficulties at the end of the period being able to think for themselves. the implication here is that most all of the information that you're being told is going to be wrong or debilitating.
 
-[song: alive inside of every living soul there is a strong eager heart that will always be yearning. our future lies (rises?) on the promise of us doing our part, to question everything .. if we're to see the morning light] (interesting choice of words, morning light reminds me of morning star, lucifer)
+[song: alive inside of every living soul there is a strong eager heart that will always be yearning. our future lies (rises?) on the promise of us doing our part, to question everything .. if we're to see the morning light] (interesting choice of words, morning light reminds me of morning star: lucifer, herald of the morning light)
 
 out of this, will emerge a new root-race. that's kind of exciting to me because I seem to be a part of that. the thing is, his description of manu sounds purposefully deceptive. I find it very hard to believe that manu wants humankind to be able to compare, think, and reason for theirselves, and then is going to show up and select and initiate a choosen few and get them to blindly follow him. that sounds to me like the flat earth theory gaining promnance at the same time that nosebook comes out and that it's clearly obvious that the sun is in a different part of the sky.
 
