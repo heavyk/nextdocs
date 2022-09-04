@@ -577,3 +577,39 @@ I don't really know, but if I had to guess, I would have to say, "the medium is 
 the difference between these two is kinda the difference between a mind expanding drug experience and what happens to me every day now. it's hard to try and put into words what it's like to actually enjoy living and to see everything around me resonating with the concepts that I'm thinkg about. even small little lyrics in the songs corresponding with the concept that I'm contemplating is just a small example, but literally *everything* has a thread running through it that isn't really perhaps very self-evident to others that aren't living inside of my body. what I mean is, it's getting to the point where it would be impossible for someone conceptualise all of the resonant things that happen in my experience unless they were inside my body as often as I am. what I mean is, I imagine my life has much much much less meaning because it's distributed throughout the day instead of congealed into a few specific events.
 
 this makes it close to impossible to actually track everything meaningful, so that is actually an advantage that I have over nosebook. their system is designed to notice big things, so if my life is just a steady stream of small seemingly insignificant (but resonant) things, then they eventually add up (ref: tesla's mechanical oscillator)
+
+### 2022-09-04 09:55 - think for yourself
+
+[LEFTL - 2022-03-13]
+
+I woke up this morning thinking about all of the events that transpired yesterday. it seems pretty obvious to me that there is a lot of connecting elements. I included [the story of remi and the abductions](/steiner/atlantis-and-lemuria.md#modern-edits) in the section on modern edits because they felt very relevant and similar in vibration.
+
+after looking at it even closer, not only are they extremely relevant to that but also to what steiner is trying to say... let me explain.
+
+the event that I got into an argument over with melissa and remi yesterday was that people *still* believe that people are unable to be located, when it's clearly not true. the last time this happened, I was at friendly harbor and a dr. phil programme came on and he was even taking donations for a missing girl. it's the typical thing of tugging on people's heart strings in order get them to hand over money (I grew up in the church; this is standard procedure).
+
+I didn't want to talk about how messed up it is to cash in on a thing that's clearly not happening (the law enforcement knows where *everybody* is, so everything that dr. phil said is a lie, probably to make money). instead of focusing on dr. phil's enterprise, I decided instead to bring up the fact that everyone is obviously tracked, so these sorts of stories are something like the "flat earth" nonsense.
+
+I mean, think about it, if people are watching the sun set in spain (where I was living) and then over here in the USA, the sun is high in the sky, there's abosolutely no way the earth is flat!!! think for yourself!
+
+same thing for not knowing where abducted people are. these appear to be tests of gullibility, and a person's ability to think for theirself or blindly believe what they're told.
+
+---
+
+the interesting thing is that steiner is saying that the aryan root-race of humankind has developed the capacity to think for theirselves. he's clearly drawing a
+
+[song: fool me once and I'm numb, twice and I'm dumb; thrice I won't be fooled again. fool me once and I'm done, twice I succomb, to a handshake with hell. in the end we only reap what we've sown; can't leave well enough alone. the world's at stake under a love that cannot break]
+
+he's clearly outlining in this book that each "root-race" of humankind is kind of like an octave, and each successive "sub-race" is a note in that octave. between each octave there is a sort of barrier that has to be crossed and at that barrier which requires an evolution into the next octave. he's saying that this period is a time when the people that can think for theirselves will survive the transition, but the ones that adhere to the old "atlantian" root-race method of thinking where they just believe what they're told (that's their education), then store that data into memory and then act based upon that memory. those people are going away.
+
+he basically is saying that at any period of time on earth, there are 2-3 of these groups alive. there are always the survivors from the previous epoch (prev), those of the current epoc (cur), and the ones that are developing the capacities that will become dominant in the next epoch (next).
+
+I haven't figured out his sub-races, but it seems like the fourth sub-race is the one that he says will outline the most decadance -- which sorta makes sense because musically speaking a third and a fifth are more harmonious than a fourth (I think). so, still developing my thoughts on that...
+
+so, to summarise his book, I'd say that if you're believing and regurgitating what your told, you're from the "atlantian" root race, and you're going to be going the way of the dinosaur soon. the "aryan" root-race will be able to navigate the difficulties at the end of the period being able to think for themselves. the implication here is that most all of the information that you're being told is going to be wrong or debilitating.
+
+[song: alive inside of every living soul there is a strong eager heart that will always be yearning. our future lies (rises?) on the promise of us doing our part, to question everything .. if we're to see the morning light] (interesting choice of words, morning light reminds me of morning star, lucifer)
+
+out of this, will emerge a new root-race. that's kind of exciting to me because I seem to be a part of that. the thing is, his description of manu sounds purposefully deceptive. I find it very hard to believe that manu wants humankind to be able to compare, think, and reason for theirselves, and then is going to show up and select and initiate a choosen few and get them to blindly follow him. that sounds to me like the flat earth theory gaining promnance at the same time that nosebook comes out and that it's clearly obvious that the sun is in a different part of the sky.
+
+if that's the case, manu is a bit of a trickster.
