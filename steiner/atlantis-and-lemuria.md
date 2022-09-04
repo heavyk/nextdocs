@@ -58,7 +58,7 @@ come to think of it, this is likely the reason why there are so many corporation
 
 ### modern edits
 
-I started to read this document last night and then today I reread a lot of it and noticed some considerable differences. there was a strange rainshower last night at about 1am even though the temperature was still about 80F outiside (very strange). the bannanas that were still unripe yesterday also managed to age about 4-5 days time overnight as well.
+I started to read this document last night and then today I reread a lot of it and noticed some considerable differences. there was a strange rainshower last night at about 1am even though the temperature was still about 80F outiside (very strange). the bananas that were still unripe yesterday also managed to age about 4-5 days time overnight as well.
 
 I remember various parts were changed and there is evidence of this in the version I have here. it seems that the edits have to do with the atlantian's ability to do powerful things (like stonework and things like that).  here is an example:
 
@@ -71,7 +71,17 @@ so we gained combining and comparative thought, and it says that the mineral kin
 
 if thought (which is what was developed) is no logner able to command nature, then why did he write above that it's this combining thought which could command the mineral kingdom? it's either one or the other; something was edited.
 
----
+#### responses
+
+I had a few reactions to wondering why I made mention of the rain and the bananas. I've come to associate massive sudden rain storms associated with negative emotion or bad-feeling in a high energy environment (ref: tormenta and marcos, missing 411). now, consider that the ageing is also a happens very quickly when a person doesn't feel too good.
+
+therefore, I must conclude that whatever happened after I went to sleep, the feeling, went from feeling pretty good (I went to sleep reading steiner in a pretty lucid state) to things feeling relatively bad. for a fruit, this probably manifests itself as getting really ripe or withering really quickly, and for a human this may have the effect of feeling sick or out of sorts.
+
+whatever the case, I say that you are time traveling all of the time. yesterday felt really different than today, and even a few hours ago could feel pretty different from now. if you were able to feel like you felt yesterday, you would teleport into yesterday and live again from there, but because you know that today exists, it's very difficult to lose your memory of today so you can go back to yesterday. what I mean is, any change in how you feel adjusts your trajectory through time, so whether we switched timelines or not, clearly the trajectory changed when I went to sleep. therefore, sudden changes in the manifestations of how things feel like aging, or a feeling like you're in another time is essentially time travel. I also add in rain because it seems that rain occurs when it feels like things are not going the way that they should be going (like, an emphasis that things should be different, changed in some way, so it rains[^1]). I associate rain with a change in the energy.
+
+[1]: this reminded me of rain dances, where if you're looking at a drout, things are the same, so really the rain dance is is just a process whereby you get yourself mentally ready for things to be different than how they are.
+
+#### divine messenger edits
 
 another possible edit:
 
@@ -93,4 +103,18 @@ what I'm saying in all of that, is the subject of them having all kinds of infor
 
 we're living in a repeat of the atlantian thing, and I'm fairly certain that the hypothesis of his book (though I've only read the first 4 chapters) is that there are 7 root-races, the atlantians were the 4th. there are 7 sub-races, and that the 6th and 7th races decline into such decadence that only a certain number of people that can make an evolutionary leap over the decadence.
 
-it's not like it's a big deal anyway... I think this book has a bit of a trickster aspect to it already because I don't think steiner is saying what is written. I'm trying to describe above that his writings about manu are seriously bipolar and don't make a lot of sense. now, whether that's the edits that have been done, or if that's the way steiner encoded a message, I don't know, but he sounds exactly like what you might expect if you follow weird religious nonsense, but the opposite of what you would think if you gave it any thought. the irony being that the aryan race is learning how to compare analyse and think for oneself. so if that's the case, then why would he come to tell you how to think so that you can follow him. doesn't make any sense!
+it's not like it's a big deal anyway... I think this book has a bit of a trickster aspect to it already because I don't think steiner is saying what is written. I'm trying to describe above that his writings about manu are seriously bipolar and don't make a lot of sense. now, whether that's the edits that have been done, or if that's the way steiner encoded a message, I don't know, but he sounds exactly like what you might expect if you follow weird religious nonsense, but the opposite of what you would think if you gave it any thought. the irony being that the aryan root-race is learning how to compare, analyse, and think for oneself. so if that's the case, then why would he come to tell you how to think so that you can follow him. doesn't make any sense!
+
+### root-races
+
+the word "race" is a bit unfortunate because we associate it with skin colour and bone structure, yet I don't get the impdression that steiner is "racist" at all, even though he uses the word race. the overwhelming sense that I have is he is talking about mental capacity. I've struggled with this very concept for a while because I want to say, "someone that is highly aware of their feelings" -- and, if I say a "sensitive person" that could mean a lot of things, especially in spanish (sensible means sensible and also sensitive) -- or, if I say, "indigo person" wtf does that even mean, right? my point is, there isn't a good way to define this characteristic.
+
+so, if what he means when he says "aryan" is a person that is capable of mental calculations rather than memory, this clearly doesn't have anything to do with skin colour -- rather that aryan is the name that the group of people that started this trend of mental calculating called theirselves (it's also related to the zodiac symbol aries).
+
+now, how would I call the next group of people that are coming out as individual thinkers, but not only that, they have a high degree of sensitivity to concept and emotion? well, I couuld call them aryan, but thatz name is taken, so perhaps I'll call the aquaryan (lol) -- ok, maybe aquarian so the racists don't get upset (cause everyone can see the "I" in the word when I say aquarian, rather than the "why" in the word aquaryan).
+
+that's actually kind of an interesting coincidence because "why" is the operative question to ask yourself when you want to begin thinking for yourself. this is why kids ask why so much and adults hate it, because they've been trained to no longer ask why.
+
+meanwhile, the letter "I" is one of individuality. individuality means something that cannot be divided. it is singular -- so that, if you take one kenny and cut him into two pieces, you don't get two kenny -- you still have one kenny, now dead[^1]. I've been thinking about what the coming root-race would contain for qualities, and it has a lot to do with individuality. I'll make a case for it later.
+
+[1]: it felt like I was channeling hedayat when I wrote that there
