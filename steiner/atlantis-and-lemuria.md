@@ -48,7 +48,9 @@ the way that I look at it, this is the same force which will produce a "saviour"
 
 in the same way the manu can be seen as a preview saviour figure that is going to build up desire to produce the manifestation of what they want. therefore, I believe that the manu should be looked at in negative form. he's the thing that you think you want, but not what you really want.
 
-an example of this is, let's say you're programming something and you don't know something, so you could wish to have someone program that part for you, but you *really* want to actually know that subject matter for yourself instead of just have someone do it for you. therefore, I believe the manu is this kind of short-sighted desire where we want the solution that says, I just want to give up my power and have someone else do it for me.
+an example of this is, let's say you're programming something and you're not familiar with that kind of code, so you wish that someone would just program that part for you. it sounds easy, but *really* you do want to actually know how to program that type of thing, so you don't *really* want to just have someone do it for you. manu just kinda reminds me of a cheap solution (chapuza). therefore, I believe manu is framed as a short-sighted desire where we *think* we want his solution, I just want to give up my power and have someone else do it for me.
+
+that is extremely ironic because steiner began the sentence say
 
 come to think of it, this is likely the reason why there are so many corporations and governments that operate on this principle where they'll do X for you, as long as you give up your power to them. they are in a sense a micro-saviour service they'll save you from your small problem (for a price, of course).
 
@@ -68,3 +70,27 @@ so we gained combining and comparative thought, and it says that the mineral kin
     Now it is no longer possible for thought alone, working entirely within the man, and no longer able to command Nature directly, to bring about such devastating results as did the misused forces of earlier times
 
 if thought (which is what was developed) is no logner able to command nature, then why did he write above that it's this combining thought which could command the mineral kingdom? it's either one or the other; something was edited.
+
+---
+
+another possible edit:
+
+    Now we must realise that the end of the Atlantean era is characterized by these groups of human entities.
+
+the word "characterize" doesn't appear anywhere else in the text. he uses the word "characteristics" a lot more instead. also, why wouldn't he spell it "characterise"?
+
+again, this is talking about these "divine messengers" the ones that are guiding the atlantian people and have very unequal amounts of power over the rest of the humans.
+
+the sense that I get is that the descriptions of these "divine messengers" and what they're able to do is sounding a lot like nosebook and their capabilities, but they're doingt it now with technology instead of something else which is probably what's edited out. that's my guess, anyway.
+
+I also notice that things in my life have a strong frequential or resonance to it, so today after I wrote the previous sections (about the edits and the manu), I went outside to see what is happening at the yard sale because I remembered that there was a blanket that I wanted to buy.
+
+for some really strange reason, the melissa (the woman that owns the house), made a big point of changing the subject of whatever she was talking about with remi previously, cause she raised her voice and made sure that I could hear her say, "did you hear about the woman that got abducted" ... remi said no or something, so she then went on to explain more details about it saying something like, "I hope they find her" -- to which I responded that there's no way that anyone's location is unknown. everybody is fully tracked, so they definitely do know where she is.
+
+she tried to change the subject but I changed it back. she said that it's not a thing, but I insisted that it is. she changed the subject again. I think remi tried to change the subject, but I wanted to explain that *everything* in the human body is electrical, so everything can be tracked. you can get the signals that the eyes are seeing, all of the senses, etc., so there's no reason for anyone to ever be lost or to have anyone missing. they know where everyone is, so these random stories that come out on the news are done on purpose. I don't know the reason, and I don't know why people keep talking about people that are missing when, it's clearly not the case.
+
+what I'm saying in all of that, is the subject of them having all kinds of information on people aed their attempts to control (though it seems like they're doing a pretty good job of it because so many people are willing to lie for them) -- that, something similar to that is what was edited out of the book.
+
+we're living in a repeat of the atlantian thing, and I'm fairly certain that the hypothesis of his book (though I've only read the first 4 chapters) is that there are 7 root-races, the atlantians were the 4th. there are 7 sub-races, and that the 6th and 7th races decline into such decadence that only a certain number of people that can make an evolutionary leap over the decadence.
+
+it's not like it's a big deal anyway... I think this book has a bit of a trickster aspect to it already because I don't think steiner is saying what is written. I'm trying to describe above that his writings about manu are seriously bipolar and don't make a lot of sense. now, whether that's the edits that have been done, or if that's the way steiner encoded a message, I don't know, but he sounds exactly like what you might expect if you follow weird religious nonsense, but the opposite of what you would think if you gave it any thought. the irony being that the aryan race is learning how to compare analyse and think for oneself. so if that's the case, then why would he come to tell you how to think so that you can follow him. doesn't make any sense!
