@@ -114,6 +114,10 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small annoyance: if I cut a belt that is attached to an existing belt, it removes the connector, and if I paste it right back where it was, it doesn't reput the connector. one easy way to fix this is just to make an easy way to make a connector (I know I can just copy and paste one, but if it's at a different hight, I have to match its height)
 
+- it'd be nice to get stats on the balancer showing how much throughput each port is doing (same for pipes, not just how full they are)
+
+- a query or overlay system to show machines that have not turned on in a period of time. this is useful for debugging because I often times don't see a pipe reversed direction or something stupid, so I don't know that the building isn't even running. it's also a good periodic check to go around the island and look for machines to be paused.
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
