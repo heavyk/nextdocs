@@ -54,7 +54,6 @@ although vision boards and other such visualisation devices are popular to try a
 
 I purposefully didn't use the example of saying, how do you visualise yourself as having a certain feeling. I've been doing this stephan schwartz meditation on and off for a few weeks now, and I'm telling you it's definitely a different set of skills to feel yourself as one of the physical, emotional, mental, and spiritual concepts. sometimes, feeling those ways causes a vibrationally similar image to pop into my mind, but that isn't the feeling. the whole process is learning how to feel the feeling itself, so that you can exude that feeling when you go out into the world.
 
-to give a more concrete example, imagine I wanted to visualise love for myself. I could visualise having sex with someone, but that's not the feeling. that's a visual symbol of that feeling, and until that exact situation manifests, I hold myself away from feeling like that now. so, for material crap, visualisation probably works fine, but if your desire is emotional or conceptual, I *don't* recommend visualising it so much, else you'll keep attracting its absence.
+to give a more concrete example, imagine I wanted to visualise love for myself. I could visualise having sex with someone, but that's not the feeling. that's a visual symbol of that feeling, and until that exact situation manifests, I hold myself away from feeling like that now. so, for inanimate objects and material crap, visualisation probably works fine, but if your desire is emotional or conceptual, I *don't* recommend visualising it so much, else you'll keep attracting its absence.
 
 the absence of the desire *is* the message.
-

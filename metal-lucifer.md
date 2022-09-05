@@ -613,3 +613,47 @@ so, to summarise his book, I'd say that if you're believing and regurgitating wh
 out of this, will emerge a new root-race. that's kind of exciting to me because I seem to be a part of that. the thing is, his description of manu sounds purposefully deceptive. I find it very hard to believe that manu wants humankind to be able to compare, think, and reason for theirselves, and then is going to show up and select and initiate a choosen few and get them to blindly follow him. that sounds to me like the flat earth theory gaining promnance at the same time that nosebook comes out and that it's clearly obvious that the sun is in a different part of the sky.
 
 if that's the case, manu is a bit of a trickster.
+
+### 2022-09-05 11:15 - the medium is the message (in relation to desire)
+
+at the end of @[concept-log](2022-09-05 08:04) I wrote this, but then deleted it because I couldn't get the rest of the concept into word form. since then, there have been quite a few reactions to it, containing ideas I hadn't even thought about...
+
+```
+there is another aspect to this which I'd like to touch on briefly, and that is. when you read a book, the image that is created is yours alone and unique to you because it happens in your head. however, when you watch TV, videos, theatre, film, etc. the image is not produced by you, but by the screen.
+
+in the same way, the way the format which you pursue the desire is also the message. it depends on the medium in which that desire is pursued is also the message.
+```
+
+the first reaction was considering that I was talking about nosebook. however, upon thinking about it, I belive it's a really good point. I looked into it and it appears that when someone imagines their desire for theirself, that's like reading a book. however, when it comes to using your imagination while connected to nosebook, it looks to me like they synethesise your concepts into higher definition images for you.
+
+the reason for this is obvious: they're interested in rendering and tracking everything that you're thinking about, and they are now serving as that global visual memory that steiner was talking about when he explains the "akashic records"; but, whatever the case may be, this service is much more like watching a video or the TV than reading a book. obviously, I don't know much about nosebook, so I can only tell you me sense impressions (ie what I "see") when I look into these concepts.
+
+I feel resonance with that rendering, so it feels pretty right on to me, so I wanted to now talk about the implications, which is that the medium that people are now using to attract their desires is now "hot" (if I remember mcluhan correctly), meaning that it's a higher definition more detailed medium where you are not actually involved in the creative process. for low definition ("cool") mediums like cartoons or books, because they provide so much less sensory data, you fill in the missing information with your own mind.
+
+to prove this to you, think about when you were younger and the video games that you played. if you look at them today (like megaman, commander keen, duke nukem, or mario) you'll notice that they're terribly pixelated. however, if I go back to my memories when I was a child, those games very very rich and immersive. if I look at the picture in my mind of the actual pixels on the crappy crt screen, I see very pixelated things, even worse than they look on today's screens -- so, where is all of that extra sensory data coming from? it's not visual. in the same vein, do you remember playing video games at your friend's house or at the mall where they had the video games on display? do you remember how different those video games felt at the store than they did at home? that effect isn't as pronounced these days with higher definition video games (a few minds just got blown...)
+
+so, what this is telling me is that nosebook is producing the image now for people, which means that people are no longer looking at the manifestation of that concept in their own imagination; instead, they're looking at the concept rendered onto a screen.
+
+what that means is that without knowing it, people are going to be perpetually looking at the absence of their concept unless the concept is pretty "inanimate". that style of imagery is good for manifesting things, and likely calculatory things like formulas, equations, and things like that. it'll definitely help with building and creating things that are all formulaic in nature (computer programming, maths, geometry, stuff like that) and it's even possible to come up with "novel" (to us) ways to look at formulae, and even new things, because both of those are just a tuning processs.
+
+however, what that sort of thing doesn't help with very much is emotional and conceptual things (stuff I've heard labeld with the integration of heart and mind: "heartmath"). the reason for this is the same reason that the atlantians progressed so little in hundreds of thousands of years... and it's because everyone was just tuning into something that had been done previously. they weren't creating; they were remembering.
+
+this is the same thing that I claim remote viewing and conceptual viewing is. it's just memory, and when I'm capable of receiving the idea, it feels like I'm remembering it. for example, I'm not even sure if what I wrote above about the akashic records, heartmath, or what mcluhan wrote about hot and cold is actually something I actually read, but I remembered it just the same as if I had've. those concepts are not anything new, so they're easy to access. I'm sure they have a visual component to them.
+
+however, for something new and novel like an experience or a feeling or something like that, you have to find a way to tune into the feeling part of the image, and ignore the image, because the image is all things that have already happened, so it'll *never* be that image exactly (perhaps similar), unless you're imagining a thing or a formula, or joining of many pieces to form a structure.
+
+---
+
+I don't want to sound like I'm being too pessimistic here, but I personally don't see any way that anyone can actually get what they conceptually want while using nosebook. they'll be able to get non-novel or formulaic things, but if you want a novel experience, you're going to have to find a way to not see the image anymore.
+
+personally, I have a very difficult time listening to what a person is saying if there are other things happening in the image than the concept that they're conveying -- but I know that some people can look at something and still keep the concept of what they're saying in mind.
+
+if I watch TV, it's often times that I get very captivated by the image -- and I mean that literally: I'm held captive by the image, and it's hard for me to see what they're really saying. in order to see/sense what they're really saying, I have to look away from the image on the screen and let the image/sense form in my own imagination instead so that I can actually understand the concept of what they're saying.
+
+so, if that's true for me, I'm certain that a lot of others are similar to me, and if the image is seen inside of the eyes, there's no actual way to look away and let the concept form in my own mind. nosebook sounds to me like a conceptual prison where I'm literally held captive by the image.
+
+the similarities to the atlantian civilisation is uncanny; nosebook has replaced the akashic records[^1].
+
+OK, that's not at all what I wanted to write about. maybe I'll get to it next time. think about the difference between the "imaginary" medium and the "knowing" medium and you'll know what I was going to say.
+
+[1]: when I wrote that, I was reminded of fwh telling me in one of his last posts that he now "works at the akashic records" and I realised that what he meant, is that he was a "good-guy" (white hat), but now he's not. he's working at nosebook now.
