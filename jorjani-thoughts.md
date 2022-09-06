@@ -1184,6 +1184,33 @@ EDIT: I think it's actually attraction power or something like that
 
 further thoughts and opinions where expressed on this concept in @[metal-lucifer](2022-08-29 05:45) and @[metal-lucifer](2022-08-30 08:52). I separated them out because they're technically my opinions on the subject and they're mixed with a lot of personal ideas and expereinces, and so they're not really additions or enhancements to the subjects presented in his videos (as the previous sections have been). I likely will want to refine those thoughts down into a more condensed argument format, so that some of my experience is reformed into a logical argument rather than just anecdotal presentation of ideas. it'd be good to congeal some of that experience into logical form, anyway.
 
+### 2022-09-06 11:00 - manu the trickster
+
+@[youtube](https://www.youtube.com/watch?v=zKe70imV3Oo)
+
+this isn't really any response to jason in particular, but I suppose it resonates most with most of what I've been talking about here.
+
+I was reading rudolf steiner because he recommended the book atlantis and lemurians when talking about how steiner showed that there was a change that took place where some of the atlantians developed analytical thinking and those that developed this new form of thought had clear superiority and dominated in the last parts of that era. so I started reading the book and I found rudolf steiner's arguments to not only be coherent and very well thought out, that I was very interested in what he had to say. I keep reading and he starts talking about this manu guy and I get a totally bad vibe from it and [figure it has to be modern edits](/steiner/atlantis-and-lemuria.md#modern-edits) that are the reason for such a ridiuculously unlogical and bipolar[^1] message.
+
+later on, I considered that this [may be an aspect of the trickster at work](/metal-lucifer.md#2022-09-04-0955---think-for-yourself). I just can't pssibly believe that manu would be wanting us to think for ourself, and if you follow steiner's logic, this next transition is going to be the end of the atlantian memory based form of thought -- so manu wants us to think for ourselves, so he's going to get born into a human body, figure out his own way, and then *save* everyone else. none of that makes sense to me.
+
+---
+
+I also noticed that I had sometimes written down "the manu" because I think that's what steiner writes, but it sounds ULTRA PRETENTIOUS -- like, imagine if I called myself, "the kenny" -- good grief.
+
+so I started thinking about how this is similar to the snake-bros and how they say, "good night adamu, get back to work." -- as in, they don't say, "good night *the* adamu" -- so they've personalised him a bit.
+
+there is also similarities in the name as well because adam is man -- so it's kinda the same word (adam/man)-u.
+
+after that I was thinking about how in dtp, all of the female words get a u-ending and the male words get an a-ending (astika - prince, astiku - princess).
+
+because zoroaster wrote in really old sanskrit, which mazy have its roots in this atlantian version, I found it quite possible that the u-ending on the word man is kind of a joke... it'd be like saying "hombre feminina" in spanish or something like that.. it's hard to explain, but when I thought about that it opened up the idea that the manu that we're looking for is inside of you; hence, "-I- the man" song I picked. that man though male in appearance on the outside is female in description. I know that jason has written such a book, so this idea is dedicated to him :)
+
+[1]: I love how even the band name "polar" is the opposite of bipolar, so even that lines up perfectly with what I'm writing.
+
+[2]: backwards from spanish, where a-ending is usually female cept a few really common words like water and day. spanish doesn't use a u-ending, though I wanted to add it to mean either boy or girl (neutral), but I was already too radical for the spanish already to even begin suggesting to change their language too. it would upset a lot of things.
+
+
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
