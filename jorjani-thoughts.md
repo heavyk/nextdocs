@@ -1206,6 +1206,18 @@ after that I was thinking about how in dtp, all of the female words get a u-endi
 
 because zoroaster wrote in really old sanskrit, which mazy have its roots in this atlantian version, I found it quite possible that the u-ending on the word man is kind of a joke... it'd be like saying "hombre feminina" in spanish or something like that.. it's hard to explain, but when I thought about that it opened up the idea that the manu that we're looking for is inside of you; hence, "-I- the man" song I picked. that man though male in appearance on the outside is female in description. I know that jason has written such a book, so this idea is dedicated to him :)
 
+#### followup, cause I should explain myself
+
+I realised that I have no idea where the manu concept comes from. I assumed it was zarathustra because he's the origin of the messianic concept, which later became maitreya, christ, etc. -- I think. or perhaps that was derived from a mithraic idea. not sure.
+
+either way, the point was that I thought it was really cool how a bunch of things aligned with that idea because I personally don't mind if others attract a saviour for theirselves, but I don't really want to be a part of it.
+
+for example, when I first met raquel, I thought that perhaps she could save me from my problems (she couldn't). I suppose I may have also thought that about zaryn, augusto, marcos, as well (they couldn't either). in reality, the only person that can save me is me. -I- the man. I'm my own manu. you're your own manu. everyone is their own manu -- and the outward appearance is man but its description is feminine. which means to me that it's externally emissive (like a sun/son) and but it's receptive in description. this man-u concept perfectly encapsulates 2nd ray energy when thought of that way, so I thought it was cool -- and definitely doesn't have anything to do with a saviour or any of that other nonesense.
+
+I wouldn't change my relationship with raquel if I could. I'm very very glad that I *didn't* have a saviour (even marcos, augusto, or zaryn) to come and pull me out of my problems. I'm very glad that I had to figure it out for myself. so, by actually *not saving me*, they actually saved me.
+
+hence, manu is a trickster.
+
 [1]: I love how even the band name "polar" is the opposite of bipolar, so even that lines up perfectly with what I'm writing.
 
 [2]: backwards from spanish, where a-ending is usually female cept a few really common words like water and day. spanish doesn't use a u-ending, though I wanted to add it to mean either boy or girl (neutral), but I was already too radical for the spanish already to even begin suggesting to change their language too. it would upset a lot of things.
