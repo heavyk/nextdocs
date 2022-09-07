@@ -5701,7 +5701,7 @@ you guys have been wanting to know what I see more and more, so little by little
 
 as an example, yesterday, I was telling mom what I was seeing, and she was getting upset, telling me that I need to *not* trust my vibrations, and instead believe her words. I explained that was how I got beat up and how a number of other "bad" things happened to me. I'm definitely not going to go back to believing people's words. also, if my perspective wasn't right, then she wouldn't have been accusing me and denying it. so, at least act like it's the way you say it is a little better. there's no way that I'm a better actor than these other frauds.
 
-for example, with melissa and remi, their efforts to continually change the subject is your number one indicator that there's untruthfullness. if there wasn't anything there, then they would have engaged me in the subject. in spain and germany, before nosebook happened, I would talk to various people about where I saw technology going and I would come up with these crazy ideas about how we could be tracked (remember I was on the social networking side at thte time, so I was constantly thinking about how to get more data out of the user, because with better data, you can present more relevant information), and when I would state new ideas that were radical, people would listen and become engaged, often times feeling fear about the capabilities of these new techniques to get more data out of the user. obviously, remi and melissa are behaving more like police (denying everything) than they are like normal humans that I used to interact with.
+for example, with melissa and remi, their efforts to continually change the subject is your number one indicator that there's untruthfullness. if there wasn't anything there, then they would have engaged me in the subject. in spain and germany, before nosebook happened, I would talk to various people about where I saw technology going and I would come up with these crazy ideas about how we could be tracked (remember I was on the social networking side at thte time, so I was constantly thinking about how to get more data out of the user, because with better data, you can present more relevant information), and when I would state new ideas that were radical, people would listen and become engaged, often times feeling fear about the capabilities of these new techniques to get more data out of the user. obviously, remi and melissa are behaving more like a police or politician (denying everything) than they are like normal humans that I used to interact with.
 
 please, figure out how to act better.
 
@@ -5793,8 +5793,25 @@ hey, I just thought of something... so imagine that you there are a bunch of tim
 
 if I take on all of the hardest challenges (because I like the hardest challenges), and the rest of the timelines are all doing their own thing just fine, I suppose at that point, I would have the opportunity to finally overcome evil (the hardest challenge) once and for all and save those poor souls stuck in such a difficult situation (christ) -- or, I could go back to the formula and instead provide a way once again for evil to gain more power to try and control their reality (a harder challenge), which is sorta the anti-christ vibe a bit. anti-christ is helping the bad-guy and christ is taking the hardest challenge (in this frame of thinking). so, by taking the hardest challenge, I am also kind of "saving" the other ones stuck in such a difficult challenge. interesting thought... I'm done for now...
 
-[1]: it's funny how the word for false reality also means "red"
+[1]: it's funny how the word for maintaing a false reality also means "red"
 
+### 2022-09-07 14:40 - on actors and acting
+
+real quick one... I mentioned in the previous entry that we're all acting now, and that's largely to do with social media because when you go on to these various platforms, you're behaving the way the audience wants you to behave. an actor proper will behave the way the script says to behave.
+
+all of this is feeling the way you want to feel, whether its to meet the expectations of the audience or whatever, it's still feeling that way on purpose.
+
+I don't really wish to make any disagreement with that or any other psycopathic behaviour, because I think this is the key to getting what you want, and I think there's a good reason why there's a stong correlation between actors and attracting the things that they want -- because they're more used to modifying the way that they feel.
+
+the better someone get at modifying the way that they feel, the more likely that they'll be attracting more often than pushing away. have you ever wanted something that you felt like you couldn't have or was just out of reach? that's attracting and pushing away at the same time. so if the script says that you need to feel like the perfect amazing whatever is coming, the actor is able to just feel that way, without actually seeing the manifestion of it or even considering that to be a part of the real life.
+
+what you conceptualise to be a part of your reality is something like playing a script. you're told in the script that you need to act like something really good (or bad) is going to happen, and if you do that well enough, the film is believable, but if not it looks really not-genuine. so, that's why there are those LOA things on "scripting" where you write the things that are going to happen and then start pretending like you feel those to be true until they start coming true, right? fake it till you make it.
+
+---
+
+there's another aspect to acting that has to do with maintaining a false reality, and I see that actors know this all too well, where the maintenance of a false reality or image to a number of people is quite taxing. I see all the time these breakdowns, and it feels to me like they're just so tired of having to perform the way that others want them to, and they want to start feeling the way *they* want to feel, rather than how the camera expects them to feel.
+
+feeling the way you want to feel for other people is different than feeling the way you want to feel for yourself.
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
