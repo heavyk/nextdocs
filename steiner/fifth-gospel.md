@@ -58,4 +58,8 @@ the whole point is that once technology is high enough, everyone can be their ow
 
 easy. everyone is their own manu.
 
+    "the apostles' state of soul at that time was such that they could only *participate* in the death of jesus in an *abnormal state of consciousness*" (emphasis mine)
 
+#### further thoughts on this
+
+I wrote that I think it was funny that he got duped by his own atlantian recollection of memory, form of perceiving the past, but I don't believe now at all that is what happened. I think he remote viewed jesus' perspective in it too, and that's the whole point of why he says in the beginning of the lecture that he thinks that in the future history will be taught by actively looking at the events clairvoyant

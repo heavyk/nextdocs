@@ -5683,6 +5683,65 @@ along time ago, I r
 
 [2]: if that's the case, see adjusting-perception
 
+### 2022-09-07 07:17 - why do I want to go for the "worst" manifestation?
+
+yesterday, wrote about steiner's [perspective on the death of jesus](/steiner/fifth-gospel.md#lecture-2---if-i-see-it-ill-believe-it), and in the part where I'm tieing together my own version of why one would want to attract the "worst" maanifestation possible, I concluded with the fact this new setup gives everyone on the planet sufficient technological means and all of the required capability (you just need to be able to experiece emotion, so if you react to this of feel bad about any of this, that's your "inner being" telling you that your physical perspective of it isn't in harmony with your concept of yourself (your source)). everyone will have a whole solar cycle to do it (~1000-1024y), so there's no rush, *and* you don't need to do it by being spiritual either. the technological path is just as valid as any other, but whether you take the spiritual or technological path (or are in a community that goes one or the other), you still attract based on how you feel, so the community as a whole will have to figure out how to convince the individual (probably through some kind of education) to feel the way that they need to feel.
+
+most, however, I don't believe will go the community route, because that's such a difficult way to go -- and instead, they'll go the individual route. why? because though you still have ~1ky to figure it out, the sun will still continue to increase its output -- although at a much lower pace than is presently happening now because I'll eventually be off of the planet. I'm a huge individual problem they're going to have to solve eventually, but for a mass of people, it's quite different because they can produce interactions that cause conflict and other such things which keep you focused on the material, groups of people all focused on the mundane is easier for them to manage than it is for a single individual that knows how to feel the way they want to feel. though these individuals  may live in a community, they're not necessarily going to have the community values.
+
+for example me. I live in a community where I'm expected to not talk about nosebook, but I don't choose to obey that expectation now. I think that kid that I met kinda changed me because it was ever since I met him that I've been a bit more ... rambunctious, I guess. I don't mind causing the authorities of what's happening (mom, melissa, remi, etc.) to feel a bit uncomfortable because I don't believe their words. if you could see from my perspective how obviously *not true* their words are, you may have wondered why I haven't called them out on it before.
+
+oh, I see... you'll probably thinking that I'm going along with the ruse[^1] because I want the girls. that's not actually the case. I watched a video last night (@[youtube](https://www.youtube.com/watch?v=2_wxMfnGU7c)) about this guy "rasputin" -- a russian mystic that was extremely magnetic, clairvoyant, etc. and he achieved it by "sinning" basically with lots and lots of sex. that's already been done before, most notably jack parsons, alistier crowley, tantric sex, and tons and tons and tons of "fertility rituals" that have been done through the ages. it's proven that this works by so many people, that I'm not really that interested in it.
+
+my whole thing is to learn how to feel the way I want to feel *despite* the physical conditions. if I go the girls and sex path, then that's the easy way. it's not that hard obviously if so many others are going that way. my mission is to go the "worst" possible manifestation. I want to find my way there without girls, without physical conditions, with the whole world upset with me (because I'm not following their expectations), and *still get there*.
+
+once I'm there, they nosebook will have to put me on my own timeline (separate me in either time or space), and then things will be just fine. however, until I get there, I figure we need to upgrade the difficulty a bit.
+
+you guys have been wanting to know what I see more and more, so little by little I'm starting to talk about all of the different connections that I see happening all around me.
+
+as an example, yesterday, I was telling mom what I was seeing, and she was getting upset, telling me that I need to *not* trust my vibrations, and instead believe her words. I explained that was how I got beat up and how a number of other "bad" things happened to me. I'm definitely not going to go back to believing people's words. also, if my perspective wasn't right, then she wouldn't have been accusing me and denying it. so, at least act like it's the way you say it is a little better. there's no way that I'm a better actor than these other frauds.
+
+for example, with melissa and remi, their efforts to continually change the subject is your number one indicator that there's untruthfullness. if there wasn't anything there, then they would have engaged me in the subject. in spain and germany, before nosebook happened, I would talk to various people about where I saw technology going and I would come up with these crazy ideas about how we could be tracked (remember I was on the social networking side at thte time, so I was constantly thinking about how to get more data out of the user, because with better data, you can present more relevant information), and when I would state new ideas that were radical, people would listen and become engaged, often times feeling fear about the capabilities of these new techniques to get more data out of the user. obviously, remi and melissa are behaving more like police (denying everything) than they are like normal humans that I used to interact with.
+
+please, figure out how to act better.
+
+---
+
+so, why do I want them to figure out how to act better? well, because I'm obviously going to do this challenge again and I actually want a challenge. all of my life I've seen through adult's arguments, and it's really easy to read that they're lying. because of conflicts (the final nail in that coffin was my relationship with raquel), I stopped listening to my inner guidance, and started listening to people's words and just assumed that everyone was telling the truth. this worked out fine with zaryn because he was solid. pretty good with others, but I was pretty guillible, so a lot of people took advantage of me.
+
+so, you may be wondering if I'm wanting to be able to see people are lying or not, and it has nothing to do with that. my goal is to practise to feel the way I want to feel in spite of the clear dissimilarity between what's obviously happening, and what people *say* is happening. this was the entire subject that I was talking about with remi -- because it's obvious that we're all tracked, and it looks to me like she and melissa are in denial about it (it's the first stage of grief over loss of privacy, you know), and so the whole thing is to be able to look at the conditions (the "worst" manifestation -- the thing causing grief) and then be able to feel the way that you want to feel.
+
+so, if I can maybe get you guys to at least act a little better, that would be awesome. what I mean is, feeling like you want to feel is a bit of psychopathic behaviour. so, if you don't want to feel the way you want to feel about the conditions, instead, I figure that I'll push you guys to feel the way you want to feel about the lies. which, of course, is also psychopathic behaviour. both paths -- the technological and the spiritual are valid. you can find you way to feeling the way you want to feel be becoming really good at lying or by feeling the way you want to feel about your conditions.
+
+---
+
+the other connection that all of this has, is the same subject of the plants. I was noticing that all of the vegetables were growing especially large last year, but mom would continually cut them. this year, the garden is having severe growing difficulties, in that the plants feel like they can grow a lot of fruit, but never actually grow any fruits, and the ones that are growing, are getting dry and cracking as they try to expand. it's like the cherries on the tree where they're getting the water sucked out of them, just at a slower pace.
+
+this is a direct reflection of my life. if the vegetable size is a reflection of my energetic capacity, then every time that I start to get big, I get my consciousness removed and get reset back (this is the same as mom running in to cut the plant before it gets too big). this year however, I haven't been "cut off" nearly as many times as I was last year, and instead find myself having severe water problems. I really have a much more difficult time peeing and my pee smells like pool cleaner even though I'm only drinking water. also, even though I'm drinking a lot of water, my body is behaving like it's dehydrated (which may be why it's harder to pee because my body doesn't want to give up its liquid).
+
+generally speaking mom represents the nosebook force, and so now if you consider the vegetable to be the manifestation (of the girls, my capacity, expansion of my vision, etc.), nosebook is constantly saying, let's cut it off now before it gets too big, and I'm saying ... no, let's wait until we finally have a vegetable that's too big, and then pull back from there.
+
+also, generally speaking, mom represents the cautious, overly worried mindset (it's funny how it feels the same as impatient) -- the spirit of preservation where you have to pull out early or can't go too far because you're affraid, that you could lose it all or it'll be bad in some way.
+
+I like to find the limits, and then from there pull back to what is optimal. I don't have tesla's imagination where I can experiment in my mind and find out the limits in my mind, so I have to figure them out in real-life by trial and error. so, sorry for wanting to experiment to try and optimise.
+
+I suppose, what this means in reality is that I'll find the limit at some point and then nosebook will be faced with watching their entire setup falling apart, so they'll have to separate me out in time or space. this won't be the first time they'll do it, as it's inevitable over the next ~1ky that many others will pose a risk to their setup and will have to be separated in time or space.
+
+---
+
+another dimension: if I keep going the way I'm going without a manifestation, the bandwdith of visible perception will continue to expand, and eventually we'll reach a new octave. when this happens, I believe that the astral will combine with the physical, and expanded vision will be available to everyone, and it'll mean that nosebook will have to find a more effective means of hiding (they're probably going digital and jumping in and out of bodies)
+
+new galaxy: just what it says. if we're separated in time, then it's an inward looking galaxy of many versions of the same star system all with different versions diverging in different ways. if we're separated by space, it's a literal galaxy.
+
+intergalactic planetary: I believe that this new galaxy will retain ties to the milky way and will continue on in communication. I'm not sure what exactly will cause the separation, but they'll be tied together. one galaxy has focus on wanted, and the other galaxy (probably the milky way) will retain its identity as the demiurge where everything needs to be controlled and kept a secret.
+
+that's really where I think all of this is leading. they're not going to ever change their mind to reveal their secret, and I know this. my prodding at mom, remi, and melissa was un purpose. I know they'll never admit it, because they can't, so instead what this is all about is pushing them to dig in so hard that they're willing to take it to very extreme levels. it's bad enough that they could see their whole planetary setup fall apart, but what if they've now been forced to remain in control of, thousands, millions, and perhaps billions of other planets that they've had te separate off because their technology or emotional/conceptual capabilities have become significant enough to threaten penetrating their ruse.
+
+keep holding on to the secret guys! we'll find the limit soon enough.
+
+[1]: it's funny how the word for false reality also means "red"
+
+
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
 ### corrections and things to do
