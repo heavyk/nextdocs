@@ -66,4 +66,40 @@ I wrote that I think it was funny that he got duped by his own atlantian recolle
 
 at any rate, I do think he suspects something not immediately apparent happened here and that's the whole point of why he says in the beginning of the lecture that he thinks that in the future history will be taught by actively looking at the events clairvoyant so we can look at history as it "really happened", rather than the prevailing narrative. I also feel that's why he said that he feels in the future it will be possible and that in the future it's possible to talk about these subjects with more accuracy, because of the higher frequency images were not totally able to be decoded by him.
 
-### lecture-3 - 
+### lecture-3 - solar initiation made possible without leaving the earth
+
+steiner has a really strange way of talking... something about the mithraic seven stages of initiation, where you started out with inner things, then became a liason for the nation, then more than the nation, then the solar system (a "sun hero")
+
+pardon my personal comment here, but all of this sounds pretty hokey. sun hero is something I would think of naming a children's toy, so I guess he was right when he said all of these things sound silly to the modern mind.
+
+- raven
+- occult person / secret one
+- fighter
+- lion
+- liason of nation
+- liason of earth
+- liason of sun
+
+however foolish sounding it may be, there might be some sense to what he has to say. if I take the first 4 he has there and call this the 3d experience, the others correspond pretty well to the other dimensions:
+
+- liason of nation (outward looking 4d)
+- liason of earth (inward looking 5d)
+- liason of sun (outward looking 6d)
+
+so, if I'm following him correctly, what he's saying is that what jesus did is to take 6d perception and make it possible here on earth.
+
+just a quick refresher: 6d perception is where you are able to enter into the body of another person, place, or thing and perceive the world from their perspective. you have access to all of their thoughts, their conception of the world and all of their senses. this is kind of like nosebook, but nosebook does not give you that (as he called it in the beginning of the lecture), "direct living experience, a feeling and power of the soul"
+
+this 6d perspective is 4th ray perception, which is the the upgrade from astral 6th ray perception. if you were a sun, then this 4th ray perception would be outward looking (and 6th and 2nd ray inward), but for human body types, we are opposite, so that 6th ray and 2nd are outward looking, but 4th ray is opposite, so you see from the perspective of the other entitiy you tune into and experience it as if you are that entity.
+
+this is what various places calls "principalities and powers", where, for example, when beginning to work for a corporation, you will take on (to some amount) the demeanour of the corporation. you see things and feel things as the corporation feels it (hence the initiation of the nation, then of the earth first in the mithraic intiations). as this capacity increases, it's possible to feel how anything from a stone to a corporation, another person, to a planet or star feels. for those interested, this is definitely one of the things you'll quickly learn when star-watching, too, btw.
+
+when I say this, I am simply referring to tuning into the vibration of, so in the next part here he makes a note that a person thinks that a dead person cannot suffer, and that is clearly false because otherwise a rock could suffer. the reason why a soul or person in a physical body can suffer is because of a disharmony with their environment or their source; and that disharmony is what causes the suffering. most people believe that the obvious thing is to then accept the suffering or try and change the environment (we humans love to modify our environment to improve how we feel about it).
+
+low powered 4th ray perception is just falling into the demeanour of the dominant vibration of the most dominant entity, but as you get more powerful 4th ray perception, you start to pick up on any and every vibration in your environment. most people keep this blocked off and filtered out because it'll cause them paralysis to maintain a normal productive life. however, as one releases more and more resistance, other vibrations other than your own can be experienced and they don't really bother you so much -- first, because you don't really have as much resistance (opposite destructive interference vibrations -- so usually higher frequency but can be same frequency too) -- and second, because your own vibbration is either stronger or has fast recovery.
+
+we all know what stronger is: 100W transmitter is more than 10W transmitter -- but, what is fast recovery? fast recovery is a strong self-identity, where if you get thrown off by something (like say a really powerful psychedellic experince or a tragedy), then you can return back to feeling yourself pretty quickly -- and most importantly, it's good to bring something back with you from the experience too, so in the middle of the experience, if you can retain a bit of self-identity, you can manage to apply the new feeling to your identity vibration.
+
+4th ray perception is just being able to tune into something else really well, rather than look at it from the outside like 2nd or 6th ray perception.
+
+---
