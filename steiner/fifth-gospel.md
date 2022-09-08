@@ -62,4 +62,8 @@ easy. everyone is their own manu.
 
 #### further thoughts on this
 
-I wrote that I think it was funny that he got duped by his own atlantian recollection of memory, form of perceiving the past, but I don't believe now at all that is what happened. I think he remote viewed jesus' perspective in it too, and that's the whole point of why he says in the beginning of the lecture that he thinks that in the future history will be taught by actively looking at the events clairvoyant
+I wrote that I think it was funny that he got duped by his own atlantian recollection of memory, form of perceiving the past, but I don't believe now at all that is what happened. I think he may have suspect that something different than what was apparent, because he only talks about the events from the perspective of the apostles. I think he may have tried to remote view jesus' perspective in it too, and that may be what he's referring to at the end of the lecture when he says that he can't get the density right. if jesus attained 5d in that death experience like I think he did, then that could explain not only the part of them not being able to recognise jesus in "risen" form versus the physical form, because he was appearing to them as the concept of their perception now, and so that's why the physical image had to be overlaid on top of the spiritual image.
+
+at any rate, I do think he suspects something not immediately apparent happened here and that's the whole point of why he says in the beginning of the lecture that he thinks that in the future history will be taught by actively looking at the events clairvoyant so we can look at history as it "really happened", rather than the prevailing narrative. I also feel that's why he said that he feels in the future it will be possible and that in the future it's possible to talk about these subjects with more accuracy, because of the higher frequency images were not totally able to be decoded by him.
+
+### lecture-3 - 

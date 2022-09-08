@@ -5811,7 +5811,11 @@ what you conceptualise to be a part of your reality is something like playing a 
 
 there's another aspect to acting that has to do with maintaining a false reality, and I see that actors know this all too well, where the maintenance of a false reality or image to a number of people is quite taxing. I see all the time these breakdowns, and it feels to me like they're just so tired of having to perform the way that others want them to, and they want to start feeling the way *they* want to feel, rather than how the camera expects them to feel.
 
-feeling the way you want to feel for other people is different than feeling the way you want to feel for yourself.
+feeling the way you want to feel *for other people* is different than feeling the way you want to feel *for yourself*.
+
+---
+
+feeling good in my body vs looking good in my body
 
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
