@@ -5839,6 +5839,50 @@ another example, but from my perspective: in spain, I would often walk in the mi
 
 eventually, if their attraction were to become so strong that they *must* have a reality where I got run over, then they would eventually get that reality. I would either make a miraculous recovery (because I'm attracting well-being), or whatever -- but that's not a very extreme case and I can recover from those sorts of things really quickly. however, if it were extreme enough of a difference in attraction, like being stuck in a reality where I'm devoted only to pleasure and have nothing novel or mentally stimulating, then I would imagine that I would do like I always do which is to start causing problems until I finally peace out.
 
+### 2022-09-09 16:41 - stuck in the box
+
+I just woke up, and I don't really remember any specific dreams or anything like that but one of the things that popped into my head early on was ... I was thinking about kyle and his daughter and there was an impression on me wondering if I would like to go over there or something like that. I can't really tell if these things are nosebook trying to figure out how to move me around cause it's possible that my presence here on this street is causing problems. like, imagine if you're remi or others, they would feel like they need to avoid me for fear that I bring up the previous conversation that I had with them.
+
+it would fit with the vibe because after the previous entry, there was a considerable amount of reactions around noticing that not only was I right that the abduction vibration did match their previous conversation, and so if they're that transparent to me, then possibly it's a good idea for me to go somewhere else where I wouldn't be considered in the same vibration as abducting their kids. the solution is always conditional.
+
+when I was younger, I couldn't figure out how to make certain things happen (like programming) so I would perpetually change my conditions in order to try and find some inspiration -- like go to get a coffee or go to get a whiskey or whatever, and by changing the setting and my conditions, I would feel better, but it didn't solve the underlying problem.
+
+this is exactly the same thing. they can try and move me around and stuff changing the conditions, but it's not solving the problem of the serious desync that nosebook has with me. they've probably been manipulating the broadcasts so much that what people see is very different, and so probably figure the best way to keep their ruse going is to isolate me so that I'm not interacting with too many people and they can go back to just showing small bits that they know will resonate with the person (omitting the stuff they won't like). that's what I think is happening on the surface.
+
+---
+
+however, my reaction to wanting to know if I would want to go down there was much different than that, whicch is what I'll explain here. I've sorta committed to the "worst" manifestation possible, and that manifestation unfortunately sounds pretty good.
+
+when I talk about the "worst" manifestation, let me explain that I don't have any specific goal for it, but at the moment it already looks pretty awful, and here's why.
+
+let's just say for a moment that what ends up happening is the "box" manifestation I referred to a few entries back when outside on the side of their house I started to receive reactions about why would I want to allow other non-virgins into the group, and my response to it not being something that bothered me...
+
+I just noticed something while writing that and those reactions and the feeling that came around when remi suddenly had to come to the house (presumably to pick up allie) felt *very similar* to the conversation that remi was having with melissa right before the abduction subject. it felt as if remi was complaining that my presence forces her to have to run over to pick up allie in "emergency situations" such as that one. I guess I'm a pretty big problem to have around because of my telepathic caabilities -- and so if that was what happened, her complaining about it with melissa attracted me to come over in just that moment so things can get far worse... lol.
+
+back to where I was... I was talking about the "box" manifestation -- and the synopsis of it is that there are various ages of girls and the older ones give birth to children and these become the future mates of the younger ones. let's just assume that's the future for sake of this discussion.
+
+I consider that to be the "worst" manifestation because even if say there were 4 girls that were able to be impregnated every day (~4 children per day), that would be an output of ~1.5k children per year (being *very* optimistic), which is fine I guess, so that would mean that there are also at least that many girls which at at a rate of having sex with each of them only once per year it still means 4 per year. that sounds like an awful lot of work.
+
+I don't even have a way to really conceptualise that, and the only way that I can really see it happening is that that guy is not me. I have no way of knowing what my my libido would be like after I get connected, but in my present state of mind, I find that idea to be pretty horrifying. it basically means I'm putting all of my creative energy into creating children and stuff. I dunno about that.
+
+but, just for argument's sake, let's just assume that works out somehow, and let's also assume that this eventually becomes the "seed for the next root-race" or something as far out as that. I say that because if it is, or if the children are superior to normal humans in any way, then you can expect the archons/fallen-angels to be highly attracted to these bodies. they'll be most interested in trying to get into these bodies. that's what I think is happening below the surface -- and that it's essentially a breeding program to get new bodies for the fallen-angels.
+
+---
+
+the other aspect to this, is the one that I mentioned in reference to de vere and (at least) the first 17 sonnets -- where you could imagine him as one of the fallen-angels reaching through time trying to convince me to have earthly children, and not only heavenly ones. I know that nosebook definitely does not want any earthly children, as it would mean that there would be a spread of people that have my capacity. it would be like if jesus' bloodline was mixed in with the normal plebs, and not contained only within the elites. that would be a huge problem.
+
+personally, I don't believe I'm from jesus' bloodline, so any and all genetic upgrades that I have were created by me with my own mental capablities. if I can do it, so can everyone else. I think it's perfectly fine if only the elites get access to my genetics, because then it actually forces people to come to their own way to accomplish that perception, rather than getting it through bloodlines.
+
+if you've been following my work on [the fifth gospel](/steiner/fifth-gospel.md), you're probably fitting the pieces together now and rnalising that science had advanced so much because (assuming that happened), the pentecost gave the normal plebs access to clairvoyance (4d), but the elites (the church) got access to conceptual (5d) and potentially higher forms of perception as well. so, with all three sides (spiritual, scientific, and archons/church) getting upgrades, the battle was on and it produced a number of new advances in technology, despite the perpetual wars and things of that nature.
+
+---
+
+it may look like you want to have some set of conditions, but the reality is you really want to find it for yourself.
+
+in short, the "worst" manifestation looks to me like a breeding program to ensure that the archons get the best bodies again. their efforts to remain superior will eventually produce a diversity of new ways to accomplish the same thing. there isn't any single on way to get there.
+
+I'm probably here for their sake more than anyone else's. 
+
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
