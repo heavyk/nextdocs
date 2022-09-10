@@ -141,3 +141,4 @@ if anyone were to look at me how I am now and see "christ-like" attributes (what
 this concept is a bit preemptive and it's the first time I've expressed it fully. there is another connection between believing something outside of you (conditions or others) to be the saviour, but I couldn't integrate it into this rendering of the concept. condition seekers tend to all fall into this 2nd ray sort of perspective where they need a saviour of some kind (a product, a person, a job, or some circcumstance), but I've seen many people with all the conditions in the world and they're still miserable. the only thing that can save any one of these people is their own 5th ray perception (again it's the solar angel (5) connected to the 2nd ray aspect -- of which the sun is 2nd ray). sorry if that was unintelligible, but I don't know how to say it yet.
 
 
+correlation between the apostles' altered state of consciousness and "COVID brain"
