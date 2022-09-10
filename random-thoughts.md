@@ -157,3 +157,11 @@ in either case, if I felt my computer, I would probably be more conscious of wha
 if someone were to have it so that they coulrn't see their imagination, think about what that's saying: the pictures in my imagination don't look so good, so I'll turn off those pictures until I find a way to look at them better, and then I'll come back to seeing inside of my imagination.
 
 I think this would be an interesting experiment to run. if you have chronic depression or just don't kike how life looks, opt out of seeing your imagination until you can get over the traumatic pictures -- you know, then when you turn it back on again, the whole world is beautiful again.
+
+that last paragraph sounded to me like a poem. could also be a poem as well if you rearranged the words a bit. I don't feel like trying to turn it into a poem though.
+
+#### word spin
+
+what an interesting program to make. I'll call it "word spin" because you rearrange the words and add spacing and punctuation to it how you please. you then post your rearrangement and others can upvote the best rearrangements. you have to show a range of votes (0 to 10 or 0 to (-10) depnding if you want ones that have from zero to ten votes or from first tighest number of votes, second highest number of votes, etc. it'd be cool to do percents too, so a unit and a value so 50 is different from 50% from top 50 (50-) or bottom 50 (50+)). you see one of those concepts when you see the concept and easy to upvote the rearrangement if you liked it. each rearrangement of words is it a concept.
+
+it's interesting because this is what I saw when I was reading sitchin's lbe book. I wonder if alan green does the same thing with letters; he sees anagrams everywhere.
