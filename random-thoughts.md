@@ -151,3 +151,9 @@ I don't know why I think this, but I would imagine that if microprocessors are p
 I know that microprocessors don't really have a "buffer" of things that need to be processed in the sense of a tank of water and a loose storage of coal is necesssary to ensure steam is redily available, but it seems to me that buffering is linked to this electricity going in a circular motion (maybe like it produces a magnetic field and that eventually collapses if not sustained, returning energy back into the system -- not sure) -- and this circular motion is linked to "feeling" what the microprocessor is doing.
 
 in either case, if I felt my computer, I would probably be more conscious of what types of programs I was writing and running.
+
+### 2022-09-10 16:44 - invisible imagination as a cure to depression
+
+if someone were to have it so that they coulrn't see their imagination, think about what that's saying: the pictures in my imagination don't look so good, so I'll turn off those pictures until I find a way to look at them better, and then I'll come back to seeing inside of my imagination.
+
+I think this would be an interesting experiment to run. if you have chronic depression or just don't kike how life looks, opt out of seeing your imagination until you can get over the traumatic pictures -- you know, then when you turn it back on again, the whole world is beautiful again.
