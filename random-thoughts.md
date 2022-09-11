@@ -176,4 +176,6 @@ now, if we look at that idea as a song requirement, you could create a webapp th
 
 you know this would work really well with the pull-sockets, where each byte renders to -1,1 amplitude, and you have different sample rates, and the good thing is at higher frequency, you can lerp (or whatecver) those two amplitudes together to get the other in-between sound.
 
+obviously this idea expands to visualisers
+
  so, or a synths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
