@@ -172,4 +172,8 @@ imagine the little [TODO: insert foto] sequence of those bars, and any music can
 
 then I noticed that the dots above the peaks there provide extra sigficance. right now that formula is fixed such that it's always the amplitude at -500ms(?) -- but that formula could be what ever it wants to be.
 
-it could constrain frequencies or even be as advanced as a filter or a syths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
+now, if we look at that idea as a song requirement, you could create a webapp that allows webaudio synths to produce the sound. that song framework would constrain frequencies behaving as an advanced filter, but other types of these will transfrorm the sound to be something entcirely differnt.
+
+you know this would work really well with the pull-sockets, where each byte renders to -1,1 amplitude, and you have different sample rates, and the good thing is at higher frequency, you can lerp (or whatecver) those two amplitudes together to get the other in-between sound.
+
+ so, or a synths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
