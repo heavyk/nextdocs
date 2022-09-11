@@ -1262,7 +1262,7 @@ the third way is through implants, and that we sort of develop a sort of "hive m
 
 he thinks this is going to turn into the borg like in star track. I see us becoming the borg: assimilate all things.
 
-what if the reason why we're so hell bent on building this nano technology is just for that reason, so that those nanobots can totally disolve reality, and you'll be living in your own matrix. you see the reality that the nanobots create for you. so then I have to wonder who creates the nanobots. is there a "they" which can make the nanobots the reality they would rathar you have. that'd be crazy if someone were to control these nanobots right. reality created.
+what if the reason why we're so hell bent on building this nano technology is just for that reason, so that those nanobots can totally disolve reality, and you'll be living in your own matrix. you see the reality that the nanobots create for you. so then I have to wonder who creates the nanobots. is there a "they" which can make the nanobots the reality they would rathar you have? that'd be crazy if someone were to control these nanobots right? reality created.
 
 this is actually a repeat of the same concept above where the computer kind of assimilates us into their environment.
 
