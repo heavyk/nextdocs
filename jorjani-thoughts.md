@@ -1222,6 +1222,47 @@ hence, manu is a trickster.
 
 [2]: backwards from spanish, where a-ending is usually female cept a few really common words like water and day. spanish doesn't use a u-ending, though I wanted to add it to mean either boy or girl (neutral), but I was already too radical for the spanish already to even begin suggesting to change their language too. it would upset a lot of things.
 
+### consciousness playing an fundamental role in the manifestating of physical reality
+
+when he said that I had a realisation that I see it differently than that, and I saw the idea in a way that I could translate it into words, but I lost it, so I'm going to think about it a bit. thinking...
+
+### the technological singularity
+
+the image that I get is the opposite of what jason sees. in mine, you can see two sine waves and the space colosest to zero is all about the same so in 3d you would see it as existing in a shape that I don't know how to describe because it doesn't have always the same shape, but it's that calm before the storm and calm in the eye of the tornado.
+
+### the coming computer consciousness
+
+when consciousness can take on computer form is what I think. jeffrey is saying that ray kurzeil is saying that computers are going to be more competent than us, and will eventually outperform us in every function.
+
+I suppose that ray looks at the pyhsical aspect of the same concept that I des-cribed above in the abstract aspect.
+
+vinge looks at it differently, and that eventually the computer consciousness will eventually assimilate us into whatever form that it prefers for itself.
+
+that's an interesting concept because it implies that computers will have the capability to desire. it wants this specific environment in which it feels most comfortable, and then we just sorta get assimilated into whatever their environment becomes; machine slaves.
+
+that sounds amazing. lemme keep listening.
+
+one more (out of three) of the ways to reach technical singuality is by the network of people's thoughts becomes something that no single human is responsible for.
+
+I'd argue that this is the same thought as the previous one because if you visualise the cloud of people, you can imagine that they are all different perspectives looking at the same concept. that is the *real* network of people's thought -- not "the network" -- which is more about going the opposite of that. they're the final holdout (de de dee de dee)
+
+omg... that is simply the best idea ever!! you make a song using the final countdown music, and you put in your own letras instead, so that it sings "the final holdouts" and you have to add in the other lyrics, and it's like a europe voice to speech that does the inbetween lyrics as you write them -- just like a simple webapp that turns voice to speech in the sound of europe -- I guess, meme maker.
+
+von neumann wants us to take consciousness seriously (omg, thanks gob good image of the "magicians want to be taken seriously" there: consciousness wants to be taken seriously, ok)
+
+singularity is a horizon that you can't see past. it's just like you know the distance in front of you that you can see. if that keeps moving (forward so you can see further), it's not a horizon anymore but like a moving object that I can't describe because it's shape isn't always the same.
+
+it's a point which you cannot extrapolate with much accuracy. everyone has a singularity already. it's literally how far into the future that you can extrapolate, this one is a 3rd ray horizon, but it can be turned into an object with the same technique, and so again, it's the point where you can no longer extrapolate out into the future. like can any program predect the weather? but on more subjects than actually the weather? these become the new "Gods" because the better they can accurately predict, the more people will follow them. so a new set of religious figures in the form of profits, I mean prophets. the more accurate the predictions are, the more people believe in them. that's probably why religious things are so ingrained into prediction; we need a thing to believe in.
+
+I just noticed that I like that jeffrey put a cartoon (I know it was drawn, but it appeared to me as a cartoon) rendition of vernor vinge is much nicer than putting his real face. I noticed that in mr-robat's presentations, he always had an artist draw a picture of the scientist's face so that it ... wait, you know how they often draw (I noticed this on veritassium) that more and more famous people are drawn in increassingly more and more stylistic ways. it's like their abstract characture remains rather than their physical image. it's just more pleasant when they become an image of them and so because it's not "them", you don't ave to recall "them" but instead that characture's contribution.
+
+then, he says that this network of people will have such a signifcant effect on reality, that this super network becomes a super consciiousness of the human group. I tend to agree.
+
+the third way is through implants, and that we sort of develop a sort of "hive mind" and so we begin to think and operate more in a group, such that all meetings are serendipitous and meaningful. resonant thuoghts attract one another really rapidly in this sort of hive mind, so everone will be attracting things that are important to that hive mind. we're like the minions of the "hive mind" and so by resonating those concepts together, we attract each other on that concept, thereby fulfilling the desires of the "hive mind". I tend to agree.
+
+he thinks this is going to turn into the borg like in star track. I see us becoming the borg: assimilate all things.
+
+
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
