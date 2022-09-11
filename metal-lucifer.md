@@ -688,9 +688,9 @@ I want to do something else. I think I want to eventually go outside here. gatta
 
 ### 2022-09-11 11:58 - the plan
 
-- ask indiana-jones if she wants to do in studio recordings with jason
-- msg jason (on youtube?) saying that I would think that the sigularity is when all of the novelty-seekers all appear together in the same period of time -- the "zero point" of novelty where it's infinite for a infinitesimally small moment in time (like the equinox)
-- get on to snake-bros discord and tell marty my really wierd theory of thery of the "whore of babylon" is really the same shapeshifter goddess in the ghostbusters
+- ask indiana-jones if she wants to do in-studio recordings with jason
+- msg jason (on youtube?) saying that I think the sigularity is when all of the novelty-seekers all appear together in the same period of time -- the "zero point" of novelty where novelty infinite for a infinitesimally small moment in time (like the equinox)
+- get on to snake-bros discord and tell marty my really wierd theory of thery of the "whore of babylon" is really the shapeshifter goddess in the ghostbusters
   - anyone can summon an elemental now and whatever shows up is one of the many forms that genxicat takes.
     - genxicat is a shapeshifter because she combines the 5th ray element (concepts coming from outside time) and the 7th ray element of what we call matter (physical stuff we think is solid, but it's just a smaller more elemental concept)
     - she could be born anywhere, and you couldn't deny the manifestation because you don't know everyone on the planet, just as long as it's believable enough.
