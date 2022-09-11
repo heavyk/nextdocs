@@ -165,3 +165,11 @@ that last paragraph sounded to me like a poem. could also be a poem as well if y
 what an interesting program to make. I'll call it "word spin" because you rearrange the words and add spacing and punctuation to it how you please. you then post your rearrangement and others can upvote the best rearrangements. you have to show a range of votes (0 to 10 or 0 to (-10) depnding if you want ones that have from zero to ten votes or from first tighest number of votes, second highest number of votes, etc. it'd be cool to do percents too, so a unit and a value so 50 is different from 50% from 50- (top 50) or 50+ (bottom 50)). when you're looking at the original parapraph, it's something usuall of a quote you or someone else said, then below it, you list other rearrangements based on that query (SELECT * FROM rerrangements LIMIT (0 10, -10 -0, 10% 20%, etc.)) you see one of those concepts. when you see the concept and easy to upvote the rearrangement if you liked it. each rearrangement of words is it a concept.
 
 it's interesting because this is what I saw when I was reading sitchin's lbe book. I wonder if alan green does the same thing with letters; he sees anagrams everywhere.
+
+### 2022-09-10 20:47 - dynamic/interprative music
+
+imagine the little [TODO: insert foto] sequence of those bars, and any music can go in there, provided it staws within that bar. that bar is just a frequency range.
+
+then I noticed that the dots above the peaks there provide extra sigficance. right now that formula is fixed such that it's always the amplitude at -500ms(?) -- but that formula could be what ever it wants to be.
+
+it could constrain frequencies or even be as advanced as a filter or a syths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
