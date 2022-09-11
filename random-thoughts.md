@@ -176,6 +176,14 @@ now, if we look at that idea as a song requirement, you could create a webapp th
 
 you know this would work really well with the pull-sockets, where each byte renders to -1,1 amplitude, and you have different sample rates, and the good thing is at higher frequency, you can lerp (or whatecver) those two amplitudes together to get the other in-between sound.
 
-obviously this idea expands to visualisers
+- obviously this idea expands to visualisers.
+- probably there is a lot of expansion into processing/ transforming these audio segments actually as a fragment shader
+  - individual pixels
+    - texture width/height x sample size so you can see each row/column of pixels as the one same previous or future in time -- so either vertically or horizontally it will render a past or future sound sample into each row/column/???)
+  - each pixel has the same code applied to them.
+
+so it makes sense to visualise this on the gpu anyway. I find it's really important to be able to see the transformation, but also hear the same transformation.
+
+
 
  so, or a synths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
