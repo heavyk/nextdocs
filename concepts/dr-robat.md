@@ -13,6 +13,7 @@ the other shape I can see looks like a cube (looking at its vertex) with the top
 on the side it looks like mountains,
 on the top it looks like a hexagon,
 its 6 verticies have 3d
+(three-dimensional mountains, of course)
 
 between these two faces. I can't distinguish them but now I can. if I look at vertexes from another angle (turn the mountains toward you), and that's the way to see the square as I described it above, but from essentially the middle of those lines is the equator of that is where the square is.
 
