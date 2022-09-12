@@ -706,3 +706,17 @@ I want to do something else. I think I want to eventually go outside here. gatta
   - now, instead of industrial parts, now the factory machines (intantiators) materialise abstract concepts. each recipe needs a number of abstract concepts to instantiate, and based on the behaviour selected for the abstract concept, it'll require different amounts of physical resources for their instantiation (defined by the behaviour).
     - so let's say the recipe wants 50 mobility parts, and 20 durability parts, 100 power/stength parts as the recipe (recipes can be any amount of user defined amounts of abstract parts), then that abstract recipe is defined a behaviour which then determines the amount of physical parts it needs to instantiates those abstract parts into the world. the most basic will be the derivtive of the trucks, now called constructors, which just move resources around. (keep in mind that an instantiation of a behaviour could require other physical parts which are also instantiations of concepts)
     - later however, the actual physical (3d model and shape's movement) behaviour of those machines can be any heuristic which uses the amount of abstract parts and to determine its behaviour based on the abstract quantities defined in the recipe used to infuse it it.
+
+### 2022-09-11 19:20 - thinking about the opponent
+
+so, if trump (or his opponent) is going for "make china great again", the the opposite one should go for something like, "make china better". his whole message should be that we should not abandon our tradition and that we should just improve what we have. "make china great again" is all about returning to the former glory of the time past, and everything he wants is to go back to the old way.
+
+in reality both of them are right, but also both "wrong".
+
+improvement guy is really busy looking at the now in its present state and wanting an improvement, but never at what the improvement actually could be.
+
+make china great again guy can't see now either because he's too busy looking back at the former glory and recommending that we go back to the institutions that were around during that glory (this gives legitimacy to the enumeration of institutions because nobody actually was there, so it could be <however|how ever> he says the past was)
+
+this should be a source for endless theatrics.
+
+if they ever choose that both of them are right, perhaps they could try: improv<e|ing> the past<|, together>. (I'm diabolical.. lol -- czuse what the hell does that even mean?!? lol)
