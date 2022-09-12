@@ -1266,6 +1266,9 @@ what if the reason why we're so hell bent on building this nano technology is ju
 
 this is actually a repeat of the same concept above where the computer kind of assimilates us into their environment.
 
+### the singularity is like a sonic boom
+
+when the pressure wave is propagating faster than the medium can propogate, there comes a time when there are particles moving faster than the medium start to bunch up, and the medium speed expands, kinda like when you meet the (boundary between two counter rotating thing) and the next layer has faster velocity and everything around it now become relative to that new speed (from our perspective, at least).
 
 
 ### promethian egregore and science
