@@ -5881,7 +5881,77 @@ it may look like you want to have some set of conditions, but the reality is you
 
 in short, the "worst" manifestation looks to me like a breeding program to ensure that the archons get the best bodies again. their efforts to remain superior will eventually produce a diversity of new ways to accomplish the same thing. there isn't any single on way to get there.
 
-I'm probably here for their sake more than anyone else's. 
+I'm probably here for their sake more than anyone else's.
+
+### 2022-09-12 11:12 - rethinking things
+
+so, yesterday got a chance to think about a lot of things. I come away from it feeling pretty depressed. I don't really know why I feel so much depression. it may not even be my own depression either. so I [planned out to do a few things](/metal-lucifer.md#2022-09-11-1158---the-plan), and then only did one of them (tweet at trump) and I did it too hastily. I didn't even put enough thought energy into what I wanted to say and it came out a bit wrong. I haven't checked twitter to see if there are any replies, and I kinda don't want to, either.
+
+that may be the origin of the depression, is that I get involved in politics -- which is a pretty rough subject for a lot of people. like, if I were to have any positive relations with trump would probably be a pretty awful thing for a lot of people. maybe.
+
+---
+
+the other thing that kinda bothered me is there was this one point yesterday where ... first, let me back up. you have to understand that there are a lot of really good ideas that are potential realities and anyone can take any one of the realities that they want to. as in, imagine if yesterday had've gone differently -- that's one possible reality and it does exist and there are probably a portion of people's consciousness on that timeline.
+
+OH, that's a weird thing. I was getting some confusion/quetions as to what I mean by timeline, so I'll just explain that really quick.
+
+---
+
+the way I like to look at it is that every time that you have a negative emotion or desire for something, this signal creates a whole lot of other parallel realities, and they all exist simultaneously, so that you could say that in any moment, everything that is possible to happen is happening. however, just because it's all happenining doesn't mean that's what you're seeing. the reality that you're tuned to is a reflection of how you feel and how you conceptualise your world. my consciousness (presently) cannot perceive more than one timeline at the moment, so it looks to me like I'm stringing these words together to form sentences in a linear sequential way. time appears to me to be unfolding gradually.
+
+everyone behaves as a reflection of their conditions, therefore if you only are a reflection of your conditions, you are just a biological machine (kinda like an insect) just reacting whatever way you've been taught to react. so, everyone of the other "you" on the timelines is behaving exactly as expected. when you choose to do something other than than the default reaction, then you're literally *choosing* to tune to a different timeline. you may think of this as a decision, but I think it's a poor analogy. here's why:
+
+there are three doors, one has a large prize, a medium, and a small. I can *choose* any one of those doors, but that probably didn't modify how I look at my family or friends very much, and if it did, like let's say I'm scared of them taking my prize from me or something; *that* is what made the timeline different, not the prize itself. if I feel like my family is taking my stuff, any infinite number of manifestations can make me feel that way and so therefore they all satifsy how I feel, the three doors are all the same timeline essentially.
+
+now, let's say that those prizes were cash and they allowed the winner large medium and small lifestyle changes. that's just the magnitude of the event, though the timeline is the same. it's actually slightly different because the manifestation is slightly different, but the manifestation still feels like my family is going to take some of my prize money (which is why I see them as the same). the more money the prize, the larger that reality of family taking the money will be. the reality that "my family will take my money" is how I conceptualise it to be and so therefore it reflects it.
+
+choice has nothing to do with what timeline you're consciously perceiving. my view of timelines differs slightly from jason's because he says that if everything possible already exists, then there is no human agency or free-will. I disagree, because it's your desire that creates all of those realities. it's the most creative aspect of them, which means that the only goal is to figure out how to *tune* to the reality that I want.
+
+---
+
+OK, back to where I was... I was saying that every one of these different alternate manifestations are all alternate timelines that anyone can easily tune to (we won't know you're gone because you'll behave exactly as we expect you to), and you can get there by actually believing that is reality. when I say believe, I mean believe as in I believe the keys under my finger are solid along with my chair and other such things. I *believe* them to be solid, and so they are. you're reading this now because your believe of reality is somehow compatible with mine and my version of reality is more attractive than your own (we tend to gravitate to the realities of others that are more attractive).
+
+OOPS, derailed again. alternate realities that anyone can access if they want to, and so what I was seeing is that all of those valid other realities will eventually merge with our own when we're going to have the *real* singularity. I can see the technological one on the horizon, but you know what I could see is that all of these alternate timelines will produce more novelty seekers. it's *inevitable* (no matter what periodicity) that eventually all novelty-seekers are on the same timeline -- but let's just say like 80% of them are all in the same timeline...
+
+this would be like the equinox of novelty theory, where, for one period of time there are a whole lot of these novelty seekers all over the place realising new things at one time.
+
+this seems obvious to me that if nature seeks novety and produces novelty, they'll attract one another and eventually all end up in the same timeline. why? because I know that with for example jason in the same timeline as me, I'm going to make realisations of new things even faster there than I would if I were elsewhere.
+
+up until the singularity this clumping of novelty-seekers is periodic because you can make a realisation from seeing awful things just as easily you can with seeing something you like too.
+
+yesterday I perceive novelty as a series of realisations (aha moments), tim leary called this your "rpm" (revelations per minute). those realisations break you out of habit and out of doing the same thing.
+
+I just want to say that this singularity won't happen for a while though because there is a lot of awful stuff that are ripe for producing more realisations of the improvement or how awful it is -- so, I believe it's actually pretty likely that we're not going to hit the novelty singularity until there isn't much more awful stuff anymore.
+
+obviously you can't get rid of all awful stuff, so what instead is changing is the perspective of the awful stuff, which itself is a novel perspective. after the "awful" stuff isn't perceived as awful anymore, the only way to continue to get more novelty is to interact with other novely-inspirers (chaos) and novelty-seekers.
+
+what I mean is, it seems pretty obvious to me that the really really end-game singularity is when we're all attracting each other cause we crave more novelty and the conditions alone aren't sufficient enough.
+
+---
+
+woah, long intro there. OK, so what I really wanted to talk about was this point where yesterday I was going thruogh all of those realisations about novelty and stuff like that and I was explaining that all of those are great timelines that others can try out and eventually merge back into this timeline (cause we're going to merge anyway in the novelty singularity), and so while they're job is to get people to believe in that alternate timeline enough so that they can go that way, my job is to just keep going forward how I am.
+
+it's a kind of irony because my insistence on remaining in my habit is actually causing one of the highest amount of novelty right now for others. if I were to go with the girls, it's pretty likely that novelty will drop pretty quickly.
+
+---
+
+then there was this other thing that I woke up thinking about, because yesterday one of the things that I was preoccupied with was seeing these layers of static electricity in the feet of the flies that landed on me. one of these static layers could envelop a person so they could walk in rain and not get wet, which is like really nice. but, as usual with these guys, the idea gets turned into another way to increase (or decrease) pleasure.
+
+you could imagine that if you were to build up enough of these layers ... so think of one layer as being vibrationally attracted to the fly's foot. it attracts and repels at the same static electricity frequency, so that field "hovers" over the fly's foot. when the fly lands on me, the fly adjusts that layer so that it attracts the frequency of my skin (or the wall, or whatever) probably by having a sensor and feedback loop. it then attracts and repels that new surface just the same. when it wants to fly again, it turns off the attract and the repel puts it into the air. I could see that the fly never actually touches anything it lands on.
+
+so now imagine the force field that the fly has on its feet now like a condom. you make one layer very close to the skin at one frequency, then another layer just above that one attracting and repelling the layer below it, and so fourth. each layer can slide really well, so you have a condom that can expand and attract frequentially, and you never actually touch the other person -- ever, just like the fly never touches you.
+
+when I woke up I was thinking about this, and though that idea is pretty cool, I'm probably not going to be in control of it, so that means that I'll never actually really touch any of the girls anyway.
+
+I could also see yesterday that using the same feedback loop that the fly has on its feet to maintain its attration/repulsion from the surface, a similar technique could be used to "neutralise" any frequencies that the girls are putting out as well.
+
+the final thing that I noticed is that this idea also has some interesting ideas. I'll say it the way I saw it. there was a whole bunch of guys that are really "awful" and if they were to start a virgin out, then he would "defile her" or in some way severely damage her energetically. they obviously know more about this than I do so that must be a real thing, and the implication there is that certain dudes have a very strong negative effect on girls. however, with this idea, because they never touch and everything can be neutralised, they can modify the energy that they're putting out sexually -- without changing the way they feel. all of the really "bad-guys" can now enjoy all of the young virgins that they want and not have to worry as much about the energetic damage.
+
+I was kinda bothered with a fly that was digging holes into my arm while I was to smoking and started to see how its feet work. that fly also reminded me that an easy way to embed nosebook "inserts" under people's skin is to use insects and other such things that land on us all the time.
+
+---
+
+anyway, the strong feeling that I come away with on this one is that I feel pretty good about the make china great again idea. that's all for now. maybe I'll gain enough courage to go on twitter and see if I started any fires. lol
 
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
