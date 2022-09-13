@@ -1416,6 +1416,8 @@ it needs to sound like something big bang theory will think is a good joke, but 
 
 I was watching doug talk about the diehold, and what if we took that and made it sound more "futuristic" and turned that into dianetics 6.0 (we got it right this time)
 
+dianetics 6.0 (we got it right this time) jam packed with many improvements (just look at the release notes) is incompatible with dianetics 4.2 (the answer) which is still the current LTS.
+
 ### monumental time leads to more competition.
 ### what form of time leads to more indiciduality?
 
