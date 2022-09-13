@@ -1443,6 +1443,34 @@ we need *procedures*, not entusiasm.
 
 ### america is a lifestyle; and some, also think it's a country
 
+### 2022-09-13 12:51 - individuality in terms of competition
+
+I wrote above that a monumental perspective of time breeds competition. this got a number of reactions, especially that I'm saying that I'm kind of a bit anti-competition.
+
+you see, I see individuality as an expression of non-competition, and the reason is, I feel so secure, I'm self-sustaining, so that I no longer base my worth in comparison to someone else. I am *individual* in that I don't need to compete for my identity. my identity doesn't rely on anyone else for its foundation.
+
+this subject is the same subject actually as sovereignty. when the individual becomes self-sovereign, then that individual is a self-monopoly.
+
+---
+
+let's just look at this on a personal level, cause I think the financial and political words carry a lot of baggage.
+
+look for example how I don't really feel threatened by anyone else's manifestation, and it's that not feeling threatnened that means I don't need to compete. competition is largely based on an underlying threat which manifests itself as a desire to compete.
+
+this only works in a scarcity economy. if I perceive someone that is better at getting a resource that there is an abundance of, then I look kinda silly. it also looks kinda silly if I compete with them over the abundant resource. imagine someone trying to capitolise on air. it probably exists, actually, so you see now why marketing has replaced competition for so many things.
+
+competition is a legacy survival feature that will kick back into effect when we're back in a scarcity economy (like after a catastrophe).
+
+---
+
+the other thing that a competition does to restrict individuality is that the judges decide the winner, and the winner is only in the competition bracket. you are not an individual; you are a competition winner. there are various competition winners and losers; you're one of them.
+
+let's say there are 100 possibilitise for each person and 100 people. ideally, each person would pick a unique possibility, but there are often times two people that like the same thing, so they compete for it. one of them is the winner, and they can now presume that identity until dethroned.
+
+individuality is actually one of the sincerest forms of non-competition and security: you are not threatening to me.
+
+now, replace: self-sovereignty is the clearest form of security through non-competition: you are not considered a threat to me.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
