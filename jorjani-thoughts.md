@@ -1363,8 +1363,20 @@ what you see is a matrix of your concepts. you don't need to give up your core c
 
 it's not like you want to make a shape that as many faces as possible. imagine you got yourself down to seeing the whole world with just 4 thoughts/concepts; you would see through the triangle cross tetrahedron. you would have A LOT OF SPACE if you did that. less angles, more space. space is inversely proportional to volume.
 
+### I just had an idea...
 
+you know how they're trying to get me to not do this? they don't want the sales team power nights to begin again. they also don't want to lose their grip of me. so, what if we just sat on our hands on this idea and just keep "frontin" what we're going to do. like go full situation. hold me back guys.
 
+the funny thing about this concept is that it just sorta leaves everyone hanging. the desire will produce something. like, what on earth would happen if we never actually did the stuff we said we were going to do?
+
+like really think a moment what on earth they would do if we didn't do this. they must have things pretty well buttoned down by now if they're that confident. how long do you think they can go before things start to fall apart?
+
+isn't it hilarious to just watch the stage crumbling in slow-motion? I find it hilarious. hopefully, they can put on a good show.
+
+    "nosebook: the reality" (TV series).
+     real interactions.
+
+I forgot the rest.
 
 
 
