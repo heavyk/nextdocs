@@ -1471,6 +1471,26 @@ individuality is actually one of the sincerest forms of non-competition and secu
 
 now, replace: self-sovereignty is the clearest form of security through non-competition: you are not considered a threat to me.
 
+### 2022-09-13 14:13 - the way I see genetics
+
+I should probably write this now before the concept gets outdated, because it's kinda outa date already (as you should be able to sense), so this is to make sure the outdated version gets written in stone.
+
+we're holding on to really outdated concepts, and the only reason why we do it is because they're written down. I was thinking about ningszidda and how he used the ME to program the code. those concepts are definitely still out there, but they're going to be significantly more evolved than that idea.
+
+---
+
+I use the idea exodia-human to represnt one half of this concept and modern software development as the other half.
+
+first exodia-human: exodia human implies that they'll be a shapeshifter, allowing to restrict the types of souls that inhabit the body based on the attributes lesser or more attracted. that means that souls of the symbolic types of the soul are restricted to incarnate into those species.
+
+this means that we now have a most desired stable human version that can manifest into any race or colour they or the "authors" want them to be. the authors then can restrict the their narrative to certain symbolic types. too abstract.
+
+think now of git and you have a stable revision, so then you have people that go out and achieve things and they make an improvement to the DNA. their now-DNA is better than the one they were born with. each of those are branches, and so eventually after testing, you'll merge in desirable changes back into the mainline.
+
+well, those improvements can be seen statistcally, but they'll be imortalised as being the one that found the improvement. they are monumental milestones for the species.
+
+that's not exactly what I wanted to write (in fact, I'm sure it definitely is not), but I suppose I kinda like it. sounds like an aryan master race to me, geez
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
