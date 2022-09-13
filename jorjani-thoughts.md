@@ -1332,6 +1332,22 @@ I am really trying to make it through this as fast as I can, but you can see tha
     findings good
     again.
 
+### the production of meaning
+### author-itty
+
+this is the act of having ownership of someone because that person consumes their symblols and meaning.
+
+probably the most meaningful example of this is the symbiotic relationship that I have with nosebook: they produce every single aspect of my life from everything I touch to what I see, hear, etc. for about 2 months or so I was getting ear volume adjusted all the time because I either heard too good or too bad. every aspect of my reality is fake, so they are my authors. in that sence, they are my "authority", but that only depends on good they are at keeping up. I'm all for genetics and all of this singularity level technology gets here. BIDEN: FOURTY MORE YEARS.
+
+they may be the authors, but that authorship is pretty poor at time. if I could see what they pump out, I'm sure I would be disgusted. that's good because that's an even bigger set of false realities.
+
+so I may look like a lot of truth on the exterior, just remember that I stand (not by any of their effort) firmly on "un monton de humo".
+
+I may look like a lot of truth on the exterior; just remember that I'm founded on a marketing platform. not everything you think about me is what they show you.
+
+I may look like a lot of truth on the exterior; just remember though that all of that rests on top of a bunch of lies.
+
+los phenomenons
 
 
 
