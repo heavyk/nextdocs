@@ -1304,7 +1304,13 @@ don't worry about them dude. watching these geezers try to keep up is going to b
 
 they're the ones that aren't going into the next dimesion with us, and who knows how many others will join me on the one after that, or after that.
 
-they represent the barrier, so if we stay out here longer, their mushroom sprout widens a lot (a huge splat). we've all adjusted our contrast so that in the next dimension there is an imbalance, where something is always disabled. or, at least I have. I know that the better I get at this, the faster I start to think like this. I imagine that at some point it goes fully "autopilot". it's in our benefit to let them try and hold on for as long as possible.
+they represent the barrier, so if we stay out here longer, their mushroom sprout widens a lot (a huge splat).
+
+we've all adjusted our contrast so that in the next dimension there is an imbalance, where something is always disabled. or, at least I have.
+
+like, the one I was saying is that if greg is at parody vision with me, then when I finally go away (when the frequency of the signal is not translatable because I'm a dimension), you'll either have to figure out a compatibility layer to hold on, or like I said eariler: conditional-time-straighteners; their goal is to reorchestrate reality so that they pass through untirely unnoticed, which is what I think they're going to do: HIDDEN EVIL!
+
+I know that the better I get at this, the faster I start to think like this. I imagine that at some point it goes fully "autopilot". it's in our benefit to let them try and hold on for as long as possible, also so more people can get their autopilot reality how they want it.
 
 yesterday, I contemplated the concept that it probably means that the max anyone's gone to is 2038, so if I can beat that record, lol. like, what if we could just keep making our dimension for another few hundred or thousand (more?) years while we wait for the foot-draggers to finally "pull the trigger" on what they want (it's a sales expression that means that you're ready to make the deal). can we drag our feet for hundred or thousands of years designing the next dimension.
 
