@@ -1316,7 +1316,17 @@ yesterday, I contemplated the concept that it probably means that the max anyone
 
 are you really ready to get started on over-engineering it.
 
+---
 
+I am really trying to make it through this as fast as I can, but you can see that there are hiccups. I said the above so that they can see it from their own perspective. if I said the same thing from my perspective, they don't have context, so I put it in my perspective "I", and they can immediately sense the idiocy of the idea. I get up and brush my hair every day. tbat's not something that I've done for a very long time, so they have their doubts that statement is true; they don't *really* have my perspective.
+
+    or, am I telling
+    you where to look
+    for what you will
+    find? how do I
+    know what you want
+    to find? you make
+    your own findings.
 
 
 
