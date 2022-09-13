@@ -1376,9 +1376,19 @@ isn't it hilarious to just watch the stage crumbling in slow-motion? I find it h
     "nosebook: the reality" (TV series).
      real interactions.
 
+    nosebook: "the reality is..."
+            (TV series)
+         real interactions.
+
 I forgot the rest.
 
+### the devil is the greatest invention that God ever made
+### "God" is the gratest invention the devil ever made
+### zeus was murdered a long time ago by mercury
+### mercury uses zeus's face as a mask
+### mercury imitates zeus as prometheus
 
+forgot the rest.
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
