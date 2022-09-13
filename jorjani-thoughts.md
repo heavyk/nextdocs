@@ -1349,6 +1349,22 @@ I may look like a lot of truth on the exterior; just remember though that all of
 
 los phenomenons
 
+### authors with power to create symbolic realities for others
+
+you know, if you want to study that pay attention to chris and my interactions after the brain haemorrhage. you will probably notice some of the effects you may consider "sinister" (left-hand-path), but you will have to tell me if I turned out evil (enough).
+
+as a personal note, I personally like symbols that are "bad" better than the ones that are good. I think I like to get all of the bad ideas out first. those are the symbols that produce negative emotion, which is what they were pumping my brain with to keep my vision from going up.
+
+if you think about it from a frequncy spectrume, they are activating all of those bad symbols to keep me feeling bad, and when that didn't work, they have to come up with another one. once they've exhausted their bag of tricks, I won't feel "normal" any more. they need to find other ways to confine me. the better they can try to constrain me, the more precise everything gets because I have a really defined and optimised symbolic matric (less symbols).
+
+by putting me through this process, my ability to overcome concepts, has shaved off a lot of extra space. that's reflected in my vision. but I also want to show the picture of the how much more. I can't.
+
+what you see is a matrix of your concepts. you don't need to give up your core concepts; you're just a few really simple concepts that you like about yourself: "I'm a professional quitter" "I quit continuously" "I continuously quit"
+
+it's not like you want to make a shape that as many faces as possible. imagine you got yourself down to seeing the whole world with just 4 thoughts/concepts; you would see through the triangle cross tetrahedron. you would have A LOT OF SPACE if you did that. less angles, more space. space is inversely proportional to volume.
+
+
+
 
 
 
