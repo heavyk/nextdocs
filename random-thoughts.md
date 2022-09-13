@@ -193,3 +193,13 @@ so it makes sense to visualise this on the gpu anyway. I find it's really import
 the idea here is to *draw* up a contract by drawing a picture that contains symbols and colours which both parties agrees upon in word. you then sign it and the abstract contract is agreed to. it forces those involved with the contract to be held by their *spoken* word, rather than the *written* word. I mean I suppose you don't have to agree on *any* or *all* of the symbols, right?
 
 an example may be as simple as something almost childish. these are the company logos, here's a pot of gold to symbolise our financial success, and a golden path going down the centre so we can always see the road ahead, and a rainbow as a sign of our commitment to each other. maybe add in a few symbolic numbers maybe to fix a a date or a financial agreement if you wish, but these contracts aren't meant to be inforced by law or anything. they can be done in addition to a written contract, but the idea is to agree on a venture symbolically.
+
+### 2022-09-13 14:00 - I've out demiurged all the other demiurges as worst possible manifestation
+
+so I'm kinda like the cosmic form of a joke -- like if the universe has a sense of humour.
+
+I'm the cosmic form of a joke because there are a lot lot lot of people out there VERY CONCERNED about my manifestation, so thanks to them, I'm literally the worst thing that could possibly happen by popular vote, of course -- wait, no probably not popular vote but more like a voting committee that determines the vote. you know, because there's not a lot of them but even still, somehow they managed to attract me as their worst possible manifestation.
+
+HO HO HO says the universe
+
+(wow, did you feel how fast the vibration on that concept dropped when they started to think of me as channeling the universe -- crazy, huh)
