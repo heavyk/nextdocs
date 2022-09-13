@@ -1419,7 +1419,7 @@ I was watching doug talk about the diehold, and what if we took that and made it
 ### monumental time leads to more competition.
 ### what form of time leads to more indiciduality?
 
-what about a competition, where at the end, rathar than judges, all of the contestants agree on the winner.
+what about a competition, where at the end, rathar than judges deciding, all of the contestants agree on the winner.
 
 ### white hair is directly linked to memory
 
