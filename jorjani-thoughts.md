@@ -1430,6 +1430,10 @@ by over-engineering it, there are things that can be deleted triumphantly, later
 
 a joax launch because of certain levels of ill-preparedness residing in the form of enthusiasm and passion.
 
+after a few facebook launches, the management team needs to come in and make sure we don't have any enthusiasm or passion left in the team.
+
+we need *procedures*, not entusiasm.
+
 ### america is a lifestyle; and some, also think it's a country
 
 ### what are your differences with steiner?
