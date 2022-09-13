@@ -1394,9 +1394,9 @@ forgot the rest.
 
 ### the banking system controls the whole show
 
-I disagree. Ingo at tuenti did not have control over the show. that was the marketing department.
+I disagree. Ingo at tuenti did not have control over the show. that was the marketing department. the marketing department collective has dictatoral power over the company, you know what I mean?
 
-just the same today, the economic system no longer runs the show. nowadays, you want more/better press because we're in an abundance economy (too many products need to be sold). because there is a surplus of product, the best ones are not necessarily the loudest. concept missing.
+the same is for the earth: the economic system no longer runs the show. nowadays, everyone wants more/better media coverage because we're in an abundance economy (too many products need to be sold). because there is a surplus of product, the best ones are not necessarily the loudest. concept missing.
 
 ### the power of electrostatics
 
