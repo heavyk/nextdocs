@@ -1388,8 +1388,43 @@ I forgot the rest.
 ### mercury uses zeus's face as a mask
 ### mercury mirrors prometheus
 ### mercury imitates zeus as prometheus
+### each of us becomes premetheus
 
 forgot the rest.
+
+### the banking system controls the whole show
+
+I disagree. Ingo at tuenti did not have control over the show. that was the marketing department.
+
+just the same today, the economic system no longer runs the show. nowadays, you want more/better press because we're in an abundance economy (too many products need to be sold). because there is a surplus of product, the best ones are not necessarily the loudest. concept missing.
+
+### the power of electrostatics
+
+yesterday I was thinking about how I said that one challenge a the space agencies have is trying to figure out how to get to space without using tesla technology. use use electrostatics. each nucleus (like the sun) has a static field around in which all meterials can have a surface to them that makes all things sticky or slippery based on frequency.
+
+again, we don't need access to time travel to get to space.
+
+or, right here on earth, you know the thing in the centre of the earth producing the static field of the earth -- which can be used to move to slip and slide around in there instead.?
+
+### idea: what if we invented a totally ridiculous religion?
+
+I'm listening to doug talk about the diehold, so what if we built a religion that we were going to tell to the the ones that can't fully grasp reality, and then tell them that version.
+
+it needs to sound like something big bang theory will think is a good joke, but we're all really serious about it.
+
+### white hair is directly linked to memory
+
+doug can remember things easier with black hair
+
+### why over-engineer it?
+
+because it needs to fail to get to the next one above that one. how many dimensions will it take before I say, hmmmmm, I guess that's good enough; no further progress is ever necessary.
+
+by over-engineering it, there are things that can be deleted triumphantly, later.
+
+### idea: we could do a facebook launch
+
+a joax launch because of certain levels of ill-preparedness residing in the form of enthusiasm and passion.
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc

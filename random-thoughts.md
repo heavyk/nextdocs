@@ -190,6 +190,6 @@ so it makes sense to visualise this on the gpu anyway. I find it's really import
 
 ### 2022-09-12 07:06 - symbolic contracts
 
-the idea here is to *draw* up a contract by drawing a picture that contains symbols and colours which both parties agrees upon in word. you then sign it and the abstract contract is agreed to. it forces those involved with the contract to be held by their *spoken* word, rather than the *written* word.
+the idea here is to *draw* up a contract by drawing a picture that contains symbols and colours which both parties agrees upon in word. you then sign it and the abstract contract is agreed to. it forces those involved with the contract to be held by their *spoken* word, rather than the *written* word. I mean I suppose you don't have to agree on *any* or *all* of the symbols, right?
 
 an example may be as simple as something almost childish. these are the company logos, here's a pot of gold to symbolise our financial success, and a golden path going down the centre so we can always see the road ahead, and a rainbow as a sign of our commitment to each other. maybe add in a few symbolic numbers maybe to fix a a date or a financial agreement if you wish, but these contracts aren't meant to be inforced by law or anything. they can be done in addition to a written contract, but the idea is to agree on a venture symbolically.
