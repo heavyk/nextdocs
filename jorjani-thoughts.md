@@ -1332,6 +1332,8 @@ I am really trying to make it through this as fast as I can, but you can see tha
     findings good
     again.
 
+more like: olympian lifespan
+
 ### the production of meaning
 ### author-itty
 
@@ -1408,9 +1410,11 @@ or, right here on earth, you know the thing in the centre of the earth producing
 
 ### idea: what if we invented a totally ridiculous religion?
 
-I'm listening to doug talk about the diehold, so what if we built a religion that we were going to tell to the the ones that can't fully grasp reality, and then tell them that version.
+what if we built a religion that we were going to tell to the the ones that can't fully grasp reality, and then tell them that version.
 
 it needs to sound like something big bang theory will think is a good joke, but we're all really serious about it.
+
+I was watching doug talk about the diehold, and what if we took that and made it sound more "futuristic" and turned that into dianetics 6.0 (we got it right this time)
 
 ### white hair is directly linked to memory
 
@@ -1425,6 +1429,8 @@ by over-engineering it, there are things that can be deleted triumphantly, later
 ### idea: we could do a facebook launch
 
 a joax launch because of certain levels of ill-preparedness residing in the form of enthusiasm and passion.
+
+### what are your differences with steiner?
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
