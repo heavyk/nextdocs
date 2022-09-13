@@ -1430,8 +1430,9 @@ by over-engineering it, there are things that can be deleted triumphantly, later
 
 a joax launch because of certain levels of ill-preparedness residing in the form of enthusiasm and passion.
 
-### what are your differences with steiner?
+### america is a lifestyle; and some, also think it's a country
 
+### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
 ### thoughts on philosopher kings and the grail quest
