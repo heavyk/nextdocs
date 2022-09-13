@@ -1386,6 +1386,7 @@ I forgot the rest.
 ### "God" is the gratest invention the devil ever made
 ### zeus was murdered a long time ago by mercury
 ### mercury uses zeus's face as a mask
+### mercury mirrors prometheus
 ### mercury imitates zeus as prometheus
 
 forgot the rest.
