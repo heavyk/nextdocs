@@ -1416,6 +1416,9 @@ it needs to sound like something big bang theory will think is a good joke, but 
 
 I was watching doug talk about the diehold, and what if we took that and made it sound more "futuristic" and turned that into dianetics 6.0 (we got it right this time)
 
+### monumental time leads to more competition.
+### what form of time leads to more indiciduality?
+
 ### white hair is directly linked to memory
 
 doug can remember things easier with black hair
