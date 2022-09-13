@@ -1328,6 +1328,12 @@ I am really trying to make it through this as fast as I can, but you can see tha
     to find? you make
     your own findings.
 
+    make your own
+    findings good
+    again.
+
+
+
 
 
 ### promethian egregore and science
