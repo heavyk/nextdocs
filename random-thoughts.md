@@ -188,7 +188,7 @@ so it makes sense to visualise this on the gpu anyway. I find it's really import
 
  so, or a synths that modulates the sound. the sound at that location has to conform to that filter's desire in order to be output. it's like a framework for a song; just fill in the in-between sounds.
 
-### 2022-09-12 07:06 - abstract contracts
+### 2022-09-12 07:06 - symbolic contracts
 
 the idea here is to *draw* up a contract by drawing a picture that contains symbols and colours which both parties agrees upon in word. you then sign it and the abstract contract is agreed to. it forces those involved with the contract to be held by their *spoken* word, rather than the *written* word.
 

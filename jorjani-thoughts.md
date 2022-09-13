@@ -1270,6 +1270,49 @@ this is actually a repeat of the same concept above where the computer kind of a
 
 when the pressure wave is propagating faster than the medium can propogate, there comes a time when there are particles moving faster than the medium start to bunch up, and the medium speed expands, kinda like when you meet the (boundary between two counter rotating thing) and the next layer has faster velocity and everything around it now become relative to that new speed (from our perspective, at least).
 
+have you tried microwave mashed potatos with sirracha sauce and real butter?
+
+lil nikki
+bill and ted's excellent adventure
+
+geoguesser
+
+I'm on broadcaster now.
+I don't take feedback from no-one
+
+### novel folklore
+
+I'm going to try and figure it out before he defines it. I dunno why, I just want to.
+
+novel is a realisation. it's a moment that there are other options for the moment. novel is realisation because when you realise something ("wow that was awful", "I'm in an awful condition") that moment has new undefined options.
+
+you know I think this realising thing is an opening of the eyes, just like sex is. when you get that negative input that produces the output. OMG too abstract. let me pull it in here... let me take the abstractness down a notch.
+
+the other day that I was thinking about those abstract concepts, and realised that it's symbolic contracts. you're looking at symbols on a paper and these access a shared memory area, so whover sees your contract can access the same space. you can probably be whatever you want there. it's probably fun.
+
+so get out there and start realising, because I think we're doing that nother layer of novelty thing so pace your speed how fast you want to go -- as in rpm (revelations per minute)
+
+wow, OK, trying to speak in physical. go to next topic.
+
+### wtf
+
+why do we need to resort to time travel? I have a solution that doesn't involve time travel. here's the idea: you know how the 3d is sorta like a matrix? ok, so don't worry about that matrix and you make your own. they can either follow or stay in their own matrix. facilmente.
+
+### the olympains
+
+don't worry about them dude. watching these geezers try to keep up is going to be so hilarious.
+
+they're the ones that aren't going into the next dimesion with us, and who knows how many others will join me on the one after that, or after that.
+
+they represent the barrier, so if we stay out here longer, their mushroom sprout widens a lot (a huge splat). we've all adjusted our contrast so that in the next dimension there is an imbalance, where something is always disabled. or, at least I have. I know that the better I get at this, the faster I start to think like this. I imagine that at some point it goes fully "autopilot". it's in our benefit to let them try and hold on for as long as possible.
+
+yesterday, I contemplated the concept that it probably means that the max anyone's gone to is 2038, so if I can beat that record, lol. like, what if we could just keep making our dimension for another few hundred or thousand (more?) years while we wait for the foot-draggers to finally "pull the trigger" on what they want (it's a sales expression that means that you're ready to make the deal). can we drag our feet for hundred or thousands of years designing the next dimension.
+
+are you really ready to get started on over-engineering it.
+
+
+
+
 
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
