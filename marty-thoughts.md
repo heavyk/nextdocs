@@ -88,3 +88,27 @@ it's a lot of things man. you can see it everywhere. it's a reflection of you, i
 [1]: yeah, I noted it as weird that I thought of actions as a medium, but it kinda is when I think about it, so I wanted to note it.
 
 [2]: this sounds like I'm creating a religion where I'm redefining the abstract to be "cyberspace" (nosebook). nice try guys.
+
+### 2022-09-14 11:02 - I think I figured out the timewave
+
+to start off, let me begin from the beginning. the earth is a star, but it's manifestation is confined to the physical spectrum probably by things like the pyramid and stuff like that. what it means though, is that all of this stuff we think of as matter is just light manifest by the central sun.
+
+I believe that there isn't much difference between planet and star, other than their paths are opposite. a planet wants to emit light more like a star, and a star wants to emit emit matter. all stars emit matter, but I think that ours is confined by the moon and other things, so we see the manifestation of material things on the surface of the earth star. just note this for what I want to say next.
+
+we are all elementals, meaning that all of us are starting out as the difference in vibration between conception and birth, and so if you put that individual into an environment, the concepts of that environment will produce a sort of machine that interacts with the environment in a predictable way.
+
+novelty is the realisation that you want to do something different than the predicted way, so novelty is a sort of glitch in the machine of entities all interacting in their predicted way (reflections, reemissions, and absorbtions), as it produces something that happens which *isn't* predicted. novelty is the predictor's worst nightmare.
+
+so, imagine that you constructed the earth in such a way that all of the species on the planet would have vibrational interactions between each other and other concepts at a pretty predictable rate (mating, eating, and everything "instinctual") such that what results is a formula which can generalise and itself even predict when there will be enough desire to produce something new (novelty). it's a sort of generalised function that assumes that all species have an amount of unwanted that they contribute to the WPM and when enough unwanted is accumplated, the WPM happens and new species/concepts are created to house the new form which up until that point did not have a conceptual container to fit the manifestation into.
+
+you can imagine that the most influential vibrations is the sun and planets (then species and genus), so if you live in a machine, figuring out how the planets affect the machinery, it helps greatly to predict the ebbs and flows of certain things. astrology really good a long time ago when we weren't very conscious, but now that we're so much more conscious, novety is happening much much more.
+
+so now imagine for a moment that everyone on this planet is an "elemental" and that we all start out programmed to seek the vibration that we're at. at first, it's clockwork, but as mure and more novelty happens, all bets are off as to what will happen. from that point, we're consciously creating our reality. this is probably that dividing line that I see in the creation of a new dimension, pushing 4d down to the lowest.
+
+this new dimension above desire seems to have to do with don quixote. I was learning yesterday that don quixote is weird because there's a blur between the narrator and the writer of the book, but also the author seems to also be in the story as well. he's a sort of self-referntial narrator of his own story, where the automaton writing the story down, from time to time says, "wait what?"
+
+so if I do the transformation on the dimensions, that means that the new one is going to become a primary and the layer I call 2nd ray moves down to become the opposite of that. 2nd ray is seeing everything as being connected and mutually influential, but the narrator will want to see it as push; kinda the same as how desire presently pushes on 3rd ray rules and symbols. it also means that 4th ray perception (I am you for a moment) now becomes the concept of ourself -- so we're a sort of group consciousness. we are human. indicidulisation now happens at what is now the conceptual level and is manifested into 4d reality.
+
+that may have been too abstract. I'll try and figure out a way to look at it later. anyway, as I was writing that, I was wondering because I conceived of *two* new layers, not just one, which would put us as opposite the opposite, so kinda in the position of where desire is now but in physical form.. the whole system is mirrored twice. I may want to explore both of those later. the thought that just came to me now is that if I go for lots of contrast I can do two layers, but if I only go for minimal contrast I only have enough for one more layer (because making a layer requires a WPM, so I would need another WPM on the next dimension above this -- which I'm planning on over-enginneering anyway) interesing...
+
+anyway, the singularity that terence saw at the end of the timewave is when the amount of novelty gets so high, the effects of the species and the planets gets to be so negligible that it no longer can be considered as an accurate predictor.
