@@ -203,3 +203,7 @@ I'm the cosmic form of a joke because there are a lot lot lot of people out ther
 HO HO HO says the universe
 
 (wow, did you feel how fast the vibration on that concept dropped when they started to think of me as channeling the universe -- crazy, huh)
+
+### 2022-09-13 15:55 - the worst possible manifestation
+
+real pessemism
