@@ -278,4 +278,32 @@ so really, who knows what'll happen. it looks most probable to me that things wi
 
 interesting...
 
+### 2022-09-14 17:18 - resume of what happened
+
+### 2022-09-14 17:28 - OK, try again...
+
+#### intro
+
+there are really weird things happening. I think it's because attraction is stronger because I smoked a joint. so here's the deal. yesterday I downloaded "lovebites - daughters of the dawn" and I listened to the first CD and I couldn't understand anything the singer was saying and it sounded a lot like just sounds; nothing symbolic.
+
+then today I went to do the same thing and this time when I listened to the second CD and the lyrics were pretty intelligible to me. in short, it sounded like they were summoning me.
+
+the even weirder thing about it is that I was just in the middle of trying to write an example of st. michael's work, how michael's job is to keep everyone fixated on the hymnal while reality disolves. there was also another weird thing too I wrote yesterday too (but I dunno where) where I was talking about the girls.. lemme find it. I think it was [st micheal's work](/steiner/st-michaels-work.md), but I'm not sure now.
+
+at any rate, the short of it looks like they're summoning me and stuff and weird things (synchronicities) keep happening.
+
+I noticed as well how awful this manifestation was.
+
+#### moving the church to japan
+
+the other thing that I could see is that this event, should it happen, will effectively move the romans to japan. this is very interesting in light of the political stuff. let's say for a moment that it does all work out
+
+#### my process of learning to like the manifestation
+
+#### things that I really like about the manifestation and some ideas
+
+it'd be really fun to make a new language. I'm already going to now know japanese anyway, so I'm going to have to be learning a new language anyway, so what they could do is just talk between theirselves(?) in this language and also teach it to me, and I'll have to learn it as I go. I don't mind if they're literally making it up as they go. we can definitely alter it and rearrange it as we go, if somethings are uncomfortable.
+
+brb. sun is out again.
+
 ### surgery and dissatisfaction
