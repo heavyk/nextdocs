@@ -31,3 +31,11 @@ all of the stuff happening in US politics is *really important*. we gatta stick 
 this whole concept related to something I read in the book of the same title of by steiner. I thought I'd start out here though...
 
 [1]: it's for this reason that I believe we see hyperbolic geometry, because it's the closest way to describe that vibration. it doesn't have the concepts to render it into anything else. this is why you feel connected to the universe, but you don't have words or even a picture, so that's why the hyperbolic geometry.
+
+### 2022-09-14 12:12 - as an example...
+
+I was just thinking about steiner's "st. michael's work", and the thought that came to me was that I should just leave all of the marketing team to be out there and go nuts, that way I can kind of stay out of the public sphere. I'm not like exactly opposed to the idea as I'm not really all *that* excited about living a public life in the first place.
+
+[song: lovebites -- lyrics are hard right now]
+
+brb.
