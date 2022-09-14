@@ -118,3 +118,17 @@ anyway, the singularity that terence saw at the end of the timewave is when the 
 the 2nd ray stands between desire and structure and so maintains equibrium by expanding or contracting due to pressures coming from both sides (yes, like a vagina). the reason why it needs to be constant is that it maintains the proportions of both of its sides. so for example, notice how the giza pyramid constrains the 7th ray by expanding only on the conceptual side. that's the same thing but from the 6th ray perspective (moon).
 
 the fourth is the same but between physical and non-physical and it too needs to maintain everything in porportion; the physical and spiritual. all must be balanced and in proportion. you could imagine the 4th ray's perspective is from that of the divine geometer, giving proportions to all things physical in relation to their non-physical couterparts. they like shapes. a lot.
+
+at any rate, the 2nd ray is balancing desire and sructure. think of desire of as a cloud of non-harmonius vibrations (all the unwanted stuff). those vibrations interact with each other and then sometimes become powerful enough to pass down into structure.
+
+down in structure, what you see there are these constantly self transforming configurations of perspective that input vibration from the 4th (which came from physical), then they transform, emit, absorb, or reflect (TEAR) the energy back. these barriers act as sort of barriers between layers. the only way through is transformation: absorb and reemit on the other side.
+
+you could consider this reality now as having the properties of the matrix above it, so for example, the imagination takes in concepts and then reemits them into physical as signals. this is such a membrane.
+
+to visualise this, we can look at the planet, and see that there is a certain logic and structure for the passage through the membrane: you have to have the right sequence. don't just think that this exists in the physical like DNA, but it's also in the non-physical too as the different configurations for perception. they're sorta like routers to see if you can pass through the dojo without getting reflected or retransmitted.
+
+to visualise that, let's look again to the 2nd ray. you have this desire that comes blazing through and it has to be routed to go in the right direction before it hits physical. you know, so it hits the right concepts, which then produce our imaginary reality. the imaginary reality is what you believe is real. it requires access to the concept and a set of signals in the brain to process that concept into "reality". we just pretty well agree on a lot of reality, so it stays pretty constant.
+
+a philosopher bridges this gap because he is able to take in a set of concepts and rearrange, throw out, transform the concepts until they fit into a new structure, which then that new logic then becomes the new barrier that must be surpassed in order to pass between layers. be rearranging the form and the content of the concepts, he reduces (or expands) the barrier between concepts.
+
+[song: this is the beginning of a new day ... so, you might as well enjoy it]
