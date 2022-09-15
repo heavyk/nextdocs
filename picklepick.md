@@ -328,7 +328,7 @@ I really like the feeling of stability that it feels like. as per the revelation
 
 the other nice thing that I like is thmt contrast will be much more constant with the increment about the same, though the magnitude could vary tremendously.
 
-### things I feel discomfort with
+#### things I feel discomfort with
 
 this manifestation feels too easy. I really wanted to go to china and drunk pump these guys with zaryn and see the marketing team keep up. olympian lifespan. I'm kinda hoping that we can include something that is hilarious. too boring and not funny enough.
 
@@ -356,6 +356,26 @@ what I was seeing the days previous was that traditional ways of holding power (
 
 I don't mind doing all of the other stuff from the first smoke, and I really would think it's a lot of fun. I don't see any reason why it'd be done.
 
-the thing I did see though is that with the trump manifestation they would be caring for me, and so these business types all need to take care of someone in order to allow theirselves to allow someone to rise in capability. they like to feel iike they were the influence or reason for someone else's success. it gives them that "you owe me one" indebtedness that they love. or the "I made you so I can break you" "you depend on me" sort of things ... so if they can get over that nonsense, the trump manifestation is still going.
+the thing I did see though is that with the trump manifestation they would be caring for me, and so these business types all need to take care of someone in order to allow theirselves to allow someone else to rise in capability. they like to feel iike they were the influence or reason for someone else's success. it gives them that "you owe me one" indebtedness that they love. or the "I made you so I can break you" "you depend on me" sort of things ... so if they can get over that nonsense, the trump manifestation is still going.
+
+in fact, I'm pretty sure that I can still interact with both. as always, I'm gonna wait a little bit anyway so that I'm sober again. no matter what happens, I want to be sober again first.
+
+#### some sort of trick
+
+I was looking into the origin of the vibration that produced this, one of the things that I noticed is that the main motivation for this was a conversation where I was looking at the monetisation plan and it was good, I could see that there was once again a discussion over who would be the first to receive me. I noticed that there was competition -- a lot of it, and I think it's because they're going straight toward a monumental form of time, so [competition is high](/jorjani-thoughts.md#2022-09-13-1251---individuality-in-terms-of-competition).
+
+I suggested that perhaps what we should do is to have a competition just like they want, but at the end of the competition, the competitors need to decide who was the winner.
+
+I wonder if that was too sportsman-like for them and they wanted more pure competition, and so they felt bad now about something they used to feel good about. crazy they'd want to have a judge decide for them rathar than come to an agreement amongst their competitors.
+
+then after that, I was thinking about the competition and wondered if the girls would somehow steal the competition in some way. that thought also had resonance with this manifestation, so does that mean that they started to really worry about the worst possible manifestation of the girls intervening to take over control.
+
+the final vibration that was similar was me singing "she's buying her stairway to heaven". obviously.
+
+so I have to wonder if I have to go with the trick. one day I'll figure out, I suppose that I don't really need their support system and that I can do it by myself.
+
+#### what about the other girls?
+
+the last thought, and I'm expressing it again because it's in the air. there seems to be a lot of pueblo girls that want to know ... if they can come too.
 
 ### surgery and dissatisfaction
