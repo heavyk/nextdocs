@@ -233,3 +233,27 @@ you see, there are all of these offsets that I'm subjected to. for example, I'll
 it's those things that I see and something about it just sticks to me. for me there were a lot of things, but just think about how much abraham or that random [sirian-guide](/sirian-guide/orig/philo.htm) document that was channeled. how do I know where to find such a thing? it didn't have all of the information by any means, very incomplete rendering of the concepts into very 80s style thinking. it was a sort of puzzle that bore a hole in my skull, and I had to figure it out. that is one example of my knowing being much higher than my physical capability of receiving it. inotherwords, it wasn't what they said that taught me, it was what they *didn't* say (cause I had to figure it out for myself, and you guys have questions about it too).
 
 [1]: I suppose I could maybe train it to see what I want in the middle there, and that could restore my vision in that sense. I dunno.
+
+### 2022-09-15 16:50 - untangling realities
+
+I noticed just now how there is this thing that keeps repeating. females tangle me up inside of a very strange reality. my goal is to build a culture sufficient to be able to decode their matrix more and more easily.
+
+when I'm able to untangle their reality, I can work as an individual, and that gives me superpowers that they can't deal with. they need to find a way around the effects of my superpowers. I'm kind of a problem for female reality present.0, and unless they do something they'll go extinct (that's the feel of it, but I don't know why). so, their goal is to continually trap me inside of their reality.
+
+I guess it's a symboiotic relationship that ensures that nobody can just get enlighened anymore; they're my brakes, otherwise I'd be going too fast.
+
+so, for example, in this one, if I were to go at full speed I will too quickly realise my perspetive of the universe (die/transcend), so in order to retian presence in 3d, they slow me down tremendously.
+
+one implication of this is that females won't be able to finally let us all trancend until *they* are ready to finally let the reality go. intherwords, it's fear of something awful to happen, but it's expressed in the positive sense of wanting something good to happen (cause they're backwards?). so until they can finally let it go that they have to have a secret reality matrix where they're kind of like overseers or watchers. they're just another version of nosebook, but consciousness based, but now it's consciousness and also computers. so, this will almost certainly be the most difficult reality matrix to get out of. the more difficult they make it, the longer I can stay in 3d.
+
+another implication is that females upgrade in group and it's only when something gets approved by a (seeming) majority of those with voting power. that means they won't ever transcend until all of them can transend -- which is a really long time -- so they represent the long period of evolution. because of their circumstances they're constantly upgrading, but this moment in time gives them a time to become stagnant.
+
+it's usually the men that are most stagnant, but now women can really get set in their ways because technology is sufficient now. it's their time to finally drag their feet waiting for us to catch up -- knowing that the reality matrix they've created is the most impossible to get out of for us -- which is why we appear so "rare" -- so that creates massive amounts of not-goodenoughness that holds us pretty firmly into their reality matrix.
+
+you know the only real way to get past their reality matrix is to go solo. if you get going too fast, I think that the rules are that they *must* program a new reality matrix with that person that figures out how to get past it.
+
+you know, now that I think about it, men do the same thing, but it's expressed in a different way, so just know that it's not like I'm saying this is a thing that happens to only one gender. I'm just talking about how their reality matrix is the thing that we're trying to get out of.
+
+we're stuck in their world of concepts, and if you want to receive concepts that they cannot express, then it's "bad" (though perceived by them as very desirable), I think it's the capacity to use concepts they don't know about (and that they're also interested in -- so maybe welding isn't that often) -- so, if you come up with a new welding technique, that's not going to be super attractive. material things depend on if you like it in the material. however concepts are enjoyed by all, and so everyone's female side likes you if you have new concepts they don't know yet.
+
+so, if you want to be really popular and have tons of charisma, just know a lot of concepts that society and the reality matrix does not presently have. break out of the reality matrix and enter yourself into perception matrix, because they haven't quite figured it out yet.
