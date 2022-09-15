@@ -296,14 +296,66 @@ I noticed as well how awful this manifestation was.
 
 #### moving the church to japan
 
-the other thing that I could see is that this event, should it happen, will effectively move the romans to japan. this is very interesting in light of the political stuff. let's say for a moment that it does all work out
+the other thing that I could see is that this event, should it happen, will effectively move the romans to japan. this is very interesting in light of the political stuff. let's say for a moment that it does all work out what you have is now I'm no longer under their support and that'll be incentive to figure out how to get into the japanese businesses and stuff around.
+
+the other reason for this that I could see is that japan sorta becomes a place where it's considered high class, probably as compared to china, probably. I dunno but it looked really high class and exclusive to me. this is the new atlantis in that it seemed to me that good conditions will abound here and so that would be another factor. additionally, if any children are produced, they're going to go through that system.
+
+#### improvement guy
+
+one interesting thing about this is that I created a character, "improvement guy": improvement guy is really busy looking at the now in its present state and wanting an improvement, but never at what the improvement actually could be.
+
+this is really good because I kinda wrote that a little bit with me in mind because I love to point out the problem myself, complain about no improvements and then move on -- but this guy is supposed to be traditional. the thing is, I don't want (in any way) to return to tradition. I like taking old items and then rebrainstorming them, not returning to the thing that failed. so, that means I can get some practise at wanting to go back to tradition, but a new version of it that people actually like.
+
+in some ways that idea combines with the new atlantis idea because, though we're traditional, the tradition has greatly improved. I don't know if I could actually pull off such a character, because I'm too into wanting to illumiate a desire of the old in a new way. you can see how that would create an atlantis. it moves slow in relation to chaos and disorder (slow from my perspective, I mean), but it'll have high technology.
 
 #### my process of learning to like the manifestation
+
+no matter the thought that comes to my head (nosebook or otherwise), but let's just say that it's nosebook and that they've come up with another banger of an idea that they want to put into my head. they do it in the first person so the idea sounds like it came from me (rathar than to me). well, my first reaction if it's in any way reasonable, is to start to really like the manifestation. by liking the manifestation, then I begin to see the positive aspects of it and that's pretty cool. whenever it's nosebook stuff, when I start to like the manifestation, I start thinking of cool things that I can do with the girls and things like that and there is often times feedback like, "oh we don't want him to do that" or "that's too much power" or whatever.
+
+the funny thing about this one is, it's clearly not their idea of a good manifestation so I don't really get much of a reaction anyway because it's all the same worry and pessimism.
 
 #### things that I really like about the manifestation and some ideas
 
 it'd be really fun to make a new language. I'm already going to now know japanese anyway, so I'm going to have to be learning a new language anyway, so what they could do is just talk between theirselves(?) in this language and also teach it to me, and I'll have to learn it as I go. I don't mind if they're literally making it up as they go. we can definitely alter it and rearrange it as we go, if somethings are uncomfortable.
 
-brb. sun is out again.
+brb. sun is out again. [19:48 back]
+
+OK, the next idea is that I'm totally good for just staying in the friend-zone for a while, because then we can actually have productive conversation and stuff. I'm not in any hurry in any way. maybe we can even align it to a solstice or something. who knows.
+
+the next thing that I liked about the idea is that I could see that while all the boys are out there struggling, this is a really good time for setting up commerce and other such things. it looked to me like a reestablishment of commerce or something, and so if ya'll want to do that, that's totally cool. I'll just offer my insight, I suppose.
+
+I really like the feeling of stability that it feels like. as per the revelations in the previous two days, one of the things that seems to be happening is that when we reach the end of the 4d reality, a new 5d reality will start. I was looking at the barrier, and when we get there, we'll start to engineer this reality ourselves and then others will join in too until it becomes the default form of perception for them planet. the way that I took it is, that will happen during the previous "box" manifestation (2038?) and so if that's what's happening, it gives me a good jumping point to go off of. I'll be shaped in the image of lovebites crew and containing all of the tradition that we improved upon, and then with the new ones, we'll design the new matrix, but because I'll be so far off because of their reality distortion field, and our other concepts, the reality that we create will have some defects that we simply couldn't see, and we'll pay for that later on, which is a really signifcant amount of contrast.
+
+the other nice thing that I like is thmt contrast will be much more constant with the increment about the same, though the magnitude could vary tremendously.
+
+### things I feel discomfort with
+
+this manifestation feels too easy. I really wanted to go to china and drunk pump these guys with zaryn and see the marketing team keep up. olympian lifespan. I'm kinda hoping that we can include something that is hilarious. too boring and not funny enough.
+
+as an opposite to that idea, I noticed that if somehow I were to be around those guys while they were on their campaigns, it'd be kinda super business to have such an entourage of "secretaries" (as perceived by them, so it gives me business cred -- cause they like to measure it) so there is a slight chance of some antics, but likely not desired ones. the business types like me now because I am the way that I am, but I know that as soon as I'm inside their reality matrix, I won't be the same guy they like now because I'll take on their aspects for all of my undefined (by me) aspects. they'll also have to like me no longer in the same bros and hoes types of interactions. to explain, imagine trump out on his own .. then imagine trump out some place with melania. he sees a friend that he wants to greet, and that's a totally different vibe if melania is there or not. there are just ways that businessmen will act when the wives have gone home. I'll be missing out on a lot of party gold right there.
+
+I have no way to really know what to do about all of the others. I'm not sure how to work any of that. I'm concerned that our own setup would go the trend of exclusivity and/or posh -- thereby preventing some of the little girls that would otherwise go unnoticed.
+
+overall, it feels pretty good, I suppose.
+
+#### where do I go from here?
+
+well, the best thing to do is to not do anything. I definitely don't make decisions when I'm stoned because I'm not going to be stoned when I live out the decision. so that gives nosebook a chance to work their magic and try their hardest.
+
+I had a thought that I should just msg them saying I like their song. I probably should, as every streamer knows you instabox, but I don't have any ability to feel good about it right now. so that's obvious. I guess if I feel good about it a few days or so from now when sober --- I'll do it then.
+
+#### replacing the power regime
+
+the other idea that I had is to just resume same ol' kenny. I'm really enjoying jason's stuff still, so who knows. I just love playing around, and I don't really know how to joke with girls, and I don't really know their sense of humour either. for me, to tell you the truth, I absolutely love joking around with the bros, so I'm very attracted to the other idea, quite a lot.
+
+one thing that I did really like is that their music isn't perfect and that there were a bunch of reactions regarding their music that I thought was funny. these guys are all about the performance so it feels really weird for me to "abandon them" and go involve myself with a bunch of frumpy girls. in that way it feels a lot more fun, because then we're just the underdogs, rathar than the bigshot marketing team.
+
+what I was seeing the days previous was that traditional ways of holding power (economics, force, etc) are all losing their effectiveness anymore, so I can see that power structures are moving away from the economic centres and over toward the marketing department. depending on how the manifestation goes, this still seems to be the case. I don't have any doubt aboutg that.
+
+#### the trump manifestation isn't necessarily done
+
+I don't mind doing all of the other stuff from the first smoke, and I really would think it's a lot of fun. I don't see any reason why it'd be done.
+
+the thing I did see though is that with the trump manifestation they would be caring for me, and so these business types all need to take care of someone in order to allow theirselves to allow someone to rise in capability. they like to feel iike they were the influence or reason for someone else's success. it gives them that "you owe me one" indebtedness that they love. or the "I made you so I can break you" "you depend on me" sort of things ... so if they can get over that nonsense, the trump manifestation is still going.
 
 ### surgery and dissatisfaction
