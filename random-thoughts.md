@@ -207,3 +207,29 @@ HO HO HO says the universe
 ### 2022-09-13 15:55 - the worst possible manifestation
 
 real pessemism
+
+### 2022-09-15 12:44 - you know, I'm kind of a hypocrite and fraud, myself
+
+you guys hear all of this stuff, because that's because I know it but, until that moment, I hadn't ever practised it because I'd never defined it for myself so that I could perform its action; I never had said it before in words.
+
+this means that all of the stuff I'm doing I'm either doing it naturally or because I've practised it. that seems obvious, but it means that I'm deliberate in my action.
+
+I'm a hypocrite because every time that I say something from inspiration I'm 100% legit saying what I'm not really doing myself. because, in a state where I'm deing what's natural to me, I am not conscious of what I'm doing).
+
+as a result, I sorta fumble through life because I have such little experience with all the stuff I know. makes for a fast learning experience though.
+
+you can tell, when I'm actually capable of receiving that knowing in full capacity and when I'm only capable of a limited capacity.
+
+### 2022-09-15 12:53 - mental offsets
+
+I always look at the offsets that one has because of difference in one thing vs another. for example, I know my eyes see better than I see out of them. so, what kind of offset does that create?
+
+I wondered about dr-robat and mcluhan, because they too have far forward perception, but their eyesight is pretty poor. this is especially the case for mcluhman totally saw the age of advertisment and marketing a long time before it became a thing.
+
+before I get back to the main topic, it's an interesting thing living in a world without long distance vision. the whole world is very different because I see depth, but the details of it are all blurry, so I tend to see what I want to see in the middle there. I've experimented with it a few times and definitely in the blurry spot and sometimes my whole eye, I can see whatever I want to see in it[^1].
+
+you see, there are all of these offsets that I'm subjected to. for example, I'll be stuck in the reality matrix of a bunch of women, and especially at first, there is a very limited amount of my reality I can express in each reality mattrix. they cannot see what they don't have a concept for, so in a lot of sense I'm limited to their concept dictionary, and it takes a bit to build new ones. when I finally get out of their reality, I'll be pretty unbalanced because they will have supported me in a way which didn't allow me to learn it for myself. I'll also be unbalanced in the sense that their reality matrix will definitely not (at lest at first) be able to express even a fraction. my "knowing" will far exceed my capatity to even recognise it.
+
+it's those things that I see and something about it just sticks to me. for me there were a lot of things, but just think about how much abraham or that random [sirian-guide](/sirian-guide/orig/philo.htm) document that was channeled. how do I know where to find such a thing? it didn't have all of the information by any means, very incomplete rendering of the concepts into very 80s style thinking. it was a sort of puzzle that bore a hole in my skull, and I had to figure it out. that is one example of my knowing being much higher than my physical capability of receiving it. inotherwords, it wasn't what they said that taught me, it was what they *didn't* say (cause I had to figure it out for myself, and you guys have questions about it too).
+
+[1]: I suppose I could maybe train it to see what I want in the middle there, and that could restore my vision in that sense. I dunno.
