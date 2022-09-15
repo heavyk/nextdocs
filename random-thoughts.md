@@ -254,6 +254,14 @@ you know the only real way to get past their reality matrix is to go solo. if yo
 
 you know, now that I think about it, men do the same thing, but it's expressed in a different way, so just know that it's not like I'm saying this is a thing that happens to only one gender. I'm just talking about how their reality matrix is the thing that we're trying to get out of.
 
-we're stuck in their world of concepts, and if you want to receive concepts that they cannot express, then it's "bad" (though perceived by them as very desirable), I think it's the capacity to use concepts they don't know about (and that they're also interested in -- so maybe welding isn't that often) -- so, if you come up with a new welding technique, that's not going to be super attractive. material things depend on if you like it in the material. however concepts are enjoyed by all, and so everyone's female side likes you if you have new concepts they don't know yet.
+we're stuck in their world of concepts, and if you want to receive concepts that they cannot express, then it's "bad" (though perceived by them as very desirable), I think it's the capacity to use concepts they don't know about (and that they're also interested in -- so maybe welding isn't that often) -- so, if you come up with a new welding technique, that's not going to be super attractive. material things depend on if you like it in the material. however concepts are enjoyed by all, and so everyone's female side likes you if you have new concepts they don't know yet. they'll feel attraction to you and they usually don't know why they feel attracted to you, and their concepts don't allow them to feel that attraction, it could cause problems. I know that it's for that reason, I have a tremendous impact on a lot of people. I have a lot of concepts others don't have.
 
-so, if you want to be really popular and have tons of charisma, just know a lot of concepts that society and the reality matrix does not presently have. break out of the reality matrix and enter yourself into perception matrix, because they haven't quite figured it out yet.
+so the goal really is for them to extract a lot of these concepts out of me (at least all the ones they can understand) and then encode them into their format and then obviously keep a lot of them secret.
+
+I really think that the female side matrix (we all have it), is a whole lot like nosebook. it behaves very much the same. so if you want to think about it for a moment, nosebook is all of our female-side's perspective reflection about being the authority on what contracts are allowed in the system. it's the same as censorship or media monopoly. these (physical) systems determine what concepts are allowed in its system. that same thing exists inside of us as our female side. it encodes the reality matrix for yourself that you have to find a way to look through.
+
+we do it for ourselves, society does it for us, and so on...
+
+---
+
+if you want to be really popular and have tons of charisma, just know a lot of concepts that society and the reality matrix does not presently have. break out of the reality matrix and enter yourself into perception matrix, because they (nosebook, the girls, or any society yet) haven't quite figured it out yet.
