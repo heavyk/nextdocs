@@ -265,3 +265,23 @@ we do it for ourselves, society does it for us, and so on...
 ---
 
 if you want to be really popular and have tons of charisma, just know a lot of concepts that society and the reality matrix does not presently have. break out of the reality matrix and enter yourself into perception matrix, because they (nosebook, the girls, or any society yet) haven't quite figured it out yet.
+
+### 2022-09-15 17:33 - what about my manifestation
+
+so, there was wondering if I'm concerned with them figuring out my concepts and the firmly embeddinbg in thir conceptual matrix, as if it's sort of a jail for all of us and they're the ones that have the best knowledge of it.
+
+I don't find it a problem. the whole point of writing out the whole bit about how we all do it to ourseleves anyway, and as we grow up in a society that contributes greatly to the conset (concept set) that the individual can utilise.
+
+this is why different regions all over the world have different consets than others, and this in itself is a power structrure.
+
+the whole thing is power structures from to to bottom. in the end you just can't really get around it in this reality; you just have to find a way to coexist or to form a symbiotic relationship.
+
+that really is kinda the only way, because if I stay alone too long, I go too fast. power structures can't handle that.
+
+---
+
+now, let's switch out of material mode and look at this thing abstractly now. when I find a way to look at the conditions how I want (ie find all of the things that I like about it), it doesn't matter the power structures that are trying to keep up because I still attract whatever I'm giving my attention to, so as long as I'm doing that, then it's good. this is why I like to alliance myself with people like zaryn and the like, because they allow me to encode concepts into a medium (like tuenti), and if I have a lot of concepts that makes me have a lot of charisma and also gives the parent network (of whatever) the shine that I have of having so many novel concepts.
+
+I produce concepts very rapidly, and many concepts are very incompatible with the present matrix, so they're pretty threatening. any media outlet wouldn't be able to allow me to present concepts for too long, because I would get too far into the framework of reality, and the matrix never wants you to see it's framework, because then you could move things around illegally, breaking the rules (like anyone disobeying the light speed limit). so, if I want to stay here any length of time, I have to align myself with the next power structure to ensure maximum concept output; anyone else would shut me down too quickly.
+
+probably, it'll be a "when we think you're ready" puwer structure just like all of the rest, and so they're the gatekeepers. my point is to not look for the gatekeeprs to open the gate for you. you have to do it yourself, and when you do, your new concepts will become the new matrix.
