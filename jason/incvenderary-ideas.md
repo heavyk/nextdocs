@@ -1,3 +1,7 @@
+# incvenderary ideas
+
+promethian fire ideas you can vender
+
 ### 2022-09-15 19:04 - 003 - spectral revolution
 
 #### we would have to reimagine a new form of society
