@@ -113,3 +113,7 @@ to explain how I don't think that probabilities don't exist I have to demonstrat
 my reality was constructed out of symbols and I'll have to pay for that offset later on, but your reality is constructed out of possibilities, and so, you'll probably have to pay for that later on, as well.
 
 these sorts of offsets stack up extra of this opposite to novelty stuff (habit, contrast, probabilities, but there was a fourth one I can't remember now). those things produce instability in the next form of perception and so that becomes the "seed contrast" for the next dimension. so it's probably planned/inteded.
+
+---
+
+I explained the fourth opposite to novelty yesterday, but it got erased I believe (or perhaps other timeline), but the fact remains that I'm still unable to locate it, so it's time to update the concept. whenever a concept goes away from my mind, I have to find a new way to get to the same concept again (so I can explain it), so that means that I get better at getting to a concept. I'll think of it again soon enough, and probably better the next time too. as such, I don't mind having to get to a concept again from more and more unique ways. I'm good at getting around stuff (like physical laws, of science).
