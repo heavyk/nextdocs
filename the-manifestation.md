@@ -83,3 +83,27 @@ so they're having all these problems trying to keep it together, and the ones th
 it has to do with the way that we care about what others think, but if you think about it, it also manifests as not-good-enoughness. I can look out and see other people doing amazing things, but I can't myself, so I'm probably not good enough to do it.
 
 that's kind of a weird one that disguises itself as not-good-enoughness, but really it's caring too much what others think.
+
+### 2022-09-16 12:53 - a valid concern on narration
+
+this idea goes something like this: right now I'm sorta the narrator of what's happening in the world. if I come out into public, that changes.
+
+same with if I go with the girls. they'll take over a lot of my narration for me (I would hope, anyway).
+
+something to keep in mind. the idea that just came to me is that if we invented a new way to narrate, and by doing that, we're completely leaving the narration to the other narrators.
+
+this will largely set the dividing line between dimensions, and the deciding factor is what narrative they're listening to. imagine the offset on that one: imagine a person that has a very open mind but they're listening to a closed-mind narrator. they get to the side they're going and realise it was all a sham. I think that means I'm going that I'm going to the opposite of that, so I'm going to be the most open minded individual, but in a world built by the narrators. which are my narrators?
+
+some individuals want to be my narrators. I don't see anything wrong with that. it's just more contrast for me. each of these narrated worlds I don't really see, so they have to find ways of integrating me into those other narratives.
+
+so if I go with the girls, they lose connection to my narrative. that's their main concern.
+
+I say let them have some control over my narrative because narrative is really quite funny when the narrators don't have a clue what's actually happening. it's probably pretty comedic, honestly.
+
+---
+
+I'm still trying to figure out how to integrate my future in. I was thinking about how I was going to define it for people and I was thinking about really maybe doing some statistical analysis on it, maybe some risk assessment, and projections. that'd be really awesome.
+
+once we've figured it out statistically, we can just use that as a sorta joke later, kinda like how they were actually our minimum expectations. for me though it's going to be pretty fun because I think probabilities don't really exist (as weird as that sounds).
+
+to explain how I don't think that probabilities don't exist I have to demonstrate by example: we need to build up imaginary scenarios (a set of expectations) and then figure out the statistical probability of meeting another set of expectations in X amount of time. most of the time it'll fail (or, at least I would hope so).
