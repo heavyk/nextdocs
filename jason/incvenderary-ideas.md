@@ -75,3 +75,7 @@ if you want into 5d, you have to be really good at feeling the way you want to, 
 ---
 
 so, in my opinion, the spectral is the revolution where everything becomes a spectrum and you just float around in experience (which gets turned into concepts). from that nebulous cloud of concepts, you have a general sense of everything that is happening in reality, but you don't necessarily see asy of it directly. all concepts that make it in there got past your filters. you can also put algorithms and other conscious attributes to the concepts that you interact with there. que pedo wey.
+
+#### are you the demiurge?
+
+as I listened to the rest of it, it felt like I was listening to chris talk about some really bleak subject. I wonder if you yourself aren't one of these "narrators". your narrative is interesting, and it serves as a good demiurge.
