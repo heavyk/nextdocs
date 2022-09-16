@@ -49,3 +49,37 @@ you can also think of novelty as a major change in timeline. that novelty foreve
 I've really been thinking about the conditional-time-straighteners and the "improve the past" slogans, and I'm convinced there's something to it. it's pretty likely there will be a battle you could imagine in the past, to try and fix the events how they were so that some of the "bad-guys" can slip through history undetected, so as to having made no discernable vibration, they'll enter the next dimension undetected, giving us free contrast. don't wanna go without that extra novelty, ya know. too abstract, I know.
 
 in resume, I have to keep doing max contrast on my end until I don't have to anymore.
+
+### 2022-09-16 10:29 - not-good-enoughness is like desire
+
+when you consider that when you have sufficient not-good-enoughness, it produces good-enoughness.
+
+to illustrate, I'm the king of not-good-enoughness. from their (the girls) perspective, nothing is ever good enough, but from my perspective, I just want to find my connection.
+
+it's only when I've found enough connection that I feel good-enoughness, and then that is when I'm ready. I can see how from their perspective it looks like I never think it's good enough. it's always good-enough from a high enough perspective.
+
+there's something more to be said about this, but it has escaped me.
+
+### 2022-09-16 10:39 - I think I've pretty much set my goal
+
+so I was thinking about it a bit outside, and there are other options for starting out, but I do believe that I do want to end up in this sort of reality matrix. I think it is the worst possible manifestation for the "popular" vote.
+
+along the way to get there, it'd be really fun to make it even worse. I don't have to do anything. they already have to try and prevent it, so they have to come up with something that will (apparently) try and prevent this WPM, but it's always the case that when making action against sometihng you make the concept that created that thing stronger, so even their best efforts will produce even more WPM.
+
+I figure that after some time they'll really be in a huge pickle, which is good because they don't need to actually do anything for survival because they can't get it wrong. they'll be inextricably linked to our dimension above, so no matter how hard they try to mess it up, they can't.
+
+if they want to get out of the power structure, they won't be able to, so they'll have to figure out how to make their own dimension. a demiurge of maximum capacity.
+
+that way they'll have their own private dimension and also the girls will have their own dimension. when the population becomes a global population, competition will arise in seeming physical dissimilarity (race, colour, gender, etc.), and so this provides for a perfect factioning to begin besides just the binary opposites (my <|not >same or preferred race/colour/gender). they're actually kind of the same dimension, but two different perspectives into it. nosebook from a masculine perspective and nosebook from a feminine perspective (and both of their subsequent perspectives/definitions of all demographics through statistics). in reality neither is even close to reality, but it will shape our reality to their expectations.
+
+### 2022-09-16 10:57 - I wonder the validity of this
+
+I'm listening to a korolova mix and one guy commented that the two things were not well mixed because somehow the slider got left in the middle or something. the guy commented "amateure hour" and so as I was feeling out the thought, I was reminded of st-michaels-work, where his whole job is to keep us all focused on the hymnal.
+
+the picture I had is that these different performers are out there doing things, but their vision has gotten so detailed, that reality is starting to kinda like melt out and it's so hard to stay focused on reality because the only thing they can see is theirself (this is kinda what the start of 5d is sorta like).
+
+so they're having all these problems trying to keep it together, and the ones that know how to not look at theirself too seriously are the ones that are doing well.
+
+it has to do with the way that we care about what others think, but if you think about it, it also manifests as not-good-enoughness. I can look out and see other people doing amazing things, but I can't myself, so I'm probably not good enough to do it.
+
+that's kind of a weird one that disguises itself as not-good-enoughness, but really it's caring too much what others think.
