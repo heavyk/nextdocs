@@ -110,4 +110,6 @@ to explain how I don't think that probabilities don't exist I have to demonstrat
 
 ---
 
-my reality was constructed out of symbols and I'll have to pay for that offset later on, but your reality is constructed out of possibilities, and, you'll probably have to pay for that later on.
+my reality was constructed out of symbols and I'll have to pay for that offset later on, but your reality is constructed out of possibilities, and so, you'll probably have to pay for that later on, as well.
+
+these sorts of offsets stack up extra of this opposite to novelty stuff (habit, contrast, probabilities, but there was a fourth one I can't remember now). those things produce instability in the next form of perception and so that becomes the "seed contrast" for the next dimension. so it's probably planned/inteded.
