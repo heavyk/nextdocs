@@ -295,3 +295,9 @@ so, if you're good with him vibrationally, he doesn't bother you. the more enlig
 he's just the gatekeeper or, perhaps you may even think of him as the "ruler" of the astral. if you're doing well, he'll send nice birds and stuff, but if you're naughty, he'll send happy bird over for a conversation.
 
 he must have been so annoying, nosebook had to absorb him, otherwise he would have been bothering them, so by giving him a platform to express himself, they can restrict his annoyingness from their group. they have the motor cure.
+
+### 2022-09-16 11:46 - why don't DJs use three tables?
+
+I was watching (@[youtube](https://www.youtube.com/watch?v=_POraCozbQY)) and her style is a bit different in that she dosen't use the crossfader but crossfades a spectrum of frequencies at a time, so I was wondering why now do a third table?
+
+one table is the stable beat, then two are switching off adding to the song. the stable beat doen't have to stay constant the whole mix, as it can be swapped out who the two flashy ones are doing something else.
