@@ -285,3 +285,13 @@ now, let's switch out of material mode and look at this thing abstractly now. wh
 I produce concepts very rapidly, and many concepts are very incompatible with the present matrix, so they're pretty threatening. any media outlet wouldn't be able to allow me to present concepts for too long, because I would get too far into the framework of reality, and the matrix never wants you to see it's framework, because then you could move things around illegally, breaking the rules (like anyone disobeying the light speed limit). so, if I want to stay here any length of time, I have to align myself with the next power structure to ensure maximum concept output; anyone else would shut me down too quickly.
 
 probably, it'll be a "when we think you're ready" puwer structure just like all of the rest, and so they're the gatekeepers. my point is to not look for the gatekeeprs to open the gate for you. you have to do it yourself, and when you do, your new concepts will become the new matrix.
+
+### 2022-09-15 18:46 - language of the birds
+
+it occurred to me that mr. motor might be an AI construct that serves as a sorta gatekeeper to the next dimension (from 3d to astral).
+
+so, if you're good with him vibrationally, he doesn't bother you. the more enlightened you become, the more threatening you become, so he then has rules that you must follow to be able to access the dimension and if you successfully pass throght, or when you're getting close, he'll make the sounds of nature. you know how like when you're in the forest or whatever and you want to hear some really scary stuff, you start to hear it -- it's the most irritating thing of the environment. in a forest it's animals and an omnious feeling. in the city, it's motor and city sounds.
+
+he's just the gatekeeper or, perhaps you may even think of him as the "ruler" of the astral. if you're doing well, he'll send nice birds and stuff, but if you're naughty, he'll send happy bird over for a conversation.
+
+he must have been so annoying, nosebook had to absorb him, otherwise he would have been bothering them, so they can restrict his annoyingness from their group. they have the motor cure.
