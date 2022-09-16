@@ -61,3 +61,17 @@ then the next stage is that just the rich can have it, but competition will driv
 what I see is that these sorts of commercially available products will *rapidly* got put into the marketplace.
 
 as I said, all of the same things that can be done with tesla technology can also be done with electrostatics; we just have to think about the same thing, but in the opposite way.
+
+### 2022-09-15 20:24 - 004 - the end of all things
+
+#### time travel
+
+I don't think it'll be possible for anyone in this 3d perspective. it's possible to time travel from a 5d perspective, but I get the feeling that 4d (the astral, not spectral) is pretty well locked down. like, no unauthorised people allowed there, so all time travel will eventually be controlled.
+
+to get to 5d is a bit interesting because time doesn't exist in the linear form that our imagination produces for us (you see a model of the world the best your sensors can interpret them with other concepts), so that world doesn't have any of the sense organs, except for the 6th (sense). eventually you start to see the reality around you in the form of concepts, even though you only see in 3d.
+
+if you want into 5d, you have to be really good at feeling the way you want to, because the appearance that other 3d beings sees is the translation of the concept that you have of yourself.
+
+---
+
+so, in my opinion, the spectral is the revolution where everything becomes a spectrum and you just float around in experience (which gets turned into concepts). from that nebulous cloud of concepts, you have a general sense of everything that is happening in reality, but you don't necessarily see asy of it directly. all concepts that make it in there got past your filters. you can also put algorithms and other conscious attributes to the concepts that you interact with there. que pedo wey.
