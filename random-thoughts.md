@@ -307,3 +307,13 @@ one table is the stable beat, then two are switching off adding to the song. the
 imagine that each table had a list of frequency ranges and for each frequency range, a transformation/filter is applied to it before the sound makes it to output.
 
 this makes it easy to ensure the more constant one is only inputting the frequencies he needs to.
+
+### 2022-09-16 13:47 - you know my form of perception is just the feminine form of thought?
+
+all I did was figure out how to see through through their reality. their reality is really slow moving. you know how science moves forward as a procession of funerals, the feminine form of thought, though there are variations, especially regional, the feminine form of thought evolves very very slowly.
+
+anyone who wants to see really well has to give up on their difficulties with the feminine form of thought. there is a way for a man to acquire feminine form of thougt and use it from a masculine perspective. you'll find out that perspective is neither masculine or feminine. concepts don't have gender or race or anythming like that. those are just attributes of the physical environment they were manifested into.
+
+inotherwords, I think like they do, but I don't have many of the limiting ideas that come along with it. that may be because of logic. logic is kinda like the unlocker to the feminine form of thought. I can analyse something rationally and decide if I like the improvement or not. the conclusion after analysis is always very pragmatic. efficiency over flare.
+
+then to integrate a little bit of flare, I just have an open mind and not to much inhibitions. the only things that can happen to me reflect how I feel. that's also difficcult for some, but once I got my ability to feel the way I wanted, I don't have to worry about bad situations anymore cause I just feel the way that I want. there is nothing more theatric inducing than two people interacting that feel VERY DIFFERENT.
