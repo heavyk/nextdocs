@@ -107,3 +107,7 @@ I'm still trying to figure out how to integrate my future in. I was thinking abo
 once we've figured it out statistically, we can just use that as a sorta joke later, kinda like how they were actually our minimum expectations. for me though it's going to be pretty fun because I think probabilities don't really exist (as weird as that sounds).
 
 to explain how I don't think that probabilities don't exist I have to demonstrate by example: we need to build up imaginary scenarios (a set of expectations) and then figure out the statistical probability of meeting another set of expectations in X amount of time. most of the time it'll fail (or, at least I would hope so).
+
+---
+
+my reality was constructed out of symbols and I'll have to pay for that offset later on, but your reality is constructed out of possibilities, and, you'll probably have to pay for that later on.
