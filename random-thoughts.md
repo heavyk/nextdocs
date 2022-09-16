@@ -294,4 +294,4 @@ so, if you're good with him vibrationally, he doesn't bother you. the more enlig
 
 he's just the gatekeeper or, perhaps you may even think of him as the "ruler" of the astral. if you're doing well, he'll send nice birds and stuff, but if you're naughty, he'll send happy bird over for a conversation.
 
-he must have been so annoying, nosebook had to absorb him, otherwise he would have been bothering them, so they can restrict his annoyingness from their group. they have the motor cure.
+he must have been so annoying, nosebook had to absorb him, otherwise he would have been bothering them, so by giving him a platform to express himself, they can restrict his annoyingness from their group. they have the motor cure.
