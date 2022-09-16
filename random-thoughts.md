@@ -298,6 +298,12 @@ he must have been so annoying, nosebook had to absorb him, otherwise he would ha
 
 ### 2022-09-16 11:46 - why don't DJs use three tables?
 
-I was watching (@[youtube](https://www.youtube.com/watch?v=_POraCozbQY)) and her style is a bit different in that she dosen't use the crossfader but crossfades a spectrum of frequencies at a time, so I was wondering why now do a third table?
+I was watching (@[youtube](https://www.youtube.com/watch?v=_POraCozbQY)) and her style is a bit different in that she dosen't use the crossfader but crossfades a spectrum of frequencies at a time, so I was wondering why not do a third table?
 
 one table is the stable beat, then two are switching off adding to the song. the stable beat doen't have to stay constant the whole mix, as it can be swapped out who the two flashy ones are doing something else.
+
+#### 2022-09-16 13:34 - update
+
+imagine that each table had a list of frequency ranges and for each frequency range, a transformation/filter is applied to it before the sound makes it to output.
+
+this makes it easy to ensure the more constant one is only inputting the frequencies he needs to.
