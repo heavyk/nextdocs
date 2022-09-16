@@ -78,4 +78,6 @@ so, in my opinion, the spectral is the revolution where everything becomes a spe
 
 #### are you the demiurge?
 
-as I listened to the rest of it, it felt like I was listening to chris talk about some really bleak subject. I wonder if you yourself aren't one of these "narrators". your narrative is interesting, and it serves as a good demiurge.
+as I listened to the rest of it, it felt like I was listening to my friend chris talk about some really bleak subject all the time with me. it blew my mind how he had such a bleak outlook on reality (I pretty much think, cept for the years I was depressed, that everything is always getting better). I don't see the technological singularity as a problem because everything you consider concerning, I believe will be completely locked down. a fully managed 4d is the new 3d.
+
+I see chris as one of these narrators that has passed through my life to help me choose the most believable worst possible manifestation. I wonder if you yourself aren't one of these "narrators". your narrative is interesting, and it serves as a good demiurge.
