@@ -147,3 +147,17 @@ often times I want to just have a balancer act sort of like a network hub, and t
 perhaps later an advanced hub could have not only more ports -- for example, of 16 ports square, or some longer -- or maybe even expandable, so that I could make a hub the size I wanted, like say I wanted a 12x6 one... I could do that (within limits of course, so a 1000x2 hub couldn't be built)
 
 then, same thing: when I click on each port, I can set the item(s) I want output on that port and also its priority or not.
+
+### progression of points of view
+
+I noticed on the way back that the COI interface now is the physical/3d layout of the game, but then above that, is what I called "planner mode" and "schematic mode" where parts of the world would blend together with a conceptual layout. this is effectively 4d. the next one that I didn't copy and paste in here because the idea has transformed again is the beginnings of a conceptual (5d) point of view, but not from the perspective of time. instead each concept is a physical instance the "reaity" mode of the conceptual plane. each plane has its lower frequencies pertaining to its own perspective of "reality mode" -- so, like for example the lower plane of the astral is the reality mode imagination, and from there and with increasingly more complexity, the image starts to become invisible.
+
+conceptual mode also has a reality mode as well, and that was what I was describing in COI notes that I didn't copy and paste here yet. things behave differently depending on the essence they're imbued with.
+
+to demostrate, let's figure out the next four: imagine that now I can see that there is a physical structure, but there is something there that makes the physical structure unique and this is its essence.
+
+you'll notice that you want a stable environcent, and you can't have concepts running around all over the place and causing trouble, so the buddhic perspective (6d) is the one that sees the "ecosystem" and is constantly putting in stablilising forces to keep any number of concepts from craating a cascading disaster. this interface is all about keeping all of those constructed concepts balanced, which are servicing all of the industry autonomously.
+
+the one after that is symbolic, and that's where things lose their physicality. this is something like probabbilities and statiscs; something that has no real physical representation -- something like a spreadsheet which is defining symbolic groups and making sure that under alarming conditions, it'll make an action in response.
+
+obviously the one after that is a perspective of desire where you can express in symbolic form what you want: "I want you to take off the side of this mountain" "go from here over to here" etc. I don't know how to explain the pure desire perspective, because it would be something of chaos, and everything undesirable. the absolute "worst" thing that could be happening.
