@@ -317,3 +317,15 @@ anyone who wants to see really well has to give up on their difficulties with th
 inotherwords, I think like they do, but I don't have many of the limiting ideas that come along with it. that may be because of logic. logic is kinda like the unlocker to the feminine form of thought. I can analyse something rationally and decide if I like the improvement or not. the conclusion after analysis is always very pragmatic. efficiency over flare.
 
 then to integrate a little bit of flare, I just have an open mind and not to much inhibitions. the only things that can happen to me reflect how I feel. that's also difficcult for some, but once I got my ability to feel the way I wanted, I don't have to worry about bad situations anymore cause I just feel the way that I want. there is nothing more theatric inducing than two people interacting that feel VERY DIFFERENT.
+
+### 2022-09-17 17:50 - the coming individual perspective
+#### why I am, and am going to be the biggest hipocrite
+
+the way that I see myself is just the first of many such people that will begin to realise that thy are the universe. prior to this, I don't think anyone has ever been able to do this in the conscious perspective. you'll notice that I can only not hold back relating it, but it's there when I'm sober too. so, you know it looks like I'm a pretty big hypocrite.
+
+the next thing that will be I will be talking about the coming individual perspective, which is on its way to universal perspective, and I'll be talking about it while in a relationship. I'll be a pretty big hypocrite.
+
+#### so what is the individual perspective?
+
+it kinda starts out with "that's not my problem"
+I don't really know what else though. it's hard for me to encapsulate but basically it's the universal perspective but from the perspective of the individual. I'll try and figure out better ways to indentify the individual's perspective.
