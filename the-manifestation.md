@@ -131,3 +131,9 @@ I don't remember the rest.
 @[youtube](https://youtu.be/tRvko3rCCAU)
 
 these states are one way to achieve an altered state of consciousness, but I know for certain that I do not want to make any manifestation when I'm stoned or under the influence of anything, so if you want me making conscious and clear decisions, I want to go sober. then the idea was that nosebook does *not* want me making conscious decisions, so they do actually want me stoned. I don't want to be stoned because that totally sucks. also, if stoned it's definitely something we'll pay for later, of course.
+
+### 2022-09-18 03:47 - desire is produced from unwanted
+
+the ability to perceive unwanted isn't learned for a bit. you can produce symbolic states for wanted and symbolic states for unwanted as well, and this is basically the tree of the knowledge of good and evil (both in present and future projections).
+
+so I really only refine my ability to perceive unwanted over time. unwanted is a symbolic construct just like wanted so you can see that if you can now see that there is no good or bad anymore, so you just see it for what it is. in 4d, everything still has a singular angle to it, but in 5d, you see it for what it is, rathar than what it appears to be in any point in time or space (the illusion). this is pure desire.
