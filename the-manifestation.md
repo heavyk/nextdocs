@@ -186,3 +186,13 @@ so the thing is I not holding back. I have a constant speed system, and so if at
 I don't have to worry from my perspective because we get there when we get there. it's an autobalancing system, so I/we can't get there any faster or slower.
 
 it's the slowest (because it does all the WPMs), but also the fastest (because it has so much experience/karma).
+
+### 2022-09-18 15:16 - the manifestation reverse feedback loop
+
+today (or maybe it was yesterday) I noticed another thing about having a more universal perspective, and that is that everything must be constant. the increment is the same (it's basically the clock signal), but the magnitude for each interval can be quite varying. each increment also contains a symbolic language to it which each set of symbols is connected to a "knowing" or "understanding" of how the symbols work together. so that allows you to encode logic into the symbolic access of concepts.
+
+what that means from my perspective is I have to get to constant contrast across each interval. this is the only way that I can bypass the logic. from their perspective, they're looking to "figure me out" and like the astrologers of old, they were interested in figuring out the best predictors (alignments and stuf) are for certain goals and/or worries. so, they encode this symbolic access into all of their symbols -- and probably lock everyone not in the group access to the concepts -- which actually means that we all get to find a new way to this form of perception. I guarantee the weed access point will be properly filtered and regulated, cause that's what they do. they don't want it easy for anyone else to figure out what I know. while on the topic, that's probably the main reason they don't want sex, because it would instantly give a lot of others access to new concepts they previously didn't have access to (I wrote about this in a past entry, but I can't remember where now)
+
+in short, when things are going too slow, good things (wanted) start to happen in order to speed it up. however, if we're going too fast, bad things (unwanted) start to happen.
+
+one idea is to try pushing me too fast for a bit so that I get out a lot of bad stuff, but then later when approaching the manifestation, slow me way back down again to constant contrast.
