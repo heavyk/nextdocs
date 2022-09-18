@@ -358,4 +358,4 @@ I noticed that every time that I figure out how to leave the feminine matrix, th
 the one is the most stable.
 the one is the source (universal) perspective.
 the one is the fastest and also the slowest
-the one is a perspective away
+the one is a twinkle away (however long that is)
