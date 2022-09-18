@@ -350,3 +350,12 @@ this may be how dimensions are encoded, in static electric structures, and that'
 notice how girls are all hyper attentive to each other that they nocice each other's failures a lot, and so because of it they all are in constant competition (competing men do the same thing). the more "perfect" (less failures) that you are, the higher up in the class system of the female hierarchy you go. come to think of it, the female mindset is most notably aryan. it's kind of a funny thing to think about the idea that the "aryan" race was just an externisation of inside mental system out into a culture and people groups.
 
 you could consider to female groups and cliques to be very similar in migration patterns to the "lost tribes of israel" and all of the others (germanic, goths, huns, persian, etc.) lot's of factioning structures. what keeps them together in these groups is their falures and the other girls in the group are also OK with that type of failure.
+
+### 2022-09-18 15:48 - the one
+
+I noticed that every time that I figure out how to leave the feminine matrix, they want to reintroduce it. so, if you like female companionship, you have to subscribe to their matrix. I can live inside of their matrix and not be so affected by it because my definitions of their concepts differ greatly (rather, their symbolic action potential and meaning). as I get better definitions, their reality matrix starts to slip, and I gain power over the reality matrix. they obviously don't want reality to completely disolve (many strong opinioned females are firmly grounding us in reality -- so it's good). it's kind of like an anchor in that it has to be heavy enough or hook on to a rock to keep the ship stable.
+
+the one is the most stable.
+the one is the source (universal) perspective.
+the one is the fastest and also the slowest
+the one is a perspective away
