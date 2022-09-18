@@ -359,4 +359,4 @@ the one is the most stable.
 the one is the source (universal) perspective.
 the one is the fastest and also the slowest
 the one is a twinkle away (however long that could be)
-every one is the "the" one
+every one is "the" one
