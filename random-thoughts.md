@@ -344,3 +344,9 @@ one thing would be to render the concepts on top of a backdrop so that high-freq
 also, I noticed how they felt like static electrdicity does. I've been getting these pictures of entire microprocessors actually created and rearranged on the fly because the entire circuit of the microprocessor was just a static electricity structure.
 
 this may be how dimensions are encoded, in static electric structures, and that's the kind of grid that goes around the soft flesh pulling the bulk matter toward the verticies (like each vertex is a gravity sphere).
+
+### 2022-09-18 12:59 - another observation about female hierarchy and competition
+
+notice how girls are all hyper attentive to each other that they nocice each other's failures a lot, and so because of it they all are in constant competition (competing men do the same thing). the more "perfect" (less failures) that you are, the higher up in the class system of the female hierarchy you go. come to think of it, the female mindset is most notably aryan. it's kind of a funny thing to think about the idea that the "aryan" race was just an externisation of inside mental system out into a culture and people groups.
+
+you could consider to female groups and cliques to be very similar in migration patterns to the "lost tribes of israel" and all of the others (germanic, goths, huns, persian, etc.) lot's of factioning structures. what keeps them together in these groups is their falures and the other girls in the group are also OK with that type of failure.
