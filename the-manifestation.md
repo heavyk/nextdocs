@@ -151,3 +151,5 @@ another interesting thing to observe on this one is that means in the next dimen
 I'd obviously want to spend a time *not* under the influence. I really like being sober. I like being clear-headed. I really don't like the feeling of being stoned for much more time than I have to. I feel like I got the message.
 
 you know there is a good quote from a friend of mine that said, that once you've got the message you can hang up; you don't need to keep talking.
+
+I got the message; I don't need to keep talking.
