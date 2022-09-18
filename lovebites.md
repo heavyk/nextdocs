@@ -15,3 +15,9 @@ this whole idea fascinates me deeply.
 is that I would really like to meet them alone so that I can get better vibrational contrasts between them. you know, like if you can control the signal at the source, you can infer spectrum changes and frequency shifts easier. this should be delayed obviously for a while. just saying because I was sitting there deeply impressed at how interesting this idea is.
 
 you see, I don't get a lot of opportunity to analyse other people. all of the interactions I have are mostly a false persona, so I don't really observe anyone behaving naturally. I notice that it takes some days until we're behaving naturally together, but it's not too long. once then, I can simply pay attention to everything they're doing, and I don't have to worry about negative reactions about what is he looking at (well, who knows if that'll still happen), but it is still really interesting to me mostly just to watch -- but not with my eyes, of course (I perceive very little with my eyes or ears now; I'm proportionally very blind and deaf). it only takes me a little bit to deconstruct somebody's personality now, so it shouldn't be too long.
+
+### 2022-09-18 02:29 - I suppose it's a bit of a compromise
+
+but, what if amorina could come along as well. then, because of the similarities between me and amorina, it'll be easier for them to see differences and similarities between us.
+
+I put the title on purpose.
