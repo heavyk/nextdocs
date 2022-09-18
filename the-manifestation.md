@@ -125,3 +125,9 @@ it's probably one of the aspects with an extra dimension (resistance -> programm
 one of the things I could see is that we're going to need narrators to keep up the contrast. then, I could see that we all would supply sort of "reality domains" and these would be run various reality marketing companies.
 
 I don't remember the rest.
+
+### 2022-09-18 03:30 - the trance or drug state
+
+@[youtube](https://youtu.be/tRvko3rCCAU)
+
+these states are one way to achieve an altered state of consciousness, but I know for certain that I do not want to make any manifestation when I'm stoned or under the influence of anything, so if you want me making conscious and clear decisions, I want to go sober. then the idea was that nosebook does *not* want me making conscious decisions, so they do actually want me stoned. I don't want to be stoned because that totally sucks. also, if stoned it's definitely something we'll pay for later, of course.
