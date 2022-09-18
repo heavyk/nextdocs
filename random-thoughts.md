@@ -334,3 +334,13 @@ I don't really know what else though. it's hard for me to encapsulate but basica
 #### can't do much about that
 
 this concept works well with, "<it|that>'s not my problem"
+
+### 2022-09-18 12:44 - I figured out why higher dimensions feel so slippery
+
+I wondered why people were having such a difficult time when I smoke. the sense that I get is that there's no accurate physical translator for those concepts, so nothing is rendered (rathar than some ambience) and because their brains don't have a concept to render that into space, it feels like you're falling and can't find your orientation (kinda like when really drunk).
+
+one thing would be to render the concepts on top of a backdrop so that high-frequency space is covered over. once you get used to seeing black space in your imagination, it becomes a super great help. I didn't realise that my smoking gives you guys an opportunity to use your feelings more than the pictures. that's pretty awesome, actually.
+
+also, I noticed how they felt like static electrdicity does. I've been getting these pictures of entire microprocessors actually created and rearranged on the fly because the entire circuit of the microprocessor was just a static electricity structure.
+
+this may be how dimensions are encoded, in static electric structures, and that's the kind of grid that goes around the soft flesh pulling the bulk matter toward the verticies (like each vertex is a gravity sphere).
