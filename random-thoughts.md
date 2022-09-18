@@ -369,12 +369,27 @@ what's nice about this setup is that nobody has to be locked in to any reality m
 
 coming soon: design your own 4d space to your own liking and others will join you there.
 
-#### random thought: it's likely we'll specialise in perspcetives.
+#### random thought: it's likely we'll specialise in perspcetives
 
 [this COI idea](/captain-of-industry.md#progression-of-points-of-view) really illustrated this for me, so many people will begin to look at things from a singular perspectives in one of the 7 planes of perception (right now this is only possible in 3d, 4d, 5d).
 
-so, what I'm saying is that team building is always the same and it's that like minded people clump and work well together, so eventually we'll all take part in one of those dimensions for as long as we retain an "individual" perspective (I am a person, I am a concept, a person is a concept, a trend is a concept) so if I lose that I go non-physical.
+so, what I'm saying is that team building is always the same and it's that like minded people clump and work well together, so eventually we'll all take part in one of those dimensions for as long as we retain an "individual" perspective (I am a person, I am a concept, a person is a concept, a trend is a concept) so if I lose that, I go non-physical.
 
 so let's say that manouvre is the final boss; what you want to have, is the individual perspective all the way until you're riding the wave back to the source, then it's good to be water my friend. what I mean is that once I've gotten past the "point of no return" I have to see myself as the thing I'll turn myself into. if I think I'm a galaxy, I'm a galaxy. if I'm a person, I become a brand new person (in that plane of perception). I just keep going until one day I realise that I am the universe and from there I cannot avoid the manifestation anymore -- I'm going to see that perspective.
 
-from that point on, I've completely lost control. it's only navigation left to do now. I'm probably pretty free floating now. I haven't lost all density yet though as there are still a lot of things that keep me to the earth, so from that perspective you could say that I can't really lift off until all of my earthly "karma" is worked out.
+from that point on, I've completely lost control. it's only navigation left to do now. I'm probably pretty free floating now. I haven't lost all density yet though as there are still a lot of things that keep me to the earth; so, from that perspective you could say that I can't really lift off until all of my earthly "karma" is worked out.
+
+### 2022-09-18 16:57 - two perspectives
+
+so, one of the questions that I picked out of the atmosphere was, "OK, what will the next feminine matrix be like?" and honestly I hadn't really thought of it before but it would be nothing like anything a man can dream up (usually performance or goal oriented), but I didn't really have an answer.
+
+the word that came to me (along with a whole concept) was the concept of nurture. imagine that there are only some things that are deemed worthy to nurture. meeting that requirement (of defining what is worthy of nurture), then they enter into their own reality and at first everyone will have the seed concept (of what is worthy of nurture), and but some people will grow to become the polar opposite on it before anyone figures out what it really is.
+
+it's funny, the image this gives me is that these feminine reality matrixes are all based on concepts that we're not likely to contemplate. as long as that reality node stays in place, the curtain is still in front of it. it's a sort of "guess what" game, and the more complicated ideas to guess are things like universes and galaxies (or an atom). oh man, that's the worst joke the universe could play on itself, which is to jump into a guessing game where the concept is not something bigger, but something more elemental, like an atom or a proton. at the end of the "simulation" you have to figure out that you are a X and then from there you manifest yourself at it. imagine how difficult it will be to come to realise you are the universe when you start out with the perspective of an atom. you have to find a way to transcend conceptual barriers. sounds dangerous.
+
+---
+
+a manifestation is ready when it looks inevitable.
+now, whether you're ready for the inevitable or not,
+is another thing.
+
