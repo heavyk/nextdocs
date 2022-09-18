@@ -145,3 +145,9 @@ though my eyes don't see in 5d, I am still "there" just without visuals. not bei
 I wonder if I had images turned back on, I would turn into a mr-motor (yanono). that's crazy: the only difference between us is perhaps he sees images and I don't. I wonder if my different perspective on the image (cause I can only feel it) probably has transformed some of the rendering of the rendering of his perspectives. interesting.
 
 another interesting thing to observe on this one is that means in the next dimension, I'm the "bad-guy" cause my images are on and I can really imagine some terrible things that I probably am not born with the capability of seeing through to notice that all that matters is how I *feel*; it doesn't have anything to do with the image.
+
+### 2022-09-18 06:34 - if you insist on going through under the influence,
+
+I'd obviously want to spend a time *not* under the influence. I really like being sober. I like being clear-headed. I really don't like the feeling of being stoned for much more time than I have to. I feel like I got the message.
+
+you know there is a good quote from a friend of mine that said, that once you've got the message you can hang up; you don't need to keep talking.
