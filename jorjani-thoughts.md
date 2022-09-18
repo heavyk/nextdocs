@@ -1491,6 +1491,12 @@ well, those improvements can be seen statistcally, but they'll be imortalised as
 
 that's not exactly what I wanted to write (in fact, I'm sure it definitely is not), but I suppose I kinda like it. sounds like an aryan master race to me, geez
 
+### why is mithras looking away?
+
+he doesn't care.
+
+@[youtube](https://youtu.be/sFLlNe5t4hs?t=687)
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
