@@ -1539,6 +1539,12 @@ aftre that I looked at what the vimanas looked like, and the machine was powered
 
 so then, it looks to me that this other "nuclear" weapon was not actually nuclear. it was likely a powerful thought amplifier, and it amplified anger and rage into a zone. this form of thought vibration being amplifed is probably what powers all box-consciousness machines. it fuses atoms really easily for some reason. thought vibrations must have a lot of overlap.
 
+### 2022-09-18 00:44 - vimanas as time machines
+
+one thing that we don't really know is how messed up things got. in that same video (the one above), it has instructions for using more than one source of power, and the sun wasn't always available.
+
+so, if they're flipping power sources, it's quite possible that they could have started to figure out time travel is possible. so let's say that the original aryans had these vimanas, which under certain conditions, can traverse space or time with ease, then we could potentially be dealing with a really a lot of time travelers and edits going back more than 5kya.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
