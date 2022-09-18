@@ -142,6 +142,6 @@ in 4d, everything still has a singular angle to it, but in 5d, you see it for wh
 
 though my eyes don't see in 5d, I am still "there" just without visuals. not being able to see it, is actually extremely helpful. I would get lost in the images, I imagine.
 
-I wonder if I had images turned back on, I would turn into a mr-motor. that's crazy: the only difference between us is perhaps he sees images and I don't. I wonder if my different perspective on the image (cause I can only feel it) probably has transformed some of the rendering of the rendering of his perspectives. interesting.
+I wonder if I had images turned back on, I would turn into a mr-motor (yanono). that's crazy: the only difference between us is perhaps he sees images and I don't. I wonder if my different perspective on the image (cause I can only feel it) probably has transformed some of the rendering of the rendering of his perspectives. interesting.
 
 another interesting thing to observe on this one is that means in the next dimension, I'm the "bad-guy" cause my images are on and I can really imagine some terrible things that I probably am not born with the capability of seeing through to notice that all that matters is how I *feel*; it doesn't have anything to do with the image.
