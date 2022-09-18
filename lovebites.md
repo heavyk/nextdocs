@@ -37,3 +37,5 @@ the desire is usually perceived from the "I want to *do* this" (action) perspect
 I was thinking about this feeling and I realised that is what I felt about tuenti and the making of the money. it was a manifestation that I didn't really want; I wanted instead, to make a real (actually good) social network, not to make money.
 
 you see, this is the kind of position I sorta put lovebites into yesterday. assuming it goes through, it's a manifestation that they sorta didn't want, and it's supposed to be cool (in the eyes of others), but it didn't fully align with their previous goals.
+
+it sorta puts them to be in the position that they're kinda one of the biggest critics of all the ridiculous behaviour. this was also me in relationship with the marketing department. we did not agree on a lot of behavioural aspects, but I learned a lot from them. inotherwords, if ever notice those girls that just sit back and watch all of the sexually active girls floundering about, and she's like "yep, knew he was no good", "yep, called that trash out last week", etc. they're the kind of judges on noticing all of the things that could use improvement.
