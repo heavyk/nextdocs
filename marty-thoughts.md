@@ -132,3 +132,9 @@ to visualise that, let's look again to the 2nd ray. you have this desire that co
 a philosopher bridges this gap because he is able to take in a set of concepts and rearrange, throw out, transform the concepts until they fit into a new structure, which then that new logic then becomes the new barrier that must be surpassed in order to pass between layers. be rearranging the form and the content of the concepts, he reduces (or expands) the barrier between concepts.
 
 [song: this is the beginning of a new day ... so, you might as well enjoy it]
+
+### 2022-09-18 04:17 - an altered state of consciousness called mindlessness
+
+@[youtube](https://youtu.be/tRvko3rCCAU?t=333)
+
+this reminded me directly of the "garden of eden" mindset, where we're just in the garden, not in either of the trees; *just* the garden; a gnostic trance; somewhere between waking and sleeping.
