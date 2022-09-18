@@ -134,6 +134,6 @@ these states are one way to achieve an altered state of consciousness, but I kno
 
 ### 2022-09-18 03:47 - desire is produced from unwanted
 
-the ability to perceive unwanted isn't learned for a bit. you can produce symbolic states for wanted and symbolic states for unwanted as well, and this is basically the tree of the knowledge of good and evil (both in present and future projections).
+the ability to perceive unwanted isn't learned for a bit. you can produce symbolic states for wanted and symbolic states for unwanted as well, and this is basically the tree of the knowledge of good and evil (both in present and future projections/predictions).
 
 so I really only refine my ability to perceive unwanted over time. unwanted is a symbolic construct just like wanted so you can see that if you can now see that there is no good or bad anymore, so you just see it for what it is. in 4d, everything still has a singular angle to it, but in 5d, you see it for what it is, rathar than what it appears to be in any point in time or space (the illusion). this is pure desire.
