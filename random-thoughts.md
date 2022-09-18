@@ -329,3 +329,8 @@ the next thing that will be I will be talking about the coming individual perspe
 
 it kinda starts out with "that's not my problem"
 I don't really know what else though. it's hard for me to encapsulate but basically it's the universal perspective but from the perspective of the individual. I'll try and figure out better ways to indentify the individual's perspective.
+
+#### doesn't look like there's anything I can do about that.
+#### can't do much about that
+
+this concept works well with, "<it|that>'s not my problem"
