@@ -153,3 +153,36 @@ I'd obviously want to spend a time *not* under the influence. I really like bein
 you know there is a good quote from a friend of mine that said, that once you've got the message you can hang up; you don't need to keep talking.
 
 I got the message; I don't need to keep talking.
+
+### 2022-09-18 07:01 - just let it all fall apart
+
+I think it's best to just let it all fall apart. the stuff that needs to be preserved will make it through, so there's nothing to worry about.
+
+the *only* other option to that is to maintain constant contrast and we next logical step/state it all the way to wherever it is we want to go. it's literally the fastest way too because all other manifestions are slightly less contrast.
+
+### 2022-09-18 07:42 - be careful of how fast you attract
+
+I noticed a few reactions wondering why I'm having a change in appearance, and I belive it's cause I have such low resistance, what's happening is the getting there too fast is manifesting me as being a bit pushy or bossy. I literally have no control other than to just feel good about whatever it is, knowing that it's all attraction, anyway.
+
+in general, I think this is a good skill to learn sexually, too because it's like really hard to hold when you're pulling in so hard, but if you relax and then when finally ready pull in, then it's easier for both. the pulling in is the attraction power, and the finally ready is when you know with certaintly that it's just obvious what happens next. one is trying too hard, the other is more like pounceing.
+
+---
+
+I also appear to respond in more and more manner of fact ways. this, I've complained about before is because our language does not have a "this is how I see it (though it may be wrong)"... so:
+
+- "this is how I see it (though it may be wrong)"
+- this is the <most|least|amount> likely thing to happen
+- this is the way I think "they" see it
+- this is <amount> likely to happen
+
+I will try and be less manner of fact, but from this perspective I see things as abosolutes. they either don't interact with the rules or they do and are delt with. this way is weird, I know I need to hang up the phone. anyway, it's cool because in my perspective, I can only find a way to feel good at whatever is happening, going too fast or too slow. it all has to be perceived as just the next logical thing, anyway.
+
+I may also be messing with their minds a bit to throw out a few bad ideas to get those ones shot down quickly (easy wins feel like progress). who knows. at this point, I have so many "steering mechanisms" for me in place, I basically just feel good about whatever is happening. sometimes it comes out as a joke and other times as an apparant joke for me. sometimes I don't see it at all. I'm nearly blind, ya know.
+
+[song: you keep holding back; don't hold back]
+
+so the thing is I not holding back. I have a constant speed system, and so if attraction gets too fast, it comes out as assertiveness, but if I'm attracted too slowly, I suppose a number of things could happen -- all within my realm of belief. all of the things that I think are believable, can happen. when I'm holding back, that's because there's too much attraction. too little attraction and things get passive (like a worker at an unfun job).
+
+I don't have to worry from my perspective because we get there when we get there. it's an autobalancing system, so I/we can't get there any faster or slower.
+
+it's the slowest (because it does all the WPMs), but also the fastest (because it has so much experience/karma).
