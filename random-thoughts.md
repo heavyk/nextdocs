@@ -360,3 +360,21 @@ the one is the source (universal) perspective.
 the one is the fastest and also the slowest
 the one is a twinkle away (however long that could be)
 every one is "the" one
+
+---
+
+so what I'm saying is, it's possible to continually create more and more dimensions. as many as can yield an actual different perspective on the same thing. so, it's possible for every "the one" to create their own dimension. the more attractive "the one" (everyone) is, the more their dimension will collide with others. the only way is to go up (no conflict) or different (conflict) when making a new dimesion.
+
+what's nice about this setup is that nobody has to be locked in to any reality matrix, and reality matrixes will all have their own trajectory. for those that are attracting a disaster, I would strongly think about the feminine reality matrix your plugged in to (created by both males and females), so that the intended manifestation is actually something those contributing the most votes can believe.
+
+coming soon: design your own 4d space to your own liking and others will join you there.
+
+#### random thought: it's likely we'll specialise in perspcetives.
+
+[this COI idea](/captain-of-industry.md#progression-of-points-of-view) really illustrated this for me, so many people will begin to look at things from a singular perspectives in one of the 7 planes of perception (right now this is only possible in 3d, 4d, 5d).
+
+so, what I'm saying is that team building is always the same and it's that like minded people clump and work well together, so eventually we'll all take part in one of those dimensions for as long as we retain an "individual" perspective (I am a person, I am a concept, a person is a concept, a trend is a concept) so if I lose that I go non-physical.
+
+so let's say that manouvre is the final boss; what you want to have, is the individual perspective all the way until you're riding the wave back to the source, then it's good to be water my friend. what I mean is that once I've gotten past the "point of no return" I have to see myself as the thing I'll turn myself into. if I think I'm a galaxy, I'm a galaxy. if I'm a person, I become a brand new person (in that plane of perception). I just keep going until one day I realise that I am the universe and from there I cannot avoid the manifestation anymore -- I'm going to see that perspective.
+
+from that point on, I've completely lost control. it's only navigation left to do now. I'm probably pretty free floating now. I haven't lost all density yet though as there are still a lot of things that keep me to the earth, so from that perspective you could say that I can't really lift off until all of my earthly "karma" is worked out.
