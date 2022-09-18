@@ -1497,6 +1497,16 @@ he doesn't care.
 
 @[youtube](https://youtu.be/sFLlNe5t4hs?t=687)
 
+### enki really liked his creation and wanted it to flurish
+
+I wonder if it was really common to transfer your personality into your son and keep on living. so think of wanting your creation to do well in that perspective. enki believes that he will eventually swap/assimilate bodies with one of his sons.
+
+then, times changed and energy was no longer so high and it became more and more difficult to move one's perception to another body because of individualisation. so now, if you can't live out various successive generations, you don't really know what's the point of moving from body to body. so, then why not keep them down?
+
+I wonder if this is actually what happened, and enki, no longer able to keep jumping from body to body, actually started to try and keep humanity separated.
+
+you know how you don't beleive you can have something nice for yourself, so you don't want anyone else to have it?
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
