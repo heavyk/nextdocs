@@ -1507,6 +1507,38 @@ I wonder if this is actually what happened, and enki, no longer able to keep jum
 
 you know how you don't beleive you can have something nice for yourself, so you don't want anyone else to have it?
 
+### prometheus steals the fire from the forge of haephesus
+
+this is an intresting take on it because in the original case, it was the fire guy and the other guy (the story that got merged with enki), that makes:
+
+- prometheus -> jeortau (+2)
+- epimetheus -> sanatau (+-3-+)
+
+however, when looking at it the other way, others show up:
+- athena -> puma (-7)
+- haephestus -> vulcan (-5+)
+- prometheus -> mars??? (+7)
+
+it's a different setup there, and the differences is the direction. one first one is contraction, and the second is in expansion.
+
+### forethought as the enhancement that we were given by prometheus
+
+I noticed that forethought has gone through various upgrades from symbolic projection, up to calculation of symbols of the future.
+
+I actually think that it's going through another enhancement now, and that is, I noticed that lately I've often wondered what the most *likely* explanation for a thing is, and an answer comes in an the most probability for something. this probabilistic form of thought would really take over.
+
+it'd be really cool to be able to create some languages that incorporate probabilities into the language directly. I think a spanish/latin-type of language would probably be the best, because it replaces all of the verb "to be" to become a probability rathar than a definition.
+
+### 2022-09-18 00:34 - flying vimanas and nuclear weapons
+
+@[youtube](https://www.youtube.com/watch?v=0BzRsEM4rR4)
+
+I was thinking about the description of the nuclear war, and I just don't think it was an actual nuclear bomb; I think the effect of creating SiO2 indicates that it must have been a fusion process.
+
+aftre that I looked at what the vimanas looked like, and the machine was powered by your thoughts. they could power their devices with their thoughts (I guess they're strongly amplified), so they felt levity and movement and the ship would follow the operator's thoughts the same. it doesn't matter if the ship is made out of stone or metal, the object's movement is directed by the thoughts.
+
+so then, it looks to me that this other "nuclear" weapon was not actually nuclear. it was likely a powerful thought amplifier, and it amplified anger and rage into a zone. this form of thought vibration being amplifed is probably what powers all box-consciousness machines. it fuses atoms really easily for some reason. thought vibrations must have a lot of overlap.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
