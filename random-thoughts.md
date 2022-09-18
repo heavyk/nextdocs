@@ -390,6 +390,5 @@ it's funny, the image this gives me is that these feminine reality matrixes are 
 ---
 
 a manifestation is ready when it looks inevitable.
-now, whether you're ready for the inevitable or not,
+now, whether you're ready for the inevitable, or not,
 is another thing.
-
