@@ -31,3 +31,9 @@ this really is the ultimate "battle" that is happening, which is that I like to 
 the desire is usually perceived from the "I want to *do* this" (action) perspective. the problem is that's not attraction. to allow it to manifest, one needs to become an attractor of that desire, but not in the form of the action, but in the form of the feeling created in the attraction.
 
 [2]: this is good for combating nosebook's unbelievably detailed renderings of pretty awful manifestations. I just find the things I like about even the most awful and nosebook has to alter their strategy because they want to make sure that my manifestation is the absolutely most unwanted manifestation (in their perspective).
+
+### 2022-09-18 12:31 - I never really wanted the manifestation but I got it anyway
+
+I was thinking about this feeling and I realised that is what I felt about tuenti and the making of the money. it was a manifestation that I didn't really want; I wanted instead, to make a real (actually good) social network, not to make money.
+
+you see, this is the kind of position I sorta put lovebites into yesterday. assuming it goes through, it's a manifestation that they sorta didn't want, and it's supposed to be cool (in the eyes of others), but it didn't fully align with their previous goals.
