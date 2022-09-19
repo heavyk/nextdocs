@@ -250,3 +250,9 @@ then, just let experience smoothe off some of the rough edges until your perspec
 other classics are, "my concepts the only things that exist in the universe" or "my definition is the right one", or "what I believe is right, is right"
 
 these are all classic symptoms of someone who thinks they're the universe.
+
+### 2022-09-19 17:35 - more implications
+
+it means the feminine reality matrix that exists presently only goes up to 5d (6d if rudolf is right), will begin to disappear more  and more in my perception. it's pretty easy to see when there are such wide gaps between ideas. so, reality should begin to start to transform into something that does not have a fachada anymore. a sort of knowing or emotional sense of reality. like me, the 3d fachada is still visible and stuff, but I've "gone airbore" you know how like when water evapourates, it has enough energy to remain fixed to the material reality of whatever the water was stuck to. if that's happened, it justt means your upward velocity is now more than the downward velocity.
+
+the downward velocity can now only be experienced in interactions with other people. other than that, you're going to live forever, or until you decide "here is good enough for me" and you're reality will reflect your perception of it (we all code our own reality), so we're all living the reality we create, and some people will decide it's "good enough" for them. we, however, are plagued with eternal not-good-enoughness, so we can *always* see an improvement in there somewhere. max novelty.
