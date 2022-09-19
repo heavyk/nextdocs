@@ -196,3 +196,27 @@ what that means from my perspective is I have to get to constant contrast across
 in short, when things are going too slow, good things (wanted) start to happen in order to speed it up. however, if we're going too fast, bad things (unwanted) start to happen.
 
 one idea is to try pushing me too fast for a bit so that I get out a lot of bad stuff, but then later when approaching the manifestation, slow me way back down again to constant contrast.
+
+### 2022-09-19 15:59 - what are the implications?
+
+I'd like to ponder for a moment what some of the implications of me realising that I am the universe.
+
+first, most notably, that means that I am on my return back to source, which means, try as hard as you want to try and stop it, I will continue to rise in frequency until I fully am able to realise myself as that. I'm basically completely unstoppable.
+
+many others who also see thierselves that way will continue on with me. we are the universe (in process of manifestation).
+
+if I now think of myself as the sperm that's going into the next universe egg, then what *is* the universe? I figure it's one of those feminine reality matrixes, so I have to imagine that they'll keep working on a bigger and bigger reality the larger our consciousness can conceive of ourselves.
+
+one such stop along the way to realising that I am the universe, is realising that "I" am a galaxy. I am a person. I am a planet. etc. I think the dividing line between these concepts there are other conceptual/feminine reality matrixes. you have spatial types of matrixes and you have organisational ways to look at the same universe (maths, sciences, etc). each of these systems organises thought inside of it to maintain its own structure (every organisation is self-serving).
+
+this barrier can be looked at conceptuaally is selfishness. where does self end and begin when I'm looking at someone and I see their manifestation as something that I'm really glad they're having, right? the opposite to this is, "that's not my problem" -- see how both are an entrance into and also an exit out of the reality matrix.
+
+if I'm concerned with the manifestation of others around me (good or bad), I'm in the side of needing to be glad for the other person like a parent would be glad for their child to have a good manifestation; my self is now perceived as so far outside of myself, I see all of you all as aspects of myself.
+
+these aspects (you all) are all just finding their own way at their own pace. I know they'll all make it just fine (cause they're still with me in some way connected to me), so I'm like yeah, they'll all figure it all out at their own pace: "not my problem".
+
+let's get back to the aspects of myself part because this is confusing to some. anyone can do it. so, if I figure out that I am the universe, well, then wouldn't all of everything around me reflect me and how I am, so therefore, wouldn't it then be fairly obvious that the stars, planets, moons, etc. all be transforming as a reflection of me? seems obvious.
+
+anyone who thinks they're the universe has to have enough hubris to believe that he influences his reality. he would also be so preposrous as to believe that evevery single thing out there is a reflection of him -- everything out to the galaxies and superclusters or whatever. that's pretty crazy, right? who in the world would *ever* come to realise such hubris?
+
+I guess I'm out of the closet now. lol.
