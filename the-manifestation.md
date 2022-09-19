@@ -238,3 +238,15 @@ unlike cypher, I know that, like the universe, reality is a reflection of me.
 OMG, totally derailed. this totally happens to me all the time. I was talking about implications and then did a "rabbithole".
 
 brb.
+
+### 2022-09-19 17:08 - my way is the right way
+
+is the correct perspective to have.
+
+then, just let experience smoothe off some of the rough edges until your perspective is a sphere.
+
+---
+
+other classics are, "my concepts the only things that exist in the universe" or "my definition is the right one", or "what I believe is right, is right"
+
+these are all classic symptoms of someone who thinks they're the universe.
