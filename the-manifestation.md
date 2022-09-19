@@ -232,3 +232,9 @@ the "reality technicians" are coding this reality just like a woman "codes the r
 we're the guy on the matrix that gives up the location of the nebu-chad-nezzar to special agent smith for a steak. we want the matrix.
 
 unlike cypher, I know that, like the universe, reality is a reflection of me.
+
+---
+
+OMG, totally derailed. this totally happens to me all the time. I was talking about implications and then did a "rabbithole".
+
+brb.
