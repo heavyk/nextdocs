@@ -308,3 +308,28 @@ like seriously, what do you guys expect to happen?
 ### 2022-09-19 19:40 - I really like the time 19:38
 
 it's one of those things where I just like it because it's double on one side, but it's also the same day number
+
+### 2022-09-19 20:08 - do you wonder if celebration is bad?
+
+I walked in from outside and jaron is watching austin powers and he drives into some place with a bunch of "swinger" women around, and he has his "woah" face on.
+
+this reminded me of jesus going into -- palm sunday, I believe -- they all celebrate him and his awesomeness, right before he got crucified. the celebration, no matter how many swinger chicks allowed is just another bump.
+
+it's not really bad, not really actually any more than a "fake it till I make it" attitude, because they both come from feeling better physically than what I'm ready for. or, feeling different than how I expect to. or, feeling a way about something physical that I'm expected to feel (cause I'm a society actor).
+
+my job is just to keep discovering/noticing what I like.
+
+### 2022-09-19 20:14 - I don't prefer celebration
+
+I prefer to just go back to reality-kenny as if nothing happened, which is *obviously* what I'm going to do. haven't you seen how easy it is just to feel the way I want. I prefer to just focus on something mundane while my mind is elsewhere.
+
+connect? let's see, reality-kenny is focusing on something mundane. I just let him sorta operate all of the basic stuff anyway. reality-kenny doesn't really perceive those thoughts because they're too high vibration, and don't have easy english concept way to put them into reality, this the strong influencers of this reality matrix aren't ready to let such a concept become physical, so we keep to the material reality.
+
+though this perspective exists, I prefer to enjoy the perspective of action-kenny. down there, I don't have to worry about anything other than now, because I already know where I'm going anyway (nobody can stop me). from action-kenny's perspective I can do whatever I feel like doing, so I pay most attention to how I feel, and when I'm feeling pretty poorly, I find a way to limit myself from making action.
+
+reality-kenny is the feeling version of action-kenny.
+action-kenny turns on when I don't feel too good;
+reality-kenny is on the rest of the time.
+reality-kenny just feels the way he wants about the experience
+reality-kenny leaves *all* action to instead be reaction
+(because I'm attracting everything toward me)
