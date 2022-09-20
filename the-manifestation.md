@@ -274,3 +274,7 @@ you know, I do suppose I would go back to having never smoked the joint, honestl
 ### 2022-09-19 18:09 - maybe I regret writing about it
 
 the world will never be the same.
+
+### 2022-09-19 18:11 - fake it till you make it?
+
+I know a buncha posers gonna be out there pretending to see it too, so maybe just fake it till you make it? you'll get there.
