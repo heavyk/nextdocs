@@ -300,3 +300,7 @@ so, by going back, I get to regain my control. it's a control thing. then, I had
 this is going to make a splash.
 
 -team splishy splashy
+
+### 2022-09-19 19:38 - how long of a flight are we on?
+
+like seriously, what do you guys expect to happen?
