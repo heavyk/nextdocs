@@ -392,3 +392,17 @@ it's funny, the image this gives me is that these feminine reality matrixes are 
 a manifestation is ready when it looks inevitable.
 now, whether you're ready for the inevitable, or not,
 is another thing.
+
+### 2022-09-20 00:41 - if I compliment myself, right afterward I prove my own compliment to be (or not to be) correct
+
+marc said this and I thought it was a funny way to say that concept. I've noticed in my years that the universe tends to try and make it so that I'm always right -- so, without even thinking about it, whatever I believed would sorta start to happen.
+
+what's interesting is that when he said it, I flashed back to my days playing counter-strike, and I had a similar thing happen, where every time I looked at my score and said, "wow, that's a really good score" that proved to be the start of an epic losing streak. it happened pretty much without fail.
+
+I don't have a conclusion there, but it was an interesting past memory. as an aside, it's really easy to mess me up because I'm so easy to get to believe in something (within my capacity to believe it), so for me, it's not so hard to get outdone by those sorts of word traps.
+
+you know another thought that's related to that is also when I was younger, I thought I was invincible, and mom thought it her duty to obliterate that pride from me. so she wanted to often point out when I'm not invincible. I didn't lose it all the way obviously, but that left a habit of noticing the failures a lot and so looking at successes (or even complimenting myself about them) was kind of shameful because I shouldn't be invincible (cause having like a 22-2 score is basically invincible).
+
+there's also (for me at least) a lot of the "I have to lose some time too; I can't win *all* the time" -- but this quality about me is largely hidden because I don't really like to win all that much. in fact, I kind of even like *not* winning (now.. not when I was young).
+
+I might think on this more because I do really wonder why I could feel that sense of calling my destruction by noticing my superiority. that's a really not good feeling to have. OH, it's still residual from the meditations where I was strongly attracting superiority complex emotions.
