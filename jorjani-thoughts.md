@@ -1570,6 +1570,8 @@ I even like the name because it makes me think more than once what it means; the
   - they're always way overextended
   - promise way more than their capacity
   - etc.
+- these are all a spectrum of possibilities
+- feel free to be the same on everything else
 
 
 
