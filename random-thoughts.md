@@ -422,13 +422,17 @@ I think it'd be awesome to be able to fly. the fed guys don't like that because 
 so after I want flight and force fields, I would want something else like levitation and consciously making my atoms vibrate slightly different to something in my environment causing it or me to float and approach/repel the similarly vibrating atoms. that means that we can also do all of the PK stuff and we'll do it consciously with our minds, just by changing the vibration of the atoms that compose our body.
 
 you thought maybe you were going to see too much
-well, it's going to be pretty helpful to be able to "see" those atoms vibrating.
+well, I'm telling ya,
+it's going to be pretty helpful to be able to "see" those atoms vibrating.
 
-lofty goal, so we'll see what happens.
+lofty goal,
+so we'll see what happens.
 
 the funny thing is,
 in this world,
-there's no opposition to you if you do them the masculine way.
+there's no opposition to you;
+if you do them the masculine way.
 
-I want to see if that holds true with technology as well.
+I want to see
+if that holds true with technology as well.
 I suspect so.
