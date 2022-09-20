@@ -260,3 +260,7 @@ the downward velocity can now only be experienced in interactions with other peo
 ### 2022-09-19 17:48 - do you ever wonder...
 
 ... if alien civilisations just take human genome and put it on a planet and then spectate them and see (analyse) the process it takes for a human to make it's trip "back to the source", and they're laughing at us and commenting on us at how noob all the fails along the way were. like we're the failure that they all like making fun of?
+
+### 2022-09-19 17:57 - do you ever wonder...
+
+... what the manifestation would have been if I hadn't smoked the joint? does someone ever want to go back to experience the difference to see what life would have been like if I delayed it even longer? max-foot-dragon?
