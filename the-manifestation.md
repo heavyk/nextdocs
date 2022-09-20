@@ -350,4 +350,16 @@ it is a circular concept and very fast moving,
 hard to describe in long sentences.
 [the manifestation](/the-manifestation.md) *is* the secret
 
-### 2022-09-19 21:11 - cause like you know 
+### 2022-09-19 21:11 - cause like you know...
+
+... it would be weird if I were telling people what to do and stuff, so I figure if I just never talk about it, it's sorta like how I was when I was little and I didn't offer information. I kept things that I believed about myself a secret. it wasn't able to be kept a secret. it just creates such a problem when I interface with someone else because they can't fathom how much I actually like being me. nobody understands that, ya know.
+
+I don't want to ever tell people what to think, so I feel so weird revealing my own thought patterns, but I figure that since you already have my thought patterns anyway, why not just say them in words. I figure it's probably the first time anyone has ever done this since edward de vere (I am that I am). you can imagine how strange it is to reveal my own thought patterns to the observers.
+
+I'm just saying that I'd always sorta kept my really high opinion of myself a secret. everybody is all about taking psychedellics to "lose" their ego, but I think of it as *gaining* my ego, rathar than losing it. I wondered if one could gain one's virginity, rathar than losing it. weird idea.
+
+it's pretty easy to keep that a secret because reality-kenny is so good at just staying right range in a range of environments, that nobody really observes the "self-centred" thoughts that I have all of the time. I don't really think I'm the only person that thinks they're the centre of the universe though. I'm fairly certain that almost everbody does, unless culture and expectations has restricted it -- therefore, I think that pretty much thinks they are the centre of the universe. which is just about right, if it were true.
+
+I suppose we should all just sorta keep it a secret. exclusive invite-only club.
+
+you have to be invited by someone to join the club of those that believe that they create their own reality.
