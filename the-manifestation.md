@@ -282,3 +282,19 @@ I know a buncha posers gonna be out there pretending to see it too, so maybe jus
 ### 2022-09-19 18:14 - everyone is just a reflection of me
 
 all the posers are a reflection of me.
+
+### 2022-09-19 19:27 - do over
+
+@[youtube](https://www.youtube.com/watch?v=5x7Mph8oOIg)
+
+cause I kinda do, you know. I really do wonder a lot what life would have been like if I hadn't have smoked.
+
+it's no secret that psychedellics are the biggest ego builders, and if you don't grow with the size of the ego, the joints loose their effectiveness.
+
+if I could go back to not having smoked, I would -- but, if you think about it, I'm just the stage magician, keeping you all busy with stuff to see as they install the new matrix.
+
+they're playing me like a puppet of their expectations. being at nearly zero resistance, I can't *not do* the things the most influential LOA voters expect me to do. I do what they expect me to do. I experienced an idea on 2022-09-10 and I went with it. from basically that point on, I'm completely floating now; I'm 100% at the mercy of their expectations.
+
+so, by going back, I get to regain my control. it's a control thing. then I had full control, but like this they control me completely with their expectations.
+
+this is going to make a splash. team splishy splashy
