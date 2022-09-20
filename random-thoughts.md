@@ -403,6 +403,6 @@ I don't have a conclusion there, but it was an interesting past memory. as an as
 
 you know another thought that's related to that is also when I was younger, I thought I was invincible, and mom thought it her duty to obliterate that pride from me. so she wanted to often point out when I'm not invincible. I didn't lose it all the way obviously, but that left a habit of noticing the failures a lot and so looking at successes (or even complimenting myself about them) was kind of shameful because I shouldn't be invincible (cause having like a 22-2 score is basically invincible).
 
-there's also (for me at least) a lot of the "I have to lose some time too; I can't win *all* the time" -- but this quality about me is largely hidden because I don't really like to win all that much. in fact, I kind of even like *not* winning (now.. not when I was young).
+there's also (for me at least) a lot of the "I have to lose some time too; I can't win *all* the time" -- but this quality about me is largely hidden because I don't really like to win all that much. in fact, I kind of even like *not* winning now.. not when I was young.
 
 I might think on this more because I do really wonder why I could feel that sense of calling my destruction by noticing my superiority. that's a really not good feeling to have. OH, it's still residual from the meditations where I was strongly attracting superiority complex emotions.
