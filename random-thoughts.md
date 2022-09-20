@@ -457,3 +457,11 @@ you know, I got this weird picture in my mind of abraham's LOA being like yzma a
 ### 2022-09-20 13:00 - future DJs
 
 I know it sounds funny but I was thinking about the future DJ will allow others to experience the directing of the music through him from his perspective.
+
+like, for example when I was younger I would watch paul van dyk (and others), but when he would play his songs, the whole set was like a journey through feeling, and whether it was his perspective or not, but I felt immersed into the experience, as if I was him.
+
+however, now that I think about it a bit more, from my perspective, I like doing this, but I don't see their perspective. instead the feel of the music produces images in sympathy with how I feel, environment conditions, and the DJ/song's feeling (quite a few variables, actually) -- and that produces an image/feeling that's unique to me, inspired by the DJ.
+
+you'll notice that I often times prefer *not* to look at the visuals of the song (DJ or music video) because the visuals (for me) don't come close to rendering the feeling. often times the visuals greatly distract me from the feeling.
+
+so, maybe after having talked it out, I would say having the experience of the DJ, but without any of his physical senses (just the feeling). interesting idea.
