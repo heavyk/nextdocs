@@ -465,3 +465,11 @@ however, now that I think about it a bit more, from my perspective, I like doing
 you'll notice that I often times prefer *not* to look at the visuals of the song (DJ or music video) because the visuals (for me) don't come close to rendering the feeling. often times the visuals greatly distract me from the feeling.
 
 so, maybe after having talked it out, I would say having the experience of the DJ, but without any of his physical senses (just the feeling). interesting idea.
+
+### 2022-09-20 16:36 - do daughters come from sufficient not-good-enoughness?
+
+I'm kinda beginning to think so. imagine the mother is feeling pretty good about stuff. she feels "good enough" and so she produces a son. however, if she has stronger not-good-enoughness than he has good-enoughness, a daughter is produced.
+
+the daugher is a 2nd ray female by default, programmed to the not-good-enoughness. when she has sex for the first time, she programs the male with the not-good-enoughness that was felt in conception process. that not-good-enoughness eventually stacks up until the male finally attracts a reality of not-good-enoughness.
+
+the idea sounds to me like it has some truth to it. it was an idea that came to me (possibly a realisation by someone else), so I can't say if it's absolutely "true" or not.
