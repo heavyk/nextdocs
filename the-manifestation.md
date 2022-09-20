@@ -334,3 +334,18 @@ reality-kenny just feels the way he wants about the experience.
 reality-kenny leaves *all* action to instead be reaction.
 (because I'm attracting everything toward me)
 (every *reaction* is a reflection of how I feel)
+
+### 2022-09-19 20:33 - the secret
+
+we can just keep all of this a secret.
+that way others can believe it too and be secret about it.
+if anyone who wants to join in, they can
+nobody actually knows who the members are,
+so anyone be a member, as it's probably a secret.
+so if we all keep the "I'm the universe" thing a secret.
+that way anyone can be a member.
+
+I felt like I repeated myself.
+it is a circular concept and very fast moving,
+hard to describe in long sentences.
+[the manifestation](/the-manifestation.md) *is* the secret
