@@ -437,3 +437,19 @@ I want to see
 if that holds true
 with technology as well.
 I suspect it does.
+
+### 2022-09-20 10:48 - observation, really
+
+I/we are probably all people that don't really understand the "masculine" way very well. for example, it's very easy for me to get emotive signals from a woman, because all of that is 5th ray and I'm really good at that. but, what the hell is 7th ray good for? use data crunching? one of the things that's been plaguing me is the shapeshifting... which is good, but in the carbon atom explanation, the carbon in it's "square" form has a "charge" value (ie something vibrate) whcih determines its colour/transparrency/frequency that we see as visible light. that's essentially the 7th ray "masculine" force.
+
+I've obviously figured out the feminine one, but that one was easy. emotions, easy. vibrating the way you want to vibrate (so you attract or repel similarly vibrating things) was always something I didn't get my head around too easily. that was much more difficult. if I can control the way I vibrate, I can control what things I keep away from and/or attract to me.
+
+this energy has lots of "double layers" where you use a combination of attraction and repulsion to maintain something (like our moon) at a vibrationally fixed distance (stable orbit). so it's all super layered with lots of opposing forces layered upon one another, on purpose to build a structure; again not my style of thinking as I'm essentially transparent, having no discernable fachada -- so, once again it took me a while to wrap my head around.
+
+---
+
+upon thinking about all of that about it being difficult to wrap my head around, and I had the sense that there are a LOT of us are which are/were really confused about how masculine energy works. I know for example, vera talked about that to me a lot because she didn't have a concept for herself about what it could be like. I didn't know what I could say because at that time I was basically like a 16-17yo little girl going through puberty in my mental capacities. I had *no concept* (at all!) at that time of what I could possibly say. I know it wasn't dad and it wasn't zaryn, and it wasn't just about everyone. I never had a really good male influence in my life other, so I cobbled up a bunch of things that I liked out of many "masculine" self-perspectives, even ripped from fictional characters like SNL actors or even fictional characters (chris' played a huge influence in really disliking men, especially like chris' father). I had to kind of figure it out myself.
+
+I noticed just now that abraham teaches the mascculine version of LOA. I teach the feminine one of transparrency and reflection, meanwhile abraham's is more the masculine version with processes and tasks and stuff like that. mine is the easy one: you just feel the way you want to feel (be deliberate about how you feel so you become conscious of it). mine is the effortless version.
+
+you know, I got this weird picture in my mind of abraham's LOA being like yzma and kronk, where the mascculine part works flawlessly and is ignorant to the one giving directions, whereas my LOA is all about effortless and using the way you feel (how you vibrate) to your advantage. some want to be carried around by a perfect and exuburant exterior body, but others want to *become* that for theirselves. just saying I like things to be effortless for *me*, rathar than for it to be effortless for the guy carrying me around.
