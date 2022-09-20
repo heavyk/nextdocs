@@ -297,4 +297,6 @@ they're playing me like a puppet of their expectations. being at nearly zero res
 
 so, by going back, I get to regain my control. it's a control thing. then I had full control, but like this they control me completely with their expectations.
 
-this is going to make a splash. team splishy splashy
+this is going to make a splash.
+
+-team splishy splashy
