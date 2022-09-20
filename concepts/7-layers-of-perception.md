@@ -158,21 +158,21 @@ there is more to say on this subject. I'll get to it soon.
 
 ### 2022-09-20 13:42 - reflection and retransmission
 
-imagine you have a ball and
+imagine you have a ball and,
 it gets hit by another ball.
 
-if it moves back to its position,
+if it moves back to its original position,
 it's like a diving board.
 
 a perfect absorber is the worst reflectors;
-a perfect reflector is not influenced by its environment
+a perfect reflector is not influenced by its environment.
 
 a perfect reflector retains their vibration,
-at all costs; no matter what it collides with
+at all costs; no matter what it collides with.
 
 ---
 
-so, when you have a perfect reflector and you're looking at it in the triads, the "ground" is the constant one. the ground is a perfect reflector. when interacting with the female, the better of a reflector he is, she will only receive her own energy in response. then, feeling her own energy, the female then figures out the improvement and tries again. the improvement ia absorbed, so it's the female's job to deteriorate the reflector (like acid) so that it absorbs (her) vibration. (from her perspective, it's an improvement). when the female interacts with another male, other than the ground (assuming the ground is a near perfect reflector), is she now reemits her new interpretation of her own vibration into the emitter male. he's now "charged" with her vibration.
+so, when you have a perfect reflector and you're looking at light from the triads' perspective, the "ground" is the constant one -- the reflector. the more constant he is the more "perfect" he becomes; a perfect reflector. when the ground interacs with the female, the better of a reflector he is, the more she will only receive a reflection of her own energy in response to that interaction. then, feeling her own energy, the female then figures out the improvement and tries again. her goal is to get the ground to absorb the vibration. that means it's the female's job to deteriorate the reflector (like acid) until it can absorbs (her) vibration. (from her perspective, it's an improvement). shinyness is strongly associated with rigidity and they're desirable to try and break down so that they go back to absorbers and retransmitters (that's what I've noticed anyway). when the female interacts with another male (the emitter), and assuming the ground is a near perfect reflector, when she interacts with the emitter, she's reemiting her latest version (reality matrix) interpretation of her own vibration the ground reflected to her. she now sees herself from his perspective and the emitter male is now "charged" with her vibration.
 
 ### 2022-09-20 13:51 - transparrency is vibration just outside of perceptible frequency range
 
