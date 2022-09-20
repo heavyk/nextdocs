@@ -349,3 +349,5 @@ I felt like I repeated myself.
 it is a circular concept and very fast moving,
 hard to describe in long sentences.
 [the manifestation](/the-manifestation.md) *is* the secret
+
+### 2022-09-19 21:11 - cause like you know 
