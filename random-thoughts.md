@@ -406,3 +406,19 @@ you know another thought that's related to that is also when I was younger, I th
 there's also (for me at least) a lot of the "I have to lose some time too; I can't win *all* the time" -- but this quality about me is largely hidden because I don't really like to win all that much. in fact, I kind of even like *not* winning now.. not when I was young.
 
 I might think on this more because I do really wonder why I could feel that sense of calling my destruction by noticing my superiority. that's a really not good feeling to have. OH, it's still residual from the meditations where I was strongly attracting superiority complex emotions.
+
+### 2022-09-20 10:15 - electrostatics and gravitation
+
+or, the masculine force as seen through electrostatics.
+
+yesterday, I had quite a few reactions to when I said that tesla's technology is like feminine thought, and also significant reactions were felt where I said that nosebook also pretty well matches feminine thought. combine that idea with another thing that I said yesterday(?) is that I find it interesting that the "aryan" mindset has completely externalised their feminine thought into self-produced egregores. we made our own feminine thought our reality that we're fighting against. ok, enough of the past. though it doesn't feel so good, you'll see resonances of those concepts in the explanation.
+
+---
+
+I like to think of electrostatics as any bit of "charge" that an atom has. charge is actually vibration, and so all atoms all resonate at a very high carrier frequency that all atoms resonate with, and that keeps them alive and together. I believe it's a very high frequency that comes out of the centre of the galaxy, and it's basically like us: a planet with something very energetic inside of it. all planets have them. stars, are all about hydrogen, but a planet is involved with the denser than hydrogen stuff. the hydrogen is the solar stuff that gives you superpowers, which is what we want to avoid. we're going the 110% certified materialistic route. my plan is to develop tons and tons of non-singularity technology (because it's 100% materialistic and doesn't require the sun (feminine energy) to operate).
+
+I think it'd be awesome to be able to fly. the fed guys don't like that because then you could go *anywhere*, but I think they don't like that because they don't have a way to block it, but with this, you do. you kinda make your own force fields and stuff, so it's actually more of a "pushing" technology. to attract, you have to vibrate your atoms similarly to the other atoms that you want to attract. no need for the sun at all. the sun, the ether and all that stuff are neatly *not needed* to do really amazing things.
+
+so after I want flight and force fields, I would want something else like levitation and consciously making my atoms vibrate slightly different to something in my environment causing it or me to float and approach/repel the similarly vibrating atoms. that means that we can also do all of the PK stuff and we'll do it consciously with our minds, just by changing the vibration of the atoms that compose your body.
+
+you thought maybe you were going to see too much -- well, it's going to be pretty helpful to be able to "see" those atoms vibrating. lofty goal, so we'll see what happens. the funny thing is, in this world, there's no opposition to you if you do them the masculine way. I want to see if that holds true with technology too. I suspect so.
