@@ -163,3 +163,9 @@ the one after that is symbolic, and that's where things lose their physicality. 
 obviously the one after that is a perspective of desire where you can express in symbolic form what you want: "I want you to take off the side of this mountain" "go from here over to here" etc. I don't know how to explain the pure desire perspective, because it would be something of chaos, and everything undesirable. the absolute "worst" thing that could be happening. this is where you find bugs in the system. you can propose disaster scenarios and save the scenarios to notice when they happen, then from the perspective of the lower layer take an action in response.
 
 the desire perspective can also do a symbolic approach to the same perspective, so like "I'd like this to be producing 400 wood", and when it's not or looks to be a way that I want (or don't want) in the future, tell me about it.
+
+### random idea not necessary to COI
+
+- what if autosaves went in the background and didn't pause the game. at the end of the save sequence, you could pause the game and briefly while you check to see what entities are outdated, update those before outputting onto disk, which is also done in the background.
+  - a further expansion to the idea is to not make it ever pause the game by getting everything ready and then only in the update loop ensure locations are correct and fire off the save thread.
+
