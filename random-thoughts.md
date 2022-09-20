@@ -453,3 +453,7 @@ upon thinking about all of that about it being difficult to wrap my head around,
 I noticed just now that abraham teaches the mascculine version of LOA. I teach the feminine one of transparrency and reflection, meanwhile abraham's is more the masculine version with processes and tasks and stuff like that. mine is the easy one: you just feel the way you want to feel (be deliberate about how you feel so you become conscious of it). mine is the effortless version.
 
 you know, I got this weird picture in my mind of abraham's LOA being like yzma and kronk, where the mascculine part works flawlessly and is ignorant to the one giving directions, whereas my LOA is all about effortless and using the way you feel (how you vibrate) to your advantage. some want to be carried around by a perfect and exuburant exterior body, but others want to *become* that for theirselves. just saying I like things to be effortless for *me*, rathar than for it to be effortless for the guy carrying me around.
+
+### 2022-09-20 13:00 - future DJs
+
+I know it sounds funny but I was thinking about the future DJ will allow others to experience the directing of the music through him from his perspective.
