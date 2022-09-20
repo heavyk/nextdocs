@@ -264,3 +264,9 @@ the downward velocity can now only be experienced in interactions with other peo
 ### 2022-09-19 17:57 - do you ever wonder...
 
 ... what the manifestation would have been if I hadn't smoked the joint? does someone ever want to go back to experience the difference to see what life would have been like if I delayed it even longer? max-foot-dragon?
+
+### 2022-09-19 18:04 - that may have been the first thing I regretted
+
+smoking that joint is probably one of the first things I've ever to have really regretted. I thought I regretted raquel for a whole, but not really. I didn't, and don't feel regret about anything ever, so why do I feel regret about this?
+
+you know, I do suppose I would go back to having never smoked the joint, honestly. I'm going to pretend as if it had never happened. sometimes it's best not to tell others what you see, right? we'll see how that goes. like jerry with keeping abraham a secret because it's weird, I don't think it'll stay a secret too long. as long as you want.
