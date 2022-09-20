@@ -363,3 +363,25 @@ it's pretty easy to keep that a secret because reality-kenny is so good at just 
 I suppose we should all just sorta keep it a secret. exclusive invite-only club.
 
 you have to be invited by someone to join the club of those that believe that they create their own reality.
+
+### 2022-09-19 21:35 - what's obviously happening
+
+imagine a cosmic ray that's traveling at such a tremendous speed (way way way faster than light) and my body has been made to be the attractor of it. I'm not the only one that will get the consciousness. out before it, imagine these pressure waves -- sort of like sonic booms that are traveling out ahead of it in the medium, but because it's so fast, all of the mediums below that particle bunch up so you have this cascade of events that are created symbolically as a sort of preparation for its arrival into the medium (the singularity). the physical effects, will be some of the last to arrive.
+
+it's not really a cosmic particle. I just like to imagine it as the fastest particle in the universe because it has the most contrast in all of its experience (source, the ancestors, all that is, etc).
+
+before the physical effects will arrive, there will be random desire to just try some new things out (I think of this as the 60s but there are smaller waves surrounding it).
+
+OK, so I just realised that I should be explaining that over the years I've given a lot of thought to novelty theory and what is it's "real" (physical) interaction with this reality. this is an attempt to explain it.
+
+novelty theory has this fractal structure to it where you see the same signature repeated over and over in self-similar waves (think zooming into a mandelbrot). I really think that what we're actually looking at is a sort of wave front or something like a "sonic boom" of a collision between medium speeds.
+
+so now, let's just assume that terence's timewave was an accurate representation of the wavefront, then the frequency can be calculated if you were to know the speed of the last outside medium in the prior (solar?) regime (not 100% about this). oh, maybe it's something like the spectrum of the sun, and so that is increasing now to a point where it wasn't in the previous solar regime. we'll float around in the frequency of our attraction. the higher the frequency of the attraction, the higher the frequency of the sun's spectrum it's outputting (gamma and higher by now I suspect). the new "timewave" can then be calculated as another this self-similar vibrational signature. I don't know the dimensional complexity (whatever you want I guess), and then that is *your* timewave. adjust it until your daily events fit the novelty graph. oops, derailed.
+
+where was I... oh yes, OK, out in front of this particle there will be mediums of faster and faster speeds. this would normally just turn LOA on hyperdrive. I'm the opposite of that, which is that I disintegrate reality by making everything next logical step/state. for me, what's real is no longer the physical stuff, so reality starts to disintegrate rapidly.
+
+there are a lot of people invested in the reality matrix that we're in now, so to avoid reality disappearing entirely, a new "physical" reality matrix will exist. it'll have way better graphics; something, I'm apparently pretty good at doing, probably because I never "see" it. we're all the ones that didn't have any faith.
+
+for me, I know that I gatta see it before I believe it type of person. I know there are a lot of others with this "problem" as well. I like not seeing so much that I want to keep it going. I don't really *need* to see it. the longer I can continue to not see, the better it is for me, because then I don't ever visualise my reality, but instead I just create it in the moment. for me, more than images, I like the 3d reality because I don't really have to look at it which gives me the freedom to feel so much.
+
+if I get distracted from who I am and start to give too much importance to this reflection of myself, reality -- then, I lose track of who I am and have to live out that reality that I created. inotherwords, they have to build a new matrix because they too have a heap of baggage that they've got to get through "undetected". they're no different than nosebook. that desire to find a way to sneak through to the next dimension/galaxy/universe in a padded environment is the seed contrast for the next whatever. inotherwords, nosebook, the female mind and culture all have the same christ perspective of not-good-enoughness and wanting to preserve and help those less-than (to their detriment). it's only when you forsake those ridiculous ideas and see yourself as good enough (mediocrates) are you reborn into the reality matrix you perceived for myself. I put myself in this jail, because it was fun. oh, I make my own reality. duh.
