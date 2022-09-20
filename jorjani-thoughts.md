@@ -1566,7 +1566,10 @@ I even like the name because it makes me think more than once what it means; the
   - in my domain
   - (it's all my fault)"
 - that's a good start
-
+- the individual doesn't know their limit
+  - they're always way overextended
+  - promise way more than their capacity
+  - etc.
 
 
 
