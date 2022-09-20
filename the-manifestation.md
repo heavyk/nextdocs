@@ -281,4 +281,4 @@ I know a buncha posers gonna be out there pretending to see it too, so maybe jus
 
 ### 2022-09-19 18:14 - everyone is just a reflection of me
 
-get it? all the posers are a reflection of me.
+all the posers are a reflection of me.
