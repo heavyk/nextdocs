@@ -330,7 +330,7 @@ though this perspective exists, I prefer to enjoy the perspective of action-kenn
 reality-kenny is the feeling version of action-kenny.
 action-kenny turns on when I don't feel too good;
 reality-kenny is on the rest of the time.
-reality-kenny just feels the way he wants about the experience
-reality-kenny leaves *all* action to instead be reaction
+reality-kenny just feels the way he wants about the experience.
+reality-kenny leaves *all* action to instead be reaction.
 (because I'm attracting everything toward me)
-(and every reaction will be a reflection of how I feel)
+(every *reaction* is a reflection of how I feel)
