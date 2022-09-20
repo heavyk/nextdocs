@@ -278,3 +278,5 @@ the world will never be the same.
 ### 2022-09-19 18:11 - fake it till you make it?
 
 I know a buncha posers gonna be out there pretending to see it too, so maybe just fake it till you make it? you'll get there.
+
+### 2022-09-19 18:14 - everyone is just a reflection of me
