@@ -155,3 +155,25 @@ I bring this up because 4th ray perception is going to be the next big hurdle fo
 3rd ray perception is a little bit too abstract to relate, but to understand it, it's pretty easy to see the 2nd ray perception of seeing the whole everything and how it relates to the all from the inside out. you're getting pretty far into "God" or "Christ" perception at that point, so I don't really have much I could say on that which would be tangible or explainable. an analogy of it would be to see a microprocessor from the inside out. there are a lot of things going on inside of it, but you are able to see and understand all of the inputs and outputs of it, seemingly in real-time. I would consider that to by quite an information overload, though the microprocessor takes it pretty easy. (that actually reminded me of another thing: @[jorjani-thoughts](2022-08-16 20:38))
 
 there is more to say on this subject. I'll get to it soon.
+
+### 2022-09-20 13:42 - reflection and retransmission
+
+imagine you have a ball and
+it gets hit by another ball.
+
+if it moves back to its position,
+it's like a diving board.
+
+a perfect absorber is the worst reflectors;
+a perfect reflector is not influenced by its environment
+
+a perfect reflector retains their vibration,
+at all costs; no matter what it collides with
+
+---
+
+so, when you have a perfect reflector and you're looking at it in the triads, the "ground" is the constant one. the ground is a perfect reflector. when interacting with the female, the better of a reflector he is, she will only receive her own energy in response. then, feeling her own energy, the female then figures out the improvement and tries again. the improvement ia absorbed, so it's the female's job to deteriorate the reflector (like acid) so that it absorbs (her) vibration. (from her perspective, it's an improvement). when the female interacts with another male, other than the ground (assuming the ground is a near perfect reflector), is she now reemits her new interpretation of her own vibration into the emitter male. he's now "charged" with her vibration.
+
+### 2022-09-20 13:51 - transparrency is vibration just outside of perceptible frequency range
+
+the other option for the ground to being a perfect reflector is to become transparent. this is where his "visible" side starts to get out of the visible's frequency range. that's bad and requires (from their perspective) a way to get that back into the appropriate frequency spectrum. the female mindset has to know/understand everything. the ground remains constant desipte her best efforts to convince him of her energy so that he'll absorb it. if she doesn't succeed in convincing him to absorb her energy, she has to evolve her frequency range.
