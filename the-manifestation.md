@@ -295,7 +295,7 @@ if I could go back to not having smoked, I would -- but, if you think about it, 
 
 they're playing me like a puppet of their expectations. being at nearly zero resistance, I can't *not do* the things the most influential LOA voters expect me to do. I do what they expect me to do. I experienced an idea on 2022-09-10 and I went with it. from basically that point on, I'm completely floating now; I'm 100% at the mercy of their expectations.
 
-so, by going back, I get to regain my control. it's a control thing. then I had full control, but like this they control me completely with their expectations.
+so, by going back, I get to regain my control. it's a control thing. then, I had full control, but like this, they control me completely with their expectations.
 
 this is going to make a splash.
 
