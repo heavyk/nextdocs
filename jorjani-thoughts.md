@@ -1545,6 +1545,31 @@ one thing that we don't really know is how messed up things got. in that same vi
 
 so, if they're flipping power sources, it's quite possible that they could have started to figure out time travel is possible. so let's say that the original aryans had these vimanas, which under certain conditions, can traverse space or time with ease, then we could potentially be dealing with a really a lot of time travelers and edits going back more than 5kya.
 
+### 2022-09-20 12:24 - the individual manifesto
+
+I even like the name because it makes me think more than once what it means; the meaning isn't immediately apparent.
+
+- "that's not my <problem|manifestation>"
+- "if it happened, they attracted it"
+- ... I'll think of some more at a later time
+  - right now it's very difficult in this perspective.
+  - I am not individual
+  - wait, not if I look at it from the individual perspective of the universe...
+- "I am the centre of the universe"
+- "everything arounds me reflects
+  - (some<times|things|people> more than others)
+  - the way I <feel about it|conceptualise it *to be*>
+  - (or *not* to be)"
+- "reality is how I perceive it to be"
+- "I am 100% responsible
+  - for everything happening
+  - in my domain
+  - (it's all my fault)"
+- that's a good start
+
+
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
