@@ -419,6 +419,16 @@ I like to think of electrostatics as any bit of "charge" that an atom has. charg
 
 I think it'd be awesome to be able to fly. the fed guys don't like that because then you could go *anywhere*, but I think they don't like that because they don't have a way to block it, but with this, you do. you kinda make your own force fields and stuff, so it's actually more of a "pushing" technology. to attract, you have to vibrate your atoms similarly to the other atoms that you want to attract. no need for the sun at all. the sun, the ether and all that stuff are neatly *not needed* to do really amazing things.
 
-so after I want flight and force fields, I would want something else like levitation and consciously making my atoms vibrate slightly different to something in my environment causing it or me to float and approach/repel the similarly vibrating atoms. that means that we can also do all of the PK stuff and we'll do it consciously with our minds, just by changing the vibration of the atoms that compose your body.
+so after I want flight and force fields, I would want something else like levitation and consciously making my atoms vibrate slightly different to something in my environment causing it or me to float and approach/repel the similarly vibrating atoms. that means that we can also do all of the PK stuff and we'll do it consciously with our minds, just by changing the vibration of the atoms that compose our body.
 
-you thought maybe you were going to see too much -- well, it's going to be pretty helpful to be able to "see" those atoms vibrating. lofty goal, so we'll see what happens. the funny thing is, in this world, there's no opposition to you if you do them the masculine way. I want to see if that holds true with technology too. I suspect so.
+you thought maybe you were going to see too much
+well, it's going to be pretty helpful to be able to "see" those atoms vibrating.
+
+lofty goal, so we'll see what happens.
+
+the funny thing is,
+in this world,
+there's no opposition to you if you do them the masculine way.
+
+I want to see if that holds true with technology as well.
+I suspect so.
