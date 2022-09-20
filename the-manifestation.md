@@ -280,3 +280,5 @@ the world will never be the same.
 I know a buncha posers gonna be out there pretending to see it too, so maybe just fake it till you make it? you'll get there.
 
 ### 2022-09-19 18:14 - everyone is just a reflection of me
+
+get it? all the posers are a reflection of me.
