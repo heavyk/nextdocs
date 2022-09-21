@@ -481,3 +481,5 @@ they're little vibrations (kinda like a fuzzer) that slowly picks away at the st
 this is the conceptual difference between concepts -- so, like if you emit the same signal as you receive, then that's perfect reflection, but in all other cases, the vibration is absorbed and retransmitted at a different frequency (like heat or colour). it's pretty much a transducer. when that happens, it's valuable to them. if I have a bad-feeling concept, and the other person is able to absorb and retransmit a series of better feeling concepts, it creates movement, and shiny things that move are attractive.
 
 the only thing impervious to their efforts to find all of the blemishes (non-reflective angles) would be a perfect reflector, tho most perfect reflector isn't necessarily the most rigid or the shiniest (like silver), but to be quite mallable and shiny at the same time like gold. perfection isn't rigidity, perfection is mallable glamour.
+
+you know we're literally watching the sun evolve as we see the shiny and matte angles of its surface change and morph around.
