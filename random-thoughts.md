@@ -473,3 +473,11 @@ I'm kinda beginning to think so. imagine the mother is feeling pretty good about
 the daugher is a 2nd ray female by default, programmed to the not-good-enoughness. when she has sex for the first time, she programs the male with the not-good-enoughness that was felt in conception process. that not-good-enoughness eventually stacks up until the male finally attracts a reality of not-good-enoughness.
 
 the idea sounds to me like it has some truth to it. it was an idea that came to me (possibly a realisation by someone else), so I can't say if it's absolutely "true" or not.
+
+### 2022-09-20 18:22 - not-good-enoughness is the conceptual equivalent of acid
+
+they're little vibrations (kinda like a fuzzer) that slowly picks away at the structure until it's able to find a vibrational hole in the defences that will *absorb* the signal and retransmit a different frequency.
+
+this is the conceptual difference between concepts -- so, like if you emit the same signal as you receive, then that's perfect reflection, but in all other cases, the vibration is absorbed and retransmitted at a different frequency (like heat or colour). it's pretty much a transducer. when that happens, it's valuable to them. if I have a bad-feeling concept, and the other person is able to absorb and retransmit a series of better feeling concepts, it creates movement, and shiny things that move are attractive.
+
+the only thing impervious to their efforts to find all of the blemishes (non-reflective angles) would be a perfect reflector, tho most perfect reflector isn't necessarily the most rigid or the shiniest (like silver), but to be quite mallable and shiny at the same time like gold. perfection isn't rigidity, perfection is mallable glamour.
