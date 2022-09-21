@@ -474,7 +474,7 @@ the daugher is a 2nd ray female by default, programmed to the not-good-enoughnes
 
 the idea sounds to me like it has some truth to it. it was an idea that came to me (possibly a realisation by someone else), so I can't say if it's absolutely "true" or not.
 
-### 2022-09-20 18:22 - not-good-enoughness is the conceptual equivalent of acid
+### 2022-09-20 18:22 - not-good-enoughness is the conceptual equivalent of acidity
 
 they're little vibrations (kinda like a fuzzer) that slowly picks away at the structure until it's able to find a vibrational hole in the defences that will *absorb* the signal and retransmit a different frequency.
 
