@@ -1696,7 +1696,27 @@ personally, I don't have a problem with this, and consider it to be just fine, a
 
 I can imagine why others would want to do it as well. consider now a village where you have the village shaman as a constructed egregore, and all people from that village go to live in that egregore instead of making their "transition". in the same way, for them it's a jail of freedom, because they have influence on its village, but at the same time, they're sorta trapped in the limited manifestation of the egregore. I'm sure it'll be studied in great detail the effects of physical appearance on manifestion through this egregore.
 
+### 2022-09-22 02:55 - do you suppose that the demiurge wants a way to pass into the next dimension?
+
+- the demiurge is the WPM form of thought present on the physical realm
+- however, I don't really know of this really existing so much on the other layers, most notably conceptual and symbolic
+  - this is the herald of a new form of thought which gives rise to more constant source of novelty based on statistics and probabilities
+- the goal of the demiurge is to make manifest the WPM, and so its only goal is to survive the "apocalypse"
+  - the apocalypse is when reality is created really rapidly, so their WPM will become reality for them
+  - some of them are looking for an improvement on their WPM, and some are firmly planted in their idea of a manifestation
+  - this then gives rise to desire (on the part of the demiurge) to summon for itself a way to turn the WPM into something at least tolerable
+    - anyone that can possibly do that becomes a monument and is then worshipped and venerated by the rest because they all see theirselves as not good enough to improve their own WPM, cause it would require actually living out those good-feeling things.
+    - wishing to constantly feel some sort of "worst" thing as a present reality
+      - (in contrast to the visible)
+    - we want to feel that pain or worseness as reality
+      - (whatever "trauma" it may be),
+    - means that we have to always be subjected to the "worst" (in our own perception) manifestation.
+
 that egregore is a false appearance because its "body" does not reflect the vibration of the nucleus; it's a absorb and retransmit (not the constant one). I'll probaly be the first to become an egregore, if I'm not already.
+
+you have to see that egregores need a sort of saviour if they want to find a way through to the next dimension without getting their peception of reality become manifested *as* reality. therefore, we can only "save" ourselves.
+
+this reminds me of 
 
 ### what are your differences with steiner?
 ### promethian egregore and science
