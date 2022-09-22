@@ -1595,6 +1595,45 @@ so what does that mean if you have three x-chromosomes? I don't know but just no
 
 just like the female brain is a mix between those two universes, the other will be a mix of the three. what about more? what about like 1000 other universes all at once?
 
+### 2022-09-21 23:52 - monumental perspective of time may actually be the most feminine perspective
+
+it just dawned on me that the monumental perspective of time is actually kinda the same way that I think of "feminine thought".
+
+so to continue this discussion further, I think I'd like to define some things.
+
+when I think about the feminine perspective, I beleive it comes as a result of being visual. there is A LOT of competition between them, and I think this corresponds with the monumental perspective.
+
+the monumental perspective recognises/remembers/acknowledges/lauds the greatest achiever and records them as a milestone for development, but that comes at a cost, which is that competition also increases.
+
+competition isn't bad in itself,
+as it's a good way to create desire,
+
+but, it often times limits the manifestation
+to be not too far away from the last monuments.
+
+competition can be used to ensure that
+small low risk changes are accepted
+and lauded appropriately before
+needing to recognise the large monuments.
+
+it also makes outcome probability much easier to be calculated.
+it's rare for big novelty jumps to happen
+instead, a trickle of novelty (micronovelty) will be appearing
+as a biproduct of desire from minmaxing.
+
+---
+
+another way to look at feminine perspective is from the tesla perspective.
+if you think of everything as a capacitor, then the space between those plates
+is under control of the two plates; it's very hierarchical.
+the one who controls the top and bottom-most plate controls everythting inside
+
+I think, that this has something to do with protons, which are also like small suns.
+protons are probably something similar to carbon, and so when you are interacting
+with that, you're interacting with the nucleus.
+
+the star on the inside; your inner being.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
