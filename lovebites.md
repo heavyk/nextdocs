@@ -39,3 +39,17 @@ I was thinking about this feeling and I realised that is what I felt about tuent
 you see, this is the kind of position I sorta put lovebites into yesterday. assuming it goes through, it's a manifestation that they sorta didn't want, and it's supposed to be cool (in the eyes of others), but it didn't fully align with their previous goals.
 
 it sorta puts them to be in the position that they're kinda one of the biggest critics of all the ridiculous behaviour. this was also me in relationship with the marketing department. we did not agree on a lot of behavioural aspects, but I learned a lot from them. inotherwords, if ever notice those girls that just sit back and watch all of the sexually active girls floundering about, and she's like "yep, knew he was no good", "yep, called that trash out last week", etc. they're the kind of judges on noticing all of the things that could use improvement.
+
+### 2022-09-22 04:34 - I noticed
+
+@[youtube](https://youtu.be/WT5v253X-DM)
+
+I've been trying to figure out miyako and midori, and I started to notice that midori approaches things much more from the desire end of things, while miyako approaches it much more from the implementation perspective.
+
+this is most exemplified in the first song "cowboys from hell", where midori starts with the bass and sets the tone for miyako. midori is playing the constant one (the kind of bass or background) for miyako to play on top of.
+
+it's interesting to see this interaction because the whole show I believe is kind of like a public campaign to show off their musical taste in effort to attract a person that will be the kind of bass for miyako to play on (and presumably for midori to companion on).
+
+### 2022-09-22 04:52 - I think music summons egregores, too
+
+it just occurred to me.
