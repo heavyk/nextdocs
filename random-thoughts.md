@@ -483,3 +483,11 @@ this is the conceptual difference between concepts -- so, like if you emit the s
 the only thing impervious to their efforts to find all of the blemishes (non-reflective angles) would be a perfect reflector, tho most perfect reflector isn't necessarily the most rigid or the shiniest (like silver), but to be quite mallable and shiny at the same time like gold. perfection isn't rigidity, perfection is mallable glamour.
 
 you know we're literally watching the sun evolve as we see the shiny and matte angles of its surface change and morph around.
+
+### 2022-09-22 04:27 - what about cleaning code like you clean a space
+
+in one of xyla's videos she revealed the technique of lindsay(?) of taking all of the things out of the room and then putting them back into the (now empty) room.
+
+so what if code did the same thing where it removed all of the code down to say the starting point you want to begin from. remove all of the code so that it just displays everything *minus* the feature (room) that's going to get rebuilt. you just copy and paste all of the deleted code back in. there could also be a reorganisation of the parts here between putting it back in.
+
+I was thinking about this for various aspects of my life more than just code. it's the same crap, but a little less of it and in optimised positions.
