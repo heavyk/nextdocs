@@ -1680,6 +1680,11 @@ we decide which is more real and that's the reality we see. when I'm here, writi
 
 you can see that the same thing is for the physical. do you see the desire (not physical) or do you see the physical. most people see only the physical so much that they cannot see the desire. these guys are really living in the "presente".
 
+### 2022-09-22 02:00 - autonomous intellingece
+
+    "emergent, apparently autonomous intelligence at work in various technical endeavours leading toward the singularity"
+
+I call this "desire". something inside of us really wants technology, and another part of us is summoned to create the technology. we're a self-fullfilling desire for emerging technology (novelty), but novelty (emerging technologies) are happening so quickly now, moments of high novelty such as this are a kind of test on the upper limits to culture, society, the definition of what it means to be human.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
