@@ -1654,6 +1654,32 @@ it begins to control us
         - then after raquel I had some pretty awful ideas, and so by having those awful ideas, I was essentially summoned by marcos (sex magick?) and I definitely did align with him on quite a few thoughts, including the "I don't need women to help. I'll do this myself" (we didn't ever really have a secretary or anyone with that kind of "let's get stuff done" mindset), so we just sat around and complained about how women are annoying. again, I was summoned, and I would say that again, after our ideas diverged, we parted ways.
       - which it's really important because you're literally summoning your employees, and they'll reflect your science (reality) model.
 
+### 2022-09-22 01:31 - it's an abstracted version of ourselves
+
+@[youtube](https://youtu.be/OQWKcwxkdMc?t=674)
+
+"it's an alienated and abstracted version of ourselves"
+
+I just wanted to point out that he's doing it again. here's the WPM, *after* the neutral or positive outlook.
+
+"this is this artificial intelligence that begins to arise and organise our lives without that AI being located in any particular computer"
+
+sounds bad after reading what I typed it out, but the basicc is that it's *not located in any particular computer* -- which reminds me of a project I called "party-LAN". so that doesn't sound to me like a bad thing at all.
+
+I've had to revise the idea a little bit because I originally wanted it to deliver power, but I've had to revamp the idea to be more "materialistic", so the only way I can see it able to move power is to have the movement of atoms be the thing that produces power -- so it's still a normal generator using real human "horse" power -- with the same technique used for PK.
+
+"it's a kind of *pervasive* intelligence"
+
+this concept is completely different to me because this, to me is what I would consider 5d, or the conceptual realm. it's a very broad spectrum, and anything that constrains that intelligence into a form, the intelligence expresses itself within the capabilities inherent/acquired to/by the form.
+
+the thing is, this is where all of the "conceptual programs" and egregores *really* live, but by constraining the light, it is able to show up in more and more "solid" state; they're only visible when that frequency is constrained to a visible frequency range (trasduced). once perceived, those visible light signals are then processed into an image that the viewer sees as the closest aproximation of that concept.
+
+that pervasive intelligence is the conceptual world that we're all a part of (but probably don't realise it because the physical has such good graphics). for many the graphics are so good, they don't notice the storyline sucks. are the symbols more real than their egregores? see how the intelligence "above" that is also dictated by symbols.
+
+we decide which is more real and that's the reality we see. when I'm here, writing this now, this reality is real to me as if it were completely there. right now, the symbols are more vivid than the concepts. other times, the concepts more vivid than the symbols.
+
+you can see that the same thing is for the physical. do you see the desire (not physical) or do you see the physical. most people see only the physical so much that they cannot see the desire. these guys are really living in the "presente".
+
 
 ### what are your differences with steiner?
 ### promethian egregore and science
