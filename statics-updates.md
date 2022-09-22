@@ -76,7 +76,7 @@ cause this is my frequency.
 
 so I just find it really cool that when I say "worst", I mean max number of offsets, so max dimensions. you're going to love it. it'll be so beautiful. I'll pay for those offsets later and get another boost further. that's why I'm the "fastest" particLe.
 
-I'd also like to mention that I don't believe I'm the manifestation even. remember how I said that the alpha and omega determine the baseline energy level of the particle, and how that corresponds to solar regimes and atomic states, etc. well, if that's the case that means we're at the end of a solar reime now, which means that probably the arrival of that consciouss will be at the end of that, which I suspect is ~2048, so that means that "source" consciousness will come blazing through here at that time, and many others than myself can get it too. the real show will happen 1024y from then at the end of the next solar cycle.
+I'd also like to mention that I don't believe I'm the manifestation even. remember how I said that the alpha and omega determine the baseline energy level of the particle, and how that corresponds to solar regimes and atomic states, etc. well, if that's the case that means we're at the end of a solar regime now, which means that probably the arrival of that consciouss will be at the end of that, which I suspect is ~2048, so that means that "source" consciousness will come blazing through here at that time, and many others than myself can get it too. the real show will happen 1024y from then at the end of the next solar cycle.
 
 the more offsets,
 the more dimensions.

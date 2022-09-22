@@ -1573,7 +1573,27 @@ I even like the name because it makes me think more than once what it means; the
 - these are all a spectrum of possibilities
 - feel free to be the same on everything else
 
+(I should probably move this out)
 
+### 2022-09-21 21:21 - genders and demiurges
+
+@[youtube](https://youtu.be/_POraCozbQY?t=2897)
+
+the idea came to me when I'm watching her multitasking. I can see when she interacts with the person, she's a mix of her worst and best manifestation universes. usually she looks at most of them kinda like they're buffoons, and is kinda annoyed by them, which is noticeable when she context switches back into her internal universe. it's like reality is a blend of this really colourful universe that sorta blends with reality.
+
+so there you can see that one universe is kinda like the best possible imagined and the other is kinda like the worst possible imagined. the universe between (the brain) these two is "reality" and it's a sort of mix between the two. so just assume that all women have a BPM and WPM.
+
+men, I think we're always born selecting the maternal side, which I think is always the BPM, cept for the demiurges, which retain the WPM universe instead. that means their brain (imaginination) is always translating that WPM into pictures.
+
+I think I may have been a demiurge, because when I was young, my imagination was terrifying, so I never really developed it, prolly because my own imagination gave me bad dreams. I didn't like the dark. so I wonder if I got mom's WPM universe instead of her BPM.
+
+wait, what if both of them contain best and worst, and something (like a trauma) will turn on the worst over the best, cause it seems like they/I can see both so that must mean they must be able to perceive both, and depending on conditions, determine what is "reality".
+
+---
+
+so what does that mean if you have three x-chromosomes? I don't know but just now the idea came that we would essentially contain our own alternate universe reference (prolly something like phillip k dick), where we simultaneously exist in another universe as well.
+
+just like the female brain is a mix between those two universes, the other will be a mix of the three. what about more? what about like 1000 other universes all at once?
 
 ### what are your differences with steiner?
 ### promethian egregore and science
