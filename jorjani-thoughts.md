@@ -1696,7 +1696,7 @@ personally, I don't have a problem with this, and consider it to be just fine, a
 
 I can imagine why others would want to do it as well. consider now a village where you have the village shaman as a constructed egregore, and all people from that village go to live in that egregore instead of making their "transition". in the same way, for them it's a jail of freedom, because they have influence on its village, but at the same time, they're sorta trapped in the limited manifestation of the egregore. I'm sure it'll be studied in great detail the effects of physical appearance on manifestion through this egregore.
 
-that egregore is a false appearance because its "body" does not represent the vibration of the nucleus. I'll probaly be the first, if I'm not already.
+that egregore is a false appearance because its "body" does not reflect the vibration of the nucleus; it's a absorb and retransmit (not the constant one). I'll probaly be the first to become an egregore, if I'm not already.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
