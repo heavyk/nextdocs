@@ -1634,6 +1634,27 @@ with that, you're interacting with the nucleus.
 
 the star on the inside; your inner being.
 
+### 2022-09-22 01:12 - we're the ones projecting it
+
+the promethian egregore that is causing this singularity experience
+  - singularity experience happens when our ability to project into the future becomes impossible
+  -> singularity can be delayed with probabilities of more general concepts
+
+this egregore (puma) is alive and well today and is no different than black magick
+  - this means that scientific endeavours literally conjure people in reflection of that idea
+    - which then means that science is constantly trying to prove itself right by conjuring people to support its own vanity
+
+it begins to control us
+  - that's all technology and media
+    - (and the entities that back them)
+    - which is important to realise in the evocation of the egregore, is always going to reflect the mentality of the summoners
+      - which means that employees are "summoned" by their employers in likeness of mindset,
+      - which means that the employees are unconsciously hired because of their ability to perpetuate that mindset
+        - you know, I can attest to this (I'm always reading my own stuff to understand myself better), and I'd say that when I met zaryn, I was definitely in the "I want to perpetuate zaryn's perception" which was something of doing it the way you want to do it, regardless of what the "money" says. we diverged a bit because my perception changed so fast, and soon I became unhirable
+        - then after raquel I had some pretty awful ideas, and so by having those awful ideas, I was essentially summoned by marcos (sex magick?) and I definitely did align with him on quite a few thoughts, including the "I don't need women to help. I'll do this myself" (we didn't ever really have a secretary or anyone with that kind of "let's get stuff done" mindset), so we just sat around and complained about how women are annoying. again, I was summoned, and I would say that again, after our ideas diverged, we parted ways.
+      - which it's really important because you're literally summoning your employees, and they'll reflect your science (reality) model.
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
