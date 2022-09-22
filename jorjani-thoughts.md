@@ -1686,7 +1686,7 @@ you can see that the same thing is for the physical. do you see the desire (not 
 
 I call this "desire". something inside of us really wants technology, and another part of us is summoned to create the technology. we're a self-fullfilling desire for emerging technology (novelty), but novelty (emerging technologies) are happening so quickly now, moments of high novelty such as this are a kind of test on the upper limits to culture, society, the definition of what it means to be human.
 
-### 2022-09-22 02:21 - I think we'll create an egregore
+### 2022-09-22 02:22 - I think we'll create an egregore
 
 combined with the ideas that I'm developing with carbon, it seems to me that this is going in the direction of constructing a person, atom by atom, and then a group of people decide to ride along inside of that new body. it can become anything it wants physically.
 
