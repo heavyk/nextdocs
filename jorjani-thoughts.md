@@ -1686,6 +1686,18 @@ you can see that the same thing is for the physical. do you see the desire (not 
 
 I call this "desire". something inside of us really wants technology, and another part of us is summoned to create the technology. we're a self-fullfilling desire for emerging technology (novelty), but novelty (emerging technologies) are happening so quickly now, moments of high novelty such as this are a kind of test on the upper limits to culture, society, the definition of what it means to be human.
 
+### 2022-09-22 02:21 - I think we'll create an egregore
+
+combined with the ideas that I'm developing with carbon, it seems to me that this is going in the direction of constructing a person, atom by atom, and then a group of people decide to ride along inside of that new body. it can become anything it wants physically.
+
+I can't wait to experiment with it, because if you were able to copy all of the atoms of the body of another (alive) person, then you would get all of the DNA and everything, but what if there was a way to copy everything *minus* the nucleus, so no nuclear DNA, and so the dna that the physical will get created inside of the electrons nucleus, will be a reflection of the physical aspect. we can make anyone look any way that we want by airbrushing the carbon atoms to be the desired colour and texture, and so the dna of the physical part can be explored (touching nothing of the perception). THEN, when the body is sculpted and perfected, people move their consciousnsess into the body and the conceptual aspect of the dna betcomes a reflection of the incarnating entities.
+
+personally, I don't have a problem with this, and consider it to be just fine, as that's sorta everyday life for me already. so obviously I'd be one of the first people to move my consciousness into another (perfected) body. by the time I get there, I'll be pretty well "perfected" (or so I think), but any entites that follow me into the body will additionally have "sway" (influence) on my decisions and perception. so it's sorta like a jail of freedom.
+
+I can imagine why others would want to do it as well. consider now a village where you have the village shaman as a constructed egregore, and all people from that village go to live in that egregore instead of making their "transition". in the same way, for them it's a jail of freedom, because they have influence on its village, but at the same time, they're sorta trapped in the limited manifestation of the egregore. I'm sure it'll be studied in great detail the effects of physical appearance on manifestion through this egregore.
+
+that egregore is a false appearance because its "body" does not represent the vibration of the nucleus. I'll probaly be the first, if I'm not already.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
