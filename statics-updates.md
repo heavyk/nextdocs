@@ -49,3 +49,36 @@ I also imagine one of the first steps is to actually measure and enumerate the a
 [1]: I noticed that I had highlighted "all", and so looking at why, I noticed that the carbon frequency looks like a ball. so, it's likely to tune into some portion of the ball, but I think the true "centre" is probably a very very high frequency. along the way up to that frequency I assume there are (probably) going to be many other states of carbon that we don't know about yet. carbon itself may be really really high frequency, and potentially really wide spectrum. it looks kind of like a sun, so I don't know what will that lead to, cause I wonder if you could even got the centre because if you could, you'd be able to move around our own sun. which itself is a pretty interesting idea. all I'm saying is that when I looked at the frequency of a carbon, it's a very broad (continuous) spectrum, so keep digging when you find it, because I think there are significant discoveries to be made.
 
 [2]: imagine for a moment that it's impossible to ever get to that exact frequency of the carbon atom (because of its broad spectrum) so when you move around the carbon that you tuned to, it leaves behind the higher frequency version. I also wonder higher frequency is unfindable and so therefore unmovable. if that's true, then is the removed bottom part of the frequency still "entagled" with the parent carbon node? that sounds really useful. if you control the colour of a single carbon atom, that sounds like very HD screens to me. gatta get that monetisation going, you can literally see anything you want on a picture at full definition. so many products.
+
+### 2022-09-21 20:18 - each additional offset adds an extra dimension to the creation
+
+an offset as every time you're artificially in a different place/time (frequency) than you really are.
+consider that in the centre of everything is a really really really high frequency and very broad spectrum "original particle"
+out of which all other containers of that frequency
+it's only possible for certain things to be able to maintain a frequency range
+environment makes a lot of difference,
+the ones that are not affected (by env) are the "constant" ones
+
+I consider this to be the "source" out of which all physicality comes out of.
+I just think of it as an infinitely high frequency with a very broad spectrum
+each galaxy, star, atom, etc. is a continer (harmony with) source frequency in some way.
+we're all "entangled" with that original "source" particle (out of which all physical/3d vibration flows).
+
+all atoms are offset in space and time as resonant portions of a broader spectrum frequency that exists everywhere.
+an offset is what we call an exclusion.
+ ->it says, "I'm not the other frequencies--
+I'm 'this' -- *one*"
+(and all others are in relation me).
+I change when I feel like it,
+cause this is my frequency.
+
+---
+
+so I just find it really cool that when I say "worst", I mean max number of offsets, so max dimensions. you're going to love it. it'll be so beautiful. I'll pay for those offsets later and get another boost further. that's why I'm the "fastest" particLe.
+
+I'd also like to mention that I don't believe I'm the manifestation even. remember how I said that the alpha and omega determine the baseline energy level of the particle, and how that corresponds to solar regimes and atomic states, etc. well, if that's the case that means we're at the end of a solar reime now, which means that probably the arrival of that consciouss will be at the end of that, which I suspect is ~2048, so that means that "source" consciousness will come blazing through here at that time, and many others than myself can get it too. the real show will happen 1024y from then at the end of the next solar cycle.
+
+the more offsets,
+the more dimensions.
+it's going to be so...
+beautiful.
