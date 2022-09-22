@@ -38,6 +38,10 @@ I'm getting too abstract. I have to go. everything is fine. I did (sometime late
 
 peace
 
+### 2022-09-21 18:23 - dial in the frequency
 
+I'm reminded of the video where archer shows those dials where each one represents a decimal place (or something like that). if I were to find a way of delaying a series of mechanical oscillators at just the right times. when I said series, I meant a series of mos, where they're used as three different constant frequencies designed to produce the desired harmonics. by delaying one (or more) of the oscillators in the series just a little, it seems like it could dial in on just the right atomic frequency. we can't measure it anymore, but because of the calculations and expectations of the tolerances on the machines, the frequency can be calculated.
 
-well, it seems
+if somehow *all* of the carbon atoms move in sync with the system, then you've found the carbon atom frequency, and then to move individual atoms around, you'll have to "whip" them around, sorta alpha and omega style, setting their energy states, but a controlled demolition can (probably) be created to produce other atoms of desired type and do things like weld or mould something to another.
+
+I also imagine one of the first steps is to actually measure and enumerate the atoms by their frequential interactions, so you actually know what you're dealing with.
