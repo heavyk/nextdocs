@@ -46,12 +46,14 @@ one of the things that I liked about spanish is that gustar goes to something --
 
 so if you think about the opposite to that would be a language all about things coming *to you*, but probably to make things fun, when it comes to the opposite gender, we ned to go and get them forcefully (aun weor). I have a lot of ideas on it because the language should involve all of those aspects of anti-novelty as deeply inbedded in the language.
 
-well, maybe not doing the foreceful romance thing, so instead we should just see all things as coming to you if you're attracting them, leaving out the repelling force (like only one side of a magnet). I think that's a better compromise.
+well, maybe not doing the foreceful romance thing, so instead we should just see all things as only as coming to you (capitalise on the victim mentality), so that everything happening is your fault and you're attracting them, leaving out the repelling force entirely (like only having only one side of a magnet is a bit of a fallacy). I think that's a better compromise. why compromise? you can do what you want, but I gatta have the contrast. it's sorta like I live in this thread perhaps visualised as a timeline, and I'm sorta going around tirando al hilo till I've figured everything out (I have to figure everything out).
+
+a desire to figure things out is not granted by a language. you can only desire to figure things out when you want to figure them out. likewise, you only put the puzzle together when you want to put it together. most of the images are pretty boring to look at though so there's not much of a reward to put the puzzle together. instead you do it for how you feel finding the pieces and finding the spot for them. you desire the feeling, not the completed puzzle picture.
 
 ---
 
 looking at it again at second glance, I can see it clearly. it looks to me like they do have images, but these are memories, not what europeans would consider imagination. recalling a memory is different than creating in your mind, which is also different from allowing something to flow through you. the nice thing is that recalling a memory is sorta like the beginning process, but because the memory comes in so quickly we see the image of the memory instead of feeling that concept begin to flow through you. any concept can be "channeled" into anything from dance and sound to visuals. I think this is what they do in those ayahuasca ceremonies.
 
-so, it's just a transition away from wanting to see that memory. it's a letting go of the past so you can feel the concept in its native form rathar than the inferior (IMO) picture
+so, it's just a transition away from wanting to see that memory. it's a letting go of the past so you can feel the concept in its native form rathar than the inferior (IMO) picture form.
 
 memory -> feeling/concept
