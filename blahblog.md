@@ -5969,6 +5969,18 @@ I've been thinging about ways to how to try and explain this perspective, but un
 
 I know this may be kinda difficult for some people to even potentially try to imagine (such hubris, right?). along with this idea I get an cartoon image of two little boyx fighting. they have superhero costumes on and one boy says, "no, I'm the universe" and the other, "nuhuuh, *I'm* the universe! I said it first!"
 
+### 2022-09-22 20:40 - the feeling I get
+
+this started as a realisation then turned into a sort of statement or idea.
+
+I was outside stoned thinking about doing it *all* myself -- as in, literally do none of it (from your eyes) myself. so this is basically that I just keep writing my ideas here and remain in reality-kenny just doing what I do, and eventually it falls into place. what was interesting about that idea is that normally when we look at the question, it's perceived from the girls' perspective, which is not anything I have control over. I just really like ideas and want develop those ideas further. so you have desire expressed in the feminine form and in the masculine form. the masculine one, I suppose is a lust for concept while the feminine one is a lust for physical (and the beauty that comes with it).
+
+instead, this vision had a purely business sense to it. as in I wanted to turn the planet into some sort of "fun zone". however, that desire to turn the planet into a theme park is fuled with my desire to do it for money. they want to see what would happen if I were to go for a purely business approach to it (as in the girls are their dirty pleasure too, so they like the idea to see a wealthy entreprenur(?)).
+
+that of course was followed by an immediate realisation that when I'm stoned I pay a lot less attention to myself because in a flash, I was sitting outside there and there were other people talking to me. I noticed that as I sat there the stone made me less concerned about my facial image, at the same time it makes me much more noticing of my own image. I felt like terence mckenna for a moment and then I had a realisation that this is probably like a multi-offset sorta thing going on, because this is a pattern all of my life where I make these decisions to do something when I'm sober. it's never a good idea to do. trust me, those always turn out bad. if I want to actually do it, I gatta get serious and actually do it. I'm talking more of the other types of businessmen that don't drink. as an extension to abstinance to alcohol, it comes with a commitment to lucidity and constance.
+
+there was something that happened after that, but I don't remember now what it was.
+
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
