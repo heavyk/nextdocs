@@ -491,3 +491,18 @@ in one of xyla's videos she revealed the technique of lindsay(?) of taking all o
 so what if code did the same thing where it removed all of the code down to say the starting point you want to begin from. remove all of the code so that it just displays everything *minus* the feature (room) that's going to get rebuilt. you just copy and paste all of the deleted code back in. there could also be a reorganisation of the parts here between putting it back in.
 
 I was thinking about this for various aspects of my life more than just code. it's the same crap, but a little less of it and in optimised positions.
+
+### 2022-09-22 22:10 - language as an inhibitor
+
+@[youtube](https://youtu.be/R5cbxTPZNL0)
+
+listening to that song, I'm hearing how smoothe his voice and the sound is (obviously it was recorded there), and I start thinking about the nazi base and stuff there, and it occurred to me that they must be running a really good-feeling setup down there and argentina gets all of that extra energy coming from the south pole there. it occurred to me that the main difference between the technical advances made by the germans down there and compare it to argentina, it makes me wonder if the language is limiting factor on the energy.
+
+what I mean is, that energy will allow easy connection to their source, so the language (and culture) is used as a mechanism to restrict access to concepts the language can't express. I'm speaking more of symbols and syntax than nouns or ajectives.
+
+I've often wondered this about the spanish (and french) people, because their country emits such good energy, but I really do think it's a limitation on the language that restricts the expression of that energy easily. I know for example, how difficult it was to explain some LOA concepts, because the language is not at all built for expressing attraction in anything other than pure emotion -- which it is: you attract with your emotions, but the attraction isn't the passion. passion is the result not the cause.
+
+I noticed this all the time, and I don't really know why I say this, but especially with the peruvians, the energy in those mountains there must be really intense, but their language (imposed by the spanish) actually slowly prevented their culture from accessing a lot of concepts, just because the language doesn't support it.
+
+
+another good example of this kind of inhibitory processes, is for example in english is the word "feel" means emotion and also a physical sensation. the problem is, they're nothing alike. an emotion is so light that it's almost impossible to tell. they're tiny little impuses that cascade into a big physical effect. if they're caught as emotions really early on, the emotion doesn't make a physical sensation. therefore, the word feeling is directly misleading by getting you to think that "feeling" is a physical sensation, or a recognised manifestation of an emotion.
