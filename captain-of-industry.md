@@ -119,6 +119,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 - a query or overlay system to show machines that have not turned on in a period of time. this is useful for debugging because I often times don't see a pipe reversed direction or something stupid, so I don't know that the building isn't even running. it's also a good periodic check to go around the island and look for machines to be paused.
 
 - why no coal power plant?
+  - I know I can use a coal boiler to then put the steam into the advanced power generators, but most countries still run their power plants on coal.
+  - what I mean is, a discrete power plant building like the diesel generator where it inputs coal and outputs power and exhaust. thees would make really awesome backup generators (I guess this would be a good mod addition)
 
 ### design/upgrade planner mode
 
