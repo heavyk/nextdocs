@@ -57,3 +57,15 @@ looking at it again at second glance, I can see it clearly. it looks to me like 
 so, it's just a transition away from wanting to see that memory. it's a letting go of the past so you can feel the concept in its native form rathar than the inferior (IMO) picture form.
 
 memory -> feeling/concept
+
+### 2022-09-23 19:04 - event sheduling
+
+it occurs to me that another form of anti-novelty is the desire to shedule events. it's an interesting case because the anti-novelty version is wanting to shedule events for someone else, but the desire to shedule event for oneself is itself novelty because what kind of events are we talking about? are we talking about manifestations, or simple reminders like, "I want to remember X tomorrow and sure enough sometime tomorrow the thing pops into my head.
+
+inotherwords, the different forms of desire to produce events for oneself is itself another manifestation of novelty. it's also a bit of self-identity as well. in this case, the medium really is the message, because the reminder really is only as good as the mind can do.
+
+some are at setting remiders for theirselves better than others, cause like for example marc is just insane how he just produces metatasks and then everything just works out in autopilot, which he just gives out the reminders. what blows my mind is how he's able to just let his body perform the meta task automatically. I know it's a lot of practise to get used to it, kinda like typing, but even that for me is really hard. my body just doesn't do what I want it to do. it's like I'm a perpetual 1yo or so. I used to think it was annoying but not anymore, because it's one of the things that keeps me childlike. I really enjoy my imperfections. that's my secret, ya know.
+
+oops, that's the end.
+
+### tejidos diana and forethought
