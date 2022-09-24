@@ -68,4 +68,18 @@ some are at setting remiders for theirselves better than others, cause like for 
 
 oops, that's the end.
 
-### tejidos diana and forethought
+### 2022-09-23 19:42 - forethought and afterthought are both feelings
+
+think about it: before you think a thought, you have a feeling, and also after every thought you will also feel a feeling.
+
+yesterday when I was watching tejidos diana, one of the things that I noticed is that when she was speaking, she wasn't transmitting a mental image. for example when watching JD, when he talks, he also puts out a mental image of what he's talking about. I can't see it though, but I've begun to figure out his symbology and begin to "see" (more like know) what the other person is seeing. I think I started this trend with chris I think, and I've found it's a really useful thing for me to turn the other person's mental image into words. it's likely been stifled a bit because of nosebook, but apparently I can see others' astral image pretty well, even though I can't see it. well, I noticed that diana doesn't put an image into my mind.
+
+after looking into it, I came to the conclusion that she is probably using memory, and that's why I can't see it, because it's not on my frequency at all. however, I did notice a lot of other sensory input that wasn't visual. I didn't even know what she was making because I couldn't remember how the thumbnail looked, so for a long time I was trying to figure out her projection of what they're trying to create.
+
+I run into this alot actually, and it's because people are so busy looking at the picture in their imagination, they don't see the stuff that's not there. each and every bit in the imagination has a "cost" to its creation, but none of that is seen. instead, her way is similar to my own, in that she just jumps into the process of it, and let's what turn out to be what it is (that's the sense that I had). so, if the origin of that concept is actually memory, it'll be nearly identical (sizes and yarns may change, but it'll be pretty similar).
+
+if that's memory, then I have the same thing; I have reality-kenny -- which is just the guy that jumps into the process and just figures out how to get there. I perceive him as invincible, and I can just like throw him into situations and he finds a way out. I don't worry too much about all of the details; I just follow the steps according to memory. I'm reminded of an event where I took the battery out, not because I had to, but simply becase that's how I remembered it being done. I didn't question it. I just did it.
+
+so, really this upgrade is sorta to exist in that forethought and afterthought universe. you know I don't really control many of my thoughts anymore. thoughts come and I just sorta find ways to feel good about them. living almost excclusively in that zone between thought, I find myself constatntly feeling good or bad about what I just said, but mostly I'm just listening to myself talk, because that's a major source of feeling good about the recognising some enlightening thing I just said; it's kinda a drug.
+
+it's kind of a new way to think honestly, where I just let the situation work itself out just how I feel about it.
