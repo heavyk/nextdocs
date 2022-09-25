@@ -462,4 +462,4 @@ so, for example, I want to sit down and write this, so I do. then, within the th
 
 you know that for a child, the entire word refelcts how they feel, and so, everything that appears in your reality is just magical, so trying out different emotions just the fun of it. you know, I did this a few times today where I repeated a character but put my sincerity into it, just to see how weird it felt for me to do an "attention whore" techniques or whatever. I just play around with characters just like a child does.
 
-anyway... so, I was talking about getting good at following my impulses, so I just don't understand what is the problem to understand that I just always to "minimise your impact", because making a big splash isn't necessary. I already do it naturally.
+anyway... so, I was talking about getting good at following my impulses, so I just don't understand what is the problem to understand that I just always to "minimise your impact", because making a big splash isn't necessary; I already do it naturally.
