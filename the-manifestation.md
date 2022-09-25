@@ -481,3 +481,11 @@ OK, now see the difference in perspectives now that the music changed, it'll be 
 how are the arcturian tyrants[^1] treating you?
 
 [1]: this reminded me of the sound of kyle's voice at ty's rants: ty-rants
+
+### 2022-09-24 22:38 - a brief description of my persona
+
+I'm a cosmic foot-dragger. some people that drag their feet can never change. others change on occasion. the difference beteen both of them and me is that I'm always changing. in a realm where change is everything, the one that changes the most often has the highest "novelty". I have to constantly look at the worst possible thing I can think of -- however, over time my opinion on it improves.
+
+---
+
+tengo que tomar el tiempo a modo constante. hay personas que tambien lo soy, pero ellas no se cambian. yo en contrario a los demas que no quieren cambiar, yo lo prefiero porque in una capa de existencia donde el cambio is lo normal, el que cambia mas lo mas que los demas, es el que tiene lo mas novelty. todos los cambios pueden ser grandes or pequenos igual. lo que pasa is que tienen que pasar mas y mas (accelerado) cambioas por segundo/minuto/loquesea. cambio is lo normal. intenta manejar a velocidad pequena para empezar
