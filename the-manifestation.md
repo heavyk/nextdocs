@@ -478,4 +478,6 @@ so then now imagine it from a programmer's perspective which is that the japanes
 
 OK, now see the difference in perspectives now that the music changed, it'll be something like that, where the grinding (lovebites) will be american thought and the new (magnetik one) will be clearer.
 
-how are the arcturian tyrants treating you?
+how are the arcturian tyrants[^1] treating you?
+
+[1]: this reminded me of the sound of kyle's voice at ty's rants: ty-rants
