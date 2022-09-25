@@ -463,3 +463,19 @@ so, for example, I want to sit down and write this, so I do. then, within the th
 you know that for a child, the entire word refelcts how they feel, and so, everything that appears in your reality is just magical, so trying out different emotions just the fun of it. you know, I did this a few times today where I repeated a character but put my sincerity into it, just to see how weird it felt for me to do an "attention whore" techniques or whatever. I just play around with characters just like a child does.
 
 anyway... so, I was talking about getting good at following my impulses, so I just don't understand what is the problem to understand that I just always to "minimise your impact", because making a big splash isn't necessary; I already do it naturally.
+
+### 2022-09-24 21:23 - wierdness funnel
+
+I want to talk about a really strange topic that crossed my mind while I was stoned is that imagine I just decided to just invite lovebites to colorado, and then just see what happens from there. that's the [being responsible for my reality]() part there where I'm saying I'm responsible for the manifestation. on a side note, I do like to think that is sorta my fault. it's sorta natural in us, and we have to realise that it *is* all my fault, and that I attract everything. so whatever, let's just say that it happens somehow...
+
+when that idea came into my mind, I noticed that it put a huge dampener on the imagination of the manifestation from the western mindset. I wanted to explain the weirdness of it.
+
+imagine that's the case, you'll then have to see it from the girls' pespective in that now she has to live up to the expectations of something very different. girls learn, and so what'll end up being recorded will be funneled through japanese perception. well it be traditional? will it be funny? is it beauty? cuteness? they have no idea what to expect.
+
+so then now imagine it from a programmer's perspective which is that the japanese perspective will encode the experience, and so forevermore western consciousness will directly influence and be influeced by each other. they obviously have different things in place which are keeping them to their traditions. so, kinda like "in general" for western thought, but american thought will be expecially optimised to blow/flow right through the conceptuaal barrier pretty easily/quickly because of the reasons jason says from the bomb.
+
+[music change]
+
+OK, now see the difference in perspectives now that the music changed, it'll be something like that, where the grinding (lovebites) will be american thought and the new (magnetik one) will be clearer.
+
+how are the arcturian tyrants treating you?
