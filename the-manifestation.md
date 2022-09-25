@@ -466,7 +466,7 @@ anyway... so, I was talking about getting good at following my impulses, so I ju
 
 ### 2022-09-24 21:23 - wierdness funnel
 
-I want to talk about a really strange topic that crossed my mind while I was stoned is that imagine I just decided to just invite lovebites to colorado, and then just see what happens from there. that's the [being responsible for my reality]() part there where I'm saying I'm responsible for the manifestation. on a side note, I do like to think that is sorta my fault. it's sorta natural in us, and we have to realise that it *is* all my fault, and that I attract everything. so whatever, let's just say that it happens somehow...
+I want to talk about a really strange topic that crossed my mind while I was stoned is that imagine I just decided to just invite lovebites to colorado, and then just see what happens from there. that's the [being responsible for my reality]() part there where I'm saying I'm responsible for the manifestation. on a side note, I do like to think that *evverything* is sorta my fault. it's sorta natural in us, and we have to realise that it *is* all my fault, and that I attract everything. so whatever, let's just say that it happens somehow...
 
 when that idea came into my mind, I noticed that it put a huge dampener on the imagination of the manifestation from the western mindset. I wanted to explain the weirdness of it.
 
