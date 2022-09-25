@@ -472,7 +472,7 @@ when that idea came into my mind, I noticed that it put a huge dampener on the i
 
 imagine that's the case, you'll then have to see it from the girls' pespective in that now she has to live up to the expectations of something very different. girls learn, and so what'll end up being recorded will be funneled through japanese perception. well it be traditional? will it be funny? is it beauty? cuteness? they have no idea what to expect.
 
-so then now imagine it from a programmer's perspective which is that the japanese perspective will encode the experience, and so forevermore western consciousness will directly influence and be influeced by each other. they obviously have different things in place which are keeping them to their traditions. so, kinda like "in general" for western thought, but american thought will be expecially optimised to blow/flow right through the conceptuaal barrier pretty easily/quickly because of the reasons jason says from the bomb.
+so then now imagine it from a programmer's perspective which is that the japanese perspective will encode the experience, and so forevermore western consciousness will directly influence and be influeced by one another. they obviously have different things in place which are keeping them to their traditions. so, kinda like "in general" for western thought, but american thought will be expecially optimised to blow/flow right through the conceptuaal barrier pretty easily/quickly because of the reasons jason says from the bomb.
 
 [music change]
 
