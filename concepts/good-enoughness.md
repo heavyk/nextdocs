@@ -1,0 +1,9 @@
+# good-enoughness
+
+good-enoughness happens when you have too many manifestation opportunities, and trying to find something unwanted isn't working anymore. so, I swich over to finding something I like about each manifestation so that like parts comes together more seemlessly. the process is simple: every manifestation probability, you find things that you like about the manifestation. that amplifies that aspect of the manifestation, so that now because that concept has a stronger signal, let's say that there are two groups that are far apart, but conceptually they have some similarity, so they begin to attract each other until they realise there's no difference between them and the other. they still retain their individuality, but no single individual is enough to remove theirself from the mutual attraction. this is how "the many become one" -- such as molecules, cells, persons, etc.
+
+#### possible implementation in organisations
+
+it kind of interests me now to think about how this relates to modern corporations. the reason why I say is that this cohesive force isn't really recognised, and I think that this force is ideological. this is why "when many are gathered together in the same name" (the effect is more powerful -- like a corporation: everyone at google is gathered together under the same name: google)
+
+OK sorry for the derail. now, let's apply this concept of good-enoughness to a country or a corporation: everything that anyone wants to is segmented into parts, and each part gets its own stamp of approval, but the idea is always permitted (unless some condition?). this allows people to follow their good ideas, but at the last, there is feedback on some of the bad ideas. the fact of allowing (though not perfect), brings togethed a conceptual cohesion that an atom or whatever has. when it looses that conceptul cohesion, it *decays* and splits into other different things.
