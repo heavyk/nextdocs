@@ -50,8 +50,65 @@ on the symbolic level this is the beginning of the descent into pure materialism
 
 ---
 
-OK, now let's look at the characters now that we can see that this story is a symbolic bridge between two timelines. on one side you have hamlet (black madonna/puma dynasty) and you have fortenbro from the tribe of dan. hamlet is black and dan is red (I'm saying it like this, so that you can see the resonances with WW1/WW2), and the black one has died (5d) and only the appartion of him (4d) by some people. the more that he is described, the more this apparition becomes real. they're essentially summoning an egregore here.
+OK, now let's look at the characters now that we can see that this story is a symbolic bridge between two timelines. on one side you have hamlet (black madonna/puma dynasty) and you have fortenbro from norway (the white). hamlet is black and dan is red (I'm saying it like this, so that you can see the resonances with WW1/WW2), and the black/red one has died (5d conceptual entity) but an appartion of him (4d) can be seen by the people when they get told the story about him. this required to get the (materislistic) scholars to believe in something that isn't material (until he is, of course). the more that he is described, the more this apparition becomes real. they're essentially summoning an egregore here.
 
 so now, keep that in mind, because devere (I believe) and bacon had a huge influence on the KJV and the summoning of the future egregore of this millenial christ.
 
 so look at it this way ham/puma dies and now has to be resummoned, but instead of just as an apparition (like jesus was said to have appenared to the apostles, or completely as images, according to steiner), so so if you combine steiner's work with hamlet, you'll see that they're now summoning this spirit in *everyone* rathar than just the appropriate bloodline/DNA type -- and the way that they're bypassing the genetic barriers (phsical) is appealing to us on a symbolic (belief) way, and so that if sufficient belief+desire (expectation), then the egregore will appear (as everyone), cause it's just a story; it's novel folklore. you create and then summon your own archetypes through the symbolic telling of stories.
+
+### characters
+
+the backdrop is that there is an increase in armourments between the two nordic countries (black is about to fight red)
+
+-  (old) king hamlet of danmark
+  - king of danmark.
+  - defeats fortenbro in battle but then later dies in his garden.
+- (young) prince hamlet of danmark
+  - acts like a teenager but is about 30yo
+  - does not get the throne. instead his uncle (king hamlet's brother claudius) gets the throne.
+- king claudius of danmark
+  - brother of king hamlet.
+  - for some reason the son of king hamlet is not the king, but instead claudius is.
+  - king of norway.
+  - seen by (young) king fortenbro as the weak link
+  - writes to old norway to tell him to get (young) fortenbro in line.
+
+- (old) king fortenbro of norway
+  - lost a lot of property and took a lot of damage from (old) king hamlet.
+- (young) king fortenbro of norway
+  - wants to restore the powerful name (of his father/country/corporation), so he wants to put denmark down a size
+  - has an uncle old norway
+- old norway
+  - impotent and bedrid
+  - really runs the country
+
+- lairties
+  - ready to go to school (become a scholar)
+  - just needs the coronation
+
+- horacio
+  - young scholar that knows latin and will talk to the ghost of king hamlet.
+  - scholars (the educated) don't believe in ghosts.
+  - horacio is also introduced into the scene as if he is already one of these sorts of schollarly egregores:
+    - he's only here in material body (a piece of him), but the rest (conscious part) of him is gone somewhere else.
+
+### interesting things to note
+
+- the ghost of king hamlet (black madonna) disappears when the cock crowed.
+  - if I combine this with steiner's ideas, you'll notice that the cock crowing was a pinnacle moment, because up until peter was unable to recognise jesus. jesus did not look the same enough for peter to be able to recognise him. I see the "betrayal" event as the beginning of the apparition of king hamlet", and so it's symbolic of the beginning of a *new day* (solar reference) and also the apparition of king hamlet (what we thought was jesus/hamlet/devere) will fade away the beginning of the new day (when the cock crows). it's a full day of spiritual darkness where we only see the material, and no longer the spiritual (true/conceptual essence of the thing).
+  - on chrismas, the cock crows all night long and so therefore no ghosts (king hamlet) can appear on those days.
+    - not quite sure what this means, but if I had to guess, I would say it has to do with belief. on christmas, we believe in things like santa claus or other such things, and so on those days, what we believe is real.
+      - I'm sorta reminded of a the-tick episode where the static electricity santas are causing trouble, so tick has to find a way to get others to believe that santa *is* real, so that he can get rid of the static electricity (egregore) santas.
+- prince hamlet describes his depression with the world as an un*weeded* garden.
+  - why would you want to *weed* your garden?
+  - he describes denmark (red) as a garden that does not yet have enough weeds in it, that *turns to seed* (I think this is a temporal marker, "prophesying" that the red ones turn to seed, being unable to make king the black one (hamlet)). this, I believe describes future events where more of the red ones become as like weeds (these are oportunistic reproducers that thrive in difficult environments). with the obvious end goal to be to use that seed as the germination poing of the return into corporeal form (old) king hamlet.
+  - another thing to note is that in the same speech he explains the other half of that as his mother's sudden swich over from king hamlet to claudius. so, if the female bloodline is the source of this perception, then gertrude switching over to claudius is the way that those (female bloodline) seeds are sown.
+- king hamlet is the successful one and claudius is the demiurge that prepares everyone for the reappearance of king hamlet.
+- in the same way fortenbro is the successful one and old uncle norway is the demiurge (both hamlet and fortenbro self-sabotaged)
+
+
+### hyperion and satyr vs hamlet and claudius
+
+I find it interesting in this analogy that hamlet is contrasted with hyperion, which was one a *titan* (like prometheus), and also she's a woman (actually, I just looked on wikipedia and it says that hyperion is saturn's *brother*, but I thought she was like diana, associated with hunting). anyway, claudius is compared with hamlet in the analogy as a goatman (capricornus), the christmas diety, but is androgynus and doesn't have a gender. also considered a trickster. IMO, this is the way that skakespere is kind of setting up that claudius is the demiurge installed by king hamlet himself to turn the garden (which he died in) into weeds.
+
+
