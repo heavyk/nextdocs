@@ -539,3 +539,9 @@ so, you know how emotions work right? they're these imperceptable (to our eyes) 
 your body attracts these things to it. I think we think of the signal pain as the vibration that attracts a lot of low frequency 5th ray concepts into it (which then is received by the brain as signals -- some *higher* and some *lower* depending on the receiving entity cell, etc and the vibration it attracts from the ether).
 
 as such, there is a very big difference between the emotion and the vibrational cascade that comes from it's attraction which our brain receives as a signal and we perceive as pain, touch, etc. you attract everything you feel. the better you get at attracting, the better you feel. it's just that simple. good implementation takes a lot of practise.
+
+---
+
+I would also like to mention that this is the opposite of how you think of atoms and what I'm talking about with "masculine energy", which is just vibrating balls that have a power state. well, that's the exact opposite of what I just discussed above. I discussed emotions from the 5th ray, and the "masculine energy" concept from the 3rd ray perspective. I'm getting better at switching, so as to be able to talk about something from its native (self) perspective.
+
+like, for example, if I talk about emotions from a 3rd ray perspective, it's obvious that different things in the 6th ray imagination are attracting particles of similar vibration, and the cascade that results in response to that attraction is the physical sensation of the emotion.
