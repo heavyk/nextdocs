@@ -527,3 +527,15 @@ I felt like I had something that I needed to discover. once I've discovered it, 
 ### 2022-09-26 09:00 - haven't drank the coffee yet
 
 I'm also reminded of an idea that I had this morning when I woke up, which was just to sorta *try* and see if I can evitar (slightly different than avoid) the manifestation a little by putting a few of those concepts into visual form and sending them off to derek. I don't really know why that thought amused me so much.
+
+---
+
+because that sounds like so much work to do now. obviously now I'm stoned, but when I woke up, I was not. certain states inhibit realities that would produce undesired emotional states. though it looks like I enjoy them physically, I prefer to avoid those situations vibrationally. when I'm stoned, I navigate vibrationally, so I don't have access to the really soft voice.
+
+---
+
+so, you know how emotions work right? they're these imperceptable (to our eyes) tiny vibrations that cascade into a big thing (like a cosmic ray), they sort of crechendo into the imagination and physical senses (this is all done in the imagination), but the source of these emotions comes from the 5th, not the 6th astral. *higher* vibrations will appear as images and full cinema surround, and *lower* ones appear as pain or physical sensation. between those is all of the emotions and concepts that you can possibly imagine.
+
+your body attracts these things to it. I think we think of the signal pain as the vibration that attracts a lot of low frequency 5th ray concepts into it (which then is received by the brain as signals -- some *higher* and some *lower* depending on the receiving entity cell, etc and the vibration it attracts from the ether).
+
+as such, there is a very big difference between the emotion and the vibrational cascade that comes from it's attraction which our brain receives as a signal and we perceive as pain, touch, etc. you attract everything you feel. the better you get at attracting, the better you feel. it's just that simple. good implementation takes a lot of practise.
