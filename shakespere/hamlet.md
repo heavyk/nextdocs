@@ -31,3 +31,27 @@ it also means that the whole rest of the story (of which I noticed a few jesus r
 I'll keep watching.
 
 AH, by getting horacio to believe that the ghost is "real". makes sense.
+
+### 2022-09-26 11:15 - ideas on the characters
+
+@[youtube](https://www.youtube.com/watch?v=v8gx2A5Q53c&list=PLIlatssdqY5PbkXkQyvFVTaDUd8LC_4vo&index=2)
+
+as he's talking about the characters in the play, I finally see it. so king hamlet of danmark is symbolic of jesus. this I think is a way to dupe people symbolically into believing a different thing happened.
+
+so, just to back up, I subscribe to the thing that terence saw where he saw that on one timeline jesus was successful, but on the other one, the demiurge took over the jesus' timeline. I've since learned that is one way to look at another concept I call self-sabotage. therefore, the way that I look at it, jesus was successful in the timeline, but in order for the "demiurge" to show up and take over jesus' body at the end, one must self-sabotage.
+
+for jesus, that was to essentially remove all of his positive influence on society by the introduction of more "demiurge" egregores and such (for example what I think the antarctic breakaway civilisation is, amongst other things). in short, to self-sabotage, you have to essentially create a demiurge version of yourself. this creates the counter-balance for the novelty in the form of anti-novelty.
+
+so, what I'm seeing in the setup of the characters is that the rennaissance was a high point in culture were they could merge their timeline with ours, as long as there are enough anti-novelty producers. these anti-novelty producers constructed the mechanistic materialistic realities that we're in now. in order to do that, old king hamlet died, and fortenbro has to take over the thing.
+
+now, if you read this in the context of devere as hamlet and that the tudor dynasty is the last of the group decended from the ham (black maddona, the dark woman). and so by elizabeth not allowing the progeny of the tudor/ham dynasty to continue rulership, I think devere moved that form of perception into something that is transferred between men and has initiation rites to it.
+
+on the symbolic level this is the beginning of the descent into pure materialism, where the feminine force is no longer needed. devere and the cathedral builders wanted to spread that feminine (emotional) energy all over the planet. it's also a self-sabotage on many of these others parts. each time you self-sabotage, you do so by creating your own nemesis to defeat your efforts, until you're no longer able to de defeated by yourself. OK, you don't want spirit? let's go full materialism then, here you go, how's decarte?
+
+---
+
+OK, now let's look at the characters now that we can see that this story is a symbolic bridge between two timelines. on one side you have hamlet (black madonna/puma dynasty) and you have fortenbro from the tribe of dan. hamlet is black and dan is red (I'm saying it like this, so that you can see the resonances with WW1/WW2), and the black one has died (5d) and only the appartion of him (4d) by some people. the more that he is described, the more this apparition becomes real. they're essentially summoning an egregore here.
+
+so now, keep that in mind, because devere (I believe) and bacon had a huge influence on the KJV and the summoning of the future egregore of this millenial christ.
+
+so look at it this way ham/puma dies and now has to be resummoned, but instead of just as an apparition (like jesus was said to have appenared to the apostles, or completely as images, according to steiner), so so if you combine steiner's work with hamlet, you'll see that they're now summoning this spirit in *everyone* rathar than just the appropriate bloodline/DNA type -- and the way that they're bypassing the genetic barriers (phsical) is appealing to us on a symbolic (belief) way, and so that if sufficient belief+desire (expectation), then the egregore will appear (as everyone), cause it's just a story; it's novel folklore. you create and then summon your own archetypes through the symbolic telling of stories.
