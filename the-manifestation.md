@@ -523,3 +523,7 @@ then, I must also relate that this event came upon a strong realisation, that it
 I was explaining yesterday that the reason why I have to do that is because I have to be stable. I can't have too many big things happening at once. I have to go for steady (nothing ever feels too big) NLS. I have many reasons, but I'm not very stable on drugs or alcohol, so I'm going to steer clear from those things. you perhaps can look at it this new way that I'm doing it now.
 
 I felt like I had something that I needed to discover. once I've discovered it, then I want to "hang up the phone". I'll inevitably come back to it in a future stage, I'm sure, but for now this is good. I've got to start to think of myself as the "constant one". thankfully, in a worst case scenario, I'm returning back here in some months anyway... lol
+
+### 2022-09-26 09:00 - haven't drank the coffee yet
+
+I'm also reminded of an idea that I had this morning when I woke up, which was just to sorta *try* and see if I can evitar (slightly different than avoid) the manifestation a little by putting a few of those concepts into visual form and sending them off to derek. I don't really know why that thought amused me so much.
