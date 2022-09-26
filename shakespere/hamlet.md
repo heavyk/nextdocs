@@ -111,4 +111,40 @@ the backdrop is that there is an increase in armourments between the two nordic 
 
 I find it interesting in this analogy that hamlet is contrasted with hyperion, which was one a *titan* (like prometheus), and also she's a woman (actually, I just looked on wikipedia and it says that hyperion is saturn's *brother*, but I thought she was like diana, associated with hunting). anyway, claudius is compared with hamlet in the analogy as a goatman (capricornus), the christmas diety, but is androgynus and doesn't have a gender. also considered a trickster. IMO, this is the way that skakespere is kind of setting up that claudius is the demiurge installed by king hamlet himself to turn the garden (which he died in) into weeds.
 
+before the shoes that she wore to the funeral got scuffs on them, she's already making out with claudius. this reminds me of cinderella story for some reason (as in, the opposite of cinderella: marriage/funeral, shoes)
+
+prince hamlet says, king claudius is no more like my father than I am to hercules. prince hamlet is relating himself with hercules, you know the guy with the 12 labours (around the zodiac), the mithras type figure that turns the celestial clock.
+
+this is further reinforced with the idea that king hamlet passes on the torch to hercules, but claudius passes on the torch to prince hamlet.
+
+### lairties, ophelia, and polonius
+
+lairties, his sister ophelia, and his father polonius. it's important to note that hamlet/denmark foght wars against norway and poland. therefore poland is the ooposite to norway. we have a few triads here. the main triad is norway-denmark-poland with each part represented by theirselves yfortenbro-ofortenbro-norway, yhamlet-ohamlet-claudius, lairties-ohelia-polonius (respectively).
+
+I also would like to mention that the name polonius, though is obviously a reference to poland, also reminds me significantly of pluto/hades, which is also hercules' uncle. so just keep this in mind when we're talking about pluto, his sister ophelia may have something to do with selene, but I'm not yet sure of her significance.
+
+anyway, in the conversation with prince hamlet, ophelia tells hamlet to^
+
+    Do not, as some ungracious pastors do,
+    Show me the steep and thorny way to heaven;
+    Whiles, like a puffed and reckless libertine,
+    Himself the primrose path of dalliance treads,
+    And recks not his own rede.
+
+- don't be like the ungracious pastors
+  - pastors are references to the kings in sumerian times. the pastored the field
+    - this was a big deal during the transition from nomadic (hunter gatherer) type people to agrarian, where now the people are plowed and sown into rathar than herded around like flock.
+    - this is a contrast to prince hamlet that did not get the king/pastor position
+- *don't* show me (ophelia) the thorny and bumpy path to heaven
+  - pastors lead their flock, so she's saying that prince hamlet will lead her to heaven, but don't she doesn't want the uncomfortable route there.
+- whiles, like a puffed and reckless libertine
+  - wiley is very anxious and free (supporting the libertine description)
+  - whiles means taking a long time, waiting -- a foot dragger.
+  - puffed and reckless is a sort of hawty or hotshot attitude to the issue,
+- (hamlet) himself, the shining example of a dilly-dallier on the path (he travels the road slowly, foot dragger)
+- and still manages not to wreck not his own reed
+  - (zech, rev): "and I was given a reed as unto a measuring stick so that I might measure the dimensions of heaven"
+
+so here we have hamlet comparisoning himself to hercules, and all kind of other symbolism that corresponds pretty well.
+
 
