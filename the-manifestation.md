@@ -579,3 +579,7 @@ I'm just brainstorming here, trying to relate the things that I saw, because in 
 what this second idea reveals is that earth becomes a sort of "proving ground" where you start on the 7th ray (physical) reality and then through a series of initiations, you begin to work your way up the reality ladder and eventually off-planet. earth becomes the centre of a whole bunch of stars and planets -- so sorta like a galaxy :) gatta have that galaxy...
 
 I left a few parts out, but one can see that this is the perfect way for us to put the increasing solar energy to work while maintaining a "business as usual" nothing extraordinary is happening here, and you're definitely not special sort of mentality for the uninitiated masses, meanwhile all of the big shots all can work really hard creating a plethora of different system for theirselves and for other species (of which I'm very interested in creating and evolving) to live upon.
+
+---
+
+the other option, of course is to maintain "business as usual" for the whole duration of the next solar year (1024y) and wait for the sun to explode. that's probably something like a quasar or something really tremendous, and with such a 3 moon regulated setup, we could potentially really go for the biggest explosion yet (really go out with a bang). anyay quasars eventually turn into galaxies anyway, so the deciding factor is probably fear of death.
