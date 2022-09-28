@@ -5981,6 +5981,113 @@ that of course was followed by an immediate realisation that when I'm stoned I p
 
 there was something that happened after that, but I don't remember now what it was.
 
+### 2022-09-27 18:56 - thinking some things out loud
+
+while over working at sesily's place, I had a lot of ideas that I wrote down on my phone. the first few are from saturday, and I tried to write about them while I was stoned, but my brain couldn't get on the frequency. it's really hard to talk about reality stuff when I'm stoned, so I'm going to attempt now. oldest ones first.
+
+
+#### you can't control what I attract
+
+this thought is in response to @[the-manifestation](2022-09-24 08:06), where I was talking about going at it my own way. this thought ties in with a future subject. in short, what I'm trying to say is that no matter what anyone wants for me, they can't affect my attraction, so if I'm wanting to tank the manifestation a little longer because I still don't feel good, that's what I'm attracting and there's nothing that can be done about it.
+
+related to this idea, today I was feeling some people's desperation on the idea that I made up my mind to leave and go somewhere else. there is a lot of dissatisfaction around it, and that's a good thing. there are two basic ways to evolve a manifestation, and that is to be either satisfied with it and find out aspects that I like which then amplifies those (good-enoughness) or, to be dissatisfied with it, and allow it to turn into something more satisfying.
+
+if you "just let yourself be" (no dissatisfaction or satisfaction), it'll be the default manifestation. want something different, go for dissatisfaction; want more of something you like, give your attention to that.
+
+#### conspiracy theory: what if tesla externalised his feminine thought into nosebook/breakaway civilisation
+
+I combine these ideas (nosebook and breakaway civilisation) because I believe that a number of different egregores were created back in the 1800s which then rose to power around the turn of the century and these became major people on the nazi party, which then many of them were imported into the USA (paperclip) to become what is the "military industrial complex", the real people that run nosebook.
+
+I believe that everything from the grey aliens to the 98% (or more) of the nazis that went down to antarctica were egregores, probably created by tesla (or me), for the explicit purpose that eventually I'll find myself in this situation that I am in now. please see [a future entry I'm going to write]() for full details, but essentially, the whole goal I noticed after the smoke has cleared now, is that the whole point of all of this is to actually make the masculine energy a real thing.
+
+I have a very different opinion about what masculine energy is like, and I find it a whole lot more compatible with myself than the feminine way of doing things (hierarchy, power structures, secrets, and asymmetry of knowledge of information). you'll hear me talking about this more and more as time goes on, because I saw the energy concept, and not only can it be applied to human behaviour, but it's also technology. I really think that's the whole point of all of this.
+
+---
+
+so, then the rest of the conspiracy theory is that since he externalised his feminine side into the physical installations of the USA military industrial complex and the antarctic breakaway civilisation, we're literally fighting against our own perception of the feminine nature of things. it's hard to explain this concept, so I'll try. the feminine part of your brain is the part that's responsible for coding the vibration you receive into reality you experience. this is why the female bloodline is so important, because it's basically the graphics card. the masculine side is kinda like the CPU. it's analytical, and it takes in information and processes it into symbols and concepts, meanwhile the feminine side turns it into desire and physical reality. you're always fighting the manfestaition of your own desires (whether you're conscious of it or not) in physical reality. everything is a reflection, and they get perceived through the symbols and concepts that you decide are "real", "valid", or "truth".
+
+so then, you have to imagine that the breakaway civilisation and the imported paparclip egregores, are just a reflection of the symbols that they're presented with. just like a graphics card; you put in a 3d model of a some symbol, you expect to see that symbol manifested into 3d space. inotherwords, the pupetmasters are then ones telling the GPU what 3d models to load up and defining their logic. they're always going to be a reflection of the symbols' and concepts' vibration.
+
+so, then, the next part of the conspiracy theory is to externalise tesla's the masculine side into human form. now whether I'm the only one or not is unclear (anyone can tune into anything, so everything is possible), but the idea is that I represent that. my goal/job/mission is to figure out that masculine energy and sorta "set the baseline" for those set of symbols. I already see this happening all the time now. there are a lot of people that have difficulties with women, but I do not. people seem to be very interested in why I don't seem to have much of an issue, and that largely has to do with the implementation of masculine and feminine energy. I use both, but I'm limiting myself more and more to using only masculine energy.
+
+we already know it's possible to use feminine energy to get expanded vision and all sorts of other things, and those are a function of desire and physical conditions, but I'm demonstrating that the physical is *subject* to the conceptual and symbolic planes of perception. conceptual trumps them all, because concept is your steering mechanism. so is symbol, but not to the same extent because a symbol is a symbol (like "nice guys finish last") but a concept is just a definition, and if I can find a way to feel good about "nice guys finish last" then I'm very happy to be last (whatever that means), and that's perfectly fine. the manifestation will hinge around me finishing last, but it'll be what I *want*. symbols are just symbols, but perception is *everything*.
+
+physical conditions aren't super powerful (as i've demonstrated), but desire is quite powerful. desire is just desire, and *anything* harmonious with that desire can manifest, but if you don't have a concept of what you like or dislike, these manifestations are all "contrast" to help you build up the concept/feeling of what you want. you can see that both physical conditions and also desire serve as the gas pedal, meanwhile symbol and concept relate to the steering wheel.
+
+masculine energy is all about tuning to the concept and symbol that you want, and then *letting it come to you*, not going out and being assertive like physical/desire is. it's entirely passive. you may think of the most stable masculine energy as a stable isotope atom. completely 'inanimate", drawing near to it exactly the things that resonate with its vibration. add consciousness into that, and you get something amazing.
+
+trust me, you don't need good graphics to be able to use masculine energy effectively. my example will forever change the way masculine energy is perceived. I think that's the point.
+
+#### conditional-time-straighteners irony
+
+this was a fun thought, because just imagine for a moment that you're a conditional-time-straightener, and your job is to "improve the past". so, for example, imagine you had to find a way to alter history so that this manifestation happened *not* because I smoked weed, but somehow I was steered in the direction of a symbolically similar manifestation that didn't involve some of the taboo concepts (like drugs)...
+
+this is almost certainly going to happen. the version of things that is happening right now, *definitily* won't be perceived the same way in the future. lots and lots of things will be moved around so that from the public's perspective, it's just "business as usual".
+
+I actually believe that one of the aspects of this technology is that completely artificial environments can be created. imagine when they're able to suspend countless carbon atoms in the atmosphere, "stars" just become carbon atoms in a high energy state, and so the sky can look however we expect it to be. what I'm saying is, I want to develop this technology so that the pupetmasters can get a setup going on this planet, so that everything looks entirely normal by the end of the solar year (1024y). inotherwords, I want them to try and pretend that it's "business as usual" all the way up until the end of the next solar year. here on earth, it'll look like there is the regular old moon and all the old stars in their correct positions, but these are all just carbon atoms. behind all of it, the sun is raging, but we don't know it; everything appears as if it's normal here. in fact, nothing really major happened at all.
+
+I want to take the materialistic delusion out to its limits. I'll explain why in the future, but the simple answer is, to create an environment that looks "normal" but the sun's intensity is so strong (everybody is protected from the heat), but LOA is so strong, you'll either need to be attracting very slowly (the buddhist way of little desire), or you're really good at attracting what you want. I want to go full masculine.
+
+anyway, now let's look at the conditional-time-straighteners irony again: they're going to work really hard to remove all of the taboo conditions and remove all of the feminine (solar) energy out of the equation. they're using conditions to create other artificial conditions. they don't know yet, but they're going to have to find a steady and balanced (4th ray perspective) to it, so that contrasts are never too big. they think they want a big manifestation, but they'll find out that actually, they're going to want to alter peception of all past events so that they seem as much NLS and not a big deal at all -- just "business as usual".
+
+#### I am the biggest hypocrite
+
+I readily tread this path. I'm often times reminded of terence when he said, "I need a society on the brink of disaster to do what I do", and I'm the same way. as an example, the conclusions that I've come up with on how to feel good and feel the way I want to are useless to a child that already feels good or an adult that can use conditions to feel good. I require them to be in the brink of disaster for them to give value to anything I said. jesus said the same thing about rich people, because it's the truth that what I'm saying only works if you don't have good conditons. so then, where is all of this heading? right toward a manifestation where I have good conditions.
+
+personally, I won't be able to take myself seriously anymore, because I don't need to worry about what I'm attracting. I can just rely on desire and physical conditions for my well-being. I really hate this idea. I can't stand the idea of being a hypocrite. you'll notice how much I alrady struggle with this already, because just cause I can tell someone the rules of the game, that does *not* mean I'm very good at the game. I'm constantly talking about stuff that I know and can see pretty clearly, but have very very little practise on. I don't intend for it to stay that way, which is why I'm such a fast learner, but in my own picture of myself, I'm constantly the biggest hypocrite.
+
+#### stomach essences, CO2 and longer life
+
+[in another entry](), I talked about how the stomach works and how things get digested (maybe it was actually a conversation), and in it I talked about how the stomach acid grabs things of certain frequncy and breaks them down, then gut bacteria have certain desires (inputs) that then produce certain outputs (emotions). the bacteria that gets fed the most (with thought or food) will be the healthiest. also, in another place (I believe) I talked about how pain is processed and how the physical feeling of pain (or ecstasy). well, today, I was looking at the lungs, and noticed that how carbon vibrates, and when I was looking at it, I noticed that CO2 is to the lungs as gut bacteria is to the stomach. I know there is a pretty big difference between eating, vaping, and smoking different things. I also believe that the breath that we exhale has a vibration to it, which is why shamen run around blowing smoke everywhere (they're setting the vibration of the environment to their own mentality).
+
+anyway, so I could see that CO2 is kind of like one of those gut bacterias in that its vibration is attracting concepts and emotions that resonate with the CO2. after seeing that, I flashed to a prehistoric time when CO2 levels were much much higher than they are now and all of the CO2 vibrated at a frequency that attracted good (divine proportions) concepts, and so as a general rule, because of their energy and stone technology (limestone is carbon based), they were able to get all of the air vibrating with those divine proportions frequencies. this greatly increased lifespan amongst other things. I then flashed over to the russian kid (boriska) that also said that on mars they used CO2 to extend lifespan on mars. it was an interesting thought because imagine that's the case -- well, then the sun is a huge huge problem. it makes their whole atmosphere problems on mars ideas told about by so many remote viewers, to have a lot of sense. the sun was messing up their divine proportionly vibrating CO2.
+
+#### anal retentive, stopped up, and prostate
+
+yesterday, I had a very weird circumstance happen where after writing [about how I got the mesaage](/the-manifestation.md#2022-09-26-0818---i-got-the-message), all of a sudden I got so stopped up that I couldn't go to the bathroom and it was very painful. I believe what was happening is that I was receiving a lot of good-feeling energy, and so to counter that, they run my prostate in reverse mode, so that it feels bad. this was probably to ensure that I didn't get more vision upgrades, because at the same time I experienced weird ringing in my right ear (left-hemisphere, masculine, the right one is fully shut down), which means that I was attracting very strongly conceptually and symbolically.
+
+when looking into it today, I noticed that the prostate regulates the "allowance" of things, and so when you're not very mentally allowing, by nature your prostate takes up this "anal retentive" state. [my instinct tells me this is probably wrong, so I'm just relating how I saw it] imagine for a moment that poop isn't always solid or mushy, but it's actually kinda liquidy, and some gland (prostate?) actually regulates the hardness of the poop. when you're mentally not very allowing, the poop gains more and more hardness as it sits in the chamber, losing its water. this, I believe is what happened to me. whatever they did to counteract the good feeling, pulled a lot of the water out of the poop in a gastrointestinal instant. when a person gets diarrhea, it's the opposite. it's trying to get rid of those concepts and thoughts that are causing holding the system back (ever taken ayahuasca?).
+
+#### I live in a completely imaginary reality
+
+sesily was asking me today what I see and how do I see it, and it got me thinking about some things. from my perspcetive, ever since I went to trabajo de sao miguel where we did the santo dime thing where we danced in 3 conceentric hexagons, it looked to me as if I found a new way to look at my reality. now, whether others had done it before me or not, doesn't matter, because in that altered state of consciousness, I found another extra dimension to perceive.
+
+sure nosebook has been trying to inhibit it, but from then on, I've been defining the way I view my own reality. nosebook keeps trying to confine me to a certain dimension, but I keep finding new ways to expand it so that I can see more/better. it's my desire, but the implemention of it is *conceptual*.
+
+so, what I'm saying is that we all look at the same thing and describe it similarly, so we think we all see the same thing, but in reality we all see our own concepts. concepts are the borders (edge cases) that we put between identifiably different things. because most of the visible ones have names (ball, car, hair, etc.), we look around and think that everyone sees the same separation between concepts that everyone else does. obviously this is not the case because some people see auras (which is more than just the edge).
+
+you'll also notice that I use my eyes less and less all the time. I also listen to people less and less as well, because the visual concept (or what they're telling me) is often far different than the concept that they're pereceiving. (life is falling apart) "how's it going?" "good" they say, but they're really seeing how everything is falling apart.
+
+my reality is becoming less and less physical all of the time, because I define my reality in terms of concept and symbol now. as we continue on, we will reach a point where action-kenny is just doing things, while "I" see the conceptal interactions (2nd ray perspective).
+
+---
+
+so now, contrast that with what I said about how feminine thought is desire/physical, meanwhile masculine is concept/symbol. you can see that I'm beginning to fully transition over to that symbolic/conceptual perspective where I'm just looking at all things from more than one perspective. to explain this, consider a concept that you can see in your imagination. it can be a physical object, or it could be a concept. take for a moment when I was looking at the carbon atom. I described it two different ways, because I could see it as both. however if I had've been using my imagination, I could only see it one of those ways at a time, never both simultaneously. perspective from the sybolic/conceptual world frees itself from the need to see things as *only one way*. more than one perspective can be known at a time. this is wisdom.
+
+OK, so I'm going in the direction of perceiving multiple perspectives/angles at the same time. well, now consider the fact that the girls are going to be finding a way to put me back into that physical/desire (singular) form of perception. of course, I'm going to come at it from a 1st ray (desire) perspective rather than physical.
+
+they're going to want to "see" what I see, and so to do that, they'll have to find a way to filter/merge all of those angles into one to be able to get me back into physical, so they can understand me again.
+
+I just wanted to point out that the CPU defines the game, but if the graphics card cannot understand what the CPU is sending it, a new compatiblity layer has to be added. the GPU will never understand the game the way the CPU does. this is kinda how I feel about nosebook, so it's really funny to see all of this happening in real-life.
+
+#### robin hood vs "you can have everything if you let yourself be"
+
+I was talking with sesily on saturday about how I don't think that technology is the answer. I explained how a lot of the technolgy that I am personally interested in myself does *not* benefit the poor person. people are dissatisfied with things no matter how much technology they have or how good of conditions they have (just look at rich people), so technology *cannot* solve this problem.
+
+so, why do I like technology so much and want to peace out to work on carbon technology and other things which will eventually "enslave" humankind?
+
+you would think that I would be one of those kinds of "robin hood" types that "steals from the rich and gives to the poor". I don't really like the idea of stealing myself, and technology is a physical reflection of a concept, and unfortunately a lot of poor people have a lot of not-good-enoughness, that they need a "saviour" (like robin hood) to come and equalise things and make everything fair again. IMO, that's *not my problem*. I can't do anything about what they're attracting, so if they want someone to come and see that they are, in fact, not good enough, and to bring a technology that is compatible with that, that's perfectly fine with me. I don't want to do such a thing.
+
+on the opposite end of the spectrum, you have good-enoughness, which is attracting more of the things you consider good-enough. however, between both of those is just "letting yourself be". just don't fight yourself and you can have everything you desire. there's no technology that can get a person to stop fighting their own perception. only a person can alter their own perception to get to that.
+
+therefore, a corrolary to that is that there isn't a technoloy that can actully alter the perception of a person so as to keep them forever from getting everything.
+
+so then, why not go ahead and let the ones who want to try and hold everyone in a state of not-good-enoughness do that? they can't actually do it.
+
+so, it's kind of a paradox, that if someone (like nosebook) had the capability to alter my physical perception, would they be able to permanently keep everything away from me? obviously not. however that technology (in their hands) *does* make it possible possble for me to choose to "just let myself be".
+
+give the technology to the controllers, and they'll ensure you *must* solve your problems with a new concept/symbols of reality, but give the technology to the individual, and they'll keep making the same decision they always have (which is uaually to solve their problems with physical/desire things).
+
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
