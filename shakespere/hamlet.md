@@ -121,9 +121,9 @@ this is further reinforced with the idea that king hamlet passes on the torch to
 
 lairties, his sister ophelia, and his father polonius. it's important to note that hamlet/denmark foght wars against norway and poland. therefore poland is the ooposite to norway. we have a few triads here. the main triad is norway-denmark-poland with each part represented by theirselves yfortenbro-ofortenbro-norway, yhamlet-ohamlet-claudius, lairties-ohelia-polonius (respectively).
 
-I also would like to mention that the name polonius, though is obviously a reference to poland, also reminds me significantly of pluto/hades, which is also hercules' uncle. so just keep this in mind when we're talking about pluto, his sister ophelia may have something to do with selene, but I'm not yet sure of her significance.
+I also would like to mention that the name polonius, though is obviously a reference to poland, also reminds me significantly of pluto/hades, which is also hercules' uncle. so just keep this in mind when we're talking about pluto, his sister ophelia may have something to do with selene, but I'm not yet sure of her significance. ophelia also reminds me of persephone/proserpina.
 
-anyway, in the conversation with prince hamlet, ophelia tells hamlet to^
+anyway, in the conversation with prince hamlet, ophelia tells hamlet to:
 
     Do not, as some ungracious pastors do,
     Show me the steep and thorny way to heaven;
@@ -146,5 +146,3 @@ anyway, in the conversation with prince hamlet, ophelia tells hamlet to^
   - (zech, rev): "and I was given a reed as unto a measuring stick so that I might measure the dimensions of heaven"
 
 so here we have hamlet comparisoning himself to hercules, and all kind of other symbolism that corresponds pretty well.
-
-
