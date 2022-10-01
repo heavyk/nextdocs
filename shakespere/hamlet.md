@@ -60,7 +60,7 @@ so look at it this way ham/puma dies and now has to be resummoned, but instead o
 
 the backdrop is that there is an increase in armourments between the two nordic countries (black is about to fight red)
 
--  (old) king hamlet of danmark
+- (old) king hamlet of danmark
   - king of danmark.
   - defeats fortenbro in battle but then later dies in his garden.
 - (young) prince hamlet of danmark
@@ -95,7 +95,7 @@ the backdrop is that there is an increase in armourments between the two nordic 
 ### interesting things to note
 
 - the ghost of king hamlet (black madonna) disappears when the cock crowed.
-  - if I combine this with steiner's ideas, you'll notice that the cock crowing was a pinnacle moment, because up until peter was unable to recognise jesus. jesus did not look the same enough for peter to be able to recognise him. I see the "betrayal" event as the beginning of the apparition of king hamlet", and so it's symbolic of the beginning of a *new day* (solar reference) and also the apparition of king hamlet (what we thought was jesus/hamlet/devere) will fade away the beginning of the new day (when the cock crows). it's a full day of spiritual darkness where we only see the material, and no longer the spiritual (true/conceptual essence of the thing).
+  - if I combine this with steiner's ideas, you'll notice that the cock crowing was a pinnacle moment, because up until peter was unable to recognise jesus. jesus did not look the same enough for peter to be able to recognise him. I see the "betrayal" event as the beginning of the apparition of king hamlet, and so it's symbolic of the beginning of a *new day* (solar reference) and also the apparition of king hamlet (what we thought was jesus/hamlet/devere) will fade away the beginning of the new day (when the cock crows). it's a full day of spiritual darkness where we only see the material, and no longer the spiritual (true/conceptual essence of the thing).
   - on chrismas, the cock crows all night long and so therefore no ghosts (king hamlet) can appear on those days.
     - not quite sure what this means, but if I had to guess, I would say it has to do with belief. on christmas, we believe in things like santa claus or other such things, and so on those days, what we believe is real.
       - I'm sorta reminded of a the-tick episode where the static electricity santas are causing trouble, so tick has to find a way to get others to believe that santa *is* real, so that he can get rid of the static electricity (egregore) santas.
@@ -119,20 +119,20 @@ this is further reinforced with the idea that king hamlet passes on the torch to
 
 ### lairties, ophelia, and polonius
 
-lairties, his sister ophelia, and his father polonius. it's important to note that hamlet/denmark foght wars against norway and poland. therefore poland is the ooposite to norway. we have a few triads here. the main triad is norway-denmark-poland with each part represented by theirselves yfortenbro-ofortenbro-norway, yhamlet-ohamlet-claudius, lairties-ohelia-polonius (respectively).
+lairties, his sister ophelia, and his father polonius. it's important to note that hamlet/denmark fought wars against norway and poland. therefore poland is the ooposite to norway. we have a few triads here. the main triad is norway-denmark-poland with each part represented by theirselves Yfortenbro-Ofortenbro-norway, Yhamlet-Ohamlet-claudius, lairties-ohelia-polonius (respectively).
 
 I also would like to mention that the name polonius, though is obviously a reference to poland, also reminds me significantly of pluto/hades, which is also hercules' uncle. so just keep this in mind when we're talking about pluto, his sister ophelia may have something to do with selene, but I'm not yet sure of her significance. ophelia also reminds me of persephone/proserpina.
 
-anyway, in the conversation with prince hamlet, ophelia tells hamlet to:
+anyway, in the conversation with lairties, ophelia talks of hamlet:
 
-    Do not, as some ungracious pastors do,
+    (lairties,) Do not, as some ungracious pastors do,
     Show me the steep and thorny way to heaven;
     Whiles, like a puffed and reckless libertine,
     Himself the primrose path of dalliance treads,
     And recks not his own rede.
 
 - don't be like the ungracious pastors
-  - pastors are references to the kings in sumerian times. the pastored the field
+  - pastors are references to the kings in sumerian times. the rulers were considered sheepherds.
     - this was a big deal during the transition from nomadic (hunter gatherer) type people to agrarian, where now the people are plowed and sown into rathar than herded around like flock.
     - this is a contrast to prince hamlet that did not get the king/pastor position
 - *don't* show me (ophelia) the thorny and bumpy path to heaven
@@ -140,9 +140,13 @@ anyway, in the conversation with prince hamlet, ophelia tells hamlet to:
 - whiles, like a puffed and reckless libertine
   - wiley is very anxious and free (supporting the libertine description)
   - whiles means taking a long time, waiting -- a foot dragger.
-  - puffed and reckless is a sort of hawty or hotshot attitude to the issue,
-- (hamlet) himself, the shining example of a dilly-dallier on the path (he travels the road slowly, foot dragger)
+  - puffed and reckless is a sort of hawty or hotshot attitude to the issue
+- himself the primrose path of dalliance treads
+  - hamlet is the shining example of a dilly-dallier on the path (he travels the road slowly, foot dragger)
 - and still manages not to wreck not his own reed
   - (zech, rev): "and I was given a reed as unto a measuring stick so that I might measure the dimensions of heaven"
+  - reed I believe refers to hamlet's moral direction. she's telling her brother that hamlet is solid, even though he's a bit of a hotshot
 
-so here we have hamlet comparisoning himself to hercules, and all kind of other symbolism that corresponds pretty well.
+### pretend to be one way while really being another
+
+it seems that hamlet realises that he doesn't have to be so forthright in his actions. he can (pretend to) be one way (mad), while rally    
