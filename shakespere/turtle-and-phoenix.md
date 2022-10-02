@@ -53,3 +53,135 @@ I'll get to the conclusion in a second, but I'd like to make the point that in t
 back to my conclusion: I saw myself as that black wasp/bee that was not interested in pollenating mature flowers (genetic heirs), but instead, I'm concerning myself with something that produces no issue, which is messing with the unpollenated seeds which will likely not grow up. my job here is not to leave behind a genetic legacy or biological bloodline or whatever, but instead to plant conceptual seeds, which will eventually grow up differently. I do that by having the form of the wasp (romans, claudius) and just going about my own way. no need for me to leave behind any physical legacy, to instead leave behind a legacy of desire. things have reversed their polarity now. instead of using reason and going toward physicality, now I'm leaving behind the manifestation that leaves the most to be desired (a tragedy -- which is a physical disaster, but produces much desire instead). it's kinda difficult to put this into words, honestly. hopefully the connections are clear enough to see.
 
 the whole point is to kill the phoenix and the turtle (the ascending and decending aspects of the 2nd ray in the 1st ray triad), so that we're no longer fixated on the physical but instead on the what it is that each person *individually* wants/desires. the king/group structure's time has now passed (which is why horatio (of time/saturn) has the ending explanation and finally explains to the (white?) outside of the masses wtf is going on) and fortenbro (norway, the new nordic power structure) takes over the "kingdom". it looks like a tragedy, but it's really the perfect setup for individuality and art to emerge, which is why I think the troubadours/players take on the new narration position. you see, from now on, it's all about the individual and what the individual wants/desires...
+
+### "The Phoenix and Turtle"
+
+Let the bird of loudest lay
+On the sole Arabian tree
+Herald sad and trumpet be,
+To whose sound chaste wings obey.
+
+But thou shrieking harbinger,
+Foul precurrer of the fiend,
+Augur of the fever's end,
+To this troop come thou not near.
+
+From this session interdict
+Every fowl of tyrant wing,
+Save the eagle, feathered king;
+Keep the obsequy so strict.
+
+Let the priest in surplice white,
+That defunctive music can,
+Be the death-divining swan,
+Lest the requiem lack his right.
+
+And thou treble-dated crow,
+That thy sable gender mak'st
+With the breath thou giv'st and tak'st,
+'Mongst our mourners shalt thou go.
+
+Here the anthem doth commence:
+Love and constancy is dead,
+Phoenix and the turtle fled
+In a mutual flame from hence.
+
+So they loved, as love in twain
+Had the essence but in one,
+Two distincts, division none;
+Number there in love was slain.
+
+Hearts remote yet not asunder,
+Distance and no space was seen
+'Twixt this turtle and his queen;
+But in them it were a wonder.
+
+So between them love did shine
+That the turtle saw his right
+Flaming in the phoenix' sight;
+Either was the other's mine.
+
+Property was thus appalled
+That the self was not the same;
+Single nature's double name
+Neither two nor one was called.
+
+Reason, in itself confounded,
+Saw division grow together,
+To themselves yet either neither,
+Simple were so well compounded
+
+That it cried, "How true a twain
+Seemeth this concordant one!
+Love hath reason, Reason none,
+If what parts can so remain,"
+
+Whereupon it made this threne
+To the phoenix and the dove,
+Co-supremes and stars of love,
+As chorus to their tragic scene.
+
+
+Threnos
+
+
+Beauty, truth, and rarity,
+Grace in all simplicity,
+Here enclosed, in cinders lie.
+
+Death is now the phoenix' nest,
+And the turtle's loyal breast
+To eternity doth rest,
+
+Leaving no posterity;
+'Twas not their infirmity,
+It was married chastity.
+
+Truth may seem, but cannot be;
+Beauty brag, but 'tis not she;
+Truth and beauty buried be.
+
+To this urn let those repair
+That are either true or fair;
+For these dead birds sigh a prayer.
+
+### threnos
+
+I noticed this word stuck out at me. when I first saw it, I noticed it is "three" and "nos" ("we" - first person plural in spanish/latin). nos is also in the sense of gnosis or gnostic, in that it means knowledge: sophia. I thought about it as "knowledge of threes" -- which is interesting because that's also something that tesla explains is pretty important (importance of 3-6-9) and I myself carry on endlessly about these "triads" (of an emitter ground and female, or two females of opposite types and a ground). after that line, as if to demonstrate this the final part of the poem has triads (beauty, truth, rarity) instead of dualities (love and reason, love and constancy).
+
+the whole poem is a move from 2 to 3. I also see a lot of 4's and 5's though, but for example the 4's are born out of the 2's and 5's are born out of the structure itself.
+
+to illustrate, notice how in the first 20 (5x4) lines, it's talking about the alpha omega character of these birds (eagle and crow). harbinger of sadness, ending of tyrants and priests, and then on the 6th paragraph, the thing comences. I see the eagle as the opposite of the phoenix, and the crow/swan as the opposite of the turtledove (the swan is death-divining and the crow gives and takes breath). they're literally identified as the priests and the kings/tyrants. the turtle divides into two (crow and swan).
+
+the next thing to note is that they become "either neither": "any one" or "no one", so they're apart but together, yet while they're together, they're one, but also two, yet also three. they're all or nothing at the same time, yet out of that emerges the three.
+
+first 20 (5x4) lines: alpha/omega (beginning and end of priests and kings)
+4 lines: comence the beginning of the transition into three
+7-13(x4) lines: explains they are 2, 1, and 0 -- therefore, they are three.
+threenos: we are knowledge of the threes.
+final 5x3 lines: here are three things that are all dead (0)
+
+I would like to mention too that because they are "no one" but at the same time they are "any one" (either or neither), this is likely referring to the general population (anyone), and what makes them now become "any one" is because of the things that are now dead.
+
+### death of beauty, truth, and rarity
+
+this line makes perfect sense to me looking at the society that we live in today, especially in the context of nosebook. it's easy to see that "truth" is dead (narrative is not truth). rarity is pretty easy to see when considering the internet nowadays, as unlimited access to knowledge has made rarity of information a thing of the past. now, if you consider the idea of looking for a partner, and what you're looking for is something "rare" (like a knight in shining armour, or a super chivalrous noble(wo)man) to sweep you off of your feet, those are rare, but we're entereing a time where these sorts of things are losing their attractive qualities.
+
+to explain why I think rarity dies, is because of the death of beauty and truth. if everyone is very beautiful, there is no longer any single most beautiful person that is considerably more attractive than the rest. we see this already today where there are soo manyyy beautiful people nowadays, it's hard to say that beautiful people are rare anymore. beauty is quite common.
+
+truth is another interesting thing to see die. to get an insight into shakespere's mind on this I refer to hamlet, where rosencrantz, guildenstern, and hamlet talk in unison about the future (doomsday), claiming that the world has grown honest, and that "every one" is happy, but "no one" is overly happy. comparing this fortune where overhappy is the top of her head, and unhappy would by thte souls of her shoes, but instead they're around her waist, in the middle of her favours -- in her secret parts. she claims she is a strumpet, which reminds me strongly of the first paragraph:
+
+    Let the bird of loudest lay
+    On the sole Arabian tree
+    Herald sad and trumpet be,
+    To whose sound chaste wings obey.
+
+the bird of loudest lay sounds very sexual to me. the strumpet fortune (whore of babylon) is making everyone happy, but not overly happy (she's a loud lay), which causes "chaste wings" to obey her -- which sounds to me like if a loud lay is causing chaste wings to obey, this sounds like a sexual revolution to me.
+
+so, along with the world becoming "honest" hamlet is proposing that there will also be a future sexual revolution at the same time. long gone are the days where someone of beauty and rarity comes to you and tells you the truth. all of this happiness (but not overly happy), souds a lot to me like good-enoughness.
+
+you have to see that the 2nd ray in descending down into the physical, is a "saviour" figure, and so they will look around in the world and see all of the things that are *not* good enough and try to improve/save those things (because you're moving away from desire), but on the ascent, all things are now desirable, and so everything is now desirable. all truth becomes "good enough" cause it's just a narrative anyway, so whatever man, beauty is everywhere and so all things desirable are easily perceived now, meaning that rarity of something desirable is no longer a thing. beauty and truth are now in the eye of the beholder, and now everything is moving on the path of becoming more and more "good enough" rathar than less and less "good enough".
+
+I hope I explained the seeming contradiction between truth and beauty being dead, but at the same time thteir death has now made it possible for everyone to be true (grown honest) and fair. the connecting idea is the rarity. if what you want/desire is no longer rare and what you wanted is truth, then, "truth" is now "every one" but because truth requires a opposite falsehood to exist, "truth" no longer exists "no one" has truth anymore.
+
+another try: if everyone has $100 and everything costs more than $100, nobody has enough (rarity/scarcity exists). however if everything now costs, $1, then with $100 everybody now has enough (abundance exists). nothing really changed, other than the market is flooded with desirable (good enough) things. reason doesn't explain this very well. it seems paradoxical, but it's basic economics.
