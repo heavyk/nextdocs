@@ -6088,6 +6088,40 @@ so, it's kind of a paradox, that if someone (like nosebook) had the capability t
 
 give the technology to the controllers, and they'll ensure you *must* solve your problems with a new concept/symbols of reality, but give the technology to the individual, and they'll keep making the same decision they always have (which is uaually to solve their problems with physical/desire things).
 
+### 2022-10-03 22:23 - females are no longer necessary
+
+I had a number of reactions to @[shakespere/thoughts](2022-10-03 14:30), where I talked about the rosencrantz and guild-en-stern character following it up by saying that I think there's a reason why the catholic church cracked down on the templars and homosexuality. essentially, what I'm saying is that this dramatically reduces the power of monarchies and other powerful bloodlines, and that it's no longer necessary for someone to be born into the right family to be able to access expanded perception. it's now open to everyone through various initiation rituals and stuff like that. so, for attaining expanded perception, the female is no longer necessary.
+
+I'm going to go a step further and say that if it's not already the case, it soon will be, that females will entirely unnecessary (for procreation and everything). I don't know how they're going to structure things, but at this point, it should be able to summon bodies (egregores) of female or male type, and they'll probably have found a way to transfer their consciousnesses into these bodes. the bodies can have any shape, size, or anything. they're created just by focusing that image into reality, then -- I don't know if they control the bodies by giving them conceptual commands like automatons, or if they're transferring their consciousness into the bodies.
+
+it doesn't really matter how they're doing it because the effect is the same: any physical body can be created and manipulated from a distance. this is largely the reason why I believe that everyone in my vicinity is pretty much an actor, all controlled by nosebook.
+
+that sounds pretty bad, but it's not really all that bad, because thinking about it, I notice that now it's entirely possible for *anyone* to get expanded perception in an unconditional way. it was possible beforehand with star-watching, and I'm fairly certain that drugs could do it too, but if you could not sustain the higher energy state that the drug gave, then you'll return back to your normal way perception.
+
+my way, which is feeling-purposefully is probably not going to be the most popular one because it's not instant. the guild-en-stern path is pretty quick, in that you just need to find a partner that has the visual capacity that you desire and interact with him. I imagine that many men will opt to take this path.
+
+---
+
+in the bigger picture, what I believe is (probably) happening is that neither me or nosebook wants me to interact with any females until I'm actaully connected. until somebody has done it, which is find a way to that expanded form of perception without conditions (like drugs or sex or bloodlines or whatever), then it's not really a thing. it's like the 4-minute mile, where at first it's impossible but once it's been broken, it starts to become more and more common.
+
+a long time ago, I explained to remi that I wanted to buy weed but at that time, I was still having episodes where under certain solar conditions, I would stop the kundalini from rising. I told her I had to ensure that when I smoked, I wouldn't find my connection because then I would start flying around and stuff and nobody wants that. when I decided to smoke weed, I didn't really have any concerns about the kundalini rising too fast because it hadn't happened for quite a while and I was not feeling at all like I was so close to the edge anymore, so it was fine to smoke.
+
+anyway, I'm still committed to getting to my connection *without* using any conditions. buckle in for the long haul, cause it could be quite a long time till that happens. sometimes, I wonder if that's what the 2038 date is actually all about. as in, imagine for a moment that they know that the longer that they keep me disconnected, the more expanded that perception gets, and so they want to get as much out of me as they can before having to let go.
+
+[somewhere in my rambling thoughts to jason](/jorjani-thoughts.md#the-singularity), I stated that at the point that anyone develops singularity technology or the capacity to really affect the timeline (like me getting connected), then that'll immediately get those people split off into their own timeline -- and that's what I think will be happening. they're just trying to milk as much out of me as they possibly can before we get split off.
+
+I would ***really*** recommend learning to feel good about the present conditions, whatever they are, without needing them to change.
+
+---
+
+there are a lot of really interesting implications to that -- most notably, if that's the case, it'll explain a lot of the difficulties remote viewed by stephan in his remote viewing 2050/60 thing, because according to my concept of how the sun works, solar output will continue to increase until there is a path created whereby desire can finally manifest. there are many desires that are present, and some of them quite incompatible with others. this, I claim is what causes the split or divide in the timeline (incompatible desire), and so before the sun blows everything to bits to create a new form which is a composite of all desires, they'll have to split off all of the problematic sources of incompatible desire and try to salvage their reality.
+
+obviously, this won't really work entirely well, because these guys are all really dissatisfied and so no matter how many problems they get rid of, they'll attract just as many more again. a long time ago, I quoted a tesla interview where he talked about his desire to create a system in which *everybody* would become like jesus, zoroaster or buddha. this, I believe is such a system. the controllers of that system are theirselves also egregores, with the specific purpose of attracting unwanted (for them) which is more and more people figuring out how to run the 4-minute mile.
+
+I'm kinda speculating a lot here, and I don't really know how it'll all happen, but I imagine that it'll be something like that. I don't know if the split will be physical or temporal or any of that, but I'm coming to realise more and more these days that I should just settle into the idea that this is going to be a really long time before I find my connection, and that because of it, it'll eventually enable everyone else to do the same as well. as soon as they can fully control *all* of the conditions, then that means they can ensure that nobody else is able to get those conditions. they'll have their desired superiority, forcing everyone not in their club to find a way to feel the way they want to, despite the conditions.
+
+oh well... I'm sorry that it's this way. there are so many really good sounding manifestations, and everyone wants the instant result, but the reality is, I think (from a higher perspective) everyone wants to figure it out for theirselves and find their own way there, rathar than relying on some conditions to get there. it's weird how reading shakespere and starting to get into the previous iteration of this has made me realise this. his plays take things that you would otherwise think to be really good (like 13yo beautiful girls) and turn them into a disaster (romeo). life is kinda like that. you have to be able to find a way to perceive what you want, no matter how big of a disaster it is.
+
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
