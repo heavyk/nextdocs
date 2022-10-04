@@ -1716,7 +1716,39 @@ that egregore is a false appearance because its "body" does not reflect the vibr
 
 you have to see that egregores need a sort of saviour if they want to find a way through to the next dimension without getting their peception of reality become manifested *as* reality. therefore, we can only "save" ourselves.
 
-this reminds me of 
+this reminds me of
+
+### 2022-10-04 01:18 - blind owl vs tantra in perspective
+
+@[youtube](https://youtu.be/EZ-PxOD0r5s?t=644)
+
+in this discussion, jason is making a very interesting point which corresponds with another he made about tantra:
+
+@[youtube](https://youtu.be/LsZULpSIvBg?t=613)
+
+he explains that there are three realms: the bestial (tamasic, subhuman) realm, the astral/spectral realm (regasic, vira, the realm of heros, men of ambition), and finally the abstract (satvic, the realm of the devas, superhuman). so, what you have are these two mutually exclusive realms of the tamasic/subhuman and the realm of the satvic/superhuman. what tanta does he says is to take those three realms and collape them all into one single super astral/spectral reality where you're living in a super imaginal reality where physical blends with the conceptual. this realm, I believe is the realm in which the blind owl takes place -- this sort of tantric super spectral reality (it's kinda dream-like, but contains all of the realness of physicality to it).
+
+I know what jason is talking about because briefly in various points of my life I have experienced such a reality, but presently I do not. now, I have the exact opposite of that happening, where I experience on a daily basis the subhuman reality of gross physical matter, but at the same time, I am simultaneously aware of the other superhuman reality of pure forms with no sensory experience.
+
+because both of these realities are so different from eachother, they don't have any overlap, meaning I can perceive both simultaneously without any difficulty. I'll skip over how that's possible, but it's essentially what I've done is separate physical sensation from the form. as an example, when we think of sadness, we think of the physical sensation of the chemical imbalance caused from depression or grief, but that is *not* sadness itself. the physical sensation of the chemical imbalance is the manifestation of the emotion, *not* the emotion. for me, the physical sensation is separate from the emotion itself. I experience them as two distinct things.
+
+as another example, if you were to look at a really finely constructed house in the physical, it's quite possible that you could find physical defects with it, but in this conceptual universe, you would instead perceive the ideal house. for the moment consider that instead of seeing the house and its physical defects imposed by the limitations of the environment or building materials, instead you could see the perfect structure, imagined by the architect -- that would be the tantric view. I don't see that. I see the physical house, yet at the same time, I'm also aware of the *concepts* and emotions that went into the house. so, for example, if I'm in the kitchen, and the architect was trying to make it seem like at a counter, certain things are within reach, I will experience the feeling that everything that I could possibly want is very close by (regardless of the actual dimensions of the kitchen). let's say that the builders of the house really felt like in the kitchen there is a a lot of space to work, again, I will have the sensation (and perhaps this could even affect the dimensions of the place) that the kitchen is enormous, and that there is tons of space. let's say that they're laying the bricks for the facade and they really like the design of the bricks and how it gives the building a unique 3-dimensional character to the building, I'll experience that, at the same time, regardless of the fact that I'm looking at old brickwork. it'll have that same emotional quality to it.
+
+it works in the negative case as well, so if someone feels themself to be old and tired, I literally see them as old and tired, even though their physicality is young and vibrant. because of this, people are highly transformative for me, being sort of shapeshifters which reflect their emotion.
+
+these two realms exist simultaneously to me, and I believe that the concept of this realm actually manipulates others' perception as well. I've done experiments where I've really felt like something I've done (like yardwork or whatever) really looks very nice, and I really feel like something I've done really opens up the space. I haven't really changed the space any, but from then on, people now notice that the space looks a lot more open, and that's because I've embedded that emotion/concept into the physicality. as long as people continue to perceive that emotion, the space will continue to become more and more like how it's felt to be.
+
+this is a really interesting thing because it means that all physicality, because I do not see the imaginal, shapeshifts to become the way that I feel it to be. for me, maya (the illusion) no longer exists, because I see what's really there (the real physicality), but because its feeling is superimposed on top of the physicality, I it becomes the essence of however I perceive it to be.
+
+---
+
+now, what I've been practising is to feel the way I want about whatever, no matter the physical conditions, which means that as I get better and better at that, the superhuman realm no longer has any limits. if I feel myself to be so free that I could fly, I can fly -- but that requires that, despite the physical circumstances, I'm still able to feel myself as having that kind of freedom or lightness of heart, that I can be, do, or have anything and that exists in the subhuman (gross physical) reality.
+
+the reason why this is important to note is that when hedayat describes the subhuman with nearly the same words as the superhuman, this is because the description no longer matters. what matters is not the description (however awful or evil one may label it), but instead how I feel about it. when I've got this, all aspects of physicality will transform rather rapidly to reflect the way I feel about it.
+
+by having these two realities separated and not blended, physicality will transform itself Into the ideal I perceive it to be. when I say ideal, I mean the best/worst version of itself.
+
+I still have not yet read the rest of the blind owl, but I'm excited to read the rest of it now, because I notice that he blends the lines between what we think of as bad and good (like chopping up a beautiful woman's body and putting her in a briefcase), and notice that instead what matters is how he feels about her and what that experience meant to him emotionally (not the physical gruesomeness of hacking a corpse to bits) or how nice it was for him to have finally figured out a way to draw her eyes in a way which captured her beauty/essence in a way which he wouldn't forget it.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
