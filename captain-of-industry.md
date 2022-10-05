@@ -236,7 +236,12 @@ this mode combines the lower symbolic layer and the above desire mode.
 
 #### desire mode
 
-this mode interacts pretty directly with the symbolic layer in one perspective (perhaps it should be part of the symbolic layer), in that I want to be able to set a desired production/consumption for a specific part of the whole setup -- a sort of goal, or ideal 
+this mode interacts pretty directly with the symbolic layer in one perspective (perhaps it should be part of the symbolic layer), in that I want to be able to set a desired production/consumption for a specific part of the whole setup -- a sort of goal, or ideal
+
+obviously the one after that is a perspective of desire where you can express in symbolic form what you want: "I want you to take off the side of this mountain" "go from here over to here" etc. I don't know how to explain the pure desire perspective, because it would be something of chaos, and everything undesirable. the absolute "worst" thing that could be happening. this is where you find bugs in the system. you can propose disaster scenarios and save the scenarios to notice when they happen, then from the perspective of the lower layer take an action in response.
+
+the desire perspective can also do a symbolic approach to the same perspective, so like "I'd like this to be producing 400 wood", and when it's not or looks to be a way that I want (or don't want) in the future, tell me about it.
+
 
 ### random idea not necessary to COI
 
