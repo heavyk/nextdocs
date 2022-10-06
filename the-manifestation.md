@@ -760,6 +760,6 @@ the other event that happened around the same time is all of a sudden I remember
 
 ---
 
-anyway, the clarity that I had today for understanding a concept by using memory was incredibly strong, so I have no idea what is going on. how can I possibly be getting such strong conceptual understanding through memory recall, yet at the same time, I literally can't remember who is "the dude". things are definitely really strange. I still have no idea what in the world is going on, but I know that it's totally OK. I'll still end up in the right spot.
+anyway, the clarity that I had today for understanding a concept by using memory was incredibly strong -- so I have no idea what is going on. how can I possibly be getting such strong conceptual understanding through memory recall, yet at the same time, I literally can't remember who is "the dude"? things are definitely really strange. I still have no idea what in the world is going on, but I *do* know that it's totally OK. I'll still end up in the right spot.
 
-yep, I didn't talk through any of the things I thought I would. I guess it's OK. I also gave them more tips on what things are happening in relation to what memory recall, so hopefully they can try and get it even more under control, lol.
+yep, I didn't talk through any of the things I thought I would. I guess it's OK. I also gave them more tips on what things are happening in relation to what memory recall, so hopefully they can try and get it even more under control now, lol.
