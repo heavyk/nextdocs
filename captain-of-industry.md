@@ -122,6 +122,14 @@ this opens up an interesting conversation though, which is how the pipe should b
   - I know I can use a coal boiler to then put the steam into the advanced power generators, but most countries still run their power plants on coal.
   - what I mean is, a discrete power plant building like the diesel generator where it inputs coal and outputs power and exhaust. thees would make really awesome backup generators (I guess this would be a good mod addition)
 
+- ability to remove xxx may collapse because of uneven terrain.
+
+- small bug: when setting the mine control tower area, if the diggers are returning to the tower, they return all the way to the tower instead of going to the new area I just selected
+
+- small bug: I noticed that grouped delivery for upgrades does not happen. for example, if I upgrade a cargo depot from small to medium modules, 6 trucks will bring over 20 steel instead of 2 trucks of 60 steel.
+
+- small bug: if there are many trucks doing diggers, and one has dirt (for example), it should continue to wait for more dirt instead of going to dump only with a very suboptimal load (like 6 dirt for example). with other trucks waiting, the truck should continue to wait for more dirt (especially if there is still dirt in the mining designation)
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
@@ -151,6 +159,24 @@ often times I want to just have a balancer act sort of like a network hub, and t
 perhaps later an advanced hub could have not only more ports -- for example, of 16 ports square, or some longer -- or maybe even expandable, so that I could make a hub the size I wanted, like say I wanted a 12x6 one... I could do that (within limits of course, so a 1000x2 hub couldn't be built)
 
 then, same thing: when I click on each port, I can set the item(s) I want output on that port and also its priority or not.
+
+### multiple select
+
+being able to select multiple things at a time would be really useful. a panel should pop up with all of their common options.. so, for example if I selected a few factories and some pipes, I should be able to set the priorities of the factories, even though pipes don't have a priority. this will be helpful for setting priority on a group of buildings.
+
+likewise, if pipes and belts are selected, toggle direction should also be available so that a group of pipes/belts can have their direction toggled.
+
+standard manipulation of pressing ctrl (able to be rebound) could toggle if a piece is selected and shift (also able to be rebound) should inclusively add more pieces. this will help to (de)select belts/pipes that are layered on top of another.
+
+---
+
+one really cool thing that I would love to be able to do (in planning mode -- not sure how to do it in physical structures) is to select some factories (or belts/pipes) and then be able to drag it to another location, and the belts/pipes will lengthen/shorten appropriately to accomodate for the new position. obviously if the pipes can't find a spot it should turn red or something to indicate that the desired move operation won't go through if the user releases the mouse button. this will dramatically cut down on tediusly having to move every single pipe individually just cause I want to move a whole part of the factory over one square.
+
+there is potential imporovement as well to be had with selection for copy and pasting parts of the factory (of which I'll keep thinking), but for now, I think being able to (de)select items would dramatically improve laying out factories with copy and paste
+
+### undo button
+
+at the very minimum, I really want an undo button when planning out structures. it doesn't matter so much for me in physical mode, cept maybe I accidentally click on a pipe with the bulldozer selected. however, the one physical thing that I really want to be able to undo is, only when the game is paused, I'd like to be able to undo an accidental overy eager use of the unity tool. even if the resources haven't even been spent (cause the game is paused), often times I unity something only to see half of it turn blue, only to realise that I didn't have as much unity as I thought I did, so it'd be better to just unity the pipes and let the trucks deliver the factories.
 
 ### next stage of industry: conceptual designs
 
