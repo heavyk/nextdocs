@@ -178,6 +178,11 @@ there is potential imporovement as well to be had with selection for copy and pa
 
 at the very minimum, I really want an undo button when planning out structures. it doesn't matter so much for me in physical mode, cept maybe I accidentally click on a pipe with the bulldozer selected. however, the one physical thing that I really want to be able to undo is, only when the game is paused, I'd like to be able to undo an accidental overy eager use of the unity tool. even if the resources haven't even been spent (cause the game is paused), often times I unity something only to see half of it turn blue, only to realise that I didn't have as much unity as I thought I did, so it'd be better to just unity the pipes and let the trucks deliver the factories.
 
+things I'd like to undo:
+- when laying a pipe or a belt, sometimes:
+  - I press c (copy) or v (paste) accidentally and the entire belt vanishes. I'd really like a way to get them back.
+  - I click trying to put the next belt section but for some reason the game thinks I've finalised the belt (clicking in the same spot twice) especially when it's a short belt -- and I'd like to unfinalise it and go back into laying it.
+
 ### next stage of industry: conceptual designs
 
 the way that I visualised the next stage of industry is no longer confined entirely to the ground. I could see that instead of trucks, you would have these sort of hovering drones that can do all of the truck's work (moving resources around).
