@@ -122,13 +122,18 @@ this opens up an interesting conversation though, which is how the pipe should b
   - I know I can use a coal boiler to then put the steam into the advanced power generators, but most countries still run their power plants on coal.
   - what I mean is, a discrete power plant building like the diesel generator where it inputs coal and outputs power and exhaust. thees would make really awesome backup generators (I guess this would be a good mod addition)
 
-- ability to remove xxx may collapse because of uneven terrain.
+- ability to remove notification "xxx may collapse because of uneven terrain".
 
 - small bug: when setting the mine control tower area, if the diggers are returning to the tower, they return all the way to the tower instead of going to the new area I just selected
 
 - small bug: I noticed that grouped delivery for upgrades does not happen. for example, if I upgrade a cargo depot from small to medium modules, 6 trucks will bring over 20 steel instead of 2 trucks of 60 steel.
 
 - small bug: if there are many trucks doing diggers, and one has dirt (for example), it should continue to wait for more dirt instead of going to dump only with a very suboptimal load (like 6 dirt for example). with other trucks waiting, the truck should continue to wait for more dirt (especially if there is still dirt in the mining designation)
+
+- in the statistics, it'd be cool to have a power generation/usage screen like the maintenance, population, health, etc.
+
+- small thing: clicking on the notification for not enough maintenance 1 (2 or 3) doesn't take cycle the camera to my maintenance depots (1, 2, or 3).
+  - it'd also be kinda useful to click on the maintenance progress bar on the right side and have that cycle through the maintenance depots of its type
 
 ### design/upgrade planner mode
 
