@@ -1812,6 +1812,11 @@ OK, so lev's asking a question if the hierarchy of consciousness that jason is t
 
 https://youtu.be/TfMVM8o3gRE?t=5147
 
+### 2022-10-18 20:28 - I was...
+
+I was outlaying in my field more than
+I was outstanding in my field
+
 
 
 
