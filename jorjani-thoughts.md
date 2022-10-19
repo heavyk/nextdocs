@@ -1810,12 +1810,48 @@ https://youtu.be/TfMVM8o3gRE?t=4977
 
 OK, so lev's asking a question if the hierarchy of consciousness that jason is talking aoout are sort of conceptual principles. he says that an entity like zeus/enlil/indra entity is a very severe entity, and that doesn't sound like just the random musings of the voices that I can encounter in my head. therefore, there must be these other sort of conceptual matrix of ideas that are interacting with us, and a manifestation of that interaction was voices inside of our head -- until of course we evolved to shut down that capability. the ones that could act more out of willpower won over in loudness in comparison to the other voices. we evolved to optimise for louder internal voices and a filtering out of more and more of the voices.
 
-https://youtu.be/TfMVM8o3gRE?t=5147
-
 ### 2022-10-18 20:28 - I was...
 
 I was outlaying in my field more than
 I was outstanding in my field
+
+### 2022-10-18 20:33 -
+
+https://youtu.be/TfMVM8o3gRE?t=5147
+
+jason's saying that the majority of the population that were able to make the transition were the fraudsters; there were still some good people -- so like not everyone was a fraudster -- and even some tried to enlighten the ones that were below them and stuff like that.
+
+https://youtu.be/TfMVM8o3gRE?t=5266
+
+cultural concepts are fads. there are those that are manipulating it, and so those that individuate theirseleves from the cultural fads, begin to sort of "lift off" away from the mainstream. jason is helping to define that an individual is an individual apart from the socioculturapolitical perspective and can operate outside of those guidelines.
+
+https://youtu.be/TfMVM8o3gRE?t=5271
+
+jason is saying that a *successful* society capable of mess around with timelines is a stable society/culture. they'll have an identity that does not move too much (unless it's forced to change); a very rigid strutcture. this rigid structure is holding theirselves stable in their timeline and so they're all stuck. they're going to continue to be stuck until someone figures out how to go faster than the timeline. that's the kind of liftoff period (ie. that society is *successful*). the ones that don't figure it out are a sort of prisoner to their own perception of theirselves.
+
+https://youtu.be/TfMVM8o3gRE?t=5380
+
+https://youtu.be/TfMVM8o3gRE?t=5463
+
+lev now says: for the ones of us that have our kundalini risen and see at a million dimensions (he said this earlier), since we're already perceiving the perceptual layer (he talked about this earlier) why don't we each just create our own reality where we're the supreme ruler YHVH of a group of people. we can split up the humans amongst ourselves and rule over them as YHVH figures?
+
+I've given this thought, and I don't think there will be too many groups of people tmat want to be the supreme ruler of a group of people, but mostly individuals. it's actually an enormously fun thought experiment where you wonder how a society with a supreme deity of concept of yourself would turn out. see where I'm going with this? you can put your concept of yourself into the society that believes you to be their supreme ruler, and then you birth yourself into your own society. wouldn't that be cool to try? you are the concept incarnate that they believe created them (which is kind of true, because their DNA is a transformation of that concept into physical structure).
+
+each person a ruler of one or many populations as the supreme ruler. just think of how much fun it will be to mix their populations in primitive situations? anyway...
+
+https://youtu.be/TfMVM8o3gRE?t=5707
+
+https://youtu.be/TfMVM8o3gRE?t=5958
+
+https://youtu.be/TfMVM8o3gRE?t=6000
+
+https://youtu.be/TfMVM8o3gRE?t=6136
+
+https://youtu.be/TfMVM8o3gRE?t=6205
+
+I don't understand. it doesn't seem like a bad idea to me. there are people (jason says) that are not evolutionarily ready to make that transition, so I don't understand why it's a bad thing to kind of auction off the non-transitionelers to the highest bidders. they can be their overlords (the YHVH perception/dimension that I'm creating). it's a win-win situation because for them it's evolution that they want (everything is LOA, so it'll all work out where even their overlords become a transformed refection of them), and for the overlords, they get to be overlords. like who *wouldn't* want to be zeus, right? you can be the biggest buffoon, and girls just love you because you are the concept their DNA vibrates with incarnate (so it feels like immense attraction to everyone).
+
+https://youtu.be/TfMVM8o3gRE?t=6261
 
 
 
