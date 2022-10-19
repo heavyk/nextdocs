@@ -128,12 +128,21 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug: I noticed that grouped delivery for upgrades does not happen. for example, if I upgrade a cargo depot from small to medium modules, 6 trucks will bring over 20 steel instead of 2 trucks of 60 steel.
 
-- small bug: if there are many trucks doing diggers, and one has dirt (for example), it should continue to wait for more dirt instead of going to dump only with a very suboptimal load (like 6 dirt for example). with other trucks waiting, the truck should continue to wait for more dirt (especially if there is still dirt in the mining designation)
+- small bug: if there are many trucks doing diggers, and one has dirt (for example), it should continue to wait for more dirt instead of going to dump only with a very suboptimal load (like 6 dirt for example). with other trucks waiting, the truck should continue to wait for more dirt (especially if there is still dirt in the mining designation) (TODO: rewrite. confusing english)
 
 - in the statistics, it'd be cool to have a power generation/usage screen like the maintenance, population, health, etc.
 
 - small thing: clicking on the notification for not enough maintenance 1 (2 or 3) doesn't take cycle the camera to my maintenance depots (1, 2, or 3).
   - it'd also be kinda useful to click on the maintenance progress bar on the right side and have that cycle through the maintenance depots of its type
+
+- default "truck import/export" setting (on / off / auto) for all newly created buildings
+
+- it may be easier to put the mining priority on the mining tower, rathar than the digger
+  - if two priorities are set, then the priority is evenly (or make it configurable for picomanagement) split amongst the diggers
+
+- it'd be kinda cool to have a tool that removes all of the outside mining designations that are completely surrounded by blank or at the correct height areas.
+
+- small thing: it would really help if all pipes simplified connecting pieces of the same pipe (ie. med pipe touches med pipe)
 
 ### design/upgrade planner mode
 
@@ -283,3 +292,6 @@ the desire perspective can also do a symbolic approach to the same perspective, 
 
 - what if autosaves went in the background and didn't pause the game. at the end of the save sequence, you could pause the game and briefly while you check to see what entities are outdated, update those before outputting onto disk, which is also done in the background.
   - a further expansion to the idea is to not make it ever pause the game by getting everything ready and then only in the update loop ensure locations are correct and fire off the save thread.
+
+- when moving the mouse to the edge of the screen, it'd be cool to get a vertical bar that sticks out relative to the pressure on that edge.
+  - I think this concept can be applied to other things as well, which is showing variable movement visually instead of static (constant velocity movement) -- reminds me of that isometric crap. I like that it has bounce to it.

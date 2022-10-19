@@ -1750,6 +1750,32 @@ by having these two realities separated and not blended, physicality will transf
 
 I still have not yet read the rest of the blind owl, but I'm excited to read the rest of it now, because I notice that he blends the lines between what we think of as bad and good (like chopping up a beautiful woman's body and putting her in a briefcase), and notice that instead what matters is how he feels about her and what that experience meant to him emotionally (not the physical gruesomeness of hacking a corpse to bits) or how nice it was for him to have finally figured out a way to draw her eyes in a way which captured her beauty/essence in a way which he wouldn't forget it.
 
+### 2022-10-18 02:12 - gods as primitive concepts
+
+@[youtube](https://youtu.be/TfMVM8o3gRE?t=4063)
+
+I was noticing that these gods became the earliest forms of these concepts, and the crazy thing is, because these concepts are based on real-life dysfunctional beings that once were on this planet, ensuring that the concept starts out in it's most ridiculously wrong point of view.
+
+setting dysfunctional beings as the premier example for a concept is divine comedy when one looks at it from a source perspective. it's like the biggest joke watching all of these people working so hard to please these ridiculous examples. in fact, now that I think about it, all concepts that we have from their naciemento, a long line of frauds, bad marketing, and overt efforts to manipulate.
+
+---
+
+today(?) I was monologuing about how becausee I'm giving away a bit of my process -- not only is it pleasurable for me to put words to my process, but it allows also for the creation of posers. if you have the process, you can follow the recipe but never actually understand *why* or *how* it works. I really gatta understand the concept of how everything works.
+
+you know I like to copy people a lot myself, so in a reality I'm an imitation (often times a very poor one) of some quality that I like the feel of (or found that feeling useful in a situation). here's the thing: I have like an arsenal of different feelings/emotions that I can use for accomplishing various tasks. I'm switching them out and improving their algorithims better and better.
+
+one day, I expect to have the different feeling states so well programmed that I don't really need to be super interactive with reality. I imagine this is coming soon, because things are constantly feeling more and more effortless. what I mean is, it doesn't take any effort for me to have good timing or the some enlightening thing to say. I don't even try anymore becuse I don't really control myself so much with thought anymore; I direct it with emotions, so I just change how I feel and reality-kenny does the work. like I noted also today, he really fumbles about as if it's the first time ever doing anything. I really am like a newborn (on my left side), so I can imagine that as that whole functioning aspect of reality-kenny is being programmed by me, and each day I get better and better reactions (programmed responses). I'm becoming, in this kind of not needing the manifestation way, a more and more pure reaction which is ultimately the personality that I choose.
+
+I also mentioned a bit yesterday about what it's like to have a fachada. these are seemingly different personalities depending on who the person I'm interacting with -- however I'd like to point out that my evolution on this capability is that I have a personality for each emotional range that I set for that personality.
+
+I see this all the time in people like when they're really angry and they want to switch into a rage, but because of the person they're with they can't transition into rage, or transition out. like for example, they're pissed off, but because their other personality (which they use for other people) would respond differently so they feel for some reason they can't show it -- they're locked into that range and can't leave it. they want to leave it, but they can't show a capacity to change state. I've also learned how to change states pretty quickly. it's all about changing how I feel so my reality changes, and then reality-kenny sorta follows the program.
+
+so here's the thing: I just structure my different personalities in response to how I feel, meaning that I'm the same way with everyone. nobody gets special treatment because I control how I feel not what I'm going to do or say. when I feel one way, I bahave a certain way. I'll throw a temper tantrum in front of every person with equal vigour.
+
+because my personalities are linked to emotional renges (think of things like a cloud of concepts that resonate with this personality). not only is it emotional range, but I'd say there is a separate degree with is not immediately apparent because the emotion/concept is that multidimensional proximity relationship to other concepts. however, there is an extra dimension -- a sort of 4d for the conceptual plane, and that's one of interest. some conceptso out in the world look more interesting to me than others. I don't know if it's colour that I see or what but I'm defeinitely attracted to more interesting concepts. so, if a concept is a point in space, its interest is the size of the sphere (positive or negative) -- more interesting the bigger the sphere. the less interesting is negative obviously.
+
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
