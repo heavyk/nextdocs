@@ -1788,6 +1788,30 @@ as an egregore, I could imagine all sorts of technology that's hooked up to my c
 
 so why don't I use it? I do, as often as I can, but nosebook doesn't like me doing it, so they're turning all of it off. they probably use that feeling for their own purposes (wolves in sheeps clothings). it's fine. for me, there's just no need to make a condition a reason to not feel good. it's giving me tons of good practise elsewhere. I can't be dissatisfied with anything that happens. the one going the fastest is the one most allowing of her environment to change.
 
+### 2022-10-18 19:17 - let's listen to that answer again
+
+@[youtube](https://youtu.be/TfMVM8o3gRE?t=4719)
+
+> degrees of consciousness correspond with degrees of freedom.
+
+I'm totally on board here, because I think that DNA is basically the structure that translates that consciousness into form. it creates a nested hierarchy where collections of parts (like microchips and circuit parts) begen to have emergent behaviour. each new emergence relies on the stability of the layer underneith it...
+
+imagine a matrix of vibrating orbs. the specific arrangement of the orbs along with their vibrations, create vibrational structures. the structure obviously has a range of frequencies that are good enough, but one is optimal. anyway, if the orbs aren't on the right frequency, the structure is too faint to hold the matter in place so it begins to cleave off. if the orbs were to vibrate at the frequency that makes the tightest structure is the optimum frequency.
+
+@[youtube](https://youtu.be/TfMVM8o3gRE?t=4743)
+
+lol
+
+https://youtu.be/TfMVM8o3gRE?t=4965
+
+...
+
+https://youtu.be/TfMVM8o3gRE?t=4977
+
+OK, so lev's asking a question if the hierarchy of consciousness that jason is talking aoout are sort of conceptual principles. he says that an entity like zeus/enlil/indra entity is a very severe entity, and that doesn't sound like just the random musings of the voices that I can encounter in my head. therefore, there must be these other sort of conceptual matrix of ideas that are interacting with us, and a manifestation of that interaction was voices inside of our head -- until of course we evolved to shut down that capability. the ones that could act more out of willpower won over in loudness in comparison to the other voices. we evolved to optimise for louder internal voices and a filtering out of more and more of the voices.
+
+https://youtu.be/TfMVM8o3gRE?t=5147
+
 
 
 
