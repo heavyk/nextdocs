@@ -1853,6 +1853,68 @@ I don't understand. it doesn't seem like a bad idea to me. there are people (jas
 
 https://youtu.be/TfMVM8o3gRE?t=6261
 
+### 2022-10-18 21:30 - continuing the discussion on the overlords and instructions on how they behave
+
+https://youtu.be/TfMVM8o3gRE?t=6231
+
+https://youtu.be/TfMVM8o3gRE?t=6293
+
+https://youtu.be/TfMVM8o3gRE?t=6315
+
+https://youtu.be/TfMVM8o3gRE?t=6327
+
+https://youtu.be/TfMVM8o3gRE?t=6365
+
+https://youtu.be/TfMVM8o3gRE?t=6457
+
+https://youtu.be/TfMVM8o3gRE?t=6577
+
+https://youtu.be/TfMVM8o3gRE?t=6595
+
+https://youtu.be/TfMVM8o3gRE?t=6654
+
+https://youtu.be/TfMVM8o3gRE?t=6781
+
+https://youtu.be/TfMVM8o3gRE?t=7267
+
+https://youtu.be/TfMVM8o3gRE?t=7271
+
+https://youtu.be/TfMVM8o3gRE?t=7282
+
+https://youtu.be/TfMVM8o3gRE?t=7297
+
+https://youtu.be/TfMVM8o3gRE?t=7301
+
+you need something to disturb the natural law. I see these as those qualities of novelty. those inevitably produce chaos, but are calculated chaos.
+
+https://youtu.be/TfMVM8o3gRE?t=7343
+
+https://youtu.be/TfMVM8o3gRE?t=7359
+
+https://youtu.be/TfMVM8o3gRE?t=7364
+
+https://youtu.be/TfMVM8o3gRE?t=7421
+
+https://youtu.be/TfMVM8o3gRE?t=7598
+
+https://youtu.be/TfMVM8o3gRE?t=7614
+
+counter-rotating fields create that sort of dissonance, which serves as a stability for something in the middle. it's one of the things that we'll master as we begin to look at electrostatics.
+
+https://youtu.be/TfMVM8o3gRE?t=7655
+
+https://youtu.be/TfMVM8o3gRE?t=7879
+
+https://youtu.be/TfMVM8o3gRE?t=7929
+
+I thought isis, ra, el/osiris being one of the triads in the pantheon. this meant that this triad was the conceptual frequency of the YHVH of that culture. they attracted their own egregores as the manifestation of their ideas of this concept (christ/anti-christ).
+
+https://youtu.be/TfMVM8o3gRE?t=8538,8580
+
+https://youtu.be/TfMVM8o3gRE?t=8580
+
+
+
 
 
 
