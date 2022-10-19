@@ -82,3 +82,11 @@ the more offsets,
 the more dimensions.
 it's going to be so...
 beautiful.
+
+### 2022-10-18 23:16 - that which vibrates
+
+@[youtube](https://youtu.be/GNOLfCyXoJg?t=93)
+
+here, he's describing prana, chi, as something which behaves like a liquid or gas (something that flows). this is not the energy that this is. this energy is that which vibrates. the vibrations create a flow, but the flow is not the individual vibrations.
+
+
