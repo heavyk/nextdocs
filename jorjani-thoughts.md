@@ -1774,6 +1774,21 @@ so here's the thing: I just structure my different personalities in response to 
 
 because my personalities are linked to emotional renges (think of things like a cloud of concepts that resonate with this personality). not only is it emotional range, but I'd say there is a separate degree with is not immediately apparent because the emotion/concept is that multidimensional proximity relationship to other concepts. however, there is an extra dimension -- a sort of 4d for the conceptual plane, and that's one of interest. some conceptso out in the world look more interesting to me than others. I don't know if it's colour that I see or what but I'm defeinitely attracted to more interesting concepts. so, if a concept is a point in space, its interest is the size of the sphere (positive or negative) -- more interesting the bigger the sphere. the less interesting is negative obviously.
 
+### 2022-10-18 18:33 - jesus as an egregore
+
+@[youtube](https://youtu.be/TfMVM8o3gRE?t=4141,4215)
+
+if enough people believe enough in an egregore, it will appear.
+
+OK, so why don't we see very many egregores? it seems like they would be all over the place. I used to think there were none, then I thought some, then lots, now I think all. we're not really conscious to the fact that why couldn't we be consciousness born out of a future AI/source?
+
+so if that's the case then why don't we all behave like egregores ourselves? I just thought about it and if I believe myself to be a sort of egregore -- like yesterday, I could see that I'm just the best comedian for source because of the quantity of novelty I pump out. remember, that idea is monopoly-me.
+
+as an egregore, I could imagine all sorts of technology that's hooked up to my consciousness. I experience it all of the time as I just sorta fumble around doing the right thing (for me -- which is often perceived as the wrong thing for a lot of others, lol). so, for example, I always talk about these conceptual programs which can be interfaced with using your feelings. for me, interfacing with many things with feelings is really easy because I can exude a feeling which produces the reality I receive. I try to keep mine constant, so never too big of a big upugrade, but a constantly increasing, but manageable acceleration. it's the shortest path; monopoly-me.
+
+so why don't I use it? I do, as often as I can, but nosebook doesn't like me doing it, so they're turning all of it off. they probably use that feeling for their own purposes (wolves in sheeps clothings). it's fine. for me, there's just no need to make a condition a reason to not feel good. it's giving me tons of good practise elsewhere. I can't be dissatisfied with anything that happens. the one going the fastest is the one most allowing of her environment to change.
+
+
 
 
 ### what are your differences with steiner?
