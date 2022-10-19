@@ -1776,7 +1776,7 @@ because my personalities are linked to emotional renges (think of things like a 
 
 ### 2022-10-18 18:33 - jesus as an egregore
 
-@[youtube](https://youtu.be/TfMVM8o3gRE?t=4141,4215)
+@[youtube](https://youtu.be/TfMVM8o3gRE?t=4141-4215)
 
 if enough people believe enough in an egregore, it will appear.
 
@@ -1909,7 +1909,7 @@ https://youtu.be/TfMVM8o3gRE?t=7929
 
 I thought isis, ra, el/osiris being one of the triads in the pantheon. this meant that this triad was the conceptual frequency of the YHVH of that culture. they attracted their own egregores as the manifestation of their ideas of this concept (christ/anti-christ).
 
-https://youtu.be/TfMVM8o3gRE?t=8538,8580
+https://youtu.be/TfMVM8o3gRE?t=8538-8580
 
 https://youtu.be/TfMVM8o3gRE?t=8580
 
