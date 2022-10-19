@@ -1913,7 +1913,13 @@ https://youtu.be/TfMVM8o3gRE?t=8538-8580
 
 https://youtu.be/TfMVM8o3gRE?t=8580
 
+### 2022-10-18 23:43 - ravens and beavers
 
+@[youtube](https://youtu.be/GNOLfCyXoJg?t=1326)
+
+prometheus is the raven and he steals fire from his uncle the beaver. that got me thinking a lot about JD's beaver colony. the beavers are the worker types. they make things in 3 dimensions, and live in close proximity to each other for maximum well-being.
+
+sounds like the beavers are going to be stuck in their dam situation for a minute.
 
 
 
