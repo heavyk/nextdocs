@@ -763,3 +763,11 @@ the other event that happened around the same time is all of a sudden I remember
 anyway, the clarity that I had today for understanding a concept by using memory was incredibly strong -- so I have no idea what is going on. how can I possibly be getting such strong conceptual understanding through memory recall, yet at the same time, I literally can't remember who is "the dude"? things are definitely really strange. I still have no idea what in the world is going on, but I *do* know that it's totally OK. I'll still end up in the right spot.
 
 yep, I didn't talk through any of the things I thought I would. I guess it's OK. I also gave them more tips on what things are happening in relation to what memory recall, so hopefully they can try and get it even more under control now, lol.
+
+### 2022-10-19 18:03 - wat?
+
+I want to write but I'm not sure what I want to write about. I could write about the manifestation [moves the text over to here].
+
+OK, so I suppose I should talk about it, but it's not much sense because all of these random ideas passing through my head are only ideas. I don't have to worry about any of that because from my highest perspective, none of this even matters. what matters is that it's constant contrast/novelty. I can't be going too fast -- or like if I do, then it has an offset. I don't do these things consciously, but it's the case that my life is heading in the direction of effortless, which means that my vibrational impact is negligable. it also has the effect of delaying every manifestation until they are low amplitude change (effortless means low volume). it seems that the way to do that is to delay a manifestation all the way until it becomes so inevitable.
+
+so, because I have to be this way, I've learned to just go with the flow and realise that I'm always going to be the "last" one to get there. you see things from the perspective of the first, but I see things from the perspective of the last.
