@@ -783,3 +783,11 @@ I just noticed something: today, I was really stopped up and this crazy idea pop
 I choose not to go with the diaster sudden emergency idea because I didn't want to use emergency or safety as the justification. I prefer to just get back to sober and NLS my way there. all of this hastiness is really a drag for me. so I decided that was good enough but I wanted to actually like it, rathar than just going with the default. I supposed that a date would be good day to start and that alone is enough of a justification. so it's justified, but then there's the time between now and then, and that's going to create some sort of anticipataed response. that anticpated response of me wanting to actually like her is remance. it's a sort of proving ground for the other person to prove themself to me.
 
 that's annoying. I didn't want to do that. (mirror date to clock)
+
+### 2022-10-24 11:55 - I feel like
+
+I woke up this morning and I drank some coffee and I started to get back into the daily routine. I didn't feel much hunger so I didn't eat breakfast and called sesily. she seemed a bit reluctant to do anything today (for yard work or anything). at the same time, I don't really feel like writing a letter to russ right now in my sober state (it feels like resistance), but I suppose I could force myself to do it; I don't really want to though.
+
+I remembered last night that it seemed to me that there was some amount of desire to just continue on the weed train for a bit longer -- perhaps even put the weed in the capsules as well, with the effort of doing something that I don't really suggest is a good idea which is making action/decisions in an altered state of consciousness (on drugs). so, I guess I'm writing this out now so that there is some record somewhere of my decision having been decided in a sober state, even though I'll carry out the action in a non-sober state.
+
+so, I guess I go off now and I purchase another round and then send off things according to my inspiration. seems cool. OK, bbl
