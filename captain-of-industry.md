@@ -287,6 +287,9 @@ obviously the one after that is a perspective of desire where you can express in
 
 the desire perspective can also do a symbolic approach to the same perspective, so like "I'd like this to be producing 400 wood", and when it's not or looks to be a way that I want (or don't want) in the future, tell me about it.
 
+### attainable upgrade: terrain layers analyser
+
+this allows one to peel back the layers of the terrain allowing me to see the sediment type and mixture -- to better design the mining designations, but this time now in 3d.
 
 ### random idea not necessary to COI
 
