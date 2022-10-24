@@ -535,3 +535,15 @@ I suppose that when marc plays, he probably transmits a lot of visual data which
 obviously, that can only work after a fair bit of practise, because I think he's activating it mostly from memory. so for example, imagine we're talking about crochet (tejidos diana video) again and she's remembering the picture in her mind perhaps of what it'll look like as a finished product. she can make alterations to that picture to make slight variations on that clothing item. she uses the same mental pattern to do the actual crochet motions with her hands; it's largely memory based in that she's repeating the same motion that she did last time, so you'll notice that when she has to do something slightly different, she slows down, counts it out and then gets the rhythm of the new set of things. I bet she can crochet while talking and doing other things without without too much effort. I noticed that this is the mental faculty that marc uses on autopilot. he's sorta just repeating the same thing he did last time, kinda from memory, and if he wants it to go a little different, he has to verbally instruct himself to do something differently to kinda make a new memory path.
 
 I'm gonna end it here. too many reactions.
+
+### 2022-10-23 21:05 - collage music
+
+@[youtube](https://youtu.be/ynGsXgifgxI?t=1941)
+
+as I'm listening to this section, I noticed a new way to look at music. if we take all songs and divide them into measures and each measure or few measures is its sample length instead of a long sample. then you have similar samples (can even be cross genre) which are similar frequencially based on a set of attributes which are defined each by their own function(s).
+
+what you now have are a bunch of beats that are frequentially similar, but arbitrarilly so by a contrived set of conditions. those conditions are the character of the sample. characters align to other characters. this is a really good way to look at the 3rd ray perspctive through music.
+
+now, the DJ has the beat there and can add on another sample, samples theirselves are composed of samples so each sample itself a song. these are layered and the beat will continue to repeat to another sample which is frequentially similar (fS for short). the beat will be repeating over and over and the DJ is adding and removing layers, but these layers are actually thmese fS samples which randomly select a new similar sample each time they repeat.
+
+it'd be pretty easy to write a program which takes existing songs, breaks them down into fS segments and then swaps those fS segments for others in a pool of thousands of songs. hear old music in a new way.

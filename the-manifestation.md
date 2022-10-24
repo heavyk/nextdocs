@@ -782,4 +782,4 @@ I just noticed something: today, I was really stopped up and this crazy idea pop
 
 I choose not to go with the diaster sudden emergency idea because I didn't want to use emergency or safety as the justification. I prefer to just get back to sober and NLS my way there. all of this hastiness is really a drag for me. so I decided that was good enough but I wanted to actually like it, rathar than just going with the default. I supposed that a date would be good day to start and that alone is enough of a justification. so it's justified, but then there's the time between now and then, and that's going to create some sort of anticipataed response. that anticpated response of me wanting to actually like her is remance. it's a sort of proving ground for the other person to prove themself to me.
 
-that's annoying. I didn't want to do that.
+that's annoying. I didn't want to do that. (mirror date to clock)
