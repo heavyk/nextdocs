@@ -816,3 +816,11 @@ it'll manifest when there are no other options.
 ----
 
 every natural number is a first. it gets experienced for a period of time and it's novely is very high. as time passes, the amplitude of that number reduces in power but it's novelty increases as it attenuates. when consciousness perceives that thing after a very long time, a lot of novely has built up and so it feels like a novel experience. passage of time increases the novelty of all unused concepts. the hipsters (I drank coffee before it was cool) are just novelty seekers, looking for the things with the highest novelty rating.
+
+---
+
+I've been thinking about this concept in the context of "last exit for the lost". I noticed that last and lost are sorta interchangable: "lost exit for the last" -- and this revealed something about the concept that I hadn't considered -- which is that a lot of people out there who see from the last (0 or less than zero) perspective, they also see theirselves as lost.
+
+nobody understands me is a another concept that plagues last and lost people. because I'm pure chaos, it's rare that I even understand myself, so it's even less likely that someone else figures out who I am. the next stage is, other people have figured me out, but I'll be the last person to figure me out.
+
+being the last person to figure me out is an extremely cool concept because that means that as soon as I figure me out, nobody else will be able to figure me out entirely; I am unique. I am individual.
