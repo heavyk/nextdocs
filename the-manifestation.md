@@ -791,3 +791,23 @@ I woke up this morning and I drank some coffee and I started to get back into th
 I remembered last night that it seemed to me that there was some amount of desire to just continue on the weed train for a bit longer -- perhaps even put the weed in the capsules as well, with the effort of doing something that I don't really suggest is a good idea which is making action/decisions in an altered state of consciousness (on drugs). so, I guess I'm writing this out now so that there is some record somewhere of my decision having been decided in a sober state, even though I'll carry out the action in a non-sober state.
 
 so, I guess I go off now and I purchase another round and then send off things according to my inspiration. seems cool. OK, bbl
+
+### 2022-10-25 00:42 - I have an idea
+
+today, I went to buy a BTS magazine which is ultimate fanguide. I tried to read it at B&N today but I was having some confusion. I tried to tell mom some of the story were that my dates and concept of the story were *wayyyyyy* off. I thought about it and the main reason why I haven't read it yet is because it gave me an idea.
+
+the part of the story that I thought I read (this is not likely factual), but what I remember was a business guy was looking to make a pop group (but a bit more than just a boy-band). he set out looking for the members to the group and when he had found 7 boys (it started with just two -- the band grew over several years adding more members) which fit the description of the components that he needed for the group. the boys figured out that they had a common struggle with: acceptance, vulnerability, and being successful. they they took a regimented and physical (dancing, choreography, physical action) approach to getting past this struggle. the energy that they expended served as their inspiration for their songs and music.
+
+---
+
+though there that business interviews guy doing interviews and stuff, it's mostly all attraction that brings people together like this, so it was their interaction
+
+---
+
+this made me think of another thing which is that I think it would be really cool to do like a whole mullet and more streamlined look anyway, and one of the things that would be really cool is some sort of cross between synthwave and metal -- the basics for a sort of revival of the 80's and 90's, but it'll be done with modern stuff. I kinda want to find a way to turn on the 80's sort of fashion and stuff. I've really been thinking about it since jason's discussion with lev and (gnostic informant). I kinda want to just blast through your physical reality in blink of a weird music fad like the 80's. it'll be really easy to erase me from history that way and just say that it was *just* a music and fashion renaissance.
+
+so, to kinda bring out a sort of 80's sort of environment, you need glam and pop bands to kinda push the new trend. it's a self-fulfilling fashion paradigm who's concepts and lifestyle only last only for as long as the trend. so, one way to get pop bands who take their struggle and turn it into creativity is to take the BTS concept and merge it a bit with my own: instead of it being a boy-band, it could instead be a girl-band. we'll do all the same things: we'll figure out their struggle and then how to express their processs of transforming it creatively.
+
+this way we can *only* just be a musical and fashion feature and never have to use any other technology other than what is already exists.
+
+(the answer)
