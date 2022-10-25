@@ -823,6 +823,24 @@ I've been thinking about this concept in the context of "last exit for the lost"
 
 nobody understands me is a another concept that plagues last and lost people. because I'm pure chaos, it's rare that I even understand myself, so it's even less likely that someone else figures out who I am. the next stage is, other people have figured me out, but I'll be the last person to figure me out.
 
-being the last person to figure me out is an extremely cool concept because that means that as soon as I figure me out, nobody else will be able to figure me out entirely; I am unique; I am individual.
+being the last person to figure me out is an extremely cool concept because that means that as soon as I figure me out, nobody else will be able to figure me out entirely; I am unique; I am individual; I am a concept of myself.
 
-I am a concept of myself.
+---
+
+I also noticed today that there are to pretty major path differences, and one is the one of desire. I blew some guy's mind today when I was explaining the progression/evolution of desire: need (only available option else I won't survive -> need), then want (I'm finally OK wanting something for myself -> materialism and ego/selfishness), then finally "I am the thing I'm looking for" (I have so much money and stuff, I realise that all of the things are actually to sculpt who I am -> I am everything I perceive and it all reflects me)
+
+that's the desire path. for me it's easy to talk about it because it's the path that I took with additctions and all other forms of desire. I found my way from that 1st ray perspecctive. the perspective is strange to others because you can imagin two 1st rays in the same room together and the first one says to the second one, "you're a reflection of my perception" and the second one disagrees, "no, I'm a reflection of your perception" or "no, *you're* a reflection of *my* perception"
+
+there's another path though and it's the physical path. I immediately met that first guy to find another guy that had taken the physical path. it's basically the same path but perceived from the opposite perspective, so I adjusted the message and said basically the same thing.
+
+---
+
+the thing that's interesting about these two paths is not the desire aspect, but the perspective aspect. jaron was trying to get me to do and impression of bill lumberg from office space and I found it more and more difficult. I can't figure out to other people because I'm the same personality to all people. I don't have a character, so I just sorta reflect the other person back to them in addition to all the other stuff that you expect from me. this is characteristic 1st ray in that they can behave chaotically no matter whatever the social situation is. I have to constantly remind myself to behave appropriately in a situation because otherwise I just behave like I always do. that behaviour is determined by how I feel (my emotions + conditions + other people + environment).
+
+the opposite to this is the shape shifter. I take on the shape that I believe to be best suited for how I feel (my emotions + conditions + other people + environment). I have a number of different personalities and have segmented and compartementalised so that I can switch out and blend these different personalities.
+
+from the 1st ray perspective, I personally like the fact that I can always be the same because if I look at my life in smaller parts, the number of variables are less (cause I'm always the same personality) so I can look at the different segments/parts of my experience and optimise the sections individually, and my personality grows as a monolith rathar than a bunch of individual personalities.
+
+I kinda see both of these perspectives at once now, so it looks something like: I am the individual, and all aspects of myself are also individual.
+
+I <am|can see|have become> both the first (novelty, all non-zero numbers) and also the last (zero).
