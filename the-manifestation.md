@@ -854,3 +854,19 @@ they're just a sort of speedbump from my perspective. what I think has happened 
 don't worry, cause it's all a reflection of my percption, so I gatta find a way to feel good about any manifestation present or on the horizon. I don't believe I have much resistance to things in the past now[^1]).
 
 [1]: I did remember a thing I wrote last night where I talked about how annoying it is to have to constantly wait for the slowpokes. though that resistance is still somewhat active in my vibration, that specific instance, I felt considerably like mom. she's got a real hangup with slowpokes (which is why jaron is the perfect manifestation for her).
+
+### 2022-10-25 15:12 - what I think is happening with the stones
+
+each time I'm sober, I want to stay there a bit longer but there is this desire for me to smoke again. one thing that I feel like it could be is that girls tend to feel like I'm a lot more manipulatable when I'm stoned because I'm so much more receptive of more things. when I'm sober, I have a very narrow band of consciousness that I'm in (reality-kenny), and that reality state is from the 7th ray perspective. when I'm stoned, I tend to take more the 1st ray perspective. the 1st ray perspective is really annoying to all of the 2nd rays out there (and there are a lot). so, the best state for me to be in is actually the 7th ray perspective -- where I'm kinda just an actor like everyone else.
+
+the problem is my 7th ray perspective isn't really up to the girls' specifications, and I think that's what's up with the desire (those are the girls that want a perfect manifestation) for me to smoke again so that they can make more modifications. there are others that feel exactly the opposite of this and are looking for something to fix or improve, and they're not wanting me to come to too many of these improvements by my own intuition. I don't know how many there are of this, and it seems a lot less or much less powerful.
+
+---
+
+OK, now my comentary on this is that it's pretty obvious that I have to take on the 7th ray perspective because, most obviously, that perspective isn't all that understandable to most. the 7th ray perspective is very relatable to many. the 7th ray perspective isn't *really* understood until you get the 5th ray (emotional/conceptual) perspective on it, which is why I talk so much about things in a conceptual way more often that I talk about the action itself.
+
+an action is the opposite side of a concept. in retrospect, I notice that all major cocepts have an action or experience associated with them, when I learned that concept. I can look at the action, but I prefer to talk about the concept itself and let other people associate their own experiential action to the concept.
+
+### 2022-10-25 15:28 - one nice thing
+
+when I hear music, it's a very rich experience for me. I receive a lot of ideas and stuff from music and so if I'm confined to a manifestation which has no technology but only art, all of these things will all become more richer, sorta like the renaissance. as I was watching da vinci, I was noticing that he is exploring all sorts of science, but he's disguising it inside of his art. you may be able to say that from that perspective, art now drives technology, where the art needs something more from the technology. this is the part where the media goes from cold to hot (when art is restrained by technology), and HD goes through the roof. holding back technology by forcing art will cause things to become VERY VERY HD. just so you know...
