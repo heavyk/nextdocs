@@ -801,3 +801,18 @@ just remember, it's impossible to get it wrong. on the return back to source, it
 [2]: the same thing goes for the girls thing too. I keep getting plagued with various forms of resistance that affect me or them -- for example, I still believe that girls are considerably more problems than they're benefit, or -- for example, if I believe that they're a waste of time, and I feel doing my own thing is still a better use of my time -- and, for as long as I hold on to those perceptions, it'll continue to not manifest. the same thing will happen for the girls as well. for as long as they're able to hold on to silly ideas, same thing.
 
 [3]: there are lots and lots of tricks to get girls to have sex with you. I used to read alt.sex.fast a long long time ago, and I can say there are many many techniques to get a manifestation before it's ready by playing tricks. it's not worth it. that person will be a reflection of your perception, and so until you actually *are* the thing you desire (evolution-of-desire), you'll constantly be confronted with a manifestaion of your own attraction (for example, if I think girls are a waste of time -- and she'll be the biggest waste of time, etc.)
+
+### 2022-10-24 20:04 - I'm a bit of a last
+
+I'm going to try and articulate this concept in a communicable form.
+
+I finally noticed the difference between a first and a last on the walk to nuvue. I noticed that a last sees things from the perspective of *they* always get what they want. *they* just want it and they get it. everything is easy for *them*. meanwhile, *me* -- nothing ever happens to *me* except for the inevitable.
+
+---
+
+I'm always the very last option to be considered.
+it'll manifest when there are no other options.
+
+----
+
+every natural number is a first. it gets experienced for a period of time and it's novely is very high. as time passes, the amplitude of that number reduces in power but it's novelty increases as it attenuates. when consciousness perceives that thing after a very long time, a lot of novely has built up and so it feels like a novel experience. passage of time increases the novelty of all unused concepts. the hipsters (I drank coffee before it was cool) are just novelty seekers, looking for the things with the highest novelty rating.
