@@ -568,3 +568,13 @@ I "remote viewed" carbon and I figured out how it works. once we've figured out 
 kenny
 
 (good enough)
+
+### 2022-10-25 00:31 - have you ever
+
+have you ever felt like everywhere you go, you're an outsider? in a group of people they all look at you like you know something they don't know -- but, you don't really know what it is? have you ever felt like -- when you're meeting someone for the first time, I'm invading their space..?
+
+---
+
+anyway the reactions feel like I need to take a different angle -- one that doesn't have anything to do with technology. I don't have much to say about that other than what I wrote is what came to me, so it is what it is.
+
+just think of it this way: whatever the position is that you want me in, you have to find that. so, for example if you want me to be uncrdeative, then you need to find a way tp put me in an uncreative position. like, you can't say, "I want him to do this and that" and expect me to come to a position that has something else entirely. you're thinking porno where the pool/pizza delivery/mechanic/etc guy is going to a different job than the one he says he's advertising he's going to do. I have an idea.
