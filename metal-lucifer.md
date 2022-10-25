@@ -824,3 +824,5 @@ I've been thinking about this concept in the context of "last exit for the lost"
 nobody understands me is a another concept that plagues last and lost people. because I'm pure chaos, it's rare that I even understand myself, so it's even less likely that someone else figures out who I am. the next stage is, other people have figured me out, but I'll be the last person to figure me out.
 
 being the last person to figure me out is an extremely cool concept because that means that as soon as I figure me out, nobody else will be able to figure me out entirely; I am unique; I am individual.
+
+I am a concept of myself.
