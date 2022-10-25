@@ -766,7 +766,7 @@ yesterday -- well, about 16h ago -- I had a conversation in the car with sesily 
 OK, the three major parts to this are:
 1. good and bad doesn't exist (it's all perceptual)
   - good and bad/evil are social constructs designed to affect behaviour.
-  - good and bad/evil are *always* relative to the perception of the observer
+  - good and bad/evil are ***always*** relative to the perception of the observer
 2. the "archons" (christof) aren't actually bad, and while it may look like they're trying to control or something, they're just another organ in the whole. in their perception, they're "controlling" everyone and getting everyone to do the things that they *need* them to do (need is desire, and it's all attraction anyway).
 3. the way toward all of this is actually the direction that we're already going (no matter which way we go, it leads to the same thing, so it's actually impossible to fail)
   - extreme selfishness, where the most extreme (and desirable) is that everyone believes they are the centre of the universe
@@ -841,6 +841,6 @@ the opposite to this is the shape shifter. I take on the shape that I believe to
 
 from the 1st ray perspective, I personally like the fact that I can always be the same because if I look at my life in smaller parts, the number of variables are less (cause I'm always the same personality) so I can look at the different segments/parts of my experience and optimise the sections individually, and my personality grows as a monolith rathar than a bunch of individual personalities.
 
-I kinda see both of these perspectives at once now, so it looks something like: I am the individual, and all aspects of myself are also individual.
+I kinda see both of these perspectives at once now, so it looks something like: I am the individual, and all aspects of myself are also individual. if I see it from the 3rd or 7th ray perspective, all aspects/parts are individual; they're extremely compartmentalised, meaning they're all atonomous and all capable of working without dependence (or knowledge) of the others. add that to the 1st or 5th ray perspective which is that I am the thing (feeling/desire) I'm observing. it's cool to see both perspectives.
 
-I <am|can see|have become> both the first (novelty, all non-zero numbers) and also the last (zero).
+I <am|can see/have/become> both the first -- every number/experience which, based on some symbolic simmilarity, appears like no other come before it. it's experience is a first,- a new way to look at the same thing -- which is another dimension of perception -- which is also novelty. I can experience something new, but I <am|can see/have/become> also the last.
