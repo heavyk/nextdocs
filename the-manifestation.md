@@ -987,8 +987,8 @@ if you now consider yourself a character in a play
 and you play more than one part in the play
 
 you can see yourself now as simultaneously existing inside of two different perspectives.
-you are more than just yourself now.
-everyone is doing it, so why not join?
+you are more than just yourself now. you are the interrelations between all of these characters.
+I am a narrator now in a story where I set the rules. everyone is doing it, so why not join?
 
 additionally: you can't ever die if you're more than one.
 
