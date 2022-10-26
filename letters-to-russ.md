@@ -578,3 +578,13 @@ have you ever felt like everywhere you go, you're an outsider? in a group of peo
 anyway the reactions feel like I need to take a different angle -- one that doesn't have anything to do with technology. I don't have much to say about that other than what I wrote is what came to me, so it is what it is.
 
 just think of it this way: whatever the position is that you want me in, you have to find that. so, for example if you want me to be uncrdeative, then you need to find a way tp put me in an uncreative position. like, you can't say, "I want him to do this and that" and expect me to come to a position that has something else entirely. you're thinking porno where the pool/pizza delivery/mechanic/etc guy is going to a different job than the one he says he's advertising he's going to do. I have an idea.
+
+### 2022-10-25 15:50 - thoughts
+
+hey man, you know there is a lot of resistance around that whole subject. I think some government parties may not want that technology to be explored, so I thought of a new strat.
+
+have you ever heard of frank chester? he discovered the chestahedron and talked about his process of doing so. in it, he justified every improvement to the form by making an art piece out of the new discovery. in a sense, he was pushing the technolgy (the discovery of the from and its many aspects) with his art.
+
+the other day I was at a da vinci exhibit where I kinda tuned into da vinci's mind because he thinks very similar to me, I found his concepts to be easily understandable, and some of his major "inventions" that he is haralded for nowadays (like the "tank" and the human bird wings), I think was just his sense of humour because his sponsors were looking for war machines, and he was just throwin them a bone from time to time (I used to do this myself), and I realised that he encoded some interesting things into his art. one of the pictrues, he's looking at the angles of cranium in relation to the 3rd eye, and one peculiar thing that I noticed is that the skull has the same missing teeth as I do. he's encoding technology into art.
+
+the renaissance was the beginning of a trend where art and asthethics (fashion, etc) now push technology. this is materialism. I've fully embraced materialism, so I'm totally changing the strat to focus instead on art (music, pictures, etc.) and have that push technology. "they" want to delay the party a bit so what we're going to do is to take a slight detour down HD lane instead. gatta go with the flow. 
