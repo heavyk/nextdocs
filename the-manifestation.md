@@ -991,3 +991,9 @@ you are more than just yourself now.
 everyone is doing it, so why not join?
 
 additionally: you can't ever die if you're more than one.
+
+### 2022-10-26 03:28 - seems the plan is...
+
+I'm going to get back on the snake-bros discord and see if I can find laura. ask her (and any others) if they want to come to pueblo. then, I think the plan from there on out is undecided by me.
+
+we'll see if I still see this the same in the morning. sometimes things move around a bit, but I'd rather tomorrow be a flop than to start something at the same time that someone else is trying to steer another way. it only really happens when both sides stop trying to steer (like, kissing). I prefer to let it fall apart now than to keep it from falling apart later.
