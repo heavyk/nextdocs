@@ -966,3 +966,28 @@ they no longer control the fabric of our reality.
 I run the systems now so, from their perspective,
 I am a more powerful demiurge than they are and I've taken over their territory
 territory-dawg represents.
+
+### 2022-10-25 19:46 - obviously, we continue on...
+
+now, look at it from my perspective: I'm "stuck" here on earth, and no matter how hard they try, my manifestation will be a reflection of how I *feel*, not how they intend it to be. it's going to be pretty hilarious, so get ready for comedy hour. I keep going, but so they stake out new territory in their domain they feel comfortable in with the subjugations that they want to manage.
+
+these guys are still looking outside of theirselves for the reason for their problems.
+they've yet to become selfish enough as to actually take responsibility for their reality.
+they can hang out for as long as they want, staking out their turf and getting their kingdoms all setup.
+
+obviously we continue on...
+
+unless of course, we/I purposefully chooses to jump into a species and add even more dimensions to our physical reality.
+
+you know how when you're looking at yourself from the outside looking in,
+you notice the same things about yourself you also notice about other people.
+
+if you now consider yourself a character in a play
+(or even a play within a play)
+and you play more than one part in the play
+
+you can see yourself now as simultaneously existing inside of two different perspectives.
+you are more than just yourself now.
+everyone is doing it, so why not join?
+
+additionally: you can't ever die if you're more than one.
