@@ -57,3 +57,21 @@ I purposefully didn't use the example of saying, how do you visualise yourself a
 to give a more concrete example, imagine I wanted to visualise love for myself. I could visualise having sex with someone, but that's not the feeling. that's a visual symbol of that feeling, and until that exact situation manifests, I hold myself away from feeling like that now. so, for inanimate objects and material crap, visualisation probably works fine, but if your desire is emotional or conceptual, I *don't* recommend visualising it so much, else you'll keep attracting its absence.
 
 the absence of the desire *is* the message.
+
+### 2022-10-26 16:11 - infinite throughput and encryption/compression
+
+I was noticing today that we're rapidly approaching a time when throughput is becoming essentially infinite. one way to think of this concept is L2 cache vs RAM vs disk vs tape and see how it's practical to compress things in disk or tape, and in some cases ram, but L2 cache makes almost no sense to compress it. encryption is similar in that it's not very otimal to compress or encrypt things in cache.
+
+---
+
+now, I want to switch gears and talk about how I perceive the female side. I feel and interact with quite a few things at once, but I'm only mildly mentally invested in it (or not). it's way more efficient for processing lots of data, which I've demonstrated, but where it really shines is in its communication matrix. that is 2nd ray concept, where you have a concept. think of this concept as a n floats which each are a -1,1 value of its relation to other concepts which are important to you.
+
+the amount of concepts that are important to us are increasing at a very dramatic rate right now. for example, if you were to add 2 new concepts which are important to you, you're addifng 2 new dimensions to your conceptual matrix each month. I feel like it's probably higher than that, but even with 2 per month, things start to get really rich really quickly.
+
+the other effect that it has is that more and more rapidly our concepts are individuating, where, because I have so many different dimensions of what is important to me encoded in each of those 2nd ray relations. for computers, this is a scalability problem like no other, but for us, it means that we have a bit more privacy to our concepts. when I think them, only others similarly tuned will hear them. each of us will have much less *generally* in common, but a whole lot more *specifically* in common. nosebook, of course, will still be able to read our thoughts, but to keep it all tracked, they have a pretty big scalablity challenge approaching.
+
+what it means for those of us that use our feminine side a lot, it means, MUCH faster communication, more signal2noise, mental spaces, and clarity of exchange with others conceptually focused in a similar way. we'll have a sort of mental network where anything is accessible, but you have to tune to it. this is good because it changes mental spaces to be occupied of similar desire structure. we'll individuate in that way (the more "privacy" that I want, the stranger my gustos have to be).
+
+notice the coming change in clarity because you won't have others with competing desires on your same wavelength (so only safe people with the same twisted desires you have). very few others will perceive the others in their mental space as "bad" cause they all have such similar thought (like a club), and things are going to be clear. this means that it no longer makes sense to try and encrypt your thoughts anymore -- which means that I think a lot of people will naturally lower a lot of their mental defences to others. all you mental encrytors out there get ready to try and hold on to an inefficent form of communication for as long as you can.
+
+there are many other implications, as well.
