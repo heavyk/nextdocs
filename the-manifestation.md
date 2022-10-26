@@ -935,3 +935,7 @@ to it, than last time did.
 (I love that last sentence)
 
 lol
+
+
+
+### tower of power - where, each time the circus rolls through another power structure is added
