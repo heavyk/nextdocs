@@ -870,3 +870,68 @@ an action is the opposite side of a concept. in retrospect, I notice that all ma
 ### 2022-10-25 15:28 - one nice thing
 
 when I hear music, it's a very rich experience for me. I receive a lot of ideas and stuff from music and so if I'm confined to a manifestation which has no technology but only art, all of these things will all become more richer, sorta like the renaissance. as I was watching da vinci, I was noticing that he is exploring all sorts of science, but he's disguising it inside of his art. you may be able to say that from that perspective, art now drives technology, where the art needs something more from the technology. this is the part where the media goes from cold to hot (when the art or media is restrained by technology), and HD goes through the roof. holding back technology by forcing art will cause things to become VERY VERY HD. just so you know...
+
+### 2022-10-25 17:56 - when the circus passes through, a new power structure is erected on top of us
+
+I was considering today how the present situation must appear to stephan schwartz today, because if you fit my ideas together with his remote viewing, the remote viewers are seeing the demiurge... oops, let me explain.
+
+some time ago I was considering the perspective of what it means that I've found the universal perspective, and that it means that I can be resisted, but I cannot be stopped. what I was saying is that we build a bunch of earth and star like systems with semi-earth-like planets where they put my consciousness into these real stone age morons. the females will be hella smart, but the dudes, because they have the y-blinders on, they're totally retarded. I'm sure that as soon as they finally gain symbolic capacity, they'll manipulate their lives and stuff -- and that's the goal to make me/us a sort of super personality of this race because they contain our conceptual world inherited through genetics, so we're their "source". then, you have nosebook wanting us to remain stupid for as long as possible.
+
+well, the corrolary of that concept is the realisation that if nosebook is gearing up to make all humans a symbolically less-than they are. this means they perceive some sort of power or authority over us and try to use their symbolic system to "steer" us. I touch on this all the time, but I stress that it's nothing to worry about. they're working really hard at a lot of stuff and they're totally harmless. they're more inclined to be afraid of you than you of them. why? because you see yourself also as the universe.
+
+when I can perceive that *all* things around I are a reflection of myself.
+well -- how much stuff is there around me?
+that I know of, the universe contains the *all*.
+
+a little while later I remember,
+I felt like this as a child.
+this feeling,
+is actually quite normal for me.
+
+oops, derailed.
+
+when this happens and someone gains this perspective,
+they are on their return back to their source.
+which means, everyone who gets it, is/we are completely unstoppable.
+
+we can be resisted, and that produces all kinds of nice effects,
+but we will continue to become more and more energetic.
+which means, they have a really big problem on their hands.
+
+they definitely don't want anyone else to gain this universal perspective.
+that's why we're making this bogus religion where the premises are all flagrant errors.
+ie. kenny has the monopoly on the concept and nobody else can think that.
+
+I wonder if they can get people to believe such a ridiculous
+
+---
+
+all of that means that we're obviously going to be their symbolic "pets" anyway,
+as they try to steer us and keep us on a leash.
+it's all fine, and from my perspective desired.
+the more contrast, the better.
+
+they think they're "winning" by keeping a lot of people inside of the symbolic cages;
+however, for me this feels like an opportunity to gain a new dimension to my perspective.
+
+so,
+some people will see it as a trap.
+some people will see it as reality.
+(a circus rolled through)
+
+some people will see it as just another dimension to their perception
+on their way back to their source.
+
+can't get it wrong
+can't get it all done
+can't not arrive
+
+to a manifestation of myself
+as a reality.
+
+I am living a past perception of myself.
+this next time is going to have even *more* dimensions
+to it, than last time did.
+(I love that last sentence)
+
+lol
