@@ -936,6 +936,6 @@ to it, than last time did.
 
 lol
 
+### 2022-10-25 18:46 - tower of power - where, each time the circus rolls through another power structure is added
 
-
-### tower of power - where, each time the circus rolls through another power structure is added
+@[youtube](https://youtu.be/y0vtftEgeME)
