@@ -850,3 +850,17 @@ the 1st says you are a reflection of me. the last says, I am a reflection of you
 we're both shapeshifters appearing as the manifestation of your desire, but for opposite reasons: 1st ray sees that you are a reflection of me, and because I just love seeing everything around me (which is a reflection of me) be so awesome, so please all of these reflections of me, look your most awesomest. the 7th ray finds the facade/actor out that is the best fit (through some process of analysis) and what will give the best results. the 1st ray sees that its easy to inspire a 7th ray to be a reflection of that desire. a 7th ray finds it much easier to be the form that is desired within the realm of that desire (movement is easier, sound, etc. -- all sensory experience).
 
 [1]: as an example, consider the SerenityOS project which, where I last left it, was a monoropo -- meaning, the whole project moved as a monolith, though the project itself was divided into many different subsystems. this is quite different from a package repository where each package is individual and those have dependencies on other individual packages. so, SerenityOS (monoropo where all dependencies are in the repo) is 1st ray perspective and andividual packages such as debian or npm is the 7th ray perspective on package management.
+
+### 2022-10-25 21:46 - obeying the law of attraction
+
+one of the things that I've done very well to sidestep is religious stuff because I always try to explain everything without God -- but instead as a reflection of consciousness. so, for seeing the perspective that I see, religion appears somewhat comical. the archons definitely don't want people to find a way to perceiving theirselves as the centre of the universe. they're still too small thinking that the universe is not a reflection of them (outside?) -- so, I've been thinking that I want to take a bunch of blatently ridiculous ideas and turn them into a joke religion.
+
+one of the concepts I was thinking about tonight is the concept of "obeying the law of attraction". it's not like you have a choice. it's possible to setup artificial constructs like a game or a story where the rules are different, but these are fiction. other artificial constructs which bend the law of attraction is social, political, government, cultural, family, etc. constructs of perception which say that under these conditions an action should be taken, not as a response to LOA, but as a response to a symbolic construct.
+
+so, the idea of OTLOA is actually a bit of a joke on itself. it's impossible for me to conceive of a source to a universe that does not have defined dimensions and constructional parameters. a universe that did *not* OTLOA, is completely novel. it's a universe with whatever rules you make them to have. thor would like that universe.
+
+---
+
+as a result of this idea, I was thinking about the metalwave synth group. I just wrote down a song title called, "breaking the law (of attraction)" as a sort of joke song about a frustrated teenager that is completely fed up with the law of attraction, and just wants it to end. he prays to thor and thor delivers him from the law of attraction. thor is a bad boy.
+
+that takes one side of the argument and places it as reality. younger kids will grow up naturally believing that they can somehow maniplate the law of attraction and bend it to their will. they'll simply thing, "f- this!! I'm going gonna find a way to break the law". I wonder how long it'll take them to figure out thor isn't requisite.
