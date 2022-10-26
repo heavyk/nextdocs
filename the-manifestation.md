@@ -939,3 +939,30 @@ lol
 ### 2022-10-25 18:46 - tower of power - where, each time the circus rolls through another power structure is added
 
 @[youtube](https://youtu.be/y0vtftEgeME)
+
+### 2022-10-25 19:27 - the physical form of perception
+
+the physical form of perception will be the size that I/we make it to be (ie. in a some decades). when I said that we're going HD, I mean like really really HD. the physical form of perception will continue to become more and more HD until nosebook finally says,
+
+> "OK, this is the farthest we can go and still feel safe"
+
+this means that the size/HDness is determined by me and how long we continue to keep increasing my vibration.
+at the moment, this is fueled completely by contrast (and probably novelty).
+the girls are an energetic input which means that they'll have control, to some extent,
+over that part of the perception that I'm creating --
+the new physical dimensions.
+
+they set the size that they want it to be and they say, "that's as HD as we're going to allow the surfs"
+the other day, I proposed that we could make the HD increase constant
+if we put contrast in sync with novelty.
+(novelty is what is causing the expansions to the physical form of peception.)
+
+OR,
+
+> "we have no other choice but to continue to go more HD"
+
+their super duper setup gets sort of superceded by my own plans.
+they no longer control the fabric of our reality.
+I run the systems now so, from their perspective,
+I am a more powerful demiurge than they are and I've taken over their territory
+territory-dawg represents.
