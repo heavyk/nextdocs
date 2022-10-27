@@ -563,3 +563,22 @@ in one setup we can think of each controller as a single instrument (sampler, sy
 sorry, nothing special to say there. I was just really excited about the idea that the controller is both a sound creation device, but it also has the effect of being a sound transformation device. it's also cool to me how you could consider these controllers as like ... you know streams in programming? source, sink, transformer? well, it's just cool that they behave like streams do. it's significant because musicians right now are the individual setup. the DJ has various turntables (tracks) that he funnels through a central station. the dj uses a radial setup, but this setup allows for any flowchart configuration to compose the "band" and/or the song.
 
 if the tracks/instruments that I'm maniplating with these controllers, it seems to me cool to be able to *pick up* (literally) one of these instruments, manipulate its sound, *set it down*, then *pick up* another. it feels more tangible to me and it makes it easier to dance with something that I can hold in my hand, than it would be to dance with something stuck to a table.
+
+---
+
+I notice a lot of DJs make movements with their hands as if to pretend the movement of their hand is producing the sound. I don't see why it couldn't. besides that, my reasoning here is that I want to start thinking of a DJ sorta like how I used fruity-loops. you have tracks that loop (think of each of these as a controller) and then I can layer them, add and remove to make even more meaningful transitions (cut the base a moment, listen to the synth a measure, drop the base again with the new drums, etc.).
+
+I think it's important to think of a song as broken up into a bunch of parts, and then the DJ can take the parts, manipulate them and add/remove from them.
+
+I don't want to distinguish between a hardware io port and a software one, allowing for really really cool hardware syths to be built, meaning you can only listen to that song with its original intent if you have all of its hardware synths (if you don't have it, next best is selected until software for default).
+
+in implementation, it's kinda just a version of MIDI that doesn't suck, plus:
+- a bunch of software synths (outsourced)
+- a bunch of software samplers (outsourced)
+- integration into hardware samplers (pioneer, etc.)
+  - one of those turntable things are good enough as a controller to select the sampler track.
+  - another controller interface can be used to control its volume and stuff.
+
+- later on I have a few ideas about making a sort of bytecode so that a stack-based virtual machine or something can actually represent the software synth code (probably something similar to wasm), where that bytecode can be run on hardware ARM chips or just on the computer CPU, turning the input audio signal into an an output signal.
+  - important so that synths have a negotiated an audio signal with its sample rate set, so that signal bitrate can be arbitrarily large and a device that isn't capable will just downsample.
+  - important so that a song can embed its synth processing code into the song file allowing others to play the song and not need to have to own that synth.
