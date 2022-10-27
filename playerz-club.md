@@ -61,3 +61,17 @@ the second thing that I found this really strange is that I thought it was the 1
 ---
 
 finally, my theory on what's really happening: I mentioned that I think that concepts and their importance gets transferred sexually and then inherited genetically. it's quite possible that some of the concepts that I give importance to, various mothers also give importance to, and they're born with genetics which have a similar conceptual space where we give importance to similar concepts. their attraction could explain a lot of things. just saying.
+
+### 2022-10-27 17:30 - the wedding singer
+
+today the wedding singer song "love stinks (yeah yeah)" got put into my head. it was in relation to this document. I was kinda joking about the wedding, but not really. the idea is so far out of anything that I would definitely want, which is why you probably suspect something is up -- probably even think it's a trick. it's not really a trick of any kind.
+
+the way that I see it, it's the best way to make a few expansions to consciousness that I was talking about. I actually *want* to make it possible for there to be a sort of open rules system and because the rules are open, the universe behaves differently for them. they are like the narrators to a story. a story can have any rules that it wants. you can imagine how this will look commercially in a few years where kids can live in a world that is anime-like in nature (like with the big effects and stuff). nosebook doesn't need to worry about it because they have access to the rules, those kids are 100% predictable because their rules are defined. kids can take other kids' rules, improve upon them, change, etc them and it'll be a lot of fun and nosebook can have their way too.
+
+now, from a higher dimension, notice that this sort of different translation of non-physical into physical is a 4th ray perspective, so this new dimension of relating to the universe (a universe within a universe, play within a play, etc.) is actually a whole new thing that will allow us to begin to see ourselves as narrators.
+
+when you're a narrator, you have many different characters that you associate with in some way (you have your heros, your villians, "normal" people, geeks, egoistas, etc.) and these different characters interact with each other in symbolic ways -- well more than just symbolic, but they have a complete 7-layers-of-perception way of approaching life too -- each have their own desires, their beliefs and speech patterns, emotions, etc. they are in effect, little human dolls that respond to their environment in an accurate way, according to your story's universe's rules.
+
+we'll encounter other people from time to time (depending on how isolated we are -- remember the mental spaces?) and those other people will have different rules in their universe, so we never really know what we're going to get. imagine one guy has a character that hits everyone who wears a pink shirt, and my character likes pink (or whatever). we know somebody is going to create a character like that (who wouldn't?) and they'll find theirselves in an encounter that will create a novel situation. novelty is good.
+
+it's the beginning of a play within a play.
