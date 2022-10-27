@@ -547,3 +547,19 @@ what you now have are a bunch of beats that are frequentially similar, but arbit
 now, the DJ has the beat there and can add on another sample, samples theirselves are composed of samples so each sample itself a song. these are layered and the beat will continue to repeat to another sample which is frequentially similar (fS for short). the beat will be repeating over and over and the DJ is adding and removing layers, but these layers are actually thmese fS samples which randomly select a new similar sample each time they repeat.
 
 it'd be pretty easy to write a program which takes existing songs, breaks them down into fS segments and then swaps those fS segments for others in a pool of thousands of songs. hear old music in a new way.
+
+### 2022-10-27 01:18 - perhaps a different way to dj
+
+@[youtube](https://youtu.be/Js-q4ilm_0o?t=1331)
+
+while watching this video, it occurred to me that perhaps one way to reinvision the DJ setup is to instead of having turn tables, instead now there are 2+ cubes with a small screen (for track selection and stuff) and then some knobs that get set to different effects.
+
+so, you pick up the controller (think of it like a video game controller with buttons and joysticks). you select the song, and then you can start to mix it in by increasing its volume (one of the knobs) or maybe by decreasing one of the bandpass filter's effect (knobs are programmable, so something like reason has where you can plug in the instruments of which one is just the sampler (can't remember what it's called) and adjust the levels with the controller).
+
+I envisioned them as cubes because I want them to be somewhat sturdy so that two or three of these controllers side by side could be set on the ground and easy to turn the knobs and stuff.
+
+in one setup we can think of each controller as a single instrument (sampler, synth -- or if there is some software like reason, the instrument could be anything in the rack). another setup can visualise one main controller (this is the crossfader) and then different other controllers controll the tracks (these are the turntables). two setups: individual and radial. however, if we look at these setups as a sort of flowchart, each controller can modify anything on the rack but that controller could also be just one stage in a bigger thing. as an example, imagine one controller is a guitar and the other controller is like a keyboard or some dj equipment that has like a midi output or something (doesn't matter), each of these controllers represent a rack of its own. it has audio input and output and whatever you put between. that whole rack may be my super synthwave guitar rack. that rack can be plugged into another rack. so one of these controllers could be any intermediate stage in the system.
+
+sorry, nothing special to say there. I was just really excited about the idea that the controller is both a sound creation device, but it also has the effect of being a sound transformation device. it's also cool to me how you could consider these controllers as like ... you know streams in programming? source, sink, transformer? well, it's just cool that they behave like streams do. it's significant because musicians right now are the individual setup. the DJ has various turntables (tracks) that he funnels through a central station. the dj uses a radial setup, but this setup allows for any flowchart configuration to compose the "band" and/or the song.
+
+if the tracks/instruments that I'm maniplating with these controllers, it seems to me cool to be able to *pick up* (literally) one of these instruments, manipulate its sound, *set it down*, then *pick up* another. it feels more tangible to me and it makes it easier to dance with something that I can hold in my hand, than it would be to dance with something stuck to a table.
