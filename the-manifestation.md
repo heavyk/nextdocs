@@ -997,3 +997,11 @@ additionally: you can't ever die if you're more than one.
 I'm going to get back on the snake-bros discord and see if I can find laura. ask her (and any others) if they want to come to pueblo. then, I think the plan from there on out is undecided by me.
 
 we'll see if I still see this the same in the morning. sometimes things move around a bit, but I'd rather tomorrow be a flop than to start something at the same time that someone else is trying to steer another way. it only really happens when both sides stop trying to steer (like, kissing). I prefer to let it fall apart now than to keep it from falling apart later.
+
+### 2022-10-28 00:46 - king solomon's effect
+
+I didn't realise it until just now but king solomon's effect of having so many women in one area is, that many women can make an improvement at once. I've noticed over the years that women tend to evolve, not as often as individuals, but more commonly in groups. girls tend to hang around other girls with similar hangups as they do, so when one evolves, it's because the group allowed it, and then the others catch up pretty quick to the first one.
+
+well, if you have a lot of women in one location, the chances for improvements gaining traction (especially genetically) are much higher. sure he left a legacy, but what really was the novelty is so many new thoughts distributed amongst the females.
+
+(the reactions are funny. some are very concerned about this happening again, lol)
