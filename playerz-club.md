@@ -124,6 +124,6 @@ I've been monologueing on the subject at length, but I had an epiphany one day t
 
 I value the idea of improving my female side, as I believe it's probably my single greatest accomplishment -- if I could consider that -- because, at the time, it felt like my survival depended on it -- making me no different than mr. motor, other than I *want* to change/improve[^2], and he wants to stay the same. so, from my perspective, it's like a really cool idea to kinda take a detour a bit and improve our default/reactionary state conceptual self.
 
-[1]: morbid thought: I wonder if when mr. motor is forced to evolve a bit, I wonder if all the women who where in that state that he improved upon died at that time.
+[1]: morbid thought: I wonder if when mr. motor is forced to evolve a bit, I wonder if all the women who couldn't make that improvement died at that time (mr. motor was the last one to survive the improvement).
 
 [2]: this is really annoying from a LOA perspective because it means I'm always going to be the last -- because if there's an opportunity to change/improve something, then I *have* to take that path to get the concept -- unless, of course, there's another path with more concepts (novelty), then I take that one. I'm always on max novelty path. some people visualise and get what they want; I have to wait until it's the least of the most novel things to experience
