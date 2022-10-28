@@ -23,3 +23,17 @@ in a sense, that's kind of what I'm doing. I'm collecting a lot of data and tryi
 ---
 
 so, if I had to say anything to BTS about those words, I would say that they have the 7th ray perspective and it looks like their process was to take the 1st ray persspective and apply it to their music. nice.
+
+### 2022-10-27 18:08 - potential structure for a song
+
+@[soundcloud](https://soundcloud.com/jeahmon/garsi-codex-arcanum-original)
+
+as I was listening to the song I was wondering what the song would sound like if I took each of those intro segments and shortened them all down to be a few measures long, so it sounds a bit to me like an accelerating car accident or something slightly chaotic that's beginning to come to rest -- then I took one of the beats that she has and continued that on for a longer time to give it some emphasis.
+
+the important thing to note is that this song structure is for ADD kids. each segment is never more than a few seconds long to keep their attention, then when it's kinda starting to accelerate out of control, a constant beat comes in and stays for 20-30 measures -- but, only for as long as you think you can keep their attention, then make another transition (the long ones) -- then after it's done, save it and chop that one up into a few measures each segment in the transition, and repeat.
+
+it feels to me like a song that perpetually goes from a kind of chaos to a bit of order, then transitions again (chaos), then back to order... it's a cycle going from chaos to order and back by removing most of the buildup thansitions making them feel like a chaos building to something more.
+
+I was thinking about how this would sound if I were to remix some of the old songs with this style, extending some parts and reducing others. it's kinda a bit like what the radio does.
+
+anyway, the other thing I was thinking about is that this style of song creation could be a part of the song format itself, so that you could have the player determine how they want the transitions to be. the song knows where the meat is and where all the sides are so it can kinda adjust the play style of the song to fit the listener's preference.
