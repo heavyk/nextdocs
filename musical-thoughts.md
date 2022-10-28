@@ -72,3 +72,19 @@ it feels to me like a song that perpetually goes from a kind of chaos to a bit o
 I was thinking about how this would sound if I were to remix some of the old songs with this style, extending some parts and reducing others. it's kinda a bit like what the radio does.
 
 anyway, the other thing I was thinking about is that this style of song creation could be a part of the song format itself, so that you could have the player determine how they want the transitions to be. the song knows where the meat is and where all the sides are so it can kinda adjust the play style of the song to fit the listener's preference.
+
+### 2022-10-27 21:48 - acceptance
+
+I just noticed something -- to explain, I was noticing that my feminine state does not have so many steps to go from 0 to acceptance. like, if I liked a girl and she liked me, then I didn't understand why there were so many extra steps to do what you want to do. as soon as I want to, I do it. that's my conceptual-space, so that means all of those extra steps that existed previously will continue to exist in most girls' conceptual-space, but they will have lost all of their importance now -- meaning that new girls will be unbelievably accepting.
+
+unbelievably accepting is always a recipe for a bunch of demiurges to to get in there. this is how it's been for millenia, and so over time women have evolved to find things that threaten their conceptual-space to be unacceptable.
+
+what I wonder though is if this time the girls get very very accepting, if they're going to evolve things being unacceptable, or if it's going to be a new concept entirely. I can imagine that for some girls, for some things to become acceptable, some very convoluted things need to happen (think about this in context of the new 4th ray narrating form of perception). others still will just need it to feel good -- some, for it symbolically to be orchestrated in a certain way, etc. each person will have their own way of perceiving what's acceptable, and we're starting over in a new matrix where basically all of the most twisted and deplorable stuff is perceived as acceptable.
+
+---
+
+anyway, we're not yet there now, so I thought I'd like to talk about acceptance a bit. we live in a matrix of acceptance, and that's essentially the culture in which we live. there are many other concepts as well, and those get a "good" or "bad" (a notably masculine perception), but what I'm talking about is a symcbolic definition of what is unacceptable/unallowable and acceptable/allowable. this is fashion at its core. what we deem as allowable becomes expressed in the new fashion trends. it's music, it's all forms of art. fashion, music, art, etc. are all conceptual perspectives, sort of like tiny worlds in which we "allow" something to happen. we tell a story and allow that awful or great thing to happen to the person in the story.
+
+as an illustration of this, I was surprised to note how much of an effect the gangsta rap trend had on the community. I can't remember how it went exactly, but crime rated grew pretty quickly sometime after its introduction into the conceptual-space (ie what's allowable, acceptable, important, interesting). the scenes in which artists paint also seem to kind of put us in a different mental space too. it's pretty cool.
+
+no matter what anybody tells you, words and ideas *can* change the world.
