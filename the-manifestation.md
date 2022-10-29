@@ -1118,5 +1118,14 @@ the way it looks to me is that actually a bunch of individuals will figure out t
 
 I noticed another really great thing. I said that the new concept coming from the sun in the waxing of this new solar regime is feeling-purposefully. when I perceived it, I saw it from the individual perspective, which is, "I feel the way *I* want to feel." -- but with the girls that is no longer the case at all: "I feel the way the girls want/expect me to." I don't really like that.
 
-### kenny sounds like vera when she got past her limit smoking that one time with kenny
+### 2022-10-28 21:13 - kenny sounds like vera when she got past her limit smoking that one time with kenny
+
+I noticed that at the end of this session of smoking a few things. I noticed that weed allows the feminine thought's feeling indicator to move rather rapidly. I can switch how I feel out pretty quickly (that is, to actually feel different, rathar than pretending I feel different), and that capacity is pretty good, but weed, I noticed allows that feeling to move around much more suddenly. I don't know how others are, but the way I feel after particularly charged moments, lingers for a bit. it takes me a while to change, but with weed massive fluctuations can happen in how I feel, compared to sober.
+
+so, what I noticed is that when smoking past a certain limit, the gain is so high that the needle is pegged in either direction. I'm only seeing from the extremes now (this is when pure ecstasy hits with a drug) and because of the gain on my perception, it's only going to make me feel really really good -- or, really really bad. when that happens, my most primitive feminine side is coming out.
+
+this is an interesting thing to note if you study me, because my most primitive/basic/worst-feeling state, I'm a hyper individual ego maniac. that's my "worst" feeling state now, as evidenced by the last smokes. I figure I should keep pushing myself to that limit. as you noticed -- if that's my "worst", things are manageable.
+
+imagine everything goes wrong, and the "worst" possible manifestation happens, and you feel hyper individuality and meglomania. welcome to the future.
+
 ### interests diverging and individualisation
