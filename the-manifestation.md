@@ -1068,4 +1068,33 @@ I only monologue because nobody converses with me. sure it seems weird to think 
 
 just because I see from the universal perspective doesn't mean that others cannot as well. talking to someone else who actually considers all of their life to be a reflection of them, *does* sound interesting. see what I mean, it's not that hard to start moving toward something that's interesting, cause at the moment our interests are diverging so mostly away from unwanted. wanted always feels interesting and engaging.
 
+### 2022-10-28 19:04 - I'm not really in the physical
+
+anothor major desync is the obvious fact that you guys live in a really detailed physical plane; I do not. I live in a sort of weird mix of a world between the physical and the conceptual. it looks kinda like the physical in that it's flat, but because I don't pay much attention (less and less) to the physical, I have a very conceptual perspective on things.
+
+we're not even in the same zone. between us is a whole bunch of 4d people that are just going nuts in their imagination (I call them "pajas mentales"). what this means is that you guys want me to *leave* my position of extreme perception and *join* you down in the physical. what, right?
+
+when you look at it from that perspective, you can see the major problem, which is that life is increasingly accelerating toward more and more juicy and vivid. this is hyper sensual, but my senses are almost none. my experience isn't very physical because my physical senses all have so much noise in them. there's nothing smooth about my physical experience.
+
+then, there's the extreme loss that I will immediately face, which is that I will no longer see the world through my conceptual space, but will now have theirs. this will be a tremendous loss for me, in that all of the stuff that I rely on now will no longer function. actually, I'm not so sure about that, but it does feel that way at least to some extent. I really like me.
+
+I like who I am and how I perceive. I perceive you all the way I do right now because it's the way that I've constructed my perception. when/if I go with the girls, now I'll perceive you all more similar to the way they perceive you. I pick up a female's form of perception really easily, which means that you all won't look the same to me. I was surprised at how much my opinion for my friends changed when I was with raquel (like zaryn and daniel, and also dani a bit) -- and I fought because she saw them as bad/unacceptable and I didn't.
+
+---
+
+if I go the demiurge route, then I don't lose that so much because I'm still around the unacceptables. we decided the other day when brainstorming band names that there is no way that I can go that way because the crude and unacceptable (especially to women) comments would be too much. it felt like they were concerned that they would corrupt me or something. well, I'm mega corrupted already as it is -- I'm willing to bet that *all* of the bad guys, for millenia have been aspects of myself; like, I'm *the* bad-guy.
+
+---
+
+the girls and I are not even close to being on the same dimension. if the demiurges want to keep the unacceptable train rolling, that's cool by me, but here's the thing: if they're not coming up to meet me, then somehow I have to get into the physical. I have to do physical things and like the material world. they could take me there, I suppose -- but, like I was going to say, the way they have to get me into the physical will be perceived something of a romance. if they're going to do it, they're going to be redesigning romance. somehow they have to find a way of getting me down into their physical world.
+
+my physical world is very incompatible with theirs. my physical world is also pretty incompatible with the demiurges, but it's definitely more compatible. I have much more freedom to do what I want there and it's easy to joke around and have fun, which up till this point, with the girls has not flowing so smoothely. I tend to reflect what the other person is like, and I often feel like I don't know what to do, so I kinda freeze and don't really do a whole lot. the way that I feel there kinda marks the duration of my relationship with others in the physical. up until now I'm this barely capable of interacting with anyone in a personable way (what originally attracted people to my broadcast I'm sure), which is something that I've definitely lost.
+
+one of the major hangups that people have, is they have no idea how to behave around me (cause I reflect it back), so they tend to avoid me. so, if I'm always unapproachable, then how can I have a relationship? obviously this is nosebook's effect -- because they want to be able to steer me and not have any organic conversations or spontaneous/unpredicted action.
+
+### 2022-10-28 19:38 - where I think this is going
+
+because nosebook cannot allow me to be in the physical like you guys are, I don't see this situation ever changing. there are a
+
+group thought -> individualisation
 ### interests diverging and individualisation
