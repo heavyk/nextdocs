@@ -1046,4 +1046,26 @@ I look at this like I'm redesigning the feminine form of thinking, and they want
 
 so, to put it simply: everyone (including me) is getting put into a matrix -- and in fact we already are -- probably at least a few levels deep -- so, if you want my reality matrix, let's keep going my way -- but, if you want the girls' reality matrix, let's go that way
 
-### redesigning romance
+### 2022-10-28 18:01 - redesigning romance
+
+I also was thinking about how I'm making a lot of emphasis (I notice to what I write, kinda) on the idea that I'm going to be completely redesigning what is interesting to people. so, you have to imagine that this is a pretty big problem in general. I keep trying to talk to people at a level which I enjoy. that was what was so invigourating about the idea of hanging out with jason and kyle and stuff -- which is that I can actually talk about things that interest me. with the girls, the main reason why I vetoed the idea for so long is it just looked like another version of nosebook's standard formula of extreme amounts of pleasure but no actual substance (this is always the marketing team's desire), and so I never wanted to actually go that direction because I'm not as stimulated by pleasure as normal people are.
+
+if you asked me if I would rather hang out with a bunch of DJs or work on carbon, I'm of course going to want to work on carbon. I'm pretty mentally simulated by intelligent things. imagine that now everyone (including men) has a feminine side now like mine, where pleasure is nearly completely replaced with scientific discovery. I've said various times in the past that sexual energy feels the same as creative energy and also as a discovery of a principal (conceptual or physical). these all feel amazing to me.
+
+another instance that left an "indellible" mark on me was a long time ago patricia scolded me for wanting to have sex AND also do work. she believed that work and pleasure should not be mixed, so she strictly forbid us from ever mixing creativity and sex. it was really annoying to me. raquel obviously did the same, but for different reasons.
+
+I believe that both raquel and patricia are running on standard female form of thought, which is why it wasn't possible. obviously, my creative side does not have such limitations. going back to the girls is exactly what nosebook wants because they'll return that cap on creativity and sex ever being allowed to be expressed at the same time.
+
+---
+
+OK, so -- that kinda sets the scene, because now I wanted to talk about how this situation is kinda forcing a redefinition of romance, and it likely a big part of the transition to my feminine form.
+
+this entry (and a few others) have expressed my dissatisfaction with the direction that we're heading, mostly because you guys are so in your heads about stuff, it's difficult for me to reason about what's going on. if you want a manifestation, we have to at least be in the same location. this seems rather obvious, but I think that everyone is so used to distanced togetherness, you all have forgot that you make physical relationships *in person*. there's no other way I'm going to meet her.
+
+another thing to consider is that we may want to have conversation as well, because it's quite likely that some things that interest me may also interest you. this is such a difficult subject for me to convey, because *nobody* talks to me about anything that I'm interested in -- and if I do, their gender isn't usually female. the majority of the things that I want to have a conversation about, don't usually interest the other person. nobody likes to talk to me as it is, so how can I possibly imagine the girls would be any different than how they are right now (non-existant or non-conversational) -- and, I mean conversation, as in someone actually tells me something that is interesting to me, instead of the nosebook crap where we can only talk about superficial crap.
+
+I only monologue because nobody converses with me. sure it seems weird to think about coversations, because I don't think that anyone has any ideas of anything other than sex. I a good portion of my day communicating (writing here or talking to jaron), so then you could imagine that if I'm to be communicating, what will it be about? well, at work, it's work stuff (until I know my office mates, then it's everything). at home, it's superficial crap and meaningless banter (idle conversation). I can do both, but if it's for my pleasure I'll come here and write. I get quite a lot of pleasure out of writing here, because I'm talking almost exclusively about things that interest me. I'm trying to integrate more of this style of conversation into random (I just met you) coversations where I slip something into the cracks. nosebook hates these because I'm going off-script there. I'll obviously do more and more of those, but honestly I would actually like to have lengthy conversations where it's not *just* me explaining my theories.
+
+just because I see from the universal perspective doesn't mean that others cannot as well. talking to someone else who actually considers all of their life to be a reflection of them, *does* sound interesting. see what I mean, it's not that hard to start moving toward something that's interesting, cause at the moment our interests are diverging so mostly away from unwanted. wanted always feels interesting and engaging.
+
+### interests diverging and individualisation
