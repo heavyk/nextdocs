@@ -1128,4 +1128,10 @@ this is an interesting thing to note if you study me, because my most primitive/
 
 imagine everything goes wrong, and the "worst" possible manifestation happens, and you feel hyper-individuality and meglomania. welcome to the future.
 
+### 2022-10-29 10:28 - would prometheus...
+
+(assume voice of jason, at least for the intro) would prometheus build impressive technology and then make sure only zeus has it, or would prometheus share that technology with humankind?
+
+I argue that the "fire" that prometheus gave us, was one of emotion (attraction power -- the ability to fulfil one's own desires) but jason argues that prometheus gave us the forge of technology -- that we are a race of beings that has no inherent quality that we were bestowed with, and so therefore to overcome the difficulties of the physical, we use *tools*. tools can be used for both harm and for good; that is their nature. tools are just tools. they are themselves neither good or bad. it's the *intent* of a person which turns that tool into something productive or something harmful.
+
 ### interests diverging and individualisation
