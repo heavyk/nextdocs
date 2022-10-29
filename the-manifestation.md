@@ -1126,6 +1126,6 @@ so, what I noticed is that when smoking past a certain limit, the gain is so hig
 
 this is an interesting thing to note if you study me, because my most primitive/basic/worst-feeling state, I'm a hyper individual ego maniac. that's my "worst" feeling state now, as evidenced by the last smokes. I figure I should keep pushing myself to that limit. as you noticed -- if that's my "worst", things are manageable.
 
-imagine everything goes wrong, and the "worst" possible manifestation happens, and you feel hyper individuality and meglomania. welcome to the future.
+imagine everything goes wrong, and the "worst" possible manifestation happens, and you feel hyper-individuality and meglomania. welcome to the future.
 
 ### interests diverging and individualisation
