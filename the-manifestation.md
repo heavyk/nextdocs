@@ -1036,4 +1036,14 @@ I value research, discovery, and the way I feel. I don't know that the girls val
 
 conflicts are quite a few, and the thing that I just am having the hardest time with, is feeling like it's something I want to do. you may say that I should be motivated by the pleasure of it, but that is actually a very anti-motivating thing for me. that aspect itself makes it feel like a trap more than anything -- which makes perfect sense, because for literally ~10y or so now, nosebook has been trying to keep me trapped using pleasure so they can continue to use my form of perception.
 
-they can use my perception. I have no problem with that. I just figure that I should wait until I can use it too. like I said, they're probably lightyears ahead of me, but I'll catch up. I just have to stay true to my direction and my intuition. there is literally *no* reason why I can't use my own perception too -- just they don't want me to have it. I can wait, obviously. it won't be but a few more years until I can do all of this myself. I can probably even make their 2038 deadline, too. 
+they can use my perception. I have no problem with that. I just figure that I should wait until I can use it too. like I said, they're probably lightyears ahead of me, but I'll catch up. I just have to stay true to my direction and my intuition. there is literally *no* reason why I can't use my own perception too -- just they don't want me to have it. I can wait, obviously. it won't be but a few more years until I can do all of this myself. I can probably even make their 2038 deadline, too.
+
+### 2022-10-28 17:55 - simply, it the perception
+
+I just realised that I can reduce the whole previous entry into one statement -- which is, "if you want my perception, let's just keep going my way; but, if you want the girl's perception, let's go that way".
+
+I look at this like I'm redesigning the feminine form of thinking, and they want me to get back into the old way of thinking. I prefer to start over starting from me (ie. the feminine aspect (X) will all be a derivative/improvement on my own), and so to some extent, I'm not really all that interested in the girls at all. I kinda prefer to replace them.
+
+so, to put it simply: everyone (including me) is getting put into a matrix -- and in fact we already are -- probably at least a few levels deep -- so, if you want my reality matrix, let's keep going my way -- but, if you want the girls' reality matrix, let's go that way
+
+### redesigning romance
