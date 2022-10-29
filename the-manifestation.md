@@ -1114,4 +1114,5 @@ to explain the bigger picture, I don't believe that the conceptual realm is very
 
 the way it looks to me is that actually a bunch of individuals will figure out this kind of perception, and it's from that perspective that we begin to make our conceptual-space for the new species we'll soon inhabit. I want the species to conceptually see thierselves as a reflection of source (and everything else around them as a reflection of their self). their identity conflict will be different than ours.
 
+### kenny sounds like vera when she got past her limit smoking that one time with kenny
 ### interests diverging and individualisation
