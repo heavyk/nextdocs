@@ -1114,5 +1114,9 @@ to explain the bigger picture, I don't believe that the conceptual realm is very
 
 the way it looks to me is that actually a bunch of individuals will figure out this kind of perception, and it's from that perspective that we begin to make our conceptual-space for the new species we'll soon inhabit. I want the species to conceptually see thierselves as a reflection of source (and everything else around them as a reflection of their self). their identity conflict will be different than ours.
 
+### 2022-10-28 21:10 - girls also change the symbols a bit
+
+I noticed another really great thing. I said that the new concept coming from the sun in the waxing of this new solar regime is feeling-purposefully. when I perceived it, I saw it from the individual perspective, which is, "I feel the way *I* want to feel." -- but with the girls that is no longer the case at all: "I feel the way the girls want/expect me to." I don't really like that.
+
 ### kenny sounds like vera when she got past her limit smoking that one time with kenny
 ### interests diverging and individualisation
