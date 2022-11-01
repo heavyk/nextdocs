@@ -298,3 +298,23 @@ this allows one to peel back the layers of the terrain allowing me to see the se
 
 - when moving the mouse to the edge of the screen, it'd be cool to get a vertical bar that sticks out relative to the pressure on that edge.
   - I think this concept can be applied to other things as well, which is showing variable movement visually instead of static (constant velocity movement) -- reminds me of that isometric crap. I like that it has bounce to it.
+
+### entity groups
+
+- ability to make groups for things, like a group of buildings or a number of excavators
+  - priorities can be changed on all of them, scrap, etc. all the features that all the entities have.
+    - obviously if I change a priority and some pipes are included in the group the pipes won't change their prority cause they don't have one.
+  - this can help to create groups for later descriptions for reactions in a symbolic way.
+  - some useful examples:
+    - turn off a whole section of facores (pause the whole thing -- incuding the belts if desired)
+    - turn on and off modules of a power/diesel plant to adjust to conditions (like, need more fuel gas)
+  - these groups serve as the basis for the creation of reactions:
+    - do these things to this group under these conditions (conditional application)
+    - each thing has a state and under what states, different settings are applied (individual state)
+    - combination of both, which is a bit different: it's a reaction to conditions by affecting the state of a thing, rathar than changing individual settings on the thing, instead I'm just reacting to the state, unknowing of the settings. this is a pretty big difference because I don't enforce the setting, as that's done by some other means (profiling, performance enhancements, etc.). it simplifies the process a lot because I can just have them do things, and the things that they do are determined by their state. oops. this is the desire perspective (I should have mentioned that earlier on, lol)
+
+### co-op mode
+
+I really like the idea of playing this game with someone, because it's often the case that I see the game from a very different perspective. I'm often very forgetful of things (the macro game), but I tend to see the bigger picture. I know what I want (usually), because I can see the direction pretty easily, but I forget to pay too much attention to all the little details; then, to make things even worse, when I do go to look at the details, I totally get lost in them and spend way too much time looking at the details (I like to watch the battles in sc2 or watch the trucks move around and stuff). because of this, even as an observer, I think it could bwe pretty cool.
+
+in addition to this, I've been thinking about how this game can be streamed. you know how you watch DOTA matches in DOTA? well, it seems like streaming should be built right in because I'd love to load up into JD's island and just fly around (and potentially do stuff). it just seems like a cool game to sorta just hang out with other people in; again, I'm referring to JD's stream now where it's sorta like a hangout zone, but the thing is I can't really look around so it's not as fun. if I could look around *and* also sorta hang out there, that would be cool. the DOTA announcers stream on twitch (I think), but if I want to go and watch the game itself and fly around and look at the heros and their stats, pause look at something, rewind, etc. -- it's just a lot more nice to be able to interact with the game when I'm watching someone else play it (the video broadcasters are also available).
