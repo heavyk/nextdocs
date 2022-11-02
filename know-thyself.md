@@ -130,3 +130,13 @@ the more novelty that you experience (this is the mind (perception) like a child
 the better you are at predicting your reality, the more (meaningfully) HD life will become. you now have more and more borders to other oppositely rotating concepts, where there is another dimension to feel the concept. the more proabilities play into our everyday conversation, the more mental dimensions will be added. you can imagine that a sort of probable realities matrix graph where people have pretty much agreed on the manifestation of certain realities.
 
 conceptually rich things for relatively little effort
+
+#### why is it (meaningfully) HD?
+
+when you can see your life as a series of possible paths, you now select your path, and the path that anyone takes is not usually the shortest route (3), but instead, we prefer the most *meaningful* -- and that meaning is always unique to the inddividual.
+
+as an example, imagine you can see three major paths that are possible for you (it's a three tines fork), and so you look at them and because you have some time to choose, you have a look at the various options and notice how some things have certain resonant qualities or aspects that are *meaningfully* more desirable -- and then, after some deliberation, a person will pick the thing with the most meaning to them.
+
+for example, if I say, "I don't know. I always pick the wrong one, I pick the one that I think is wrong. or, if they value how they feel, then the thing that feels the best will feel more meaningful.
+
+each comparison makes a new dimension *between concepts*; get enough of those toether and groups and patters start to emerge which begin to suggest there is another dimension that's needed to make sense of the feeling/signal.
