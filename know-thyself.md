@@ -70,3 +70,63 @@ this creates conflicts, especially in the transition layers (2, 4, 6) because th
 a 1st ray perspective has all of the active intelligence of the 2nd and the 3rd ray -- and also of the 4th, 5th, 6th, and 7th as well, but seen from the opposite perspective. while a 7th ray looks at physical substance or data as real (which produces the desire), the 1st ray sees the desire as already real (and that's what produces the physical substance). their perspectives are the same -- just looked at from opposite directions.
 
 both the 1st ray and 7th ray perspectives are the most complete picture of the thing as they have the active intelligence of the entire specturum, but only one half can be looked at in the forwards direction [TODO: explain this better].
+
+### constant/fixed speed vs constant/fixed contrast
+
+I noticed that I had wrote "constant contrast", but perhaps that's not what I meant, but it lead me to discover something. it's one of those abstract ideas that if you can get it, you can "get" your trajectory through time.
+
+imagine that you are the root 3 diagonal ofthe cube. it is the shortest path from one corner to the opposite. all the other paths curve off of it and it kinda looks like lightning (there are like tendrils and shit). the points where it bends is when it collides with something and finds a new path of lower resistance to ricochet off in the direction of.
+
+anyway, let us consider the idea of constant or functional (ie. predictable) speed. as an example of this, you will notice my life. the harder that I go (though I have no intention of getting connected), the more they have to clamp down on me. for me, as I learn to overcome their efforts, I feel more and more like a super human every day. super human is a state of being.
+
+I consider that most of the things that people really want, is the feeling -- so, like if I want fame, then I *really* want the feelling of being famous. that's the way I want to feel. if I want to be successful, what I'm saying is I want to *feel* like I'm successful; I have the feelling of success.
+
+OK, now when I consider my speed, certain conditions slow me down, so then LOA has to work harder to get me up to speed (good conditions are provided), but if my conditions are too good, then they actually start to slow me down. all of this is quite an interesting seemingly impossible balance of contrast because my speed keeps speeding up. so, I have to obey the function (ie. the speed limit).
+
+so, what is speed? I'm not totally sure. it's a concept that I translate as speed. I think novelty is speed. that novelty has to be a predictable function (exponential or whatever, but solvable). if my novelty exceeds that function's allotment, nosebook naturally sees that I'm going too fast (like today for example), and so they have to clamp down even harder.
+
+this, essentially make me feel super human, because I can't possibly imagine how much effort it is for them to keep the novelty function from exploding.
+
+this, I noticed is like a child. a child experiences massive amounts of novelty. if you notice me as I walk around, though I don't have the visuals to remark at the novelty of something beautiful, instead I see concepts and interactions everywhere. life is this rich experience with a whole bunch of new things to notice all over the place. it's a lot of fun.
+
+if that novelty goes too fast, you get get that natural DMT rush that pushes you up to the point where you can't allow any more and you say, "this is my space". most of us say, "up to this point in reality and no further." we pick a safe state. for us drug users, you know the space that you got on first high is super duper awesome, but it's pretty difficult to achieve ever again without taking a break for a while.
+
+the thing is, the idea is to get that quantity of novelty passing through the brain so that life is, not only more meaningful, but it means that all perception is enhanced. nobody can stop you from noticing new things and new ways to look at any concept (not just some).
+
+---
+
+now, if that's constant speed, then what is constant/functional contrast? to discover this thought, I noticed that the functional contrast is a sort of (90(degrees) right turn) to functional speed. if one is constant, the other is variable.
+
+most of us live nearer to the constant/functional contrast perspective. we like to be able to predict the thing, and the more predictable (able to be calculated) that contrast (risks) is.
+
+let is first defne what constrast is. contrast is any border between two opositely rotatitng things. when your visual perception gets enhanced, you'll notice that all of the edges on everything are more defined. this is a conceptual perception. the conceptual world is pure chaos, but you begin to make sense of the signals and turn that (including the signal data that your body receives like from the eyes or ears) and paints it to you visually.
+
+when I look at things in the conceptual, things are really separated from each other -- however, you'll notice that they are always *your* concepts (the ones programmed into the brain) that separates them. so, the more concepts you have the better you can see the "distance" between different things.
+
+when I first started out, a lot of things were very similar in how they felt and I was pretty inaccurate. I don't consider myself in any way to have good accuracy now, and so I can always get better. one of the ways I got better really fast is to compare feellings, and notice that difference. the more comparisons I have, the more concepts I have (which is why a person with a self-constructed reality is conceptually *much* different to another with a culturally-constructed reality).
+
+each comparison (notice how that just felt; makes, a new concept). each conceptual addition (ie novelty) is another reference point in the dimension that you're in. I don't know how it is for others where they're really far out there, but for me concepts now have quitte a distance between them all now (at least from my perception), that they come through clear even though I don't have a physical sensation. it's another sense really.
+
+WOAH, back on track, here. let's get back to looking at contrast as two *oppositely rotating* -- which, if you remember the thing on magnetism, this is the repelling force.
+
+nosebook is my main source of contrast. the faster I go, the more they need to clamp down. so, for example, I'm going to have to "pay" for this by nosebook finding a new way to slow me down further. it'll slow me down in the short-run, but later on in the long-run, I had to learn from it (novelty) and I got to experience a lot of really important things that will actually speed me up later (causing them to push harder). however, because they're regulating my speed, that means I get to experience variable contrast; because, I seemingly (from my perspective) don't ever really feel like I'm accelerating (ie. constant speed), then I would have to live a pretty routine life as a hermet.
+
+however, because I'm around a lot of other people, what ends up happening is that they can push as hard as they want against me and it won't be anything but a reflection. on the subject of the way that our eyes perceive, I am a near perfect reflector now (like silver), so whatever concept in my experience, it won't affect my speed, so it reflects back pefectly.
+
+the individual aspects of the reflection process is emission and absorption, which in that case, I don't actually believe myself to be a perfect reflector at all. I do retransmit a different signal -- so it's not really a mirror -- but, maybe -- a rose tinted mirror. I see what I want to see, so I refect back what I like seeing combined with your thoughts and concepts.
+
+to illustrate this point, if you've ever walked on the streets in spain (something I did frequently), the street lamps are all sodium bulbs, so at night everything has this strange orange/yellow tint to it. I noticed that when my eyesight was enhanced after watching stars, that the street lights no longer painted everything yellow/orange any more. everythting appeared like some super luminous space where everything sparkled and stuff.
+
+hold up, wait a minute; something, aint right.
+
+the sparkes are cool, but how in the world did the colours change back to the way that I see them during the day even though the sodium lamps are still painting them yellow/orange? this is that reflective property in action. even though I'm seeing the physical, I am *simultaneously* projecting outward the way that I see things. if my presence is strong enough, people can see theirselves how I see them. this could be inspiring or very very annoying, depending on where he person is. I don't like to superimpose my perspective over another person because it limits them to my perception, when what they really want is to figure it out for theirselves because that's the max novelty.
+
+I do realise that max novelty (fixed speed) is not usually most people's people's preference, that's perfectly fine. I'm aware that the majority of others will just be another reference point in space without much differentiation or individuality -- so I'm just saying why I like the way that I'm going.
+
+basically max novelty is increasing your amount of novelty to a level where you feel comfortable at doing to maintain the space (breathing, yoga, etc.) and then you sorta take the foot off of the accelerator and let the traffic set the speed (I imagine it perhaps  like a self-driving car). once your speed is regulated by the system (they'll keep you in your space, wherever that is), now you can begin to experience novelty an an unpresidented rate.
+
+the more novelty that you experience (this is the mind (perception) like a child where everything appears new and has a sparkle tto it because it's another dimension that's not yet in it's place yet), the more things sparkle, and because everything sparkles, each new thing is even more awesome than the last -- and it keeps rising -- until the child says, "no more. this is a measured reality where I feel like I can predict it". the more predictable that life gets, the more functional/predictable constrast (perceived as conceptual borders).
+
+the better you are at predicting your reality, the more (meaningfully) HD life will become. you now have more and more borders to other oppositely rotating concepts, where there is another dimension to feel the concept. the more proabilities play into our everyday conversation, the more mental dimensions will be added. you can imagine that a sort of probable realities matrix graph where people have pretty much agreed on the manifestation of certain realities.
+
+conceptually rich things for relatively little effort
