@@ -144,6 +144,12 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small thing: it would really help if all pipes simplified connecting pieces of the same pipe (ie. med pipe touches med pipe)
 
+- ability to have more than one cargo ship on a depot, allowing for boat to unload while the other is journeying (like an upgrade that can be purchased on the depot or something -- then set them to slow speed and have more throughput)
+
+- small thing: the cargo ship doesn't leave as soon as it has enough product to fulfil the contract
+
+- small thing: it'd be nice if the surplus maintenance applied to paused units
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
@@ -306,12 +312,14 @@ this allows one to peel back the layers of the terrain allowing me to see the se
     - obviously if I change a priority and some pipes are included in the group the pipes won't change their prority cause they don't have one.
   - this can help to create groups for later descriptions for reactions in a symbolic way.
   - some useful examples:
-    - turn off a whole section of facores (pause the whole thing -- incuding the belts if desired)
-    - turn on and off modules of a power/diesel plant to adjust to conditions (like, need more fuel gas)
+    - turn on/off a whole section of factories (pause the whole thing -- incuding the belts if desired)
+    - turn on/off modules of a power/diesel plant to adjust to conditions (like, need more fuel gas)
+    - turn of/off a cargo ship and its modules, lol
   - these groups serve as the basis for the creation of reactions:
     - do these things to this group under these conditions (conditional application)
     - each thing has a state and under what states, different settings are applied (individual state)
     - combination of both, which is a bit different: it's a reaction to conditions by affecting the state of a thing, rathar than changing individual settings on the thing, instead I'm just reacting to the state, unknowing of the settings. this is a pretty big difference because I don't enforce the setting, as that's done by some other means (profiling, performance enhancements, etc.). it simplifies the process a lot because I can just have them do things, and the things that they do are determined by their state. oops. this is the desire perspective (I should have mentioned that earlier on, lol)
+- sometimes I want to leave myself a note to do something, and it'd be nice to store the entity group that I want to take a note of, but I make it a sort of goal. I say, I want these to be producing x amount of thing, and now it's not but later it is important to keep seeing that each of these goals stays fulfilled. the ones that aren't fulfilled yet are the TODO items/notes (saving text is also nice because I want to sometimes talk about the next thing after that).
 
 ### co-op mode
 
