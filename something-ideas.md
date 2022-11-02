@@ -12,7 +12,7 @@ now, I'm thinking about seriah's music collection. he has physical copies of all
 
 so here's the idea: we recreate gatunes music player like we had it before but instead of youtube videos, we just start with seriah's music collection. other people browsing it can say they also have a physical copy (and I guess can verify it -- sorta like a collectors measuring contest).
 
-same thing: the number of physial copies available in the network is the number of people that can play the song simultaneously.
+same thing: the number of physial copies available in the network is the number of people that can play (or broadcast) the song simultaneously.
 
 ---
 
