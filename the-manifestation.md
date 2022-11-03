@@ -1150,4 +1150,86 @@ it'll start happening organically. we'll be around each other and working on thi
 
 we have to go the individual perspective for as long as they think they need to hold on to get everything under control. they'll stay in 4d and we'll continue on to 5d where it'll all manifest. I think that's the easier way to go about it, rathar than try to coerce nosebook to do something they can't allow. ie. instead of fighting against their power structure, let's just wait and become the power structure over them -- obviously, lol.
 
+### 2022-11-02 23:23 - thinking about things a bit differently
+
+one of the things that I noticed in my time smoking is that I really just like playing this captain of industry game because I totally forget about my world, and I can see progress in tme game, whereas it feels like I'm pretty stuck with a lot of things. I know that this is not how some perceive me, though.
+
+when I look at the concept from a generalised version of my concept of "you guys" (specifically the human audience), it looks like I'm just sorta floating around. [like I explained yesterday](/know-thyself.md#constantfixed-speed-vs-constantfixed-contrast), every time that I get a good idea and I start trying to go faster than that constant speed thing and I get a lot of pushback. as I was explaining in that one, there are basically two ways to raeact in my situation. the first is to go nearly completely passive and only use my perception to feel good about whatever disaster they fumble me into by trying to make things happen and stuff. this is comical to me anyway, so that's not really that small of problem.
+
+instead, what I was kinda saying in that document is that if indeed I am fixed speed, there's no sense trying to go faster than I can. believe me when I say that this is the most annoying thing ever -- because I see all these other guys out there going really fast and having a really good time -- but that just doesn't work for me.
+
+in general, the better that I feel because of conditions, the more likely it is for something bad to happen to put me back down to that functional speed. it's a weird self-fulling prophecy.
+
+anyway, because I know that my speed can't really be changed, because my timeline is constantly under so many modifications by so many different entity types that all of these teathers are a sort of like massive brake. it reminds me of all of the material that the projectile takes with it on impact -- the sort of pressure/shock wave. they're the friction. (funny analogy) they're the resistance to the incoming high-pressure wave.
+
+---
+
+(1167 is the foothill transit bus number that often picked me up. the other was 1128) so what I'm aaying is that if I know that I'm fine, meaning that no matter what I do, they'll be able to exert enough resistace. presently, I don't really do a lot of physical exercise, because it's very psychedellic. when my heart starts pumping a little bit more vigourously than it does here in its dorment state (remember when it felt like oxygen was hard to get and I got out of breath going up the stairs?)
+
+so there was this other thing that happened after I watched the armina video, is that I started to get these pictures of the rocky film and he had to work out and stuff to get good enough to fight apollo. the movie is full of symbolism. rocky is the earth and apollo is the sun and the sun is this big commanding presence. rocky has to figure out with scrappier equipment to find his way. the movie is full of symbols, so the beatup equipment means something -- it means that I do not have less ideal situations and materials to make it work, but the thing is to figure out how to get there.
+
+there's another really interesting thing about the presence of the rocky symbol, because on the surface, it looks like rocky is training really hard, working out all the physical muscles, but the reality of it is, that it's a mental game. if you're a planet and you're up against the sun, this is a david and goliath situation, so ordinary rules of engagement no longer apply.
+
+so, what's stopping me from going really extreme? I have pretty good control over my mentality now, and you can see that, especially while I'm stoned (because I do things slower, I'm more considerate of my mentality now). I've integrated a lot of reaction response things into reality-kenny that basically mean I have safeguards to ensure I don't go up -- cause remember, if that happens, there is no longer a limit to novelty, so it rapidly accelerates, rather uncontrollably.
+
+so, because I look at things backwards, not trying to control my speed and just accepting that no matter how hard I try, I'm always NLS the whole way there (it's literally impossible for me to not do it now. even if I try to have bad timing, it seems to work out somehow cause everything is so meaningful -- I see meaning/reasons/justifications for everything now and the faster I let go of those the more I see the sparkle. gatta do it sober though).
+
+so, because my contrast is variable, I have a the ability for a lot of really potentially life-ending situations -- where the contrast/barrier becomes so great that the great night sky receives me. so, why not start testing this.
+
+---
+
+what I mean by all of this is that one of the things that I've wanted to do is to relearn how to do my left-hand even though I'm only half-brained. I really want to just chill out and start to have fun more than anything. ... lots of weird reactions because the word "fun" doesn't really describe rocky very well. so, I guess I'll explain. I really want to lighten up a whole lot. I really don't feel like things are as ready as everyone else is lead to believe.
+
+the imagination is a really funny thing and it ususlly skips over the mundane aspects, just like how memories lose their details and all the mundane aspects go away, making the memory *feel* more epic than it was.
+
+what I mean by this is that playing COI has really improved my capacity to see the mundane in my imagination. you have to understand how invisible the mundane already is that most people filter it out almost immediately from their memories, but for me, my imagination is already invisible, so it's a really funny concept to visualise something that is already invisible to the people with visuals... anyway, as I'm playing, I'm beginning to notice that I'm developing the capacity to be able to contemplate the mundane stuff -- and when I do it's pretty cool. mundane for me looks a lot different. jason called this the "supra-mundane" (I think).
+
+it's just like the ordinary -- in fact, it's exactly the same thing, but because I haven't decided I'm right about too many concepts, they can move around for me, shapeshifting and stuff (normal refelction stuff). a lot of things in my world appear new and exciting to me (much like a child), so that is generally a really fun experience.
+
+it's so fun that I don't really get so bored like others might in the same situation. because I *feel* like everything is new and exciting, it is, and I'm constantly discovering new things.
+
+---
+
+one of the things that I liked to do as a child is to test my limits and stuff with the boundary authorities. in the very beginning I look a physically responsive approach, but that didn't work out too well, especially after the paralysis, so so I converted to testing my limits mentally more than physically. this made authority figures tolerable -- because I still knew I was mentally more capable, or at least that I could know enough. mental stuff is also tricky business, which is why I don't do it any more. I've converted most of my main stuff over to responding to how I feel, so I see things differently now. I feel like this is analogous to how humans have evolved (physical -> mental -> emotional/conceptual), and I see that progression all over the place now.
+
+instead of contending/enaging them on their playing field (physical or mental), I was thinking not to try and do it that way. what if, instead of pushing against them, why not push them to their limits too? like, if something happens (like smoking on a really empty stomach), then I can always catch it and prevent the kundalini from rising -- so I don't really feel that unpreparared, because even if it happens in my sleep, I wake up and stop it. so what do you think is the farest out that I can go and nosebook is able to still hold on.
+
+the reactions are intereating. on one side I'd put the major group into the rocky category, where mom wants me to get on the exercise bike and start "earning" my appearance. I know that there is a physical aspect to it, but I prefer to focus on the *mental* aspect of it -- or more recently, the *conceptual* aspect of my appearance. I don't have a visuals that I'm interested in -- instead, I have a sense of how I feel and I want my body to reflect that, but my body does not cooperate.
+
+I could try and go out of my way to make my body go faster, but that is a terrible idea. even if I just started to walk every day or even start to clean my room a bit, the slight improvement in my physical conditions makes a huge difference for me. it's too easy for me to associate those conditions with the feeling and begin to believe that I need that condition to be recepitive to that feeling.
+
+obviously, I don't just jump from one "addiction" to another and I also know that I'm a bit of a hypocrite on this because I know the concept better in my head than I do in practise. I still get pulled too easy by others around me to go in the direction of their desire instead of following my own.
+
+---
+
+historically, I've noted that every time that I start to use my left-hand, my whole body starts to become more energetic. that's kind of like cheating though. I know that I've got it super easy now because I've practised it so much and made a lot of mistakes (especially in the previous 10y).
+
+what is probably not too obvious to people watching my history (they see the details, but don't see the conceptual progression) -- is that right before my brain haemorrhage, I started to use my left-hand a lot. in fact, a high amount of left-handed activity is usually the indicator that energy is moving again properly in my body and so I'm fully relaxed and can move my left side without the resistance that I experience normally. the reason why I think this happens is because my right hemisphere is quite powerful (this may have been a recent thing since the vallecas thing -- which again, at that time, all left-handed).
+
+so, what you're looking at is basically me getting all pumped up to then properly put all of that energy right into a series of mundane problems staring right at me, but I can't see them, because I'm so pumped up on my own BS.
+
+this situation is positively kenny gearing up for the biggest nosedive ever. maybe. however, at the momment, the thing is, I just like *being*. I don't know what is the difference between being while working out, and being like how I am now, but it's a pretty big difference. I think working out is kinda like a drug (the natural kind), and it's basically all the same thing.
+
+the other thing that I wts thinking about is JD and snake-bros where I registered my discord name as "vapidshamen". I didn't notice it at the time, but "shamen" was an accidental pluralisation. I get into his channel and I know I judge a lot by the screen name, so I wonder what they would think of my name as that. they do know me though, so it's not like they're trying to figure out my personality by my sreen name. it's those kinds of mental loops that throw me off. I don't really know how to act "naturally" in that situation because I have extra information. as always, I pull it off fine because I don't have to worry about what I'm saying and can just let my body do all of the work while I kinda sit back and watch.
+
+wow... lol... try and make sense of that.
+
+OK, so here's what I'm saying -- I just don't feel like any of this stuff is ready, so I want ot just chill out for as long as possible. we can, of course, try and go faster than I'm allow to go, and nosebook has to constantly restrain us.
+
+I'll figure it out, and I don't think that I'm going to use a conventional technique. I'm sorta making it up as I go anyway. you could stay that I still have a ways until I get my "act" together -- which is funny because, I kinda want to go ridiculous. it's a bit easier, so people can look at all of the sparkles, and miss the obvious gaping flaws in so many of the ideas.
+
+---
+
+so now, let's take a look at this from a macro perspective: nosebook does not want me programming or working on anything technical, which is pretty annoying, so they want me to avoid all things technical. this leaves art -- of which there are plenty that are more skilled than me -- so I think to myself, "OK, how to I want to express myself in art?" well, the medium is the message, so in all honesty a game is actually the nicest form of art because it's interactive, can even relate to me on a non-physical level, etc. games are the most advanced forms of art right now, but they're not perceiveds as such because of the immense difficulty it is to write a simulation that's also fun and engaging. it's a difficult challenge to make all of the parts an alternate universe work well and have it be believeable. obviously games are something technical though, so I don't konw what they'll think about that.
+
+no matter what direction that I go, it'll probably influence a lot of things, so it'll catch the attention of a bunch of people. once I'm out in public, I can say whatever I want to, and nosebook does *not* like how plain I am about things.
+
+I honestly don't know If that's the dierection that I want to go. the girls (but permaps nosebook) wanted to try and do somthing quiet, until [I suggested thqt we seriously consider doing a wedding](/playerz-club.md). the thing is, I just don't like public life so much. I prefer to be here where there aren't any expectations and other annoyances. I have to pay attention to other people and that's annoying, because I find the stuff that I consider to be of far grater importance than much of anything most people have said to me (unless it was by acccident). as such, because my own thmoughts are more interesting and exciting to me, I prefer to just stay to myself.
+
+I'm really not trying to put on a show, sell or promote something -- until on my first days getting stoned, I kept thinking about the italo disco bands and how I would love to do something like that. I'll probably be the only artist in the genre, but it would require me to actully do practise for the performances and stuff. it seems like such an enormous amount of work, cause the conceptual perspective is starting to become reality for me where work is no longer necessary; I just direct myself with how I feel. for example, not being surprised at something will often times yield an insightful reaction, but if I feel a fake surprise or an pushed emotion, that tends to yield a saracastic or off-puting reaction to me. I don't really even think about the words -- just let them flow, and only correct myself if it felt exceptionally bad (tons of mistakes in my stuff). I suppose they could slightly twist my words on me so they feel similar but not exactly the same. I usually catch these now.
+
+so, if I don't want to put on a show, why would I think to do it? do I purposefully *want* to crash and burn -- sorta setting the example?
+
+
+
 ### interests diverging and individualisation
