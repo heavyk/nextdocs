@@ -1231,5 +1231,25 @@ I'm really not trying to put on a show, sell or promote something -- until on my
 so, if I don't want to put on a show, why would I think to do it? do I purposefully *want* to crash and burn -- sorta setting the example?
 
 
+### 2022-11-03 18:24 - recap
+
+as a resume to the previous entry, what I'm saying essentially is that nosebook has no way of allowing me to do anything with science or technology, so I see no value in trying to make that different. as much as I want to work on technology stuff, I think I'm going to go the vapidshamen route and just be a drugged out loser the entire time.
+
+the reason for this is pretty simple. I don't want to fight them, because it's silly. if I'm completely passive, I'll make it -- so, that means that I have some extra slack to do what I want. with that extra slack, I considered a number of options, including an italo/metal disco sort of band setup -- but like I said, that's an enormous amount of work -- and I just don't really want to put much effort into things. you know it's like a lot of work and stuff to do all of that choreography and stuff -- and I suppose fun as well, but I see it mostly as work.
+
+---
+
+I just woke up from a dream where I was in some situations that zaryn would be in, kinda like learning how to be a CEO (you have the door person do everything for you and pay with money) and stuff like that. anyway, in one of the scenes of the dream, I was talking to zaryn and he said that we can't join forces (and become unstoppable) because it would illustrate who the rubber something is. anyway, the sense that I got was more that it's more of a proximity issue (the reason why I haven't seen *any* of my old friends) -- which is that around me, I'll bring up things from the past and other things that I see differently now (like nosebook), and talk about them plainly -- which they can't have.
+
+what I'm trying to say is that all things point to the same thing -- which is that they want to keep me as isolated as possible from the rest of the world -- which is obvious, because then they can much more closely control what conversations I have and what gets broadcasted from those conversations. while I'm here talking about abstract stuff few people can relate to, it's fine -- but the minute I start talking about vibration and illustrating it on an instrument, it's not wanted for them (they don't want you guys knowing how vibration works).
+
+---
+
+so then, there are the other ideas that I also proposed when I was stoned -- which would be things like doing a wedding, and instead of taking the passive way, going the physical path, where I'm now a performance artist (like a musician or something) and I live the life of a rockstar (the rocky vs apollo part). I declined that idea based on past performances, where every time that I forced myself to start using my left-hand more, energy started to rise quicker and I spiraled off into chaos because I made the mistake of thinking that I needed the drugs, alcohol, or technology to allow me to express my personality (not true). I do find myself a bit out of place around people, and so with those conditions, I thought that I could express myself and my ideas to people easier.
+
+well, who knew -- that even with the entire world able to interact with my thoughts in some way (I really want to try and interview a number of different people to see how nosebook presents my mind to them), that *even still* I find it very difficult to explain myself to people. obviously, this is because they're on a frequency that is unable to reeive it (like tuning into one radio station and expecting another to show up) -- so it's not really me, anyway.
+
+I think I"ll juxt hang around the house and smoke weed talking with other people about vapid topics. God will not let me go.
+
 
 ### interests diverging and individualisation
