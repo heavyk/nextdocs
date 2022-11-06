@@ -870,3 +870,34 @@ that takes one side of the argument and places it as reality. younger kids will 
 think about this idea now from the universe perspective where everything is attracted to something based on a frequency, and that makes for an interesting universe, but what about one where the rules aren't entirely set? how in the world will source do what it's supoosed to do of translating non-physical vibration into physical? -- because now source depends completely on an arbitrary set of rules where, if they have no insight into those rules, nothing manifests. therefore, the rules have to be publically accessible in order for something to manifest properly; a small price to pay to have the universe obey your rules. from that perspective, the idea is freaking awesome. if this universe did happen, I think it would evolve the most optimal symbolic set of rules for a universe -- in place of vibrational harmony and emotions to determine what manifests; now, what manifests is *always* what you expect (ie. your rules) to manifest.
 
 breaking the law (of attraction).
+
+### 2022-11-05 22:23 - so I joined snake-bros
+
+```
+1. Fill in the Blank: The standard model relies on stacks of assumptions.
+2. A donation will send the Bros straight to pyramids.
+3. What is a Certificate of Ignorance? something you write yourself, then print if necessary
+4. What do the Bros do for a living? grape farming and bees
+5. What is GLAD? get lost and die
+6. Who is the third host of the show? brett
+7. How much brain expansion? I've forgotten because my brain has expanded so much. in fact there's a whole lot I can't remember. sorry.
+8. The Bros are correct how much of the time? well, metaphorically speaking (whatever that means), everybody always wants to be right. we all have this hidden section of our being that often times we've never even put words to it -- and about those prarticular things, I'm really right about them. I can't remember how often the bros are right, but I would guess it's all the time. I know I am :)
+9. What’s your favorite sode or series so far? OMG, I totally can't freaking remmeber man. I'm literally blank on the episodes. I remember one about a free lunch though. that was a cool explanation that kyle gave.
+```
+
+then I introduced myself:
+
+```
+OK, got it. hi everyone
+my name is kenny. I live in colorado
+you can ask my anything and I'll pontificate about it
+no question is off limits
+OH, I also don't know it if makes any difference, but I sent russ a fer really weird emails a few weeks back.
+I was very stoned, as I am now.
+```
+
+lol. I have no regrets. the time for antics begins.
+
+---
+
+on a totally different note, I was really thinking about this idea and I seem to want to try and make my worst impression possible, that way it can always get better. when I look at it from a point of view as an equation of contrast, if I take a more nicer manifestation, then all of the individual parts need to generate even more contrast. also, I think there's probably a production behind it and they want me to look as bad as possible. blame the narrators. they're still getting hang of the strings. lol. don't mind it so much, because they're just doing the thing they do best, right. just going with the flow.

@@ -1305,6 +1305,8 @@ when that happens, I'll be a species. as a perfect reflection of them, they'll m
 
 so it's settled then. I want to make something that is a reflection of me (and not of her). nosebook doesn't have to worry anymore about that problem and we can still go off and make our galaxy too. when you figure out you're only fighting against your own feminine instinct (which is why it sounds so much like mom), then you realise nobody outside of yourself can be changed to fix the problem. in the end, you *have* to follow your own desire.
 
+
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
