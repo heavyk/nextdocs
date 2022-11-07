@@ -150,6 +150,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small thing: it'd be nice if the surplus maintenance applied to paused units
 
+- it'd be cool to set the size of the dock upgrade when placing the dock, to reserve those spaces.
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
