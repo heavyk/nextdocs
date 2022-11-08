@@ -21,3 +21,17 @@ the next thing to do is to create a blockchain sort of thing where you have a di
 because the file is available, if someone wants to just play the song, they can do that, but this system is part of a larger system which is cataloguing all the music and figuring out who has the physical copies, which then these tokens can be exchanged or traded, sorta like black market art -- where the rarity is the important thing (gatta justify those large cash transfers, hehe).
 
 [1]: so hard to search these days -- when information should be increasing, things should be increasingly easier to find cause more probability that someone has put it on the internet somewhere. I believe this is the result of people moving more and more to platforms with formatted and structured content, instead of putting their own stuff up there in more raw (or published) form.
+
+### 2022-11-07 18:07 - cell calculator
+
+this is a spreadsheet app written in your favourite language for your favourite OS that talks to elixir. the elixir backend just has concept of other cells. the address space is infinite (hashes), and cells are found at a predictable pattern, like A1 will always refer to (0,1) or whatever (as the designer for the spreadsheet or whatever you're making) you define the cells and their dimensions.
+
+the nice thing about hashing is that memorable names can be selected for the control cells (the ones that take a value/obv). these cells are all refered to by the various tables. each cell is an elixir/erlang function that can get/set/call other cells, which will then perform calculations. each table has a number of inputs (by name), and from those the table is populated.
+
+you can then imagine all of the cells of the table as virtual, meaning they're not instantiated. when they're read, the erlang function is compiled (if necessary) and run, then (optionally) the data is saved.
+
+this allows for complex programs to update each other's cells. this was the original intention of the obv stuff I was working on. each cell is a value, but when it becomes a function, it's a transform/compute.
+
+---
+
+the idea then is that any web app or any language can interface with these different cells. they'll become the databases for future forms of web data I think... think about writing a web app like this, where the tables are all dynamicly calculated cells, then anyone could write their own catalogues of data and make them available for other people. I suppose using them to organise social things could be possible, but I want to make it easy to write something like this program I'm using here, but have it able to retrieve and save data about the documents. making notes, blogs, spreadsheets, logs, etc. will all be very easy. later building a blockchain system to make it permanent is a future task.
