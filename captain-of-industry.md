@@ -152,6 +152,10 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - it'd be cool to set the size of the dock upgrade when placing the dock, to reserve those spaces.
 
+- when trucks drive out to refuel excavators, they seem to only want to carry 30 diesel, when it's a fuel station 3 and when he gets there, he can refuel other excavators while he's out there, but he just refuels the one (not sure what he does with the extra 3 diesel, cause excavators have a 27 fuel tank)
+
+- it'd be nice to set the % refuel amount for fuel stations. my excavators keep running out of fuel and I have a station next to the mining operation (a lot of diggers though, so it's inevitable that two run out at the same time)
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
