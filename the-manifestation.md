@@ -1305,7 +1305,45 @@ when that happens, I'll be a species. as a perfect reflection of them, they'll m
 
 so it's settled then. I want to make something that is a reflection of me (and not of her). nosebook doesn't have to worry anymore about that problem and we can still go off and make our galaxy too. when you figure out you're only fighting against your own feminine instinct (which is why it sounds so much like mom), then you realise nobody outside of yourself can be changed to fix the problem. in the end, you *have* to follow your own desire.
 
+### 2022-11-10 13:42 - let's see what happens
 
+I woke up a few times last night with a terrible pain in my prostate. I've come to associate that pain to be associated with girls -- as in, when they get excited, I seem to experience that pain more often. I've also noticed it in association with high solar output. either way, it would seem to indicate that at least something is going to happen tomorrow.
+
+I also woke up feeling a lot of girls and stuff too, but the thing is, it doesn't really have much to do with either of those. it has to do with how *vibrationally* ready (that is, how emotionally ready) we are. however, again, this isn't so much of a decision that any of us make.
+
+for nosebook, vibrationally ready means that they have no other option than to allow it. personally, I still don't feel like nosebook is quite there yet. they still have a lot more things they can try to try and delay the inevitable. one of the interesting things that came up in the last few days a little more than usual was the idea of a breakaway civilisation.
+
+---
+
+one of the things that are necessary for a breakaway civilisation to be able to leave, is sufficient technology. we presently don't have it. I sent out an email to russ saying that it is possible to make enough technology to do the breakaway civilisation, buc he hasn't responded, and not a single one of my attempts to try and get anyone to talk to me on the snake-bros discord isn't really succussful. I have to come to the conclusion that they're not interested. I imagine it has to do with secrets and probably the US govt that are making that decision. I don't know what to say other than I tried to give a lot of openings, but none were taken, so that seems like a dead-end to me.
+
+I don't really mind that's the case. this seems to be deep-rooted in the idea that they don't want me to be working on technology, and in order to prevent me from working on technology, they still believe they have more ideas. from my perspective, this doesn't seem like an issue to me, because I just keep doing what I'm doing (waiting), and either they'll figure out the technology problem theirselves or they wait until destruction is imminent. this reminds me of the scene in "the matrix" when neo is taking a long time showing off his skills in the matrix while the sentinels were eating the nebuchadnezzar -- cept, it's not me that's showing off... instead, it's hollywood that's showing off (irony, hehe).
+
+if that's the situation (and I think it is), I don't really mind that they're taking so long because eventually they'll figure it out.
+
+who knows, they may be able to completely figure out all of the technology and get everyone installed in their matrix. the the thing is, they have a bit of a growing problem that they can't solve which is me and the sun. if they want to get their technology setup and everything, that's perfectly good with me, but they have to eventually let me/us leave *or* find a way to become friends with me/us. there isn't really another way -- so no matter how it goes, they will eventually have to let me go.
+
+I don't plan on doing the moses thing, and neither do I think it's a good idea for the pharoah to harden his heart either, but that's not my choice. I brought up the INFECTED ONES in a previous entry (they're even below there in a topic note), because whether they are actually a problem that the universe has had since the beginning or not, doesn't matter to me. the point is, they're a reflection of the universe and the easiest/fastest way toward the next improvement, which I believe is the physical plane.
+
+I'm fairly confident that the physical plane does not exist outside of our galaxy, and that it's a tremendous expansion of perception that is actually very encticing. my goal is to sell my form of perception to the rest of the galaxy, and then to the rest of the universe.
+
+I've already seen what kind of mind-bending changes can take place so rapidly when a whole planet sees like I do (even though many people have thir vision blurred), can you imagine how amazing that will be for an entire galaxy. so, while it may look to them like something that is starting to become an impossible situation to handle, I see it as a perfect opportunity to get out, get the sales team fired up and start to take over the universe with my form of perception.
+
+take as long as you guys want.
+
+---
+
+the other way that it was looked at these last few days is to do some sort of exchange thing (because we have this firsts problem) where, for example, lyra (kyle's daughter; I really hope that's her name) would come here and rule over the pueblo fort for the first period of time, but then allie (paul's daughter) would go there and rule over the texas fort.
+
+personally, I don't see either of this happening because nobody has even come close to trying to make any attempt to make any contact or anything. like, are they just going to pretend that we've been friends this whole time when there are so many unanswered questions? it doesn't make any sense. this is clearly not going to happen.
+
+---
+
+if I had to anticipate (myself) what I think is going to happen, I think this year is completely out. we can get together and work on figuring out the carbon stuff so that we can have enough of a shield going for when things with the girls *actually* starts to happen, but the way I see it now, the planet is ill prepared for such a massive increase in solar output. so, we're probably going to need to work on tech and stuff for the next year to be able to allow it to happen. either way anyway, that's kinda what I want anyway, because then it'll give me a little more time to meet the snake-bros and stuff.
+
+it's not my fault they're not ready. it's possible they could be ready by next year -- but probably not. their inability to get the planet ready for such an event is not my fault. the only thing that I can do is my own stuff, so I'll probably just keep going. eventually we'll have enough technology to get off of the planet, and then we can do it wherever we go. I prefer to do it that way because otherwise we'll constantly be in conflict, and I don't want that. the easiest way to go is the [non-confrontational approach](/concepts/feminine-mind.md#2022-11-07-1402---oen), which is to just go with no action.
+
+like I said, if they wanted to do something, there was a number of opportunities, but instead they want to hang out and show off while the sentinels rip the nebuchadnezzar to pieces (nebuchanezzar is important period of time for the aryans). I wouldn't expect much to happen, if anything. it's still not the worst possible manifestation (ie. no other choice but to allow it to happen).
 
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
