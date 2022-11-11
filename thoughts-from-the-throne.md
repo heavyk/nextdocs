@@ -2,7 +2,7 @@
 
 this is where I give my personal opinion on some things that really matter to me
 
-### 2022-11-11 10:57 - seeing what they're looking at
+### 2022-11-11 10:57 - seeing what their looking at
 
 I've been contemplating this whole thing about the perspective of the characters a bit. one thing that really grinds my gears is that from the 3rd person perspective, it's difficult to see what that person is looking at. I like seeing what I'm looking at, and so imagine for a moment if I were to look through that character's perspective. I want to see what the character is looking at. I want to (at least have the option to) see *from the perspective of the character* -- because without it, you don't really *feel* what the character is feeliing.
 
