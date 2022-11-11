@@ -16,7 +16,7 @@ now, from a promethian perspective, we must understand heritage and the desire t
 
 an entire culture is a bunch of very similarly vibrating things, so collectively their vibration should continue to grow indefinitely. left unhindered, it would; however, there are natural and unnatural destructive forces that ultimately are able to halt something that would continue to attract, expand, and grow indefinitely. contemplating this, one comes to the conclusion that all things are actually destroyed by theirselves.
 
-we are our own worst enemies -- but there *is* always that one really high frequency part of every organisational/vibrational structure, and so the goal of an culture is to be able to instantiate this promethian spirit into their culture, so that the culture grows and continues on its heritage.
+we are our own worst enemies -- but there *is* always that one really high frequency part of every organisational/vibrational structure, and so the goal of a culture is to be able to instantiate this promethian spirit into their culture, so that the culture grows and continues on its heritage.
 
 ### 2022-11-11 12:06 - I should also add (about the high frequency stuff we call source)
 
@@ -24,11 +24,11 @@ it seems logical to me that every interaction of two vibrating things produces h
 
 it also seems logical to me that at the subatomic level (that is, frequencies higher that the carrier frequency for the atom), would, in an environment of non-resistance, would begin to construct all sorts of things.
 
-every person alive definitely has resonant frequencies at much higher rates than the subatomic, and there in the subatomic, resistance is so negligible, that you can imagine it as that pure desire.
+every person alive definitely has resonant frequencies at much higher rates than the subatomic, and there in the subatomic, resistance is so negligible, that you can imagine it as that pure desire. I want more things that vibrate similar to me. I am a clump of matter. we stick to our kind and others that we're vibrationally compatible with.
 
 there are an ever expanding infinite set of higher harmonics to understand, and the processs of making sense of even higher frequencies, this subatomic "source" turns those desire (all the things that didn't work out -- these high frequencies being the result of frequential interactions -- so, all the stuff that didn't work out).
 
-this is what we do as a race, a culture, a person, an animal or whatever; but, think like a newborn: we intend to make sense of more higher and higher frequency interactionss. this is everyone's base desire. this is the "source" of everything.
+this is what we do as a race, a culture, a person, an animal or whatever; but, think like a newborn: we intend to *make sense* of more higher and higher frequency interactionss. this is everyone's base desire. this is the "source" of everything.
 
 ---
 
