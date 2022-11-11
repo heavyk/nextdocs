@@ -17,3 +17,19 @@ now, from a promethian perspective, we must understand heritage and the desire t
 an entire culture is a bunch of very similarly vibrating things, so collectively their vibration should continue to grow indefinitely. left unhindered, it would; however, there are natural and unnatural destructive forces that ultimately are able to halt something that would continue to attract, expand, and grow indefinitely. contemplating this, one comes to the conclusion that all things are actually destroyed by theirselves.
 
 we are our own worst enemies -- but there *is* always that one really high frequency part of every organisational/vibrational structure, and so the goal of an culture is to be able to instantiate this promethian spirit into their culture, so that the culture grows and continues on its heritage.
+
+### 2022-11-11 12:06 - I should also add (about the high frequency stuff we call source)
+
+it seems logical to me that every interaction of two vibrating things produces higher frequency harmonics. you can imagine there are a plethora of really high frequencies because of all of the interactions.
+
+it also seems logical to me that at the subatomic level (that is, frequencies higher that the carrier frequency for the atom), would, in an environment of non-resistance, would begin to construct all sorts of things.
+
+every person alive definitely has resonant frequencies at much higher rates than the subatomic, and there in the subatomic, resistance is so negligible, that you can imagine it as that pure desire.
+
+there are an ever expanding infinite set of higher harmonics to understand, and the processs of making sense of even higher frequencies, this subatomic "source" turns those desire (all the things that didn't work out -- these high frequencies being the result of frequential interactions -- so, all the stuff that didn't work out).
+
+this is what we do as a race, a culture, a person, an animal or whatever; but, think like a newborn: we intend to make sense of more higher and higher frequency interactionss. this is everyone's base desire. this is the "source" of everything.
+
+---
+
+you know, what I love about it is that it has a conceptual interface to it, and so you could imagine this as the repository of the knowledge of all things. there are no restrictions. anything that you want is yours to feel. you attract it, and so it's yours. everything that you want is for the ability to feel like that. figure it out
