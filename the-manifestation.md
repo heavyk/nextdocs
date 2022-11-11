@@ -1345,6 +1345,10 @@ it's not my fault they're not ready. it's possible they could be ready by next y
 
 like I said, if they wanted to do something, there was a number of opportunities, but instead they want to hang out and show off while the sentinels rip the nebuchadnezzar to pieces (nebuchanezzar is important period of time for the aryans). I wouldn't expect much to happen, if anything. it's still not the worst possible manifestation (ie. no other choice but to allow it to happen).
 
+### 2022-11-11 10:34 - a solar point of view
+
+I had a bit of a revelation today when I decided to look at the situation from a solar perspective. have a look.
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
