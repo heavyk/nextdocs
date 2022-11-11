@@ -32,4 +32,4 @@ this is what we do as a race, a culture, a person, an animal or whatever; but, t
 
 ---
 
-you know, what I love about it is that it has a conceptual interface to it, and so you could imagine this as the repository of the knowledge of all things. there are no restrictions. anything that you want is yours to feel. you attract it, and so it's yours. everything that you want is for the ability to feel like that. figure it out
+you know, what I love about it is that it has a conceptual interface to it, and so you could imagine this as the repository of the knowledge of all things. there are no restrictions. anything that you want is yours to feel. you attract it, and so it's yours. everything that you want is for the ability to feel like that. figure it out.
