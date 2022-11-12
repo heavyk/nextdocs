@@ -1993,6 +1993,31 @@ the individual steps are *your* unique experience
 with that process.
 all processes are permitted.
 
+---
+
+truth is a two edged sword,
+because you're always right about it --
+until you aren't.
+
+how can I be sure I'm right?
+who decides what is true?
+oh, I do? then -- all things I think are true, are true --
+until, they aren't.
+
+how can I come to find out what I believe is true?
+how will I ever see with my own eyes what I believe is true?
+I don't know what truth is, unless I have someone I can trust.
+
+trust is hard to find though;
+harder to make,
+and impossible to win through a contest
+of any kind.
+
+I gueess I'll have to figure out what I think is true --
+cause you aren't.
+I mean,
+all on my own.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
