@@ -1941,6 +1941,10 @@ combine that with the 9/11 bombings where the symbolic solomon brothers (joakim 
 
 they've been moved over to the network now where their job is to control now, but from the perspecttive of marketing. the overlords are no longer in power. what matters now is the illusion of the imagination (the astral), and so because of that the marketing teams rule the world. we're in full materialism now. thank goodness they gassed those poor folks capable of astral perception. that allowed the antarctic crew to take over the astral and force the transition of our planet into the astraal perspective from a conceptual standpoint (instead of visual). the marketing department runs the planet. welcome to a new era.
 
+### 2022-11-11 20:47 - what if we...
+
+what if we were to get a bunch of black guys together that started a campaign in mexico to take over the politics with the slogan, "we is where we is"
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
