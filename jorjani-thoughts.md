@@ -1995,7 +1995,7 @@ all processes are permitted.
 
 ---
 
-truth is a two edged sword,
+truth is a two-edged sword,
 because you're always right about it --
 until you aren't.
 
@@ -2015,6 +2015,7 @@ of any kind.
 
 I gueess I'll have to figure out what I think is true --
 cause you aren't.
+
 I mean,
 all on my own.
 
