@@ -38,17 +38,18 @@ if I absorb a vibration and retransmit it unchanged (though perhaps amplified), 
 
 so because I've noticed girls to so often look only at the modification that they want to see (the reencoding), they totally miss out on letting the poor guy discover his own concept sucks, for himself. I do it too because I have a very active feminine side, so my experience of letting this aspect express itself is that nobody really likes it; and, since so many people have such a low opinion of theirselves (not-good-enoughness), this creates a bunch of people looking for acceptance.
 
-thanks to all of us that have these pet peeve improvements that we want to see happen.
-it's becauxe of us that causes a bunch of not-good-enoughness feelers (often ourselves)
-to believe that we're looking for acceptance from others --
+thanks to all of us that have these pet peeve improvements that we need/want/IAM to see happen...
+we cause a bunch of not-good-enoughness feelers (often ourselves)
+to end up believing that that we're looking for acceptance from others --
 when really what we're looking for is self-acceptance.
 
-I really want to be able to look at myself conceptually (not physically),
+I really want to be able to look at myself conceptually
+(not physically),
 and like what I see.
 
-I am the culmination of all of this experience that has brought me to now (and also here)
-and that's just purely mindblowing how unlikely my sitation is to be like this'
-having taken the safe route.
+I am the culmination of all of my experience that has brought me to now (and also here)
+and it's just mindblowing how unlikely my sitation is to be like this,
+having had taken the safe route.
 there is another force at work.
 
 it's probably me.
