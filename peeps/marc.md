@@ -67,3 +67,49 @@ there are a few other things I've noticed about your play style which has really
 
 until next time,
 kenny
+
+### 2022-11-11 23:15 - respond
+
+no, I don't play SC2. my experience with the game is that one day youtube suggested a video of scarlett doing something amazing. I watched it and was quite impressed. I wanted to see what it looked like from the POV of the person playing the game (like you), but my search skillz weren't expert and all I found were casters talkning about the game, not the person playing the game.
+
+one day I was kinda sick of hearthstone so I installed SC2 and decided to play the campaign. I hated how much micromanagement there is, when if I could just hook actions up to a spreadsheet, like when this much minerals and this much gas and in this phase/state then do this thing (build a scv for example). I shouldn't need to worry about all of these things because that's why computers were made in the first place; to eliminiate the tediousness of life. or, at least that's what I was brought up to believe, anyway.
+
+I promptly uninstalled the game and never returned to think about it. then youtube suggested me your video of defeating 1v7 insane AI against zerg. I was very impressed so I started watching your videos. all knowledge of the game that I have is from watching you play. I'm pretty good at figuring stuff out, so it was pretty effortless to understand the game. I understand concepts of the game probably better than many, even though I've "never" played the game.
+
+---
+
+it's unlikely that I'll play it to any significant amount. if I do I believe that I'll wait until I have a different keyboard than the one I have now. I know, lol such a major excuse for the armchair players out there ("I'd totally have made that touchdown if I were out there"), I'm not even trying to add it in.
+
+anyway, the major reason for not wanting to play and prefer to only observe is that I had a brain haemorrhage that had happened in my right hemisphere. it, along with my imagination, has been completely shut down. I literally have no concept of where my hand is in space. without this awareness (I rememmber because I had it before the brain thing, my fingers could dance to my desire and I was very fast reactions like you), but at the moment, I'm not too sure what key I'm pressing because I don't really feel my fingers. it feels like a constant stressful sensation.
+
+when I relax, often times I experience extreme expansions of my visual capacity. when I go to sleep, the safety police over at the network ensure that I never am able to feel so relaxed again. my life is a steady stream of learning to feel relaxed even though my physical body does not feel relaxed at all. it's quite the thing and has inverted a person like you to become more like me.
+
+I used to be a lot like you.
+I recognise myself a lot in you.
+we took different paths though.
+I used to have such a problem with anger
+and emotion that I shut it down.
+
+it felt unpredictable and like something that I could not control.
+I decided that all things can be determined or predicted as long
+as enough information could be known, an optimal route can be selected.
+
+I was very nieve as a child and hadn't arrived to the "real world" yet.
+this is where there are lots of people out there that want to try
+and take advantage of a bright person like myself.
+
+I'm magnetic.
+I glow and people can see my radiance.
+easy target for the sharks.
+I'm like juicy shark bait to the ambitious types.
+
+it's often the case that the ones that want to take advantage of a person like me (they're my employers) are not people thinking of open exchange of information, and so therefore they're not at all looking for an optimal route. so much for my pet desire to optimise everyting and remove as many aspects of waste as possible. everything needs a function to exist in my universe.
+
+I'll tell you a secret and the conclusion to that logical delima, is that in the end, things do not in fact need to have a reason. things happen because of feeling, not because of reason, though you'll always be able to logically (mansplain) something away: "it did appear after all, so we can't ignore the reality of it. here's my theory of how it got here and/or how I'm going to react to it."
+
+this brings in the implication that reality is composed of a feeling/conceptual landscape rathar than just a physical environment. now reality has a direction, a narrative structure, a goal. everyone feels they're going somewhere, even the most stuck people, and ultimately it's how you feel about where you're going (ie your attitude) that makes all of the difference.
+
+I'm going to end it here.
+
+until next time,
+kenny
