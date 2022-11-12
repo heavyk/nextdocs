@@ -1943,13 +1943,21 @@ they've been moved over to the network now where their job is to control now, bu
 
 ### 2022-11-11 20:47 - what if we...
 
-what if a bunch of black guys got together and started a political campaign in mexico with the slogan, "we is where we is"?
-they would could try out an alternative idea to the perennial/traditional concept of time in that wherever we is, is wherever we is (very important cause we're *stuck*). nothing can be done to change our position (maximum depression), so we might as well just find a way to become OK with whatever it is, and to move forward improving.
+what if we were able to get a bunch of black guys together and started a political campaign in mexico with the slogan, "we is where we is"?
+
+the objective of this is would be to try out an alternative concept of time, (in space of the perennial/traditional concept of time). the whole idea is that the culture adopts a perspctive that "we're stuck; we're stuck right where we are" and this is adhered to no matter wherever the culture goes. "whereever you go, there you are" is another great slogan too. that'd be a funny third party, btw. the concept the culture takes on initially one of real stucknesss. where wherever we is, is wherever we is -- forever (very important cause we're *stuck*). nothing can be done to change our position (maximum depression), so we might as well just find a way to become OK with whereever we is and to move forward improving.
+
+this group would campaign against at least one other group with the slogan, "make mexico great again". the idea is to control the election process by creating a dialectic. I've seen politicians do it all the time, but it'll work for us because both of the concepts are solid. usually politicians run on smoke and mirrors. illusions of imrovement, with no actual improvement. we're campaining for no improvement; just acceptance.
+
+dude have you read the bio of the BTS group? it blew me away this story and gave me tons of ideas of the way to look at improvement from an aries perspective. check it out if you haven't already.
 
 ---
 
-and then, what if they campaigned against another group that was "make mexico great again".
-another option is to do china instead of mexico. that seems more hilarious. I'm not sure what most offensive/shocking racial category to do for china though. it's got to be something hilarious because it's kinda like sideways to the american pomp.
+another option is to do china instead of mexico. that seems more hilarious. I'm not sure what most offensive/shocking racial category to do for china though, but imagine one is a pompus americcan (trump perhaps?) and the other is say a really ridiculous japanese. one model I had for it as a character concept is the bass guitarist of this group here: https://www.youtube.com/watch?v=Zp3t5qBwLIc. the concept for the dialectic has to be something hilarious -- a dialectic of two ridiculous concepts of time which I'm still brainstorming on... one idea that just came to me is one side is that tradition pushes us forward, while the opposite side is that  tradition holds us back. it's never said so plainly so endless discussion (in typical potician manner can unfold) elections are completely riggable, but we're not "rigging them" because there's nothing fishy (at least not from me) going on. both sides are genuinely looking for improvement from opposite diretions.
+
+then, to fully mix it up the thing that I'm thinking aout the third party is an oppoenent that has sideways aspect to the american pomp (a zaryn type character). this is the consume the environment and charge forward as fast as possible, then worry about the problems in the future when you're sitting on the nice cushy reality of a solid user/resources base. eco first build order.
+
+still brainstorming it.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
