@@ -1944,7 +1944,12 @@ they've been moved over to the network now where their job is to control now, bu
 ### 2022-11-11 20:47 - what if we...
 
 what if a bunch of black guys got together and started a political campaign in mexico with the slogan, "we is where we is"?
-they would could try out an alternative idea to the perennial/traditional concept of time in that wherever we are is wherever we are. nothing can be done to change our position (maximum depression), so we might as well just find a way to become OK with whatever it is, and to move forward improving.
+they would could try out an alternative idea to the perennial/traditional concept of time in that wherever we is, is wherever we is (very important cause we're *stuck*). nothing can be done to change our position (maximum depression), so we might as well just find a way to become OK with whatever it is, and to move forward improving.
+
+---
+
+and then, what if they campaigned against another group that was "make mexico great again".
+another option is to do china instead of mexico. that seems more hilarious. I'm not sure what most offensive/shocking racial category to do for china though. it's got to be something hilarious because it's kinda like sideways to the american pomp.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
