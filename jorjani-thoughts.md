@@ -1987,9 +1987,11 @@ testing under the leadership of "everything is permitted" as being the herald of
 
 do what thou wilt; everything is permitted.
 beware to give in to the lust for results.
-beware to give more importance to the thing,
-than to the process.
-the individual steps are the experience.
+beware to give more importance to the thing you're conjuring,
+than to the process of it's apparition.
+the individual steps are *your* unique experience
+with that process.
+all processes are permitted.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
