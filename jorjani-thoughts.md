@@ -1986,8 +1986,9 @@ can you imagine how ridiculous it is to tell people they could not disect the hu
 testing under the leadership of "everything is permitted" as being the herald of scientific breakthrough probably explains a lot of the nazi's rapid advances in psi capabilities and biology. the assassins likely used a similar set of extreme testing to bring about rapid advances in science and technology.
 
 do what thou wilt; everything is permitted.
-beware of the lust for results though.
-beware to give more importance to the thing than to the process.
+beware to give in to the lust for results.
+beware to give more importance to the thing,
+than to the process.
 the individual steps are the experience.
 
 ### what are your differences with steiner?
