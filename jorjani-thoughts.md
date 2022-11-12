@@ -1959,6 +1959,18 @@ then, to fully mix it up the thing that I'm thinking aout the third party is an 
 
 still brainstorming it.
 
+### 2022-11-12 01:42 - cairo caliphate
+
+https://youtu.be/zwWP75r6owQ?list=PLpmRGh63MgoOvvKfG4LYK2IQktwvfITDP&t=691
+
+the thing that I was wondering when you said that the only shiite caliphate to ever be created was the one in cairo.
+
+when you said this, I understood what you meant, so let me elaborate on what I saw. I could see that there are a bunch of guys that move their consciousness from body to body. one of these is this babek guy. his is plain to see but not all of these are so plain. these are astral entities that possess a body and take it over. I call these the "fallen angels" they fell with lucifer a long time ago. some of them are good and some of them are not so good, but either way they've been around for thousands of years moving from body to body.
+
+this guy is one of these fallen angels and he's one of the "good" ones. this is why he relocated the point of power over to the great pyramid, the ultimate source of astral influx into the physical. it's a portal to our overlords, so it's pretty heavily guarded. they never left. I'd put a pretty high probability they're located on the moon. others are in our oceans.
+
+I think the reason why these astral entities don't ever just leave and go somewhere more appealing is because the great pyramid is located here on earth. they like the environment so much they can't imagine going anywhere else in the galaxy that doesn't have the juicy physical plane they can influence from on high (plato's cave). the good ones like the good conditions of a luxurious and lavish lifestyle. some have passed many lifetimes being rich and famous. he's one of those. he's probably still alive now. he may even, at some point read this. who knows. actually, I do. reactions tell me me has (which means that at some point in the present or future he will read it). crazy huh.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
