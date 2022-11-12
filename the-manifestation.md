@@ -1365,9 +1365,9 @@ all things can be delayed inevitably should we be having enough fun as to not ne
     it can only come when it's inevitable,
     and that's still not yet.
 
-    how much worry anyone experiences about the inevitable
+    the amount I worry about the inevitable
     is probably a reflection of how much self-flaggulation
-    one needs to perform on theirself daily.
+    I need to perform on myself daily.
 
     if I've really been naughty,
     I'll worry extra hard and spend a terrible time over
