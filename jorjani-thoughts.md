@@ -1943,7 +1943,8 @@ they've been moved over to the network now where their job is to control now, bu
 
 ### 2022-11-11 20:47 - what if we...
 
-what if we were to get a bunch of black guys together that started a campaign in mexico to take over the politics with the slogan, "we is where we is"
+what if a bunch of black guys got together and started a political campaign in mexico with the slogan, "we is where we is"?
+they would could try out an alternative idea to the perennial/traditional concept in that wherever we are is wherever we are. nothing can be done to change our position (maximum depression), so we might as well just find a way to become OK with whatever it is, and to move forward improving.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
