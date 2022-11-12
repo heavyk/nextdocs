@@ -1931,6 +1931,15 @@ you know how cheezy this is, right, but politicians always gatta have the cheese
 
 I'll try and think of more ideas.
 
+### 2022-11-11 19:37 - the mists
+
+https://youtu.be/y0vtftEgeME?t=2299
+
+it ocurred to me that these mists that were in the streets were probably only expehriencible to people capable of perceiving the astral. by doing this, they removed most of the people with genetics able to see the astral. by doing this they secured the astral as their plane of dominance. this was quite an upset to the majority of the powers that be, because the powers that be all see the astral, and they use it to move their consciousness after "death", so this new force (antarctic power structure) created a real pickle for all of the people in charge. they can see the UFOs because they appear on the astral (hence the reason why the governers saw a woman floating out the window and the other witness saw a porcelin doll -- they translated the concept (her in stasis) into the image of a porcelin doll -- like you do in a dream).
+
+combine that with the 9/11 bombings where the symbolic solomon brothers (joakim and boaz) fell, and the economic capital moved out. you have to see this as a real pickle for those in charge because not only did they lose their zone of control, but they lost their control as well, because I believe the bombings were carried out by the antarctic base and nobody died. they have so much of the media compromised, they had the BBC report that the saloman borothers building (7) had fallen when the reporter was standing right in front of it. it fell a half hour after the news report. this is a strong message that they're no longer in control.
+
+they've been moved over to the network now where their job is to control now, but from the perspecttive of marketing. the overlords are no longer in power. what matters now is the illusion of the imagination (the astral), and so because of that the marketing teams rule the world. we're in full materialism now. thank goodness they gassed those poor folks capable of astral perception. that allowed the antarctic crew to take over the astral and force the transition of our planet into the astraal perspective from a conceptual standpoint (instead of visual). the marketing department runs the planet. welcome to a new era.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
