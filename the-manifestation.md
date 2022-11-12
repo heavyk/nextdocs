@@ -1355,6 +1355,10 @@ I just realised that I sent out a lot of emails to a lot of strong male influenc
 
 it sure does look like I'm looking for acceptance though *blushes*.
 
+### 2022-11-12 03:08 - to all my concerned homies out there
+
+all things can be delayed inevitably should we be having enough fun as it is. the reason why I'm totally fine with my situation not changing is that I like my present situation. we all can learn to like it. it's a totally acceptable situation. when the time is finally here, ie there is no other option than to allow it, it'll finally happen. until then, obviously it won't so. worrying won't make it come any faster or slower, so how much worry anyone experdiences is probably a reflection of how much self-flaggulation one needs to perform on theirselves daily. if you've really been naughty, you'll worry extra hard and spend a terrible time over something that's completely out of control. someone's got to do it though.
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
