@@ -1357,7 +1357,30 @@ it sure does look like I'm looking for acceptance though *blushes*.
 
 ### 2022-11-12 03:08 - to all my concerned homies out there
 
-all things can be delayed inevitably should we be having enough fun as it is. the reason why I'm totally fine with my situation not changing is that I like my present situation. we all can learn to like it. it's a totally acceptable situation. when the time is finally here, ie there is no other option than to allow it, it'll finally happen. until then, obviously it won't so. worrying won't make it come any faster or slower, so how much worry anyone experdiences is probably a reflection of how much self-flaggulation one needs to perform on theirselves daily. if you've really been naughty, you'll worry extra hard and spend a terrible time over something that's completely out of control. someone's got to do it though.
+all things can be delayed inevitably should we be having enough fun as to not need any manifestations (you know getting ready for something can be a lot of fun). the reason why I'm totally fine with my situation not changing is that I like my present situation. we all can learn to like it. it's a totally acceptable situation. when the time is finally here, which is when there is no other option than to allow it, it'll finally happen. until then, obviously it won't.
+
+    business as usual
+
+    worrying won't make the inevitable come any faster or slower
+    it can only come when it's envitable,
+    and that's still not yet.
+
+    how much worry anyone experdiences about the inevitable
+    is probably a reflection of how much self-flaggulation
+    one needs to perform on theirselves daily.
+
+    if I've really been naughty,
+    I'll worry extra hard and spend a terrible time over something that's completely out of my control.
+
+    great job me. you know, someone's got to do it though.
+    someone needs to worry about all of that stuff going wrong.
+    a lot is on the line.
+
+    many things could go wrong.
+    it could all fall apart any moment.
+
+    nothing to be concerneded about.
+    it's business as usual.
 
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
