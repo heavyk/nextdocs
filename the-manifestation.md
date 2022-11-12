@@ -1375,8 +1375,8 @@ all things can be delayed inevitably should we be having enough fun as to not ne
 
     great job me. you know, someone's got to do it though.
     someone needs to worry about all of that stuff going wrong.
-    a lot is on the line.
 
+    a lot is on the line.
     many things could go wrong.
     it could all fall apart any moment.
 
