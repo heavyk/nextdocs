@@ -1362,15 +1362,16 @@ all things can be delayed inevitably should we be having enough fun as to not ne
     business as usual
 
     worrying won't make the inevitable come any faster or slower
-    it can only come when it's envitable,
+    it can only come when it's inevitable,
     and that's still not yet.
 
-    how much worry anyone experdiences about the inevitable
+    how much worry anyone experiences about the inevitable
     is probably a reflection of how much self-flaggulation
-    one needs to perform on theirselves daily.
+    one needs to perform on theirself daily.
 
     if I've really been naughty,
-    I'll worry extra hard and spend a terrible time over something that's completely out of my control.
+    I'll worry extra hard and spend a terrible time over
+    something that's completely out of my control.
 
     great job me. you know, someone's got to do it though.
     someone needs to worry about all of that stuff going wrong.
@@ -1379,7 +1380,7 @@ all things can be delayed inevitably should we be having enough fun as to not ne
     many things could go wrong.
     it could all fall apart any moment.
 
-    nothing to be concerneded about.
+    nothing to be concerneded about though.
     it's business as usual.
 
 ### another way to look at it
