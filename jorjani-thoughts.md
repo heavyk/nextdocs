@@ -1996,8 +1996,8 @@ all processes are permitted.
 ---
 
 truth is a two-edged sword,
-because you're always right about it --
-until you aren't.
+because I'm always right about it --
+until I'm not.
 
 how can I be sure I'm right?
 who decides what is true?
