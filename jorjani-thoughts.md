@@ -1921,7 +1921,15 @@ prometheus is the raven and he steals fire from his uncle the beaver. that got m
 
 sounds like the beavers are going to be stuck in their dam situation for a minute.
 
+### 2022-11-11 19:19 - uniting against a common enemy
 
+in your interview about fort and close encounters, you gave me an idea, which is that we're approaching a time when we're going to be facing (as a race), the effects of the sun. increased solar output will cause us to unite against the common enemy of the sun. do you think it's possible that the previous "golden" age (when all the biggest megaliths were built) actually happened because everyone united to try and protect against the sun's rays. by uniting against a common enemy, we set aside a lot of differences and focesed on the objective. think about this from a military (ares) standpoint where you have a bunch of dudes that need to focus on something really simple (basic objectives) to return some sense of humanity in them. they want to feel alive, so they put their lives in the hands of others. when there's a focal point which everyone can look at (someone giving commands), it makes the transition back to enjoying life again a lot easier.
+
+I'd like to seriously consider that what we need is a bit of a buffer between us and the sun. obviously the sun is doing something that we're not ready for. it's not like we're in a place te tell the sun what to do, but it's my estimation actually that we may be able to actually solve the problem before the deadline (I propose that a solar year/day is about 1024y in length).
+
+you know how cheezy this is, right, but politicians always gatta have the cheese. nobody trusts a politician that tells the truth, and so you can imagine that a lot of people will be able to "save" theirselves and live a totally normal life just like we were doing before all of this crazyness began.
+
+I'll try and think of more ideas.
 
 
 ### what are your differences with steiner?
