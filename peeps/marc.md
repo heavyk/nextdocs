@@ -113,3 +113,5 @@ I'm going to end it here.
 
 until next time,
 kenny
+
+P.S. assimilate. assimilate.
