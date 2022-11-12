@@ -105,7 +105,7 @@ I'm like juicy shark bait to the ambitious types.
 
 it's often the case that the ones that want to take advantage of a person like me (they're my employers) are not people thinking of open exchange of information, and so therefore they're not at all looking for an optimal route. so much for my pet desire to optimise everyting and remove as many aspects of waste as possible. everything needs a function to exist in my universe.
 
-I'll tell you a secret and the conclusion to that logical dilema, is that in the end, things do not in fact need to have a reason. things happen because of feeling, not because of reason, though you'll always be able to logically (mansplain) something away: "it did appear after all, so we can't ignore the reality of it. here's my theory of how it got here and/or how I'm going to react to it."
+I'll tell you a secret and the conclusion to that logical dilema, which is that in the end, things do not in fact need to have a reason. things happen because of feeling, not because of reason -- though, you'll always be able to logically (mansplain) something away: "it did appear after all, so we can't ignore the reality of it. here's my theory of how it got here and/or how I'm going to react to it."
 
 this brings in the implication that reality is composed of a feeling/conceptual landscape rathar than just a physical environment. now reality has a direction, a narrative structure, a goal. everyone feels they're going somewhere, even the most stuck people, and ultimately it's how I feel about where I'm going (my attitude) that makes all of the difference.
 
