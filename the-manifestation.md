@@ -1349,6 +1349,12 @@ like I said, if they wanted to do something, there was a number of opportunities
 
 I had a bit of a revelation today when I decided to look at the situation from a solar perspective. have a look.
 
+### 2022-11-12 01:29 - you know I may be perceived as a really big hypocrite
+
+I just realised that I sent out a lot of emails to a lot of strong male influences of mine. it looks very strongly that I'm looking for acceptance from them, even though I described the desire for acceptance to be the unsafest form of perception because I rely on others maintaining a belief about me. I can't control others, so unsafe.
+
+it sure does look like I'm looking for acceptance though *blushes*.
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
