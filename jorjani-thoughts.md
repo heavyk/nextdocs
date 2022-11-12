@@ -2014,7 +2014,7 @@ and impossible to win through a contest
 of any kind.
 
 I gueess I'll have to figure out what I think is true --
-cause you aren't.
+cause, you're not.
 
 I mean,
 all on my own.
