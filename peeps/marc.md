@@ -103,7 +103,7 @@ I glow and people can see my radiance.
 easy target for the sharks.
 I'm like juicy shark bait to the ambitious types.
 
-it's often the case that the ones that want to take advantage of a person like me (they're my employers) are not people thinking of open exchange of information, and so therefore they're not at all looking for an optimal route. so much for my pet desire to optimise everyting and remove as many aspects of waste as possible. everything needs a function to exist in my universe.
+it's often the case that the ones that want to take advantage of a person like me (they're my employers) are not people thinking of open exchange of information (they like secrets and fog of war), and so therefore they're not at all looking for an optimal route. womp womp. so much for my pet desire to optimise everyting and remove as many aspects of waste as possible. I wanted to make the most optimised thing ever. everything needs a function to exist in my universe.
 
 I'll tell you a secret and the conclusion to that logical dilema, which is that in the end, things do not in fact need to have a reason. things happen because of feeling, not because of reason -- though, you'll always be able to logically (mansplain) something away: "it did appear after all, so we can't ignore the reality of it. here's my theory of how it got here and/or how I'm going to react to it."
 
