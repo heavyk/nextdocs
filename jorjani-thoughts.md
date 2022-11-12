@@ -2019,6 +2019,16 @@ cause, you're not.
 I mean,
 all on my own.
 
+### 2022-11-12 04:02 - hafez summoning an egregore
+
+https://youtu.be/zwWP75r6owQ?list=PLpmRGh63MgoOvvKfG4LYK2IQktwvfITDP&t=2383
+
+I find it interesting that he's trying to put physicality to the trickster archetype, and to give him behavioural qualities to things most oppressive for that time. the place where I think he gets it wrong is he paints this rend-galandar the most complete person. by most complete person, he's referring to the originating concept, not the physicality the concept has to take form in and be confined to (the imperfect species), of which each instantiation will always be relative to its time and place.
+
+### 2022-11-12 04:42 - salman the persian reminds me a bit of st. germain.
+
+if you've read "gods of eden" you'll see the connection. was he ambidextrous and highly creative as well? notice how all of these st. germain types all love poetry and the arts as much as they love moving around various power structures.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
