@@ -79,6 +79,11 @@ because concepts are vibrational patterns (harmonies, dissonances), the medium/s
 I'll try to get to sonic booms next time (that is when something travels faster than the propagation speed of the medium). until next time,
 kenny
 
+### 2022-11-13 13:51 - the three docking ports
+
+there are a lot of properties to a cube which are fascinating. have a look at this: take any three vertices of a cube, and you will create an equilateral triangle in the verticies. now, behind the three edges of the equilateral triangle there are actually two lines on the cube for each of these equilateral triagles. all 6 of these lines form a sorta vacuum cube. you can see (depending on the angle you look at it) that it's a cube with the back and front vertices removed. I call this shape the "moutains" or the "rhythm" of the shape (each shape has a different "rhythm" on its equator).
+
+the docking ports can be any of those points of the equilateral triangle, and the equilateral triangle take take on quite a few (never counted, 12?) different arrangements. it seems to me that hydrogens like to connect to these points, and I think hydrogen is the most flexible in its frequecy that it can easily dock to that port. there's something important that happens when all these triangles are all arrranged in the same way. it looks like graphene. it's quite strong because everything is facing the same direction and fractures happen when the carbon has triangles that are at too acute (thin?) of an angle that the carbon can slip/shift into a new position.
 
 
 
