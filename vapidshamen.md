@@ -45,3 +45,9 @@ when I looked inside of the earth, I also see a very dark cube. the problem with
 you know this whole thing about earth being theing centre of the universe is starting to get to me -- and, personally I'm beginning to see it that way conceptually. I don't know if it's true physically as well (science has a bit of a ways to go on learning how to measure, I'm afraid) -- and so it's this funny thing like it doesn't even really matter to me.
 
 if it is true, it's kinda like the most awesome thing because I think very little is known about how awesome things will get (lol). sure, there are a lot that will see things differently than me, but they don't have to be in my world for them to exist in the world. they're fine where they're at, you know. the marketing team will decide who is interested in getting them buckled into the materialism train.
+
+### 2022-11-13 22:27 - OK, so check this out...
+
+let's assume that on these guy's timelines they actually *did* have the 9/11 thing, and maybe even they orchestrated it and people did die. that'd be hilarious because that means they were on a totally much more dissonant timeline, but they instead find me on my timeline, where their sins are wiped clean (or at least one of them, anyway) -- or, perhaps, they still see if from their timeline's perspective and need a double coverup.
+
+at any rate, welcome to my timeline :) glhf
