@@ -51,3 +51,23 @@ if it is true, it's kinda like the most awesome thing because I think very littl
 let's assume that on these guy's timelines they actually *did* have the 9/11 thing, and maybe even they orchestrated it and people did die. that'd be hilarious because that means they were on a totally much more dissonant timeline, but they instead find me on my timeline, where their sins are wiped clean (or at least one of them, anyway) -- or, perhaps, they still see if from their timeline's perspective and need a double coverup.
 
 at any rate, welcome to my timeline :) glhf
+
+### 2022-11-14 05:22 - memory of alternate 9/11 timeline
+
+there seems to be some reactions on this, so I'll just say it all from my perspective. I have memories of making a whole bunch of adjustments to the timeline making it possible to destroy the trade center buildings without a single person dying.
+
+that's the trick. two (symbolically and physically) massive building disappear from new york. remember that whole thing of taking the egyptian obelisks and one is in like london or something and the other is in new york (it was a video that sacred geometry guy)? these points where the obelisks are, are like their centres of power, namely economic power. because of the astral energy related to the great pyramid (their power source), it probably makes these places much more comfortable place to be for those with box-consciousness.
+
+anyway, so imagine you're the USA in this situation where you have the antarctic base down at the south pole, and they are strict enforcers of the code, but at the same time the US govt seems to getting technology gifted to them. they were gifted timeline manipulation technology, and they cleaned up a few rough edges and really settled in on the newfound power. they fully established theirselves in a well entrenched position and they thought they had it all under control and were sitting back when all of a sudden the saloman-bros (joakim and boaz) get taken out of power. the puppetmasters see these symbols. that's a very important symbol.
+
+the weird thing is, before anyone in the US govt could figure out what was going on, all the major news outlets are saying terrorist attack -- but nobody has died. the US govt panics because how can they tell the people that it wasn't in fact a terrorist attack and that in all of that crazyness, nobody died -- so they have to make up a whole bunch of wounded and casualties.
+
+they immediately hire tons and tons of crisis actors and get a whole bunch of people to claim that someone they were close to died.
+
+the govt then realises that the news is completely running the narrative. it's a big aha moment for them, and so this is when they use it as an excuse to clamp down on the internet. the internet was spreading too much good information. back then, you could actually find things, and there was a flurry of new ideas because of how easy it was (in those times) to write html and put your ideas out there.
+
+the internet and your privacy are taken away because one of the technologies that they were gifted was an implant that allowed communication with the central nervous system. the military reverse engineered it this became the prototype for the network everyone is using today. they knew they would need to pass some laws that give them full capacity for surveilance, at their discressions.
+
+so, just how exactly those towers fell, they don't know. I have to imagine they assumed that it was a giant power-display by the antarctics. I don't know who did it, but it's weird that I know so much about it. it feels like I orchestrated the whole thing -- though how much of the execution was me, I'm not sure. mostly though, it sounds like something I would have planned. I'm really good at getting my way. I'm a strong 1st ray (from your perspective) female. I receive and tranmit desire powerfully so you can imagine I always find sneaky ways to get my way -- to change over to a new world order of feeling.
+
+sales is largely about imagination still right now, but it's quickly becoming more and more about feeling now over image. we're seeing that second transition already. it's probably my fault. sorry.
