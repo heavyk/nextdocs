@@ -19,5 +19,3 @@ like I said, I attract a whole lot of people because I have such a resistance-fr
 so, when earlier I showed that I was quite a bit more ambitious than even they could imagine (ie I want to sell my form of perception to others in the galaxy, then later after further improvements, out to the rest of of the universe).
 
 my crazy idea will work because I've essentially come up with the formula for always improving. when you're always improving, speed is constant and contrast is variable. the contrast/conflict doesn't matter because I'm always improving. you can't stop something that's always improving.
-
-we are the borg.
