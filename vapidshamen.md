@@ -70,4 +70,4 @@ the internet and your privacy are taken away because one of the technologies tha
 
 so, just how exactly those towers fell, they don't know. I have to imagine they assumed that it was a giant power-display by the antarctics. I don't know who did it, but it's weird that I know so much about it. it feels like I orchestrated the whole thing -- though how much of the execution was me, I'm not sure. mostly though, it sounds like something I would have planned. I'm really good at getting my way. I'm a strong 1st ray (from your perspective) female. I receive and tranmit desire powerfully so you can imagine I always find sneaky ways to get my way -- to change over to a new world order of feeling.
 
-sales is largely about imagination still right now, but it's quickly becoming more and more about feeling now over image. we're seeing that second transition already. it's probably my fault. sorry.
+sales is largely about imagination still right now, but it's quickly becoming more and more about feeling (concept) now over image. we're seeing that second transition already. it's probably my fault. sorry.
