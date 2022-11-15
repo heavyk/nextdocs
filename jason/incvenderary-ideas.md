@@ -145,3 +145,47 @@ the most insideous types are the ones where there are vague reasons for the pass
 just as a side note, I'd like to mention that I had a friend like liked these types of characters a lot (he reminds me a lot of you actually), and I personally hated them. in the end, I ended up going the opposite route, where I tured to psychedellics instead where, instead of interacting with these "authorised" entities, I preferred to interact with aspects of my own psyche instead. I much prefer my own machinations to others. my machinations are far more diabolical and make a whole lot more logical sense too (better justifications). and yes, those machinations of my mind extend out into the physical reality world.
 
 sometimes I wonder if I invented the archons because I was bored.
+
+#### 2022-11-14 22:20 - followup: emotions and summoning of a conceptual/egregore reality
+
+I noticed a few reactions to what I wrote, which is nice because it allows me to talk about something for a bit now, namely the conceptual. plato calls this the world of forms. to understand it, consider that there isn't a single physical car that can perfectly match the concept of a car. there are many many instantiations of the concept of a car and no single one contains all of its aspects. that's the first maxim.
+
+next, let us consider the difference between words of expectation "I expect you to do this" (though you may not), and a feeling of expectation like a forboding feeling. in conjunction with that, cosider the difference between words of belief ("I believe this") and the feeling of belief (what I'm looking at is real).
+
+you will notice that the effective kind of belief and expectation are the emotional ones, much more than the word ones. this is the second maxim.
+
+finally, let us consider the process of summoning an egregore: there are different ways to do it, but what they all resplve down to is the creation of a *belief* in a concept/spirit/entity. that entity does not yet have form, much like a character in a novel, until of course you begin to put form to this character in your mind. at some point, the character becomes so real that you can interact with it as if it were real (like old king hamlet). it only has form in your mind though. only in your mind can you feel like this concept is a reality where you can interact with it.
+
+that belief has to be externalised so that something you believe only exists now can exist in a different (denser) medium, the one of physicality. the process of doing that is roughly the same way that you "authorise" your reality: you feel it -- meaning you believe/expect it.
+
+I tried to put emphasis on the difference between *saying* you believe/expect something and actually feeling it, because it's important. like an athlete, the more you practise your routine in your mind, the more used you get (in your mind) to feeling your reality manifest in a similar way. the way that you feel your reality to be (kids are so annoying, never do their work, housemate is irritating, etc.) and we blame most of the things that we ourselves *expect* to happen in reality on the other people.
+
+you say, well, it's hard to believe something else, because they've always done (that thing that annoys me and that I expect them to do). of course, and it's a good thing, cause without it, the process of improving yourself by visualising your own behaviour differently wouldn't work. you would then be a robot, having no authorship over your reality.
+
+the things that we practise in our minds produce feelings, and those feelings "authorise" certain realities to manifest. there's nothing really too special to it at all.
+
+---
+
+when you talk about novel folklore, it sounds to me like your objective is to begin encoding new/novel ways to perceive our relationship with our world that have hithertofore been occulted. by giving the reader a new reality option to consider by authorising new phenomena to be accepted into the reality, we open new (novel) interactions that can happen between the symbols in the story.
+
+nobody ever relates 100% to a character, but often there will be something that can relate to -- so, what this means is that let's say I find some similarities to the character (like for example, I did all kinds of drugs and had strange experiences, but I never interacted with an astral woman of a previous lifetime/incarnation). so, I relate to the protagonist of the blind owl in that I know what opium (morphine) and wine's effects are and so I can strongly relate.
+
+this symbolic relation is an interesting one, because you'll notice that when I talk about symbols, I'm talking about words and actions. you can tell a person relates to things symbolically (like a horoscope) when they remove all of the physicality of the thing and look at only the action details (I'm a good communicator, so I'm like mercury).
+
+when you remove the physicality and just look at the action or hechos, then you are creating an *emotional* connection to that symbol (emotion is the antithesis of symbol/action), and it's that emotional connection which brings the egregore/phenomena into reality. to further install the emotional connection, we often times make exceptions ("I'm just like that guy, but that wouldn't drive me to kill my wife") -- so now I can feel a little bit better or worse about my seeming similarity to the character.
+
+hmm, seems that the connection between symbol and emotion didn't catch, so try again... let's say I watch the movie "office space" and I go to work to a dumb IT tech job like peter, so I'm there already with him. I've got a a lumberg-like boss, so symbolically I'm very similar to peter. in the movie, peter goes through a hypnosis session and realises that none of this material crap actually means anything and he has an epiphany.
+
+peter totally rearranges his life and starts to treat his bosses differently as a result. the first thing he does is to get rid of all of the stuff that annoys him (stupid handle that shocks him, his cubicle, etc.) and then starts to become really honest with his bosses. most people lie and are afraid of their bosses, but peter tells them what's on his mind without filters -- and weirdly enough, instead of punishing peter, they respond, "this one is a straight shooter with upper management written all over him". I love that quote because of the "be truthful and shoot straight the arrows" quote.
+
+I and many others related to peter in that movie, and one of the things that movie did was to adjust how I talk to people. I shoot straight the arrows (as you've probably noticed) -- and the weird thing is, that like peter, I've only seen promotions since then. people keep trying to put me in higher and higher management positions because I tell people what I think more often now than what I think they want to hear. this movie dramatically changed my life and because of my emotional connection to it, it authorised/attracted many similar situations that happened to peter, also for myself.
+
+---
+
+to further have a look at emotion and action being polar opposites, notice the concept "I don't feel like doing it". OK, so imagine for a moment that you have to practise your instrument or something like that, but you don't *feel* like doing it. you'll notice that if you force yourself to do it, by performing the action you'll start to feel it and after not too long, it no longer feels like something you don't want to do (especially if it's something you like, rather than a chore).
+
+I personally have a very difficult time doing anything that I don't feel like doing, so I've given this a lot of thought -- because, if I want to do anythting, I have to first find a way to feel like I want to do it. you'll notice that the key word there is "want" because emotion and desire are linked pretty well. you'll notice that when you don't feel like you want to do something, it's because you don't really feel desire/novelty/new/fresh/fun from the thing anymore and so this is a lack of desire. most people try to pump up desire (this is the most common sales technique), but an increase in desire didn't change my perception that I find the thing to be a bit stale, nothing exciting, etc. if I pump up desire, I can get stuff done, but often the next time I have even less desire than I had before.
+
+instead of pumping up desire to cover my lack of interest, what I do, is I change my perception of the thing by making the activity a feeling activity than an action activity. like, if I have to play the instrument, I change my desire from "I want to play this" to "I like the way the instrument feels when I play it" and now when I play it, often times I experience something new from it because I'm focused now on the feel of it instead of the action. novel folklore just prepares you better to have a similar feeling manifest in your reality.
+
+that's good for now. cheers man
