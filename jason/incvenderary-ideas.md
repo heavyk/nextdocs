@@ -113,3 +113,35 @@ the way that I look at freedom, is not one so much of conditions, but instead of
 ---
 
 I have an additional set of ideas to add on to the promethian concept of being bound (to the caucuses mountains) for freedom. it involves the idea that perhaps that story is actually the original idea behind the concept that your only true freedom is, the way that you feel, and how you perceive reality -- because if that weren't the case, prometheus wouldn't have choose to experience that reality in the multiverse. he must have known that it's all perceptual. I'll expand on this idea in the future, because the very story of him having some awful conditions (the bird pecking out his liver) tells of the fact that prometheus was not actually bound by his conditions. his conditions should have produced a different result, so if you believe any portion of that story to be true, we're already on a novel timeline.
+
+### 2022-11-14 20:01 - 007 phenominal authorisation
+
+I don't have too many comments on this one. I pretty much am in agreement with most things said, but I'd really like to pay some attention to the voice in which it's done.
+
+the majority of the first part of the essay gives a lot of examples, but from the perspective that things are being done *to* the person -- that they're somehow victims of some "noble lie" or any other machination. this is not the case. it's all attraction.
+
+as an example, let's consider plato's proposal of the noble lie of the lottery to eugenically create superior people by pairing them with optimal partners. that may be the case genetically, but consider the possible effect this lottery could have: a lot of the elites did this eugenics stuff, which is why there were so many arranged marriages and inbreeding -- and it produces an immense amount of unhappiness and conflict. they may have had genetically superior children, but at the cost of a terrible childhood and family life... yay
+
+---
+
+the way that I look at attraction is that your life kinda reflects how you feel and how you conceptualise your reality (ie. how you *think* it works). this means that happy people tend to lead a life of a lot less conflict. seems logical, but it's not obvious for most.
+
+so, while it may *appear* that the noble lie is producing something better, but it's actually producing based off of it's initial impulse. what I mean is -- imagine the guys that are sitting there coming up with this plan -- and they're thinking to theirselves, "man we have a bunch of physically and mentally inferior people" (not-good-enoughness) and so they decide to implement this eugeics program disguised behind the lie. although they may be able to get physically improved genetics the first few generations or so, but I guarantee you that unhappiness will continue to rise amongst people that are not emotionally agreeable, and only physically agreeable. I guarantee you that after a few generations, the original problem ("man we have a bunch of physically and mentally inferior people") will get worse. the mental one is easy to see, but the physical one not as easy to see because you are in fact getting more physically "superior" people.
+
+well, if you've ever been involved with sports, gymnastics or other competitive activities, you have a lot of physicall very confident people, but when it comes to actual performance, you'll find that statistically the ones that feel better will consistently do better.
+
+you may get better genetics, but you probably won't get get better performance (at least, not in the long run, anyway).
+
+---
+
+the other thing I'd like to comment on is that this whole essay is all about "phenominal authorisation" -- in which, the "authors" of our reality authorise phenomena to occur by allowing these phenominal events to occur in the narrative (they're jusified), but I would like to point out the method by that makes this possible, and you will see that *you* are the authorisor of *all* phenomena that can happen in your experience.
+
+when you read a story or some other symbolic arrangement of characters, you engage the story with emotion in order to give the symbols some life and character. because you engage with emotion, you ar allowing events that feel similar to manifest in your reality (it's all attraction), and so when you read a story, the author "authorises" these events to occur through a series of emotional jusifications leading up to the event. they're usually justified, and if they're not they're left unexplained, leaving the reader/watcher to come up with the justification theirselves.
+
+the most insideous types are the ones where there are vague reasons for the passage of certain events, and so therefore you leave the reader to try and find the reasons (like blind owl, hehe) -- and by doing so, the reader finds theirselves in similar dreams and experiences. I know personally that I completely stopped watching movies and books with magic in them, because they would "authorise" these characters to interact with me in my dreams. no thanks.
+
+---
+
+just as a side note, I'd like to mention that I had a friend like liked these types of characters a lot (he reminds me a lot of you actually), and I personally hated them. in the end, I ended up going the opposite route, where I tured to psychedellics instead where, instead of interacting with these "authorised" entities, I preferred to interact with aspects of my own psyche instead. I much prefer my own machinations to others. my machinations are far more diabolical and make a whole lot more logical sense too (better justifications). and yes, those machinations of my mind extend out into the physical reality world.
+
+sometimes I wonder if I invented the archons because I was bored.
