@@ -6150,6 +6150,22 @@ it's a really interesting case because it's pretty obvious that both jessica and
 
 it's going to be interesting to see how he turns out. he could easily be the positive aspects of both jessica and andrew, but it looks like he's showing off an amalgamation of the emotions that both of them are constantly displaying. thankfully, not my problem though -- but he *will* be useful as a great demiurge when he's older...
 
+#### 2022-11-16 10:53 - followup on limp
+
+it occurred to me that his left-leg limp might idicate that, like me, he has his imagination turned off... he drags his left foot because it seems that, like me he doesn't have much control over his ankle. this, along with malformations on the middle and ring fingers of the left-hand seem to be strong indicators that his imaginative capability is turned off.
+
+wow, if that's the case, that's *really* going to be an interesting case. I'll ask jessica if he can see his imagination because I'm fairly certain that the network allows you to see what's in your kids' imagination and dreams. if that's the case, then he's interesting to me, and it'll also be really weird to see how he deals with it.
+
+my imagination was turned off when I was almost 17, so I have no concept of what it would be like to grow up entirely without an imagination. I have no concept for that. I also wonder if JP's kid's imagination is also turned off, too. these kids are going to be interesting to watch how they grow up, especially if they don't have a visual way to express theirselves and either even a visual concept of theirselves.
+
+you know, I have no idea what I look like, and so because I can only remember data points on myself (skin colour, hair colours, shapes, and things like that), I don't really have a visual concept of myself. I do have a very strong emotional or conceptual perspective of myself. I've noticed that a lot of people struggle with self-identity, and think that it's related to how they "see" theirselves visually. I don't have this, so it probably appears to others that I have a strong sense of who "I AM". you are not your appearance. you are much more than just a physical form, and this is very important for self-identity.
+
+right now jackson emits a very strong self-identity of being rejected, but if he were to take that identity and begin to feel like I do about myself, it's pretty easy to see that he would, like me, emit a very commanding feeling of self-identity to those around him. we're very similar in that regard, and that may actually be because he *doesn't* have an imagination. very interesting.
+
+you can imagine how powerful jackson will be as a military commander. he will strongly appeal to the others that feel rejection and not-good-enoughness. he'll be a very strong leader to those that feel rejected (it's hard for a lot of people to see me as a leader because I have such a positive self-identity). in fact, that's likely the case of why so many at nosebook hate me and want to hold me back -- because of that self-identity. they want that for theirselves but don't know how to get it, so they use their visual self-image and the power that the network gives them as a replacement for their low self-image and self-hatred. one day jackson will probably be hitler 2.0 -- which is fascinating if, in fact, he *does not* have an imagination because he'll take on a whole new angle to his promotion/sales of conditional self-empowerment through power and might to the res of the world.
+
+thanks hitler, the whole world, especially the united states really needed to reinforce military/power superiority to fill in a void of self-identity.
+
 ### acting: feeling good in my body vs looking good in my body
 ### if I look good, then I can feel good -> inner
 ### who/what/when vs why vs how
