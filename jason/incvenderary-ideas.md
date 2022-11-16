@@ -189,3 +189,21 @@ I personally have a very difficult time doing anything that I don't feel like do
 instead of pumping up desire to cover my lack of interest, what I do, is I change my perception of the thing by making the activity a feeling activity than an action activity. like, if I have to play the instrument, I change my desire from "I want to play this" to "I like the way the instrument feels when I play it" and now when I play it, often times I experience something new from it because I'm focused now on the feel of it instead of the action. novel folklore just prepares you better to have a similar feeling manifest in your reality.
 
 that's good for now. cheers man
+
+### 2022-11-16 13:23 - 008 - promethus defined
+
+(rough draft outline -- still getting more ideas)
+
+listen again
+- atlas/atlantis holding up the sky (the firmament)
+  - interesting triangle between giza, atlantis and antarctica (the entrance to tartarus)
+    - if these sites were energetically connected, this probaably explains pretty well (called isostatic rebound) why africa and asia minor raised up so much, meanwhile atlantis sank (imagine a teeter-totter with one end in atlantis and the other in giza, with the fulcrum attached to the south pole)
+- saturn and tartarus (and why the inner earth became "hell")
+- the interesting similarities between the myths of vulcan and prometheus, and how it's pretty likely that vulcan was seen as prometheus (giving them weapons/conditions to fight the olympian pantheon)
+- the first woman (pandora) and how other myths relate that she (the woman) was created by vulcan.
+  - this makes tons of sense if pandora is babalon
+  - pandora encodes all of the qualities of the gods into her person, and I believe that all of those things are conceptual/emotional qualities that *lead* to all of things that having opened up her box (vagina) plagued mankind. (remember, we were complete previously, having both male and female genders, probably XXXY and could appear as either male or female, much like the shapehifting dark goddess)
+    - look up the qualities and go down the list showing how from a LOA perspective, those qualities produce the plagues that are said to have come from pandora's box.
+  - assume I'm right and talk about how XX makes a more powereful presence than XY, and compare how this presence is a self-instigating feedback loop.
+    - talk about how one X comes from mom and one from dad, and though there is some variation, females will always retain their mother's X. therefore, from an evolutionary standpoint, one side of the girls never changes, and it's only the father's X that improves -- which gets passed to the daughter, and hopefully she can integrate those improvements into her mother's X.
+- finally, talk about the gods as XXXY, and how their presence is going to be even stonger, and also note the similarities between the "triad" relationship between these X's, where one goes up while the other goes down, and the third is the stability/ground/fulcrum.
