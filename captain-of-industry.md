@@ -156,6 +156,16 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - it'd be nice to set the % refuel amount for fuel stations. my excavators keep running out of fuel and I have a station next to the mining operation (a lot of diggers though, so it's inevitable that two run out at the same time)
 
+- it'd be nice to be able to set on power plants the ability (instead of priority) to, if the shaft has a lot of power on it, use some of that power instead of letting it go to waste.
+  - if I put the power on P2, and P1 is always satisfied, the turbine will never run because there isn't a load (it'll just stay at full power). instead of always running at P1 where the output is inefficient, I want it to fire only when there is 90% or more power on the connected shaft.
+
+- it'd also be pretty cool to lay down a zone to where it doesn't interefere with trucks or anything, but to say, "put a xxx thing here" -- to kind of help out the layout of my factory, and also as kind of like TODO items (for example, cement gas kilns go next to the limestone import)
+
+- remove products option from connectors (this helps a lot with fluids). even better would be to remove all types of a certain product type (seawater, steam, etc.) from all pipes and connectors that can reached from the pipe
+
+- when selecting the cargo depot, it'd be cool to see when the ship has departed and it's return time. it'd also be cool to set priorities on the contracts too in case of running out of unity.
+  - it'd also be nice to set the slow pace on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
+
 ### design/upgrade planner mode
 
 it'd be really cool to have a sort of virtual workshop of infinite space with conveyors and pipes coming out of nowhere which are just magical sources and sinks for belts and pipes. in this mode (de)construction time is instant and the blue hue isn't present so I can see what I'm clicking on. this is the place where you design/load/save the blueprints, then later paste them into the world.
