@@ -148,7 +148,7 @@ once again, you have the aryan/cowboy theme showing up there (cheers, jason!).
 
 anyway, like many other mavericks before me, I'll likely "fail" at my attempts to convince you all that you've been hypnotised, and, like joe, take pleasure in the drama it creates (the more attention grabbing the reaction is the better, right?). so, I guess try and have a good time...
 
-as for me, I'm going to continue to carry on my own inquiry at my own pace. I don't mind if I fail because I know (perhaps you don't) that I am eternal. they can't actully "stop" me in any way.
+as for me, I'm going to continue to carry on my own inquiry at my own pace. I don't mind if I fail because I know (perhaps you don't) that I am eternal (this is the key concept in "gods of eden, btw"). they can't actully "stop" me in any way.
 
 ---
 
