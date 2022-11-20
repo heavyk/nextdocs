@@ -71,3 +71,37 @@ the internet and your privacy are taken away because one of the technologies tha
 so, just how exactly those towers fell, they don't know. I have to imagine they assumed that it was a giant power-display by the antarctics. I don't know who did it, but it's weird that I know so much about it. it feels like I orchestrated the whole thing -- though how much of the execution was me, I'm not sure. mostly though, it sounds like something I would have planned. I'm really good at getting my way. I'm a strong 1st ray (from your perspective) female. I receive and tranmit desire powerfully so you can imagine I always find sneaky ways to get my way -- to change over to a new world order of feeling.
 
 sales is largely about imagination still right now, but it's quickly becoming more and more about feeling (concept) now over image. we're seeing that second transition already. it's probably my fault.
+
+### 2022-11-20 02:41 - is glam when we started to watch our music?
+
+thinking just now about glam, I noticed that glam, represented a pretty vib shift in music, going from only sound, to something that is now visual.
+
+as an example, I know pretty little about the beatles, but I notice that people tend to *listen* to the beatles, but when people talk about glam, they tend to use a lot more visual (something).
+
+it's a strange thing, but the visual aspect can't be separated from the music. I don't know if it's like that for other's but, for example, if I think of led zeplin or beatles, the image is brown or grey, but if I think of KISS, I get the full picture. he's weearing like stripes and his toungue is sticking out and stuff. it's an entirely different sensation.
+
+I wanted to write this because there's much more to this concept. following mcluhan's "understanding media", you'll notice that as the medium get warmer, it becomes more and more of a multimedia experience. so, at some point some senses start to become more dominant, and that drown out the smaller signals.
+
+as an example of this, I've spent a large portion of my life contemplating that "still small voice" that many of us call our conscious or "inner being" -- and the thing is, that voice is small, so it's a lot like many of the finer concepts -- in that, I often don't get them in the situaton because they're such lower volume than all of the ghetto blasters in my vicinity. that small voice takes some practise to be able to hear, especially in an emotionally heated moment.
+
+well, that "heated moment" is a lot like a warmer medium in that it's a very strong signal in comparison to the other senses, and so it drowns out the other ones.
+
+so now, when I look back at glam, it's easy to see seriah and (metalic onslaught) joe's complaints about glam having lost the "metal" quality to it -- and I think that effect is largely because it's no longer just an audio medium, but now also a visual one.
+
+---
+
+when I was younger (especailly in tenerife), when I listened to music, I had synethesia, and so the music produced images in my mind when I watched it. I found that some times of electronic music (like for example, I enjoyed a lot the visuals for "man with no name - vavoom") often made much nicer visual patterns for me, and so just the difference of the visuals inclined me more to like electronic music.
+
+I often listened/watced metal/guitars and stuff like that with dani, but the thing is it didn't produce visuals that were as pleasurable as the electronic music did. some songs are pretty big exceptions though, as some artists encode a whole visual sequence into their music for me -- like for example, rainbow's coming home song is extremely visual for me. as a result, I like that song a lot.
+
+---
+
+so, I can see seriah/joe's perspective that glam has lost a lot of its intensity, and that's because the visuals drown out a lot of the more subtle stuff.
+
+however, I can also see it from tim's perspective, that while it may be a really crappy song musically, the enjoyable thing about it is the presence (for me this is visual, but you all would say it's a feeling), and so for that I can see that perhaps tim likes where the song translates him to.
+
+a good example of this is how many people can often times remember a memory much clearer, when a song that was playing at the time is playing in the present. well, the ability to remember that memory is the same presence that these more visual songs.
+
+anothor good example of this, is when I was say 15-16, I listened to a lot of german techno and elecronica. listening to paul van dyk or tiesto would literally transport me (again, for me it was visual) always to one of those super posh night clubs where they have that type of music playing. the thing is, at that time, I'd never seen a disco, never known a DJ or anything -- so it was a completely intoxicating experience to be there in one of these super cool beach places or one of those clubs that are really chill and filled with hot chicks everywhere.
+
+I highly doubt those images were real places -- instead, I believe it was my imagination of what I *thought* it would be like to be in one of those super cool places I saw in their music videos. later on, when I was in spain, I visited many discos -- including a lot of really nice ones and even in good "bottle" locations, and I can tell you positively in retrospect, that those images were not at all realistic. neither are glam songs, but it's really fun to go traveling when I listen to music :)
