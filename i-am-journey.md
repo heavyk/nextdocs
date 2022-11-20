@@ -77,3 +77,81 @@ THAT'S WHAT I WANT!! I got it! (no two trips are the same time)
 [3]: when writing this, I had a flashback to a mushroom trip when I realised that reality is composed of the words we use to shape it. this is one of the reasons why I decided I wanted to "shoot straight the arrows" (don't speak untruths) -- not for others' sake, but because word reality is extremely liquid and slippery -- because words theirselves are slippery and can be taken so many ways, that, reality took on that quality. I couldn't stay in in a "defined" word reality becasuse my reality was expeiencing me something like a lawyer uses words to bend "truth", and each time I tried to get a solid grasp on thngs, it shifted and slipped away from me. I couldn't grasp it and hold it steady it was so liquid. I remembered the thing that terence said about the baby that sees the bird and it's this magical happy thing floating about with so much exuberance, and then the mother says, "bird. that's a bird" and when she says that, the glow and shine, all of it's brilliance and magnificence disappears. now it's just a thing no different than any of the other stuff around. it becomes drab and the only thing that it can now use to express itself now is its movement (before it was much more). the word caused the bird to lose all of its "living" quality. I settled down and relaxed into trying to see the world like the baby does.
 
 [4]: considering that people appear to me largely how they feel (ref: conversations with sesily), I actually think anger and hatred toward jessica is attracted from her own perception of herself, and has little to do with me (I'm just her brother and we share similar DNA (like jaron and me) so I feel her easier). I will feel her like she feels herself, so if she hates herself and hates that she didn't get the conditions/manifestation that she wanted, that's the is probably the origin of that. jackson is a reflection of that and was simply born into it, so the feeling has been what's normal. when he gets out of the nest, and sees that there's more to the world than self-hatred, he'll have to reconsider a lot of things he probably now considers "true" or "reality". most people don't get there though, which is why I said from my vantage point he's hopeless. from his though, he's just doing his best, just like everyone else.
+
+### 2022-11-19 22:16 - disillusion
+
+things have really taken a pretty strong negative turn for me the last few days. what's happened, is, I made myself available, but there isn't anything. from my vantage point, it appears that quite literally not a single person wants to actually talk with me now that I'm starting to become more open about things -- or, at least, I'm being more stright-forward about things, anyway.
+
+I imagined that people like jason, who claims that it's really important to "shoot straight the arrows" would at least find value in my shooting straight the arrows, but it's not the case.
+
+nothing makes any sense to me because I just can't understand what the punishment is for talking to me (especially about things like nosebook) -- and, if there isn't really a punishment -- then, people's resistance to it must then be something else.
+
+for example, there have been numerous times that I have tried to reach out to becky and to at least talk with her. she seems interested in things that I seem to know a lot about, but there is always something that makes it not happen. therefore, I must assume there has to be a punishment, because it doesn't feel to me like becky is worried that she'll look silly or be castigado (or looked down upon) by others for taking to me about things -- probably stuff that I seem to know a lot about and she's just beginning to search out.
+
+I feel like I'm a great resource for a lot of people to ask questions to, because I've spent quite a bit of my time (much much more than the average person) thinking about things in not only a philosophical way, but also I've come to a lot of conclusions that *actually make sense*, and aren't some hand-wavey religious or new-age nonsense. I can explain almost every aspect of science, consciousness and the nature of reality *without* invoking "God" or other really ridiculous thing.
+
+there's this one part in the "gods of eden" book that I really liked, where bramley says that if this maverick type appears again, she/he will have a comprehensive, way ... lemme get the quuote [30m later.. OK, I think this one is it...]
+
+"gods of eden" pp368
+
+```
+This raises the question: has there ever been, or will there ever be, a genuine messiah? How would one identify such a person?
+
+Anyone who successfully develops a functional science of the spirit would obviously have a legitimate claim to the title of "messiah" in the "teacher" sense. There is nothing mystical or apocalyptic about this: a person makes some discoveries and shares them. If this knowledge becomes widely known and results in widespread spiritual salvation, then we enter the realm of the "liberator" or "prophesized messiah." How do we identify such a liberator when there exist so many different prophecies with so many ways to interpret them?
+
+The answer is simple: The would-be liberator must succeed. That person must earn the title; it is not God-given. This is a terribly cold and uncompromising way of looking at it. It strips away the magic and mysticism normally associated with messianic prophecy. It forces any person who would claim the title of messiah to actually bring about peace and spiritual salvation, because such a prophecy is not going to be fulfilled unless someone causes it happen. This compels the would-be liberator to fully overcome the overwhelming obstacles which act against these universal goals. This is one of the most unenviable tasks that any person could ever hope to undertake. We need only look at past "liberators" to appreciate the long hard road that such a person must travel. To date, no one has succeeded, but it is certainly a challenge worthy of the best talent.
+```
+
+while I have no intention to try and save anyone or liberate anyone from any oppressiion (actually, it's possible that if anyone needs a saviour or liberator, it's me more than anyone else -- but I think I'm actually fine).
+
+however, his point about the idea of the person *earning* the position, does strike harmony with me. I've made a lot of claims, especially about convceptual viewing and other things of that nature, and I encourage you all *to test me on it!!* hold me to my word, and make sure I'm not just making up a bunch of nonsense. I guarantee you that I've given so much thought to so many things that if I don't know, I'll have an intuition of where to look. everything can be found out. "seek and you *shall* find" -- not like, maybe you'll find it. you *will* find it if you're actually looking for it.
+
+this is where I differentiate myself from the rest of you guys. it doesn't appear to me that anyone actually wants to know. it seems that most people are content to just follow whatever or whoever it is that is telling people what to do. I know that there is a "unseen hand" trying to steer this whole thing because you all are not behaving like humans do -- not even like normal ones. to the best of my ability, it seems that someone is giving silent orders and people are in some sort of hypnotic state where they don't even notice what is happening. I know this because I'll write this and it has next to no effect.
+
+thankfully, I've been listening to LEFTL for a bit and there's this thing where joe has been hypnotised by seriah and joe always says, "you can't hypnotise me; I have too strong of a mind" and then seriah jokes with joe saying, "did you see porno joe? you just missed him" "you know he looks a lot like you" and joe just responds with the proprogrammed response (by seriah) that he can't be hypnotised and that he just doesn't know what's happening to him.
+
+the way that joe feels, feels very similar to the way that nosebook feels to me. it's a bunch of people running around saying and doing silly things (usually exposing themselves), looking for attention from others.
+
+---
+
+I have no sympathy for you guys. like I said, this appears to me to be a new concept I'm calling "hardcore-holdouts" -- because that's the best way to describe so many people's behaviour, including my own.
+
+I can feel from a lot of girls that they look around at the many other braindead and hypnotised other dudes out there (joes), and they're like, "no way... I'd rather hold out for a decent dude".
+
+I can also feel from nosebook and a lot of others out there that they've kinda got theirselves into a pretty good jam, and there's not a whole lot that they can do about it. they can see that I continue to increase in power and influence, even though I just sit around and play games all day. they're quickly arriving to a situation where I'm starting to become too unpredictable and uncontrollable. they're hypnotism isn't working on me (I sound like joe) cause I have too strong of a mind...
+
+juat kidding, what is *really* happening is that prior to the previous week or so, I actually prefered to be alone. I wasn't joking when I said that it's like those sales calls (I used to do this all the time in esssembly with my boss joe) where I just say, "yes," "uhuh" "yeah, that sounds like a really good idea" knowing that he hadn't actually thought out the idea and while he thinks that "let's make the profile tell more about how well you relate to the other person," that's not actually an idea. that's how you start brainstorming. for him all of these ideas are still in the imagination phase and don't actually have any physicality to them -- "*how* do you make the profile better, joe?"
+
+he was totally clueless so I just said yes yes yes, knowing that nothing that's in his imagination will ever make it into code until it can bocome a bit more physical.
+
+well, this is what I did with you guys and the girls. I did the same thing knowing that all of these things are just ideas. they're nothing greater than an idea that sounds iike, "let's make the profile more informative".
+
+so, what I did is I decided to start to engage people and start to make some of those things a bit more real. this is me, and this is how I am. I'm not the image (or whatever it is) in your mind that doesn't contain the physical aspects, I'm a real person, and I talk with words and I have conversations and I express ideas that are intresting to me.
+
+obviously, nobody likes the real me, "ohh yeah, that's not quite it. I think we should present the user's information better" -- and so you see, I was right: nobody actually *wants* to make the idea physical. they like the idea in their brain better, and not actually a working prototype.
+
+if you all actually wanted to try and make the prototype a reality, I would have at least gotten a few responses. seems though that instead of someone that can actually do the things that they say they can (like me), you all want to stay with the rose coloured glasses on.
+
+---
+
+like I said, I have no sympathy for you guys. I've been exploring this idea a lot the last few days(? time is hard), and it really does look like a repeat of one of these maveicks that bramley is talking about. the maverick shows up, has a practical and scientific method to spirituality, but that is undesirable to those that believe therselves to be the "custodians" of our planet, and so because these mavericks gain a following (like I said in the last entry, I *used* to be very charismatic, but it seems that through no doing of my own, that charisma is dampened to the point that I'm actually shunned and rejected).
+
+I'm not claiming to be a messiah (and I sincerely doubt the other mavericks did either -- cause that sounds an awful lot like a custodial edit there), but I am claiming to be a maverick. in bramley's own words:
+
+> Maverick religions are those which *have broken from Custodial dogma* and *have attempted a practical or scientific approach to spiritual salvation*.
+
+that does sound a lot like me. I don't want to make a religion though. that's the custodial brotherhood's job -- and anyway, if I make a religion, it'll be a joke, to illustrate in the negative form. bramley clarifies his definition of maverick:
+
+> The term "maverick" comes from America's Old West. It denoted any grazing animal, such as a cow or horse, which did not have an owner's brand. The word itself comes from Texas cattle owner Samuel Maverick (1803-1870) who refused to brand his calves. Those unbranded animals were dubbed "Mavericks" and any found roaming loose were considered owned by no one. From this came the definition we are familiar with today: a maverick is a person or organization not "owned" or "branded" by anyone, but who acts in an independent manner, usually in a break from established convention.
+
+once again, you have the aryan/cowboy theme showing up there (cheers, jason!).
+
+anyway, like many other mavericks before me, I'll likely "fail" at my attempts to convince you all that you've been hypnotised, and, like joe, take pleasure in the drama it creates (the more attention grabbing the reaction is the better, right?). so, I guess try and have a good time...
+
+as for me, I'm going to continue to carry on my own inquiry at my own pace. I don't mind if I fail because I know (perhaps you don't) that I am eternal. they can't actully "stop" me in any way.
+
+---
+
+looking forward, it's easy to see that I'm either going to be a spectacular fail on my part (like literally years and years go by and I continue to remain uncharismatic and shunned), or, this is leading to a pretty big "manifestation" where I transform into a radient being that can fly around, levitate objects and other really impressive things. that's what you all will remember though -- because everyone loves a superhero, right? what if I'm actually a "bad-guy" though, and I start destroying things that annoy me (like the door knob that always shocks me or my stupid office cubicle)... now, I'm a rebel badass. so hot. pfft. that's a fun game to play because you all will only see those things and none of the intelligent and incredibly insightful things that I've noticed.
+
+if that happens, I'm going to mess with you guys so hard. I hate you all, so much.
