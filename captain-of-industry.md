@@ -164,7 +164,9 @@ this opens up an interesting conversation though, which is how the pipe should b
 - remove products option from connectors (this helps a lot with fluids). even better would be to remove all types of a certain product type (seawater, steam, etc.) from all pipes and connectors that can reached from the pipe
 
 - when selecting the cargo depot, it'd be cool to see when the ship has departed and it's return time. it'd also be cool to set priorities on the contracts too in case of running out of unity.
-  - it'd also be nice to set the slow pace on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
+  - it'd also be nice to se t the fuel saver on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
+
+- sometimes I want balancers to have a priority, but also allow some percent to pass through (for example, some amount of CP2 I want to pass and another amount to go on to become CP3). in general though, I want to be able to define logic for the routing, incuding with the ability to query the status of other machines/storage. as in, when this part is running slow, route prioritise one route, else do ad different thing.
 
 ### design/upgrade planner mode
 
