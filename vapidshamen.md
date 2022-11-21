@@ -104,4 +104,10 @@ a good example of this is how many people can often times remember a memory much
 
 anothor good example of this, is when I was say 15-16, I listened to a lot of german techno and elecronica. listening to paul van dyk or tiesto would literally transport me (again, for me it was visual) always to one of those super posh night clubs where they have that type of music playing. the thing is, at that time, I'd never seen a disco, never known a DJ or anything -- so it was a completely intoxicating experience to be there in one of these super cool beach places or one of those clubs that are really chill and filled with hot chicks everywhere.
 
-I highly doubt those images were real places -- instead, I believe it was my imagination of what I *thought* it would be like to be in one of those super cool places I saw in their music videos. later on, when I was in spain, I visited many discos -- including a lot of really nice ones and even in good "bottle" locations, and I can tell you positively in retrospect, that those images were not at all realistic. neither are glam songs, but it's really fun to go traveling when I listen to music :)
+I highly doubt those images were real places -- instead, I believe it was my imagination of what I *thought* it would be like to be in one of those super cool places I saw in their music videos. later on, when I was in spain, I visited many discos -- including a lot of really nice ones and even in good "bottle" locations -- and I can tell you positively in retrospect, that those images were not at all realistic. neither are glam songs, but it's really fun to go traveling when I listen to music :)
+
+### 2022-11-20 17:05 - I want to write...
+
+I don't really know about what though. the thing is, I opened up captain of industry to play and listen to metal, but I totally can't right now. it looks like a bunch of problems I have to deal with -- and I'm totally not in the mood for that. I thought about what else I would want to do (cause I'm pretty stoned), and since playing that isn't one of them, I'm inclined to find something I want to write about. it's my basic inspiration formula -- but the thing that makes it difficult is, I'm stoned. normally, it's effortless and by now I've got ideas of what I want to write.
+
+lol.
