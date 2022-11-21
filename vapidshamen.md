@@ -110,4 +110,4 @@ I highly doubt those images were real places -- instead, I believe it was my ima
 
 I don't really know about what though. the thing is, I opened up captain of industry to play and listen to metal, but I totally can't right now. it looks like a bunch of problems I have to deal with -- and I'm totally not in the mood for that. I thought about what else I would want to do (cause I'm pretty stoned), and since playing that isn't one of them, I'm inclined to find something I want to write about. it's my basic inspiration formula -- but the thing that makes it difficult is, I'm stoned. normally, it's effortless and by now I've got ideas of what I want to write.
 
-lol.
+effortless.
