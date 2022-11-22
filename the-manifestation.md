@@ -1383,6 +1383,58 @@ all things can be delayed inevitably should we be having enough fun as to not ne
     nothing to be concerneded about though.
     it's business as usual.
 
+### 2022-11-22 13:10 - which way am I going to go?
+
+I was just sitting out in the sun, and I was reminded of a lot of different reactions that I often felt last night when going to the bathroom (I don't feel reactions so much when I play games, which is why I like to "disconnect" from all of the reactions for a bit).
+
+the main reaction seems to be a discussion on what or who it is that I'll pick. to me, this is a really silly question to be asking, because I have no control over it.
+
+it's all attraction, so from my perspective, I simply keep going until I go past the "point of no return" -- meaning, that from my perspective, the attraction is so strong, that there's no other way for me to go. I don't decide anything.
+
+therefore, from my perspective, it looks like I simply keep going for as long as I can keep going, until of course I get connected (maxine-foot-dragon). from your perspective, it'll look like I'm constantly causing trouble and refusing, but it's not that I'm refusing ... it's just that I don't really feel good about the whole situation still.
+
+---
+
+sure, it's true that as time has progressed, I seem to feel less and less good about the situation -- and that's normal because the situation, from my physical perspective is that nosebook is trying to figure out how to orchestrate a situation that I don't want to be in -- so, it's normal that if they're going toward unwanted, I'll feel more and more resistance.
+
+as an example, when I worked in tuenti (or when I was with raquel), I knew I had to walk away from the situation that I was in. sure, I really liked the idea of creating a social network, but the direction that things were going was (from my perspective) becoming less and less like something that I wanted to be a part of -- so, I walk away.
+
+because it's all attraction, there is still a manifestation out there that feels equivalent to what I thought I would feel creating tuenti -- meaning, from my perspective, I feel destined to create something that I really like -- perhaps not a social network but something even better. that's the nice thing about letting the manifestation be "all attraction" because I don't have to do anything. I already had the desire, so now I just simply wait around for it to come.
+
+I don't mean that I just sit on my hands. I follow my instinct -- so, for example the last few times I wanted to smoke, I felt strong inspiration to do so. I mean, like the last time, I was sitting out in the sun (like today) and it came to me so clearly, it might have even been audible (cause nosebook hears and sees things that I don't -- which is why I've gotten so good at listening to that "still small voice" even without the visible or audible manifestation). sure, it's possible to receive images and feelings from other people -- but that's the secret to getting good at hearing your inner instinct -- is that when starting out, that "instinct" sounded a lot like raquel or mom (feminine-mind) -- and so I had to actually start to pay attention to what is programmed instinct, and what is actually my "higher self".
+
+I still get that voice mixed up sometimes, and often times in hindsight, I can see that it was actually nosebook (or someone else's attraction), but the thing is, when it feels fine (no matter the source), it always works out fine.
+
+this is what I mean when I say it's all attraction. I imagine that one day, a person will become attractive enough that whatever it is that I feel from them is good enough for me to follow up with action myself.
+
+a good example of this was the thing where when I smoked, it felt to me like a bunch of people were trying to get me to make a move -- so I did -- and it wasn't what people expected. obviously, if it was something that someone wanted, it would have got a reaction.
+
+I try to stay reactionary, but eventually, when attraction is strong enough, I'll make an action because it's what "feels right" -- and so I regret nothing. I acted based on what I felt right.
+
+"but nothing came of it, so it was a failure" -- I can hear the reactions already -- but please beware of the lust for results or the need for a manifestation in order to feel good.
+
+it's quite possible that exactly *nothing* will come of any of the actions that I make for quite a while. like this last time, the actions are not for results, but for better positioning or preparation (depending on how you want to look at it).
+
+I really wouldn't expect anything too substantial for quite a while. you all are still *very* incompatible with me in both, how we see the world, and how we interact with each other.
+
+you all are still quite a bit stuck in your imaginations, trying so hard to plan everything out and get everything perfect and everything -- pretending to be prometheus with all of your forethought, but I'm the guy that's all about the afterthought -- epimetheus.
+
+I have no forethought because you guys are all so busy doing that. when I try to make an action, sometimes I think to myself what will be the result, but mostly -- my perception is not about what will happen in some ficticious scenario -- instead, I react in the moment to things that are happening around me.
+
+in that sense, I'm neither prometheus or epimetheus -- but a whole different style of thinking altogether, which is something like the reptile brain. I react to things based on the way I feel. if it feels good, I react well, but if it doesn't feel good, I run away or fight.
+
+while I describe that "instinct" kind of like the reptile brain -- because it is that -- what you all are not 100% capable of doing is fully conceptualising the world the way that I do. this is painfully obvious to me because you still behave very strangely. just be yourself, and let me be myself too.
+
+to explain this, consider the orange cat that walks around in our yard. there's this funny thing that I simply cannot be myself around her(?). she is constantly aware of everything I'm doing, and if I come out the garage like I normally do, she gets ultra scared and runs away. if I try to just walk past, there's this weird presence that's similar to what I felt when I was in spain when the guys were all super conscious of what I was doing and stuff, or like jaron oftet times when I walk up the stairs.
+
+neither the cat, jaron, or the dudes in spain are carrying on as normal. they're all hyper aware of me and and waiting to react in any moment's notice based on whatever I do.
+
+whenever a person is hyper aware of another person, they perceive them as a threat or a danger. there's an element of unknown or danger. that hyper-awareness, happens because they do not understand me, meaning that I'm still a perceived threat.
+
+I had to learn how to understand people so that I could be around them without being hyper-aware of them, because when I was hyper-aware of them, my left-leg locked up and doesn't move fluidly. you can tell when you catch me off-guard or you have a presence about you that I don't understand, because I'll jump and get really startled.
+
+good luck figuring that out. like I said, from my perspective, I don't want to do something until I actually feel comfortable with it, or [it feels effortless to me](/vapidshamen.md#2022-11-20-1705---i-want-to-write) (lol).
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
