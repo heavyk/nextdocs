@@ -166,7 +166,7 @@ this opens up an interesting conversation though, which is how the pipe should b
 - when selecting the cargo depot, it'd be cool to see when the ship has departed and it's return time. it'd also be cool to set priorities on the contracts too in case of running out of unity.
   - it'd also be nice to se t the fuel saver on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
 
-- sometimes I want balancers to have a priority, but also allow some percent to pass through (for example, some amount of CP2 I want to pass and another amount to go on to become CP3). in general though, I want to be able to define logic for the routing, incuding with the ability to query the status of other machines/storage. as in, when this part is running slow, route prioritise one route, else do ad different thing.
+- sometimes I want balancers to have a priority, but also allow some percent to pass through (for example, some amount of CP2 I want to pass and another amount to go on to become CP3). in general though, I want to be able to define logic for the routing, incuding with the ability to query the status of other machines/storage. as in, when this part is running slow, route prioritise one route, else do a different thing.
 
 ### design/upgrade planner mode
 
@@ -296,6 +296,12 @@ as an example, let's go back to the distillery. setup all of the inputs and outp
 you'll notice that this layer shares a lot in common with the balanced/buddhic layer. from here on, they all kinda blend togther a bit (because they're not so physical). the easiest way to see this layer as being the manifestation of the desire and big-picture layers. all layers below this one are a manifestation of this layer. the whole ecosystem perceived as a series of parts here which then *should* all have a "perfect" efficiency relationship between one another (ie balanced and performant). all things are perceived and run with pure numbers and symbols, like a math problem. things planned out here means that all things on the physical layer *should* run properly, but because of unestimated conditions (weather, terrain failures, mine depletion, etc), things can and do go wrong in the physical. this, like the conceptual, looks at the ideal from a parts standpoint rather than from a conceptual (standpoint).
 
 to see the conceptual ideas in action, we need to look at the relations between the different parts on a conceptual/essential level.
+
+some examples:
+- I don't really want to boost idle buildings, so I'd like to say that for buildings which are idle, to remove the boost and some sort of persistent state (variables/obvs) which will retain my boosted setting and can readd the boost when no longer idle.
+- turn off/on machines that do not have anything to do, or disable an entire sector of the factory under certain conditions
+- silly things can be automated, like I have a waste bucket that fills up with one truck emptying it, but with two, one of the trucks is sitting around for 80% of the time, so I have an alert for >75% I add another truck and <25% I remove a truck. symbolic logic can easily perform an action on these triggers to automate that.
+- sometimes entire portoins of my factory are idle (using workers) just while waiting for the cargo ship to return. these machines can be paused, etc.
 
 #### big-picture mode
 
