@@ -69,11 +69,13 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug that if I hold shift when deleting a pipe, it begins to deconstruct, but then if I hold ctrl (to unity delete) the pipe and select a section (or hold shift to delete the whole section), it doesn't unity delete the pipe
 
-- "cannot find valid pillars placement" is pretty annoying. without the ability to control where the pillars are placed, it feels a silly restraint.
+- "cannot find valid pillars placement" is pretty annoying. without the ability to control where the pillars are placed, it feels like a silly restraint.
   - sometimes it requires me to delete entire sections of pipe because they went over the top of a balancer, and when putting them back, now it can't find pillars placement.
   - it also happens sometimes where I copy and paste something and the paste cannot find pillars so those bits don't copy.
+    - I think this happens when a connector is created where pillars were. it's valid until copy and pasted. therefore, if I just recreate the same pipes, it'll be valid again.
   - if I run 6 pipes next to each other at height 2, it's often the case that the pillars don't line up with each other and can be diagonal, so it blocks truck traffic.
   - one potential solution would be the ability to move the pillars up or down the pipe a bit (within their valid range)
+  - if I delete both sides of a pipe that had pillars, all that remains is just a piece of pipe floating in mid air (without pillars)
 
 - it takes forever to add servers to a data centre. three possible solutions are:
   - hold shift to add 5 at a time
@@ -88,9 +90,10 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - bug: I'm not totally sure the conditions which produce this bug. I think it's something to do with scrapping the tree harvestor while he's paused. then if I try to recover him, he goes back to trying to harvest trees, and scrap doesn't do anything, and neither does pause. neither does unselecting the tree he wants to harvest. even more amazingly he can drive under belts and through buildings. it seems like a bad fsm state, probably from trying to scrap while being paused.
 
-- small bug: clicking on the recipe for glass will show me the recipe for making PCB in robotics assembly 2, when I don't even have robotics assembly 1 yet.
-
-- small bug: the recipe for toxic slurry in wastewater treatment is shown when I right click on brine.
+- recipe bugs (in general, all of these can probably be pretty easy to find and fix by walking the tech tree (all possible combinations) and seeing if one of the requisite machines are unlocked yet for the recipe and set the dependency correct. kinda easy to fix -- just need to walk the tree):
+  - clicking on the recipe for glass will show me the recipe for making PCB in robotics assembly 2, when I don't even have robotics assembly 1 yet.
+  - the recipe for toxic slurry in wastewater treatment is shown when I right click on brine.
+  - before I have gas combustion tech, it shows me that I can burn hydrogen in the gas boiler (I don't have gas boiler)
 
 - it'd be nice if crude oil pumps could have the same notification system as boxes, but no need for the full ones so I can alert if < 30%, 20%, 10%, empty (also see above suggestion for slideable alerts)
 
