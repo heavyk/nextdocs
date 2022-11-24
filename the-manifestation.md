@@ -1435,6 +1435,68 @@ I had to learn how to understand people so that I could be around them without b
 
 good luck figuring that out. like I said, from my perspective, I don't want to do something until I actually feel comfortable with it, or [it feels effortless to me](/vapidshamen.md#2022-11-20-1705---i-want-to-write) (lol).
 
+### 2022-11-24 06:56 - why must I refuse?
+
+there were two main reactions today which I'll talk about but I feel like I'm repeating myself. the first is why must I refuse...
+
+the main reason for this is that my primary desire has nothing to do with girls at all. I want to create something -- but more specifically a "social network". I've been thinking about it for quite a while and I really want to do it.
+
+sure, it's technology that will benefit nosebook -- and they can use it all they want; I don't mind. the thing that I've learned is, "the medium is the message", which means that the technology medium that we use (compare books to TV to facebook) completely changes how we think and reason about our environment. even if the worst case scenario is that all of the technology that I want to create never becomes a reality for me -- and let's even say that it's used instead for malicious purposes to even try and keep people from gaining xxx, it's still going to change how we think about things. for example, before the KJV made it into print, books were hard to come by, but because king james felt that book was the best way to control the population, it *still* changed everything about how we see things.
+
+therefore, my goal is not to try and figure out a way to get the "good" content in to my technology -- because all types of content will be inside of it, just like books have all kinds of different types of content. you know, sex is definitely the hottest selling factor too, so I totally don't rule out porn and other sex-related content to be the first major products that the technology disseminates. the whole point is, and the fun part for me, is to make the technology. that's totally the fun part.
+
+the major problem with girls that I've seen over and over again is that girls are extremely anti-creativity when it comes to new and revolutionary ideas. in fact, I would say that many of them even resist it, because it's unknown for them, so it sounds risky or unsafe, so they always discourage the inventor from going that way. my theory on why that happens over and over again is basically one of LOA and concepts. simply put, the concepts that we're the most comfortable with are the ones that we stick with -- even if it's an abusive husband/boyfriend. this is because we resonate with those concepts, so they feel comfortable.
+
+nearly all of my life, I've found that most people do not see things like I do, and so almost all people are extremely resistant to any ideas that I have.
+
+to combat this, I've paid a lot of attention to many inventors and different scientists. the ones that I admire the most are newton and tesla, and mostly this is because both of them were similar to me in that they studied "spirituality" and things like alchemy along with their main studies. it's true that nobody ever talks about tesla's interest in eastern teachings and philosophy, and neither does anyone talk about newton's fascination with alchemy. in both cases, I've come to learn that these guys had minds that are very similar to my own, where they perceive the conceptual with considerable clarity.
+
+tesla and newton died virgins as well, and I believe there is a good reason for that. women (in my opinion and a lot of sources match my conclusion) use their sexual/creative energy to create a sort of aura where only their concepts are allowed to flourish. any others is inhibited because it'll upset the flow of things. I see this all the time where a mother insists that something has to go her way and stifles cretivity becuse it doesn't fit into her concept of reality. she needs things to go her way, so that things will run smoothely.. I understand her point of view, especially as a mother, but for someone like me, this is something to be avoided.
+
+one of the things that I *greatly* regret (amongst other things), is that I was not already doing something creative before I had a girlfriend. for example, with patricia, it was most disheartening to find out that she did not want to be creative -- and with raquel, I simply didn't have enough momentum on my project before I moved in with her, so everything pretty much fell apart as soon as we were together. I believe that I the way to do this is to do the thing that abraham always says, "get connected, and then..." -- and what they mean is, to get some momentum and practise on your own, before making any big changes, and the obvious reason for that is, if I find a relationship *before* I get connected, then I'll be trying to use her to find my connection.
+
+well, since sexual and creative energy feel pretty much the same to me, I can easily replace the connected part with creativity, and it's the same: find my creative output, *and then* go for the relationship -- and the reason is the same as well: if I go to the relationship before getting sufficient momentum in my creativity (or connection), then I'll bet looking to her to make that creativity (or connection) happen. I've done that before, and that's the number one reason why I decided that I have to become asexual. if, once I'm there, things start to work out, then it's fine...
+
+so, that's what I did; I became asexual wanting to focus only on my creativity. as many of you know my story already, there was susana which started off the creativity thing kinda on the wrong foot right before I moved in with marcos. once I was there, I doubled-down on my desire to focus on my creative output (drinking complicated things, especially with everyone trying to get me setup with someone).
+
+along came andrea, and I decided, "OK, maybe this can work out" because, after all, marcos was, at that time treating me more and more like I was starting to integrate into his family (felt strongly that he was planning a multi-decade busisness relationship with me), along with the fact that marcos didn't really have much money, so he kinda needed my work output to carry him, so it's not like he was going to let his daughter sabotage his own company. I thought it could possibly work, so I became more accepting of the idea.
+
+when it fell through, it was easy for me to walk away because at that time, he had completely turned on me as far as the creative part of it went. so many thngs went wrong on the creative end, it was pretty clear to me that I wasn't going to be making a website based on ideology.
+
+jori comes in after that and unfortunately it was a project that I simply wasn't all that interested in (making yet another crypto currency), when it's pretty obvious that I don't have any "secrets", so how can I even take the project seriously when the whole thing is based around me having a "private key" that only I know, which contains all of my super duper wealth that I've gained from launching another crypto. (sarcastically) yay. I wanted to make a *social network* -- preferrably one where ideology and new ideas can be found. I complained all the time about that project and was very dissatisfied, so it's no wonder that I decided to break a car window.
+
+you can see how similar that situation is to my prosent one, cept instead of a car window, it was jerrica's phone.
+
+---
+
+I want to not only get some momentum on both my connection, but also my creativity *before* beginning anything. since I'm pretty clearly stuck right now, this doesn't look to be changing any time soon. I realise that I'm not making any steps toward getting something creative going, cept, of course for sending out a bunch of emails -- which means that I simply don't feel comfortable doing anything.
+
+it's quite possible that someone is going to react and try to put me into yet another dead-end project like the one with jori, and my refusal to do that will be obvious. I don't want to do something stupid like that. I don't want money. I want to create something that *I* want to use/play/enjoy.
+
+the other thing that's quite possible is for someone to try and say, "well, if you do this with us ..." -- but I find that really hard to fathom simply because from the lack of responses that I got from the emails. it's pretty clear that nobody wants to do the ideas that I want to do -- which brings me right back to the topic I opened with, which is that I see things my way, and many others do not. in order to actually work on those things, I have to find that momentum in the thing *before* beginning anything.
+
+I must refuse until I'm creatively up to speed first. that could be quite a while (hence why I repeat myself over and over and over about it going to be a while).
+
+---
+
+the nice thing is, like I demonstrated with attacking jerrica's phone, is that nosebook has the capability to make a manifestation happen if they wanted. however, if they did force it, it would be disastrous because I don't really want to be forced into a relationship without being creative. my dissatisfaction would continue to rise up higher and higher until more things get broken.
+
+therefore, in this sense, nosebook is on my side in keeping the girls away from my, but also against me because they don't want me to be creative either. they neither want my creative or sexual energy to begin flowing.
+
+therfore, because they want me to be stuck, this is entirely a game of attraction now. I attract based on how I feel, so I have to find a way to not allow my dissatisfaction to continue to rise up to the point where I break things. I have to continually find ways to feel good and go in the direction that *I* want to go. as you can probably see, I still have a ways to go.
+
+I'm nowhere near having the mental stability[^1] that I want to have, neither the creative aspect, and I'm still all over the place, quite easily influenced by nosebook or others in how I feel still. obviously I have to refuse until I actully feel ready.
+
+---
+
+oh, another reaction that I just remembered is that there were a number of ideas around refusing being similar to orgasm, in that you're supposed try and hold and hold out for as long as possible (you don't want to just go on first opportunity, right?).
+
+while that is a valid interpretation, that's *not* my reasoning. if this were sex and I were holding out, it's because I feel so good, and I'm trying to hold back the manifestation because I want it to feel better. this is clearly not the case. the manifestation still feels pretty terrible to me -- not at all, good -- so this is not at my situation. you would know it if I were feeling so good that I'm holding back feeling so good.
+
+in general, I mostly feel hatred and anger toward you guys. why can't you all just talk plainly? it's going to be interesting to see what happens with my email to mom, because she can't really hide from me. she will eventually have to respond. it's not going to be the only email I send her. I have many more ideas to talk about too... lol. we'll see how well my "relationship" with you all develops, I guess.
+
+[1]: add that conversation with mom about babbage and my mental stability as a prerequisite to creative output to the list of connections leading up to attacking jerrica's phone.
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
