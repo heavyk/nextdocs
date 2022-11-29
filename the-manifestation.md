@@ -1501,6 +1501,36 @@ it's going to be interesting to see what happens with my email to mom, because s
 
 [3]: technically, I was working on unhosted, around the time of patricia, and we were sorta kinda starting to work on a social network, but for some reason I couldn't ever get myself to work on the project like I actually knew where it was going. with tuenti, I had a pretty well-formed concept of what I wanted to create (it was facebook + essemmbly, pretty much), but with unhosted, indices and searching was difficult, so I couldn't do anything except display static data. all of tuenti was built around my idea of making the website dynamic and interactive (without needing to relead the page), but the encryption requirement totally sidelined all of those dreams of making an interactive communal space of *like-minded*, ideologically similar, individuals (the essembly inspiration).
 
+### 2022-11-29 15:49 - lost in translation
+
+I like to read  into things. yesterday, a sequence of events happened which... before I go on, I'd like to say that some people really enjoy "synchronicities", but these are often case from the perspective of afterthought (epimetheus) -- meaning, that the synchros are often perceived *after* the event. for me, I have these sorts of symbolic premonitions, where exceptionally symbolic things happen, and they're almost always the precursor to a manifestation of similar symbolic quality. these are almost always perceived from the perspective of forethought (prometheus). I'd like to talk about yesterday's symbols from the promethian perspective.
+
+---
+
+one of the sequences of yesterday where I was talking about being safe. in front of walmart, I decided to be a "bad boy" and cross the turn lane without waiting for the walking sign -- or, if my memory serves me, there wasn't a walking signal and I decided to wait for the next walking signal to wait for it. I remembered along the way that if there isn't a signal, then I will just pretend there is a signal and wait for it. before my "bad boy" moment, I walked up to a signal (in front of the cinema) and I was waiting quite a while for the signal. because I was so stoned and now the human trail (instead of walking through the field), I'm receptive to a lot of other people's emotions.
+
+I flashed back to the movie "lost in translation" and bill murrey is depressed in the movie, so he's extra sensitive to the feeling others have around you (if you've been depressed, you know what I mean), and additionally, he's in another country where nobody "gets him" so he's really alone and isolated feeling. the film capitalises on this by taking seemingly slow or mundane situations and drawing them out to absurdities by extending them.
+
+as such was my experence waiting for the walking signal in front of the cinema. films, especially if you have a good editor, do not want too many scenees with silence or little action, cause you'll get bored -- but bill (hope he's OK calling him by his first name) takes this to an extreme. in all of his films I've seen, like will farrel taking off his shirt, his signature move is awkward silence.
+
+the awkwardness of the silence prepares you for a humerous interaction to be funny, rather than weird. it's absolutely brilliant, and a long time ago (especially around chris), I shamelessly ripped off his awkward silience feeling. I used to project it out, because almost always, the next thing that I do after that is funny. it's just an emotional formula to put me in the right mood for something awkward and humourous to occur.
+
+yesterday, when waiting for the walking signal, I pulled out that old technique for the first time in years. I can't remember the last time that I emitted the awkward silence feeling, so it's been a while. any other recent examples are something that has happened naturally, as that's pretty well integrated into my personality now. I mean emit that feeling *on purpose* because I'm pretending something like an actor. after that, I felt like an actor and so when I got to the waliking signal in front of walmart I had decided that I wanted to pretend there is signal at the next moment, in effort to practise that "I'm not really sure what to do" feeling.
+
+I get a ways down the road and now I'm at another intersection, but the right-turn island didn't have a walking signal, so I "pretended" to push the button (it was just a signal of an action and didn't at all look like I was pressing a button because the idea is still in conceptual phase for me). I waited for a little bit seening if I can emit awkward silence, and then feeling people's reactions to it while I'm pretending to wait for a signal. it was fun.
+
+I finally went across after a while just to get the red walking signal on the next side (I didn't plan it, just felt like time to walk) and then waited another intersection signal cycle for the walk sign. I get across and there's a walking signal to cross the freeway offramp. it's a right turn, so they have to wait and look anyway so a walking signal doesn't even make any sense. I press the signal, wait a cycle, start to question myself. another cycle, question if I pressed the button. I was trying to focus on the "I don't know what to do" feeling and awkward silence, so I think it was the third cycle when I finally said "f-it I'm going anyway" and proceeded to walk down the offramp and onto the freeway.
+
+I was really proud of myself because I executed perfectly. I knew the signal wasn't working but I played along all the way. I saw the not working signal some distance before I got there, so my subconscious (conceptual mind) knew about it, so I just kept emitting the proper feelings for the moment.
+
+the whole event was a perfect joke that I didn't really execute *physically* very well. when waiting for the invisible walking signal, I forgot to look at the signal while waiting for it. I also forgot to pretend there is a button there and all of the other things that mimes do so well. however, conceptually and emotionally, it was perfect. you guys probably couldn't tell I was acting because I was just emitting feelings and my body follows.
+
+obviously, my body isn't well practised in seeing things that aren't there, so it's still hard for me to see something (physical) that I can't actually see. for me, when I see it, I'll believe it. since I can't see it, I'm not good at pretending it's there.
+
+---
+
+OK, that's the story; so now, let's look at the symbols when I get back...
+
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
