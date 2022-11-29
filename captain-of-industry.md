@@ -84,9 +84,32 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - it would be really nice to be able to click and drag a priority to a whole block of buildings.
 
-- small bug: if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building until I reload from a save.
+### small things
 
-- small bug: when the tree harvester has a tree in its claw, if I tell it to move to another place on the map where it can't go, it gives me the error, then I tell it to go to a new spot it can go. the truck comes to get the tree, the truck gets the wood, but the tree doesn't disappear from the claw. it cuts down another tree still with the tree in its claw. after another truck comes, it's fine again.
+- console command to remove terrain designatons that are greyed out all all sides (leaving only the active ones)
+
+- it'd be really nice to set alarms for settlement modules, to say when the buffer is full. I can put a storage between it and put an alarm on it, so it's low priority, but for limited space circumstances, it's still nice to know when I'm not getting a unity bonus.
+  - also would be nice to set alarms for world mines too, so I can know when my trees or oil is getting full or empty
+
+- maybe add dust clouds to when terrain falls down, just for a visual effect.
+
+- planning mode should maybe pause upgrades as well. my reason for this I want to use unity to upgrade, but my trucks start grabbing parts, but then have to return them after I upgrade with unity.
+
+- I have pickups put on my fuel stations because they carry 20 and are fast. however, even though there are many excavators (27 fuel tank) at 7 or less fuel, the pickup does not refuel.
+
+### small bugs
+
+- in power statistics panel, the +production and -consumption are confusing. it appears that production is how much power is produced (it's constant for me), meanwhile consumption is the total of all buildings/belts using power (minus the ones that are low power). the demand isn't recorded. 
+
+- paused buildings with unity boost still cost unity.
+
+- clicking on maintenance percent bar on the right takes me to statistics screen, but not to the maintenance panel
+
+- if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building until I reload from a save.
+
+- when the tree harvester has a tree in its claw, if I tell it to move to another place on the map where it can't go, it gives me the error, then I tell it to go to a new spot it can go. the truck comes to get the tree, the truck gets the wood, but the tree doesn't disappear from the claw. it cuts down another tree still with the tree in its claw. after another truck comes, it's fine again.
+
+# bugs
 
 - bug: I'm not totally sure the conditions which produce this bug. I think it's something to do with scrapping the tree harvestor while he's paused. then if I try to recover him, he goes back to trying to harvest trees, and scrap doesn't do anything, and neither does pause. neither does unselecting the tree he wants to harvest. even more amazingly he can drive under belts and through buildings. it seems like a bad fsm state, probably from trying to scrap while being paused.
 
