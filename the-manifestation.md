@@ -1501,7 +1501,7 @@ it's going to be interesting to see what happens with my email to mom, because s
 
 [3]: technically, I was working on unhosted, around the time of patricia, and we were sorta kinda starting to work on a social network, but for some reason I couldn't ever get myself to work on the project like I actually knew where it was going. with tuenti, I had a pretty well-formed concept of what I wanted to create (it was facebook + essemmbly, pretty much), but with unhosted, indices and searching was difficult, so I couldn't do anything except display static data. all of tuenti was built around my idea of making the website dynamic and interactive (without needing to relead the page), but the encryption requirement totally sidelined all of those dreams of making an interactive communal space of *like-minded*, ideologically similar, individuals (the essembly inspiration).
 
-### 2022-11-29 15:49 - lost in translation
+### 2022-11-29 15:49 - lost in translation (the first)
 
 I like to read  into things. yesterday, a sequence of events happened which... before I go on, I'd like to say that some people really enjoy "synchronicities", but these are often case from the perspective of afterthought (epimetheus) -- meaning, that the synchros are often perceived *after* the event. for me, I have these sorts of symbolic premonitions, where exceptionally symbolic things happen, and they're almost always the precursor to a manifestation of similar symbolic quality. these are almost always perceived from the perspective of forethought (prometheus). I'd like to talk about yesterday's symbols from the promethian perspective.
 
@@ -1530,6 +1530,42 @@ obviously, my body isn't well practised in seeing things that aren't there, so i
 ---
 
 OK, that's the story; so now, let's look at the symbols when I get back...
+
+### 2022-11-29 16:30 - lost in translation (the second)
+
+because of all the weird reactions after coming from territory-dawg back a litle bit, there was quite a strange and awkward silence as I was integrating back into this world. what was happening was happening on a symbolic level. this is nosebook saying, "don't go this way" "this way is the wrong way" "the editors and narrators don't like this because it doesn't fit into the story" sort of thing. this happens a lot to me, and so my default behaviour is to, instead of always going the "wrong" way (cause that's what I do, until I decide to go the "right" way), I was demonstrating my ability to pivot between going the "right way" and the "wrong way". I normally go the wrong way, cause that's how I'm programmed, and I think it's actually part of some of our DNA to do things the "wrong" way. I'm a demiurge too.
+
+however, I couldn't maximise novelty if I only went either the right or the wrong way exclusively, so I jump between the two. sometimes, I want to be really righteous and do things the "right way" (even when others are doing them wrong), and other times, I'd rather smoke another joint and carry on pontificating -- inotherwords, I'd rather feel good.
+
+ahem, so my aversion to go nosebook's way of maximum resistance was obviously not the case. I see things in terms of resistance. the guy just before was the one that I refused to leave, deciding to smoke anyway because that was my path of least resistance. I knew nothing would happen and it'll be fine so I didn't push against him. in this case, I wanted to go smoke again more than I wanted to confront someone. if he wanted to talk with me about my pontifications, I'll take a listener, but if he doesn't want to do what I'm doing, I'll go another way. I know what I want to do and getting to it is the path of least resistance.
+
+OK, let's say that I wanted to get home and he was in the way. he's in front of what I want, so he has to be moved aside. I wasn't wanting to go home, so walking back to the tires sounded fine to me. how's that?
+
+---
+
+back on track here... earlier when I went to smoke after buying, I smoked over by the waterfall, but I was notably *not* on his property-- like I was quite close to the stream. next time I'm going to sit on the rock by the stream actually, and smoke there. when I left I said I liked the lights (makes it feel less scary), and left.
+
+sitting in front of the guy's lighted tent, I started to think about how sometimes I go the "wrong" way and other times I don't. this moment in front of his tent is what began my inquiry into why sometimes I want to be right (like with him) and other times I want to feel good. it was then that I noticed that *usually* I don't care about feeling good and would prefer to be right.
+
+after getting rocks out of my shoes and smoking I walked down to this awkward interaction in front of the cinema. for me, this sequence is symbolic of the editors/narrators saying don't go this way (we don't know how to write this), and so instead of proving myself, I just lightly go the "right way" and because of it I'm highly rewarded. I had such a flood of new information and ideas last night, I'm forever changed. nobody can tell what just happened. nobody can see what I see, and I know that everyone else saw something entirely different, so there's this awkward silence because nobody is quite sure how to be "normal" after that.
+
+I made the comment that I felt like the waiting for the walking signal scenes were straight out of a bill murrey movie. like I said previously, it felt epic to me because I was returning back to that "actor" thing that I did when I was around chris.
+
+chris sees from the perspective of the 7th ray. he *is* a 7th ray. I see mostly from the 1st ray perspective. when I get around other 7th rays that I'm compatible with, they give me 7th ray capabilities, and one of those is to use my conceptual powers to manipulate the situation how I want it to feel (te acuerdas de eso pierre? -- whom also sees primarily from the 7th as well). I don't normally "act" in the sense of emitting an emotion. I'm mostly reactionary (this is typical for a 1st ray)
+
+and so symcbolically, what happenened is, I try to go the "wrong way" but one of the dawgs prevents me (territory this time). you can imagine them sorta like the demons of solomon, but they're kinda like the demons of the feminine mind. they have to defend their nest, you know... LOA does not exist for the dawgs. these are things like responsibility(-dawg) which exert more power than LOA even. in every case, all of these dawgs are social and cultural interactions designed to affect behaviour. none of them are helpful.
+
+I symbolically passed on engaging with the dawgso (ie skipped stupid social/cultural behaviour modification techniques), carried on going my own way, went back and in front of the other guy I wanted to be right about, I was given the fire of prometheus. I saw that the desire to be right (el belief) is our promethian nature.
+
+you know, once you understand something, you can never go back to seeing its primitive nature again, and so I know I'm not at all the same. nobody else knows what happened, people can sense something is different but they don't know how to respond. awkward silence. that reminds me of "lost in translation". I started to experience what it feels like to act again -- or, maybe I remembered it.
+
+I decide I want to be a "bad boy". I notice an opportunity to begin to work on a routine. I can feel the narrators saying that they can write in some of these sorts of bill murry scenes. I get the flash of the next walking signal.
+
+I practise my acting first with an invisible signal, not worrying too much about he physicality of it, focusing only on emitting the proper responses to having to wait a really long time for a signal. finally, after some times waiting for the final signal (of which I know is fake), I decide to to the "wrong way".
+
+### now, conceptually (after this)
+
+that was the symbolic look at it. now the next really interesting way to look it is from the conceptual/relational (5/2). there were many connections
 
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil

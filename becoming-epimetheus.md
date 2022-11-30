@@ -51,3 +51,5 @@ so whoopdie, f-ing doo, I say, because it's not necessary to have a higher densi
 at first, this new extremely large planet will be something like how earth was when enki and friends first found it, and it'll need the proper pyramids and other things orbiting it (like the moon) to ensure that the physical layer is maintained at a certain frequency. it's possible though that instead of having a physical layer like we know now, it'll be composed almost excclusively of lower density layers like the astral and conceptual. so, when I say "planet" consider that I'm meaning a layered onion of differing densities, as opposed to a star which is a point of higher and higher density hydrogen. a star (like our own), can be caused to behave like a planet (by making layers in its atmosphere of varying densities), but it is, just a clump of really dense very rapidly vibrating hydrogen.
 
 (long tangent there... I'll get to the summoning soon)
+
+### epimethism
