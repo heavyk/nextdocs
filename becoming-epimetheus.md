@@ -76,7 +76,7 @@ by wanting to be held responsible for my concepts of reality, that meant *all* t
 
 so what do I want to manifest? you know, it's a funny thing because I really like to be right (like everyone else), so probably the most desirable manifestation is one where I realise I'm right -- well, wrong. that is no longer my most desirable manifestation; I believe I'm closer to the max novelty (as opposed to contrast) end of the spectrum. contrast (the need to see the border between which one is right) is completely meaningless to me as, novelty is far more exciting than anything else.
 
-novelty is based around your interests. some people have a sad state, where the things that interest them (women, science, fishing), they have it all figured out, and there's nothing new to be learned. when they say that, they're also saying there's nothing new to be experienced. it's a sad state becuse you don't need to necessarily learn about that subject but can be an inspiration for other things. I can see almost everything in almost anything, so one thing is always teaching me about another.
+novelty is based around your interests. some people have a sad state, where the things that interest them (women, science, fishing) -- they have it all figured out, and there's nothing new to be learned. when they say that, they're also saying there's nothing new to be experienced. *that* is a sad state becuse I don't need to necessarily learn about that specific subject, and it can serve as an inspiration for other things. I can see almost everything in almost anything now, so one thing is always teaching me about another.
 
 and you thought I was going to talk about debt...
 
