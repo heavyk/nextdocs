@@ -128,6 +128,47 @@ so, to be able to do the joke with a straight face, I have to understand the con
 
 [1]: for some reason, I remembered that joe really doesn't like mimes or something about sadness (can't remember now).
 
+### 2022-11-30 14:31 - I'll pay for that later (part two)
 
+one of the things about afterthought or regret is that you can see it however you want to see it. we know that memories change, but nobody I know has an answer to it. I put fourth my theory, which is that memories are tied to our being, and as we change, so do our memories.
+
+as an interesting side note, I'd like to mention that I believe that memories may be the medium of another dimension, in which that energy supports these egregores that have been summoned here and are doomed to exist how they are so long as they're given continual attention? have you noticed that it's all about marketing for attention and really if you cause a lot of trouble, you get a lot of attention, but you also get attention other ways (ie    marketing), but that attention is what gives you consciousness, more connection to reality -- a richer and more vibrant experience. that's what everyone wants.
+
+we can now think of memories as the empowering fluid upon which this medium exists, and out of it are projected these unchanging concepts manifest into phyisicality. they persist as long as we keep giving them attention. we live in a world of these unchanging concepts.
+
+I too was one of these unchanging concepts (I believe) -- egregores born out of tantric creation principles. then though various means (all things that shape consciousness, from language, to drugs, sex, rock and roll, and all things creative), I began to consider to construct a new image of myself -- one to my own liking, and shed the skin of my previous definition (the egregore).
+
+that egregore is the one that is powered by this medium of memories. we are our own creations. this, now speaks of an underlying superform; the concept of our species.
+
+imagine that we (the superform) are constantly creating the images of ourselves based on how we remember ourselves. these created beings/egeregores from memories continue to interact with each other making more and more and more. it's a virus fueled and empowered by contrast/drama. we (the superform) rely on this to continue to evolve our definition of ourself as a "singular" species.
+
+---
+
+therefore, memory is important to know that it can become whatever you want it to be. it does that naturally all by itself because you change. if you don't change, or feel like it's impossible for you to change, it's because you're an egregore. you are a definition created by someone and summoned into existence by someone's creative or sexual energy (the fire energy). this is forethought.
+
+in order to break out of the bondage of your prescribed definitions born out of forethtought, you have to master the art of afterthought. learn to see your regrets, shoulds, and musts a different way and you'll master the art of afterthouht.
+
+you are the author and defifition of yourself. in the sense of the son, the 4d, the author, you are a continually evolving story. from the fool, the 3d, the definition, you're stuck the way you are.
+
+so, you want to become the author of yoursellf, and I'm sure that so many people are really good at seeing themself differently, this is the son, the author. it's important to begin to see oneself also from the fool, the reality, definition, the "real" you -- as well.
+
+the reason for this is pretty obvious, which is that the author is a story. the story isn't who you really are. *you* are in this body in this physical location, doing these physical things, and so therefore one has to become OK, and/or even friends with the reality of your situation; the fool.
+
+your definition of yourself is everything, so it's important to notice for myself what I'm constructing my definition with. some people construct their definition with words, others with images, products, sex, etc. -- and here, more than anything else, *the medium is the message*. if you're defining yourself with the concept of sex, you can only receive like for what you put out. so, choose what mediums you use to define yourself.
+
+my definitions of myself give me energy, and also power. if
+I define myself, I'm aligning myself to that definition. if
+that definition is getting stronger, it gives me energy. you
+can probably see herd mentality now, now...
+
+---
+
+now, when I use something to artificially boost the way I feel, I know that I'll pay for that later. that happens because I accessed something I wasn't supposed to access by artificially modifying the way I feel. this is is the forbidden fruit, because you're cheating, sort of getting around the normal mental guardian angels that keep us out of that information, drugs, sex, music, poetry, visualisation, can all artificially boost us to a different way of feeling, which then attracts reality. that reality which is attracted is at a different vibration than what I'm at -- so you can imagine this like two galaxies collidding or something, becasue they're not compatible, they're attracting or repusing.
+
+attraction is just as much of an incompatible force as repulsion. therefore, because I'm at a different vibration in the future when I run into my attraction/egregore/manifestation/whatever, that causes another reaction based on our difference. this is how two vibrations/consciousnesses "learn" from each other. that dfference is the thing you have to "pay" later.
+
+so, then this is where epimetheus steps in, because in all of these situations where you have to pay for it later, look at how for some of them, especially the ones where considerable time has passed, they don't appear as bad anymore. our afterthought *can* change, and even they do without you knowing it, because they ebb and flow on the tide of the medium of memory.
+
+eventually, those payments that need to be made look a lot less like debts, and more like just things that happened all the way up to positive learning experiences --- meaning, of course that the only debt collector is your own concept of the experience. you don't have to pay the debt if you don't see it like debt anymore. this is probably true financially as well, but I was meaning vibrationally -- as in if I interacted with someone, I made a vibrational debt which I'll pay for later. time will pass and eventually those debts are all viewed as things that happened up to positive learning experiences, and then the things we're still going to pay a debt for -- the "sins". you are the debt collector, just so you know...
 
 ### epimethism
