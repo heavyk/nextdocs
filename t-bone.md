@@ -46,4 +46,18 @@ therefore, it's important to be able to see the individual reality, whether it's
 
 on this subject I'm much more closely aligned with jason with his definition of "spectral" -- with the emphasis that this reality actually has a spectrum to it, and not *only* the individualist perspective.
 
+#### 2022-11-30 13:25 - followup about the father analogy
+
+I used the symbol of the father and his two sons, because I have demonstrated multiple times elsewhere that the "father" is anatau/ninhursag -- and she's a real con-artist. she's so many different people to so many different people. I think she could also shapeshift and/or appeared as the rendering of the person's concept of her -- as in, sexy if they like her or a real bitch if she's on their nerves. I think she often times appeared as male to people because that's how humans were built to perceive to perceive her kind of energy, as masculine.
+
+she combines all of the energy of all of the things that could go wrong into a physical incarnation. she was a real troublemaker so she got labled masculine because women (normal non-psychotic ones) all behaved naturally as very nurturing and caring. we can thank her for our definition of what it is to be "female" or male. the men get that definition of being the summation of all the things going wrong. I actually believe it's encoded in our DNA -- another thing we inherited from the "gods".
+
+therefore, since you all know the father is actually a woman, it's interesting to look at the same analogy of the "father" with two sons, but to also see it as a mother with two sons (see the difference in how it feels?) or a mother with two daughters -- or father with two daugthers. the way that we play out the archetypes of forethought, illusion, ideas, grandiosness, pomp, pride, passion, etc. in comparison to the daily grind is a common trope, therefore, imagine a "father" or a psychotic crazy woman (that appears as a man to most), as the source of these two "sons" (or daughters). the "father" is the "real" unchanging concept.
+
+the father can be seen through the gradualist perspective, which is one of aromas, fine wine, and other gradualist forms of pleasure. or, the father can be seen from the individualistic perspective.
+
+these are the egregores of our creation. don't expect zeus to change, because he is the unchanging concept manifest into reality. they won't ever change. the only thing that we have power over are the two sons. you are one part forethought and one part afterthought/regret and this is what composes/authors your reality. pay attention to see if you're seeing from the fool or from the sun/son's point of view.
+
+perspective matters; and, even required to see beyond 2d.
+
 ### jeortau, enki and epimetheus
