@@ -146,7 +146,7 @@ imagine that we (the superform) are constantly creating the images of ourselves 
 
 therefore, memory is important to know that it can become whatever you want it to be. it does that naturally all by itself because you change. if you don't change, or feel like it's impossible for you to change, it's because you're an egregore. you are a definition created by someone and summoned into existence by someone's creative or sexual energy (the fire energy). this is forethought.
 
-in order to break out of the bondage of your prescribed definitions born out of forethtought, you have to master the art of afterthought. learn to see your regrets, shoulds, and musts a different way and you'll master the art of afterthouht.
+in order to break out of the bondage of your own prescribed definitions born out of forethtought, you have to master the art of afterthought. learn to see your regrets, shoulds, and musts a different way and you'll master the art of afterthought.
 
 you are the author and defifition of yourself. in the sense of the son, the 4d, the author, you are a continually evolving story. from the fool, the 3d, the definition, you're stuck the way you are.
 
@@ -170,5 +170,15 @@ attraction is just as much of an incompatible force as repulsion. therefore, bec
 so, then this is where epimetheus steps in, because in all of these situations where you have to pay for it later, look at how for some of them, especially the ones where considerable time has passed, they don't appear as bad anymore. our afterthought *can* change, and even they do without you knowing it, because they ebb and flow on the tide of the medium of memory.
 
 eventually, those payments that need to be made look a lot less like debts, and more like just things that happened all the way up to positive learning experiences --- meaning, of course that the only debt collector is your own concept of the experience. you don't have to pay the debt if you don't see it like debt anymore. this is probably true financially as well, but I was meaning vibrationally -- as in if I interacted with someone, I made a vibrational debt which I'll pay for later. time will pass and eventually those debts are all viewed as things that happened up to positive learning experiences --- and, the things we're still going to pay a debt for: your "sins", your good ideas, your insight, your steering, your efforts. you are the debt collector, just so you know...
+
+### 2022-11-30 15:20 - shedding skake skin and becoming new each time
+
+... like the sun/son. each of these definitions is sort of like our snake-skin (according to russ's snake-bros meme concept), and these are our physical definitions of ourselves. they live purely in the physical -- as in, in your brain. thoubh others can manipulate your snake-skin before you shed it, but there is an overarching concept that you have of yourself which the physical body has to find a way to "keep to to speed" with, else you die.
+
+you have physical definitions of yourself. this is a concept empowered through memory, which is experience. this memory changes though as you begin to redefine your past, turning those memories into concepts, which you then use to author your reality.
+
+then, you have your imaginal definitions of yourself. I expose these definitions as the dialectic between the son/sun and the fool. these, in their optial from are continually reborn as sol invictus. I represent the sides of this dialectic as prometheus (dreams, aspirations, forethought) and epimetheus (regrets, sorows, bitterness, hatred, etc.) those afterthought defninitions of oneself in the past is the snake-skin, and so renewal is important to maintain the cycle constant at its desired speed.
+
+finally you have your definitions of "who you really are". this is one part your "source" concepts, and one part what you actually believe about yourself (7th). this I beleive is empowered by everthing that you believe (3rd el belief, la unbelief) and what you desire (1st - la belief, el unbelief). that sexual/creative energy is what powers these memories and definitions; it is life.
 
 ### epimethism
