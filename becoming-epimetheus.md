@@ -181,4 +181,10 @@ then, you have your imaginal definitions of yourself. I expose these definitions
 
 finally you have your definitions of "who you really are". this is one part your "source" concepts, and one part what you actually believe about yourself (7th). this I beleive is empowered by everthing that you believe (3rd el belief, la unbelief) and what you desire (1st - la belief, el unbelief). that sexual/creative energy is what powers these memories and definitions; it is life.
 
+### 2022-11-30 15:47 - when prometheus and epimetheus collide
+
+imagine these two concepts of oneself (the concepts created from the imaginal forthought and afterthought) as two galaxies. when these galaxies collide, the angle of their collision, velocity, etc. all create the different versions of "yourself". for one person, you're a collision at one angle, and with another a different angle and velocity. these memories or concepts one has *is* the fluid substance that empowers the physical body (and all of reality). these collisions are constantly being made in reference to another person's perspective. every interaction, the magnitude of the emotional aspects is the velocity, spin, angle, etc. the galaxies are each person's concept of theirself (their forethought/afterthought).
+
+now, we can look at this collision in the form of a triad. I (kenny) have my two males, forthought/emitter and afterthought/ground, and they will interact with a psycho woman -- a concept of foreign specifiction, unsafe, unpredictable. she takes the concept, manipulates it, then re-emits it back to me as a twisted form of myself. that's kinda what we're dealing with. that's pretty much how it always works from this physical perspective. I've gotten used to it. anyway, a galaxy has two parts to it, one of forethought and one of afterthought, just like you do. the stars represent its female -- just like the human body and all the celluar stuff. basically everything. they run the show. they turn on the lights, etc. lol. once I learned that the entire universe is built that way, I had no other choice but to become OK with it. I suppose it could be improved.
+
 ### epimethism
