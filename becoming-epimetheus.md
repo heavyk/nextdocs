@@ -52,4 +52,32 @@ at first, this new extremely large planet will be something like how earth was w
 
 (long tangent there... I'll get to the summoning soon)
 
+### 2022-11-29 17:30 - I'll pay for that later
+
+this is an aspect very typical of almost all demiurges. almost universally, all of them, including myself and tesla have a typical behaviour of acruing lots and lots of debt. if I have money, I want to spend it.
+
+this idea of "I'll pay for it later" comes from what actually happens vibrationally. any time that a manifestation is gotten to from physical conditions -- music, dance, sex, drugs, etc. then you get to feel some way you don't "normally" do, and so I know a lot of this because I've used drugs to get perspectives by artificially boosting the way I feel. I *always* pay for it later, because when the drug wears off, often times it's a lot harder to get back there.
+
+inevitably the universe tests me to see if I'm actually ready. quickly, I'm not totally sure if that is default behaviour from the universe, native to our DNA, or something I have specifically desired for myself -- but inevitably, the universe makes sure I actually walk my walk and talk my talk. they keep me realistic in my own perception. without it, I would be really far out there and incoprehensible to most. however, because *inevitable* I will be tested to see if my actions align with my words, I attract my own "trial" (we're all our own worst judges).
+
+---
+
+there is a difference between what most demiurges do, which is just accepting that they'll pay for it later and choosing the conditions to boost the sensory realms. I'm the worst offender of this, and quite literally my entire thing is built upon doing things the "wrong way". everything I've done, from the drugs to the spiritual stuff (allowing my self to think paranormal is also normal), is all the "wrong way". I love the wrong way, but I've programmed myself to behave the "right way" for certain situations and actions.
+
+I program myself, because I'm singular, is conceptually. I only have one persona, and that one persona has quite a bit of freedom to move within the conceptual parameters of the thing and the way I feel. if I do nothing, I behave in default mode. whenever I feel bad, an alarm summons me into consciousness and I figure out the new conceptual parameters for the situation (like in my dream state).
+
+because all of my life has been a history of "I'll pay for that later" sort of things -- and it may not look like it, but even now I'm on a drug, and so I'm artificially boosting myself into another feeling. that didn't happen because of my conscious state, so -- first, I wasn't attracting it, and second, I'm not quite ready for it yet -- so I'll pay for it later.
+
+I however, have a potential conceptual upgrade, which is simply to desire or to just expect that the universe will actually test to make sure your words align with reality. I experience this all the time, and so I can say with pretty high certainty that I'm not a fraud, a fake, or a conman. the universe holds me to my words. well -- not quite words, and in fact not words at all. the universe holds me to my concepts. the things that I believe about reality manifest especially if someone else has a contrary belief (nosebook I'm sure is quite aware of this).
+
+this happened, not because of preplanning or forethought for me, but actually as a reaction to my present situation. I used to say a lot of untruths, but I eventually came to hate it and wanted to be honest. I wanted to actually *do what I said I would do*. anyone who's tried it knows that this can be quite a difficult thing. the universe is not setup based on words (even though I am the main critic to terence about this), but actually it's actually made up of concepts. what terence is identifying is that the words do create a reality, but that's an artificial reality which covers over the conceptual one.
+
+by wanting to be held responsible for my concepts of reality, that meant *all* the stuff I believe will begin to manifest into my reality, including the bad stuff, so that means I really have to start to pay attention to what I want to manifest.
+
+so what do I want to manifest? you know, it's a funny thing because I really like to be right (like everyone else), so probably the most desirable manifestation is one where I realise I'm right -- well, wrong. that is no longer my most desirable manifestation; I believe I'm closer to the max novelty (as opposed to contrast) end of the spectrum. contrast (the need to see the border between which one is right) is completely meaningless to me as, novelty is far more exciting than anything else.
+
+novelty is based around your interests. some people have a sad state, where the things that interest them (women, science, fishing), they have it all figured out, and there's nothing new to be learned. when they say that, they're also saying there's nothing new to be experienced. it's a sad state becuse you don't need to necessarily learn about that subject but can be an inspiration for other things. I can see almost everything in almost anything, so one thing is always teaching me about another.
+
+and you thought I was going to talk about debt...
+
 ### epimethism

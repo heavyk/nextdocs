@@ -1561,7 +1561,7 @@ you know, once you understand something, you can never go back to seeing its pri
 
 I decide I want to be a "bad boy". I notice an opportunity to begin to work on a routine. I can feel the narrators saying that they can write in some of these sorts of bill murry scenes. I get the flash of the next walking signal.
 
-I practise my acting first with an invisible signal, not worrying too much about he physicality of it, focusing only on emitting the proper responses to having to wait a really long time for a signal. finally, after some times waiting for the final signal (of which I know is fake), I decide to to the "wrong way".
+I practise my acting first with an invisible signal, not worrying too much about he physicality of it, focusing only on emitting the proper responses to having to wait a really long time for a signal. finally, after some times waiting for the final signal (of which I know is fake), I decide to to go the "wrong way" on to the expressway.
 
 ### now, conceptually (after this)
 
