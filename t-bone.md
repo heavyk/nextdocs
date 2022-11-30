@@ -26,6 +26,24 @@ turns out that the inputs and outputs aren't units, but more like waves. they be
 
 so here's this weve based reality but I feel binary and unit-based in my thought, so I have to figure out what thing is a thing. I really like the "data structures" in the conceptual realm much more because anything similar (all derivataves) resonate with its parent concept and other concepts that compose it. every data structure links to every other data structure that it's similar to, which are all the ones that composed it; much easier memory alignment for me...
 
-look at it as three parts. there is the female, and she transmits and receives on the frequency of her concept. she is the "actual" concept. then you have the "shroud", which are the two males. the ground is your definition of the concept, and the emitter is the culturally, narrated, handed down, or acquired in some way definition of the concept. the ground (your definition) is constantly taking the energy from the emitter (the narrators) and comparing with with the actual concept (the female) and making adjustments to it, trying to maintain that it feels good. the ground is basically finding a compatible interface between the female (the actual concept) and the emitter's (narrator) concepts. the ground (just like in electricity) uses the female's (sun's) energy to power the created reality of the "authors" (jeortau, zeus/ra, mercury/thoth, mars/aries).
+look at it as three parts. there is the female, and she transmits and receives on the frequency of her concept. she is the "actual" concept. then you have the "shroud", which are the two males. the ground is your definition of the concept, and the emitter is the culturally, narrated, handed down, or acquired in some way definition of the concept. the ground (your definition) is constantly taking the energy from the emitter (the narrators) and comparing with with the actual concept (the female) and making adjustments to it, trying to maintain that it feels good. the ground is basically finding a compatible interface between the female (the actual concept) and the emitter's (narrator) concepts. the ground (just like in electricity) uses the female's (sun's) energy to power the created reality of the "authors" (jeortau/prometheus, zeus/ra, mercury/thoth, mars/aries).
 
 this concept works individually and also collectively. this is the importance of the progression of desire because we're passing the materialism phase now. it'll peak sometime in the future, and at the height of such an abundance reality, it'll be natural to realise that it's not the stuff outside, but the thing that goes between bodies that matters. *I* am/have the thing I was looking for another person. we become the legends we're looking for.
+
+### 2022-11-30 13:05 - gradualism vs individualism
+
+one of my main critisisms of terence (and it's most visible in his humour), is his obsession with individualism. what I mean is that everything needs be a unit. it has to have a defined boundary -- and it's only in the context of psychedellics that he allows himself to think like a gradualist.
+
+in reality, both of these perspectives are valid and speak tremendously of its dualistic nature -- and so therefore it is the goal of both the human and the machine to see both of these perspectives.
+
+like I said, it appears dual but it's much easier to understand when it's seen as three. I'll put it into church cathedral builder speak here. you have the father, which is the real concept (the one in 5d), then you have the son, which is the emitter (the one in 4d), then you have the lesser one or the fool (the one in 3d). the concept itself is gradual and so because of its ever changing nature, it's a contradiction or paradox to itself because itself is eternal. that concept will exist for eternity for as long as someone keeps accessing it.
+
+then, out of this father, there are the two sons: one is the good son, and the father hands him all of the enjoyable tasks, and then the other son that has to deal with all of the problems. when thinking of something to do for his son, the first one always comes to mind. if he's not available, then he thinks of friends. it's only an afterthought where the father would remember the foolish son. the foolish son is the ground. it's your physical definitiion of reality and what those concepts mean. this is your body -- your physical mind/brain.
+
+but then the valiant good son is always there to take all the fun away. he's a total attention whore and just wants to be the star of everyone's attention. he's a real charmer, you know. everyone loves him. that's your 4d reality there.
+
+therefore, it's important to be able to see the individual reality, whether it's the fool or the son or some combination thereof -- but also to be able to see the gradualistic perspective.
+
+on this subject I'm much more closely aligned with jason with his definition of "spectral" -- with the emphasis that this reality actually has a spectrum to it, and not *only* the individualist perspective.
+
+### jeortau, enki and epimetheus
