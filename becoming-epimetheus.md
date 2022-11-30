@@ -80,4 +80,54 @@ novelty is based around your interests. some people have a sad state, where the 
 
 and you thought I was going to talk about debt...
 
+### 2022-11-29 18:38 - practise makes perfect
+
+one of the things characteristic of epimetheus is afterthoughth, which is the analysis of the performance. I spoke of it briefly in the previous entry.
+
+like everyone else, I analyse myself intensely, so I'm always "critical" of my performance for certain subjects (but definitely not all). on some subjects I am critical and require a better performance, while others, I just don't care or feel I am too hard to change. when I say that, I'm referring to the physical mind. where all of the "default" programming is installed. most people are there, and they experience life as a series of reactions to conditions. events reoccur in ever strengthening resonance until they finally destroy the person. the intervention here is conscious adjustment to the default programming.
+
+whatever you program can be whatever, and hopefully updated quite frequently. I often laugh at nodejs or chromium with their version numbers, but it's about how I feel about my default programming. I'm probably on version more than 100k, most likely (maybe much more even).
+
+for me, it's not what I put (initially or in any of the revisions), but how quickly I can change it to the next thing. that's when it gets fun.
+
+---
+
+physical change is not even close to the same as mental/conceptual change is for me. I'm quite agile conceptually, and very very rapid, but I just don't have enough new subjects to perceive conceptually. oh... that's not what I meant to say. changing how I "act" phyically is usually quite a difficult thing. the physical "act" has to be compatible with my concepts and how I feel, else it'll feel stiff and difficult to move. it doesn't "get" the concept, and doesn't know how to turn that concept into physical movement. this is essentially what I teach myself. the way something moves is it's frequency. I can easily identify negative emotion when someone moves because their movement carries the concept of their thoughts.
+
+therefore, for physical change, it's important to use repitition to "teach" the body how to respond under certain conceptual conditions. this is learned early on, I think mostly from the mother and shapes how you begin to move. I notice it most commonly with the mother and her kids, but I suppose if I stayed around marcos house and got to know the father, I would have begun to get a sense of childen taking on the conceptual movement patterns of their parents.
+
+I plan to try and do the scene a few more times after the snow melts, this time trying to become more mime-like[^1], in how I interact with objects that aren't there, but the major problem is, I sorta feel a little silly (and always have) when acting, is believing that the object I'm interacting with, is actually there. because everyone else is acting, I can't see them like real people for me to interact with, so I don't; I let them do the attracting, so I fit whatever they want to manifest.
+
+so, you can see now that this is kinda a problem for me in the sense of acting. so, I don't really plan on trying to get the motion pretty good. I'll probably just keep doing small gestures and work on the conceptaul aspect of the idea. I feel like I should be a little better about how I concernedly distance myself emotionally from the signal and just drift off into my thoughts, only to realise quite a few cycles later that it doesn't work.
+
+in addition to the idea, I want to update the original one, because I was thinking I should try and take a little hore extra time. you know those pranksters like borat or whatever where he takes something to the extreme thing. like what if I waited there for reals like 20m or something, really waiting a long time for the signal and getting angry because it's not changing, etc., all on the heels of attracting the worst possible light arrival of undesired situations like cars pulling in front of me or whatever (LOA always helps the drivers that want me to show off my poor navigation of roads, to find me).
+
+the funny thing for me really is just feeling the way I want to feel. I'm getting to where situations just kinda don't really "phase me" anymore. I just sorta "roll with it" all the time now.
+
+so, for me it's kinda fun to just try out new feelings just for the fun of it. the feelings are sorta random to me, and so a lot of how that gets translated into thoughts for you guys to make the manifestation, I don't know, so I find it fun to feel funny, random, or meaningless (to me) feelings and see how you all react. I'm a bit of a trickster that way because I love learning how others respond to my vibration.
+
+as I try the same situation with different feelings going into it, I begin to attract new ideas for the "skit" because it's not yet physical for me. I just make general goals (like go home) and then feel whatever way -- sometimes I modify (though I think we all do) -- I modify the way an idea feels to me. I want it to feel better (or worse), so I change how it feels. each iteration of this produces a slightly different "act" from me.
+
+I get a lot of inspiration for how I feel when I'm around others (as opposed to by myself), from others. by default, I'm pure reflection, but I make exceptions for others, usually because it's the "right" thing to do. most everyone inspires me, and I take how they feel, modify it to my liking (because I always have a better idea of how to do it than everyone else) and then do *my version* of it; I do everyone else's concepts (that interest me) better than everyone else does.
+
+I really can find humour in just about anything, but the nice thing about LOA is that all I have to do is to desire to have humourous situations happen (though most are in the no-fun-zone), so I mostly just enjoy the jokes myself. as a result, my life is really funny at times, because I desired it. it just happens. often.
+
+serious people were always really funny to me. one of my first screennames was seriousmoose (I think) -- well, it was one of the first because I thought seriousness for a moose was funny because a moose is already serious. have you ever seen a playful moose? it's funny because it states the obvious.
+
+---
+
+interacting with really serious business-types was a completely new experience for me. I really started to flourish when I lived at marcos' house because I saw these serioumcmoose in their native habitat. I had no concept of this, so I learned pretty quickly to tell them always what they want to hear, joke around and have fun, but never when they're "serious". I definitely stomp on that boundary.
+
+however, I started to "get" them, and I began to learn their language of interaction. I started to begin to be able to interact with people and put jokes and other fun things while still maintaining *my* level of serious behaviour which is comparable to a child. as such, they treat me a bit like a kid because that's what I look like to them. I'm their sorta "serious" kryptonite. I may have learned that one from andrea.
+
+I got the first part of that inspiration actually from ali g. I couldn't belive how such a ridiculously dressed guy saying some of the dumbest stuff can keep a straight face. I find that too funny to be able to do properly. so in order to dabble in the absurdity, I had to find a way that isn't funny to me. this is probably where ego comes in. yep, ego saves the day here, because by knowing that whatever is "true", then it's no longer funny to me.
+
+most people unfortunately experience my "truth" not at all as funny, but perhaps a bit harsh or whatever. for me, those are all jokes. the absurd has a bit of humour in it for me. I can't help but to laugh at the things I don't understand.
+
+so, to be able to do the joke with a straight face, I have to understand the concept in a way that "completes it", meaning it no longer gives me an emotional response. I no longer see the humour in the joke. in fact, it receives a purely unanimated response from me. it wasn't funny, painful, offensive, maddening, or absurd. just an obvious thing. my ability to look back and understand something is unmatched, and I'm really good at applying this to real-life situations, but using that skill to do what borat does (only where he keeps a straight face), could be really good. I just say obvious stuff and these are jokes to you all still because you don't quite understand it yet.. interesting.
+
+[1]: for some reason, I remembered that joe really doesn't like mimes or something about sadness (can't remember now).
+
+
+
 ### epimethism
