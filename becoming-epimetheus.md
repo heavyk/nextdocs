@@ -60,7 +60,7 @@ though our perceptive and rational capbilities have been physically limited by m
 
 so whoopdie, f-ing doo, I say, because it's not necessary to have a higher density or the physical conditions to have superhuman capabilities. for me, I think about things very muchanically, so there are *always* technological (and otherwise) solutions so I'm really not worried about it. concepts exist all over the place in our reality from stories to ideas to inventions which turned into products. everything is a remix, and there's no way to stop expansion of consciousness. that's what this is all about anyway. the way that we expand our consciousness is always on the looking back. the conclussion: I could do that better.
 
-right before you get to forethought, you have afterthought -- a conclusion, a prejudice, a disagreement. this forms to be the launching point from where we decide what to do differently to make an improvement.
+right before you get to forethought, you have afterthought -- a conclusion, a prejudice, a disagreement. this forms to be the launching point from where we decide what to do differently to make an improvement. 
 
 ### 2022-11-29 17:30 - I'll pay for that later
 
