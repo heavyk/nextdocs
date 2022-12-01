@@ -58,6 +58,6 @@ the father can be seen through the gradualist perspective, which is one of aroma
 
 these are the egregores of our creation. don't expect zeus to change, because he is the unchanging concept manifest into reality. they won't ever change. the only thing that we have power over are the two sons. you are one part forethought and one part afterthought/regret and this is what composes/authors your reality. pay attention to see if you're seeing from the fool or from the sun/son's point of view.
 
-perspective matters; and, even required to see beyond 2d.
+perspective matters; and, even required, to see beyond two dimensions.
 
 ### jeortau, enki and epimetheus
