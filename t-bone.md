@@ -60,4 +60,18 @@ these are the egregores of our creation. don't expect zeus to change, because he
 
 perspective matters; and, even required, to see beyond two dimensions.
 
-### jeortau, enki and epimetheus
+### 2022-12-01 14:48 - jeortau, enki and epimetheus
+
+I wanted to talk now about a potentially controversial subject, which is the one of prometheus/jeortau/alalu -- the fire element.
+
+it's my theory of what happened is that this guy, created a really awesome setup of very good conditions. he attracted a lot of entities from all around the galaxy. then, he self-sabotaged, and created an egregore to destroy himself and take over his empire, enlil.
+
+what I believe was the bigger picture here is that prometheus' original setup was so awesome, it attracted a lot of those that like the good conditions. it also attracted the dreaded INFECTED ONES. they've installed themselves into the astral and rule us 3d types from "up on high" this is plato's cave so I'll just call them the archons from now on, even though INFECTED ONES is quite a bit more hilarious. so, then when prometheus' egregore, enlil destroys him, it takes all of those of us that have joined in cause the living was nice or in my case probably because I like the challenge. all of this came crashing to a halt and we were stuck in the astral ourselves almost like unmanifested egregoes.
+
+eventually earth became a place for us to live (I'm using the 3rd person here cause it's better than 1st). we inhabit physical bodies, but ourselves are created from these definitions/concepts/actions that were used in the summoning process. many summons have been inentional, but most I believe have been unknowing of it and the archons have exploited our concept of others to contiually keep separation between us, else our consciousness would expand to the point where we join them in the astral.
+
+the more energetic you and your rituals are, the "higher" they are up on the heierarchy. they get pretty high -- and it's a big measuring contenst of vision depth -- of which I far outclass them all. they're not even close. they can barely keep up with me, so they have to hold me out of their space. they don't really need to because I just keep expanding. I'm not like them in that once I get to a size, I say that's enough. I'm caught in a runaway feedback loop and I have no choice but to ride the wave. if I were to get connected, I would have access to all of their controls and stuff they use to control people, because I'm way far beyond the highest archon.
+
+I believe that many of us jumped into this earth plane on purpose. I must presume that I did, knowing myself. you know it would just seem like something I can do... "archons that think they run the show? more dimensions? no sweat. of course I'll go, duh" -- something like that.
+
+
