@@ -33,3 +33,9 @@ this is what we do as a race, a culture, a person, an animal or whatever; but, t
 ---
 
 you know, what I love about it is that it has a conceptual interface to it, and so you could imagine this as the repository of the knowledge of all things. there are no restrictions. anything that you want is yours to feel. you attract it, and so it's yours. everything that you want is for the ability to feel like that. figure it out.
+
+### 2022-12-01 11:26 - epimetheus is important too
+
+I wanted to talk about the importance of afterthought, because, like mcluhan said, we're driving forward into the future looking into the rear-view-mirror. I have a funny image that I conjure in my mind from this visual, and imagine a guy driving his car forward looking backward into a giant mirror that's facing forward, the mirror is so big, he can't even see out the back window, but it allows him to see pretty good out the front window.
+
+the way that we see our past, the conclusions that we give to ourselves, others, and to establishments determine our future. think a moment if I said, "that business isn't going anywhere". for me it's a conclusion, an afterthought on having seen the state of their business, and so this small afterthought has a large effect on the future.
