@@ -2067,9 +2067,53 @@ so, in rebuttal of the idea, like I said, in atlatian times the environment was 
 
 as such, the entire atmosphere vibrated at the frequency of their megalithic structures. those harmonies and ratios were "given by the gods" (ie. nobody really know where they came from) and so the environent resonated at a constant and stable frequency.
 
-well, the internal sun[^1] that we have is strongly empowered by desire. our solar system sun is a 2nd ray...
+well, the internal sun[^1] that we have is strongly empowered by desire. a 1st ray female, she receives desire and transmits desire. our solar system sun is a 2nd ray, so as a 2nd ray, it's pretty easy to bridge desire (1) down to the 3rd ray, which is where desire begins to take on form -- but it's still non-physical. we would consider that all of the intelligent structures tha exist at subatomic frequencies. out there is chaos created from all vibrational interactions. they take those things categorise them, and get them filed in the right spot (this is the beginning of the conceptual, extending all the way down to physical); each interaction put into categories of greater and greater meaning... like collisions between atoms (next to no meaning), all the way up to the most complex of conceptual and emotioal interactions, which appear as symbolic from the 3rd ray perspective.
+
+that 3rd ray perspective is the one of enki/epimetheus. it's basically a fractal of proportions, that when things are designed harmonious with those proportions get the standging wave treatment, allowing things to get bigger. our entire planet's DNA is based on this pattern and so -- to allow everything to grow and flourish, the earth was tuned to these proportions. everything flourished, but there were problems with the setup, which is the limitation I mentioned earlier is that prometheus' original plan for humankind involved the "fire" aspect, which is where there is no distinction between us. my memory can be your memory and we share a memory context. compatible memory contexts became cultures as we know them as the physical realm began to solidify.
+
+the problem is the world that was created was an astral world and so there are too many "souls" floating around in the atmosphere of earth and so need to be proccupied, so as to not cause trouble. these "souls" were, to some extent deceased others, but the majority of these "souls" were the beginning of what we would call the astral portion of an egregore. these creations began to group into memory contexts, and these became the concepts that early humans adopted as the "gods". they're concepts (egregores) of our own creation.
+
+these memory compatible sectors had well enough established entities. they existed in the astral, and they like all of us fell down into the physical. the beings that had only existed in the astral became physical and died. this produces concepts, and it's out of these concepts (from all of these astral entities/souls/egregors) that the "gods" were made flesh. we created them.
+
+---
+
+as such, the environment was very different, harmonious with the 3rd ray geomtrical layout that enki adopted, in place of the fire form of humans that prometheus created, enki adapted us to be have the desire to be right. I'm not sure if it was intentional, but you have to know when I look at it now, understanding both the fire (4) and the water (6) perspective now, I can see what a difficult task enki had to smoosh the entire 5th and 4th ray perspective and limit/smoosh that into the imagination, he greatly limited us, by saying that we can only experience emotions and the memories of another person/planet/entity visually -- and that just isn't so.
+
+---
+
+it turns out later that someone was able to repair the megalithic framework to some extent. I beieve that this is where a lot of new astral things are setup by the archons. anyway, because the environment was maintained by the megalithic archicture to keep the astral at a certain density, then that means that extra energy is absorbed by the megalithic structures (why they broke). they can dampen those vibrations for so long, but remember that the physical layer of this planet is mars (same as the planet), the density must remain constant so that the created (by them) 3d reality remains constant. this causes stress when density intreases, cause the planet wants to expand to maintain it's density to keep 3d where it is[^2].
+
+as such, the "gods" that we created from all of our atlantian astral creatons, need the astral to be maintained at the proper frequency. so, even if tesla remembered it (like I remember this now), he still had to get it to work in the new environmental conditions that we have now. his system wreaked havoc on the astral, and while tesla's vision was quite a bit more than most in the astral, not everyone was like this, and this caused astral reality to start manifesting in people's minds. this created a number of egregores of our own creation.
+
+the powers that run the astral show (different than the ones that try to run the world), hid behind these egregores (hitler and such) and let the new establishment get setup, as long as they get power over it and us. that's what we're in now. the thing is, tesla, like enki had to figure out how to get that technology into the present paradigm. it's not easy -- because, if we had a more constant (regulated ionoshphere), the atlantean system would be easy to build, but the thing is, nobody really even remembers the system or how it it was created. it's another one of those things that just always was that way (as long as they can remember). those are the installed memories that egregores have which solidify them into the definition given by their creator. we're all egregores -- every last one of us. we're all robots of our own creation.
+
+soo, because the physical conditions are so much more different than the difficult task for tesla was getting them to operate under the new solidified physical conditions. no longer was everything a fluid that he can manipulate. the problem is the fluid (ether) that tesla was using for his machines, *is* the astral fluid. as such, his machines were manipulating (through the astral), the concepts that compose our realitity. egregeors have a source concept, which, when looked at from the non-physical perspective, have a sequene of actions and some symbolic defintion which identify it and give it meaning.
+
+basically, tesla's machines caused us to create our own symbolic reality based on what we belive. therefore, we're living now in an environment where what we believe manifests at an increased rate. that's the unintentional side effect of it, but for me I love this. after figuring it out, I abuse it tremendously. it's like how big is *too big*, but it's more like "at what scale do I want to comprehend the concept of how I perceive reality." that is the question.
+
+---
+
+long story short, tesla figured out how to maintain the astral meanwhile creating his own super dimension on top of this one, located almost certainly in antarctica (which is why the astral is still in the same spot). he also figured out how to get the technology to the astral guys that think they're running the show so that can use that technology to maintain the astral instead of needing to use the pyramid. it also gives them unlimited surveilance.
+
+however, if you notice, the technology is primarily 4th ray, but it approaches this "fire" *technology* it, does it from the astral. once again the ground has figured out how to get the female's power (7th ray black goddess) into our reality as the next matrix. they now have the technology which can maintain their version of reality and have full power over it. they can manipulate time, because that's composed in the imagination and everything.
+
+---
+
+[insert song "holiday" by geen day here]
+
+although there are all of those gory details I mentioned above, the promethian-perspective is that we're becoming a giant galaxy full of egregores of our own creation as we begin our next "descent" into the underworld (which is what happened when we got the new physical layer) -- and yes, I think that there is an outer world. if we get to the edge (poles), we'll see there is an "outside" world that we thought was actually the "inner earth".
+
+what I mean is, I believe that all of it, including the whole INFECTED ONES thing is all a creation. we're living the creation of our realities.
+
+when I create an egregore, I create it because I want to prove a reality. let's say I'm miserable and I summon an egregore to do something bad to me to prove to others that I'm miserable (or any other emotion). basically, every time that we're fake, meaning we have to "prove" an *emotion* to someone, we're giving power to a concept, which then becomes a reality in the form of a real person, which then "proves" the reality to you. the realities that can happen need to be the ones that exist in someone's mind -- comprehendible to someone, emotionally.
+
+we then begin to group up into realities of those that are similar to us. this is our concept of reality. if the physical didn't exist, concepts would attract really rapidly (ns from our perspective), but the physical layer means I have to *find* the person ands somehow translate one conecpt into symbolic language to hopefully activate a memory of the original concept in the other person. at the furthest point away, there isn't any similarity and so only physical vibrations occur, but if the frequency is similar enough, anything can be tuned into. the astral (imagination) attracts concepts obviously a lot faster than the physical, but you can imagine how fast the coneptual is (being based on memory/feeling), but is still no comparison to ultra high frequency, where everything about the concept of what I tune to is understandable by me. this is LOA in a nutshell right there.
+
+once I understand LOA, I understand everything about tesla's technology because it's just tuning and *receptivity*, just like memory is.
 
 [1]: the thing is when I look at it, I know there is a 7th ray aspect to it and that is the earth layer we're sitting on now, but I can't help but to notice this red "smokey god" in the centre, and that must be a 1st ray. I don't really know what to make of it, because I thought earth was 7th ray. I also saw in another vision these small red suns being multiple and from time to time, that sun needs to be pushed out because she's getting too strong (x and gamma rays), so the earth (the 7th ray) emits stars from out of the poles. therefore, I must conclude that the 1st ray female in the centre is not the same as the 7th ray exterior.
+
+[2]: probably the easiest solution to the increasing stress from the density problem, would be to no longer limit 3d, and let the astral mix with 3d.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
