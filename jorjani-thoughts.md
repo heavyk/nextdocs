@@ -2041,6 +2041,36 @@ what I mean is, without any visuals, I have to be conceptually recective to the 
 
 for me, when I experience a concept, I "get" the whole idea as an instant knowledge. I then can elaborate on it in any way that I want. such is the same with tesla's ideas. I "get" them now because I "get" LOA and how reality is created. such capacity is the *fire* of prometheus. it's possible to lose knowledge [of your main identity](/t-bone.md#2022-12-01-1448---jeortau-enki-and-epimetheus) though.
 
+### 2022-12-03 07:24 - he didn't invent it; he remembered it.
+
+I would like to disagree strongly. he may have gotten the visuals and stuff, but the earth's atmosphere is way different now. his experiments were constantly to try and increase the conductivity of the air in the atmosphere. it makes magic possible because it's the astral to the extreme. the thing is, it also pumps up LOA to a massive extreme, and so his "bathing the earth in the sun's rays" was pushing LOA into hyperdrive there in the 1920's. we're in a very similar position right now in history.
+
+the same thing is happening where LOA is being pushed into hyperdrive, and this time it's not tesla amplifying the solar energy, this time the sun and also the earth are outputting a lot more energy. like I said, the last time that this happnened, the 3rd reich rose up, caused an uproar, and in the shroud of the war, they launched their polar program.
+
+it's kind of a repeat of the same thing which is happening nowadays, but it's no longer necessary to make a war to launch your space program. there are already various ones, and so all the ones that want to do that (separate theirselves) can do that without needing to cause a war.
+
+in fact, the fact that it's possible for a group of individuals to launch their own space program now, is what I believe the whole reason for self-sabotage was about -- because it enables anyone who wants to do that to do it.
+
+---
+
+the other thing that's really important to have knowledge of from my perspective, is when I was thinking about what you were saying about the moments of his decrepitness, I can see that it's people like you that have made the connection to my reality. there are two ways to look at this.
+
+the first is from the position of tesla. imagine for a moment that you're him and in the timetime that things have fallen apart and they believed his ideas to be preposterous (his negative desire), that desire summons an egregore whos "sole purpose" is to remember these images of this decrepit man and things of that nature.
+
+second is to perceive it from the perspective of tesla 100 years from now -- or whenever the "end of the timeline" is -- which I believe is roughly going to be a great solar cycle (1046y?) from now. in that perspective, he knows that he's in that moment, so he goes back and modifies his past (our present) so that many people believe (and so therefore come from) a reality where tesla had failed. whell, he's still going to arrive to this moment (our future), so let's convince the world to go the worst way. this is how you compress time, by getting people to believe in an alternate reality. it's the reason why we're going to succeed.
+
+we've got tons of time and lots of good solutions now, so everything should go pretty smoothely. nothing is going wrong and we've got tons of time. fear is an interesting way to compress time. there are no greater storytellers that the power structures and religious institutions. (I believe) they've been given the power (gifting fields) to run the show completely the way that they want to, so everything is in their hands to keep everything the way they want it. I really don't thik it's that much to worry about.
+
+---
+
+so, in rebuttal of the idea, like I said, in atlatian times the environment was very different, and the megalithic archicture installed an astral environment where the top guys (like you're remembering) all had these like ways to move things in and out of reality, trap doors, and rooms that transport time and space (like phillip k dick's window). these sort of astral tunnels are how these tall white alien guys you're remembering ran the show.
+
+as such, the entire atmosphere vibrated at the frequency of their megalithic structures. those harmonies and ratios were "given by the gods" (ie. nobody really know where they came from) and so the environent resonated at a constant and stable frequency.
+
+well, the internal sun[^1] that we have is strongly empowered by desire. our solar system sun is a 2nd ray...
+
+[1]: the thing is when I look at it, I know there is a 7th ray aspect to it and that is the earth layer we're sitting on now, but I can't help but to notice this red "smokey god" in the centre, and that must be a 1st ray. I don't really know what to make of it, because I thought earth was 7th ray. I also saw in another vision these small red suns being multiple and from time to time, that sun needs to be pushed out because she's getting too strong (x and gamma rays), so the earth (the 7th ray) emits stars from out of the poles. therefore, I must conclude that the 1st ray female in the centre is not the same as the 7th ray exterior.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
