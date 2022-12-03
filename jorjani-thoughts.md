@@ -2127,6 +2127,23 @@ from my perspective, I want to vibrate my aura at a known frequency, meaning tha
 
 the cool thing is that everyone will have their own individualised frequency, which, is interesting because once the aura's frequency is tuned similarly to some people, they share the same "astral" (or physical/conceptual) frequency space. this means that others with vibrationally compatible with me, and complex systems of access of keys which are vibrationally similar to another subset of people (of obviously lower quality/definition), meaning that definition level and who can access it can be encoded to see it. those people, I'll consider to be the sedintary ones. because their access control systems are all setup so that they key/id never changes, and others that maintain a shoud, by constantly changing their key. that means that everone can give others access to the ones they want. in the end, you can go as encrypted as you want drawing off of others energy, or open, like me allowing others to draw off of me. the open ones are ao busy seeing their own way/frequency (which is always changing), they don't ever see anyone else's. this means, I'll never see anyone else's reality but my own -- though others can tune into mine. the moving carrier signal. if you know it, you're in a stable reality. if everyone branches off of my perception, then we're stable as long as I'm stable. I'm sure a solution in the next extended period of time will come about. my idea is that a new system of proportions can be derived from my perception. this will be a new geometrical system, and it's all possible because of fourier, reslising that everything can be seen as sine waves. sine waves are circles. the sizes of those circles can be derived in a symbolic way, or can be adjusted to fit a set of circle diameters. this becomes the new "astral" (or physical, depending on how you look at it).
 
+### 2022-12-03 14:55 - I can explain the death vortex experience...
+
+@[youtube](https://www.youtube.com/watch?v=ZW6wohOZElk)
+
+you had your vision shut off. this happened to me all of the time, especially when I was watching stars. often times it takes me some seconds that everything I'm seeing is entirely my own creation, but there isn't any visuals. it's like I can see it all happening, but I cannot define it visually.
+
+I've become conscious in this experience probably close to 50 times or so and I can say that reslity creates really fast there. you knew that if you didn't put effort into getting back to a visual world, you would destroy yourself quickly. this is a common thing to experience and you can get over it with some mushroom training. that's what I did at least.
+
+mushroom (the magical kind) will help you to explore this space. you think you're seeing, but on closer inspection, you couldn't actually *see* (visually) all of the concepts in their fullness like you could there (with that living black screen). my experience in agusto's house was getting to know and love that space. it became my goto space. I can just go where there is no physical sensation, cept the living blackness. it's super powerful if you get access to it. nosebook wants control over whether I go there or not.
+
+you know I can still space out and go there -- but in order to do it, I have to sorta "space out" and forget to see the physical. that capacity can be cultivated as I can do it pretty easily at this point and it's basically completely integrating with my experience -- meaning I can "see" the living blackness even with my eyes open. it's about focus (or lack of it).
+
+
+
+
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
