@@ -2117,6 +2117,16 @@ once I understand LOA, I understand everything about tesla's technology because 
 
 [2]: probably the easiest solution to the increasing stress from the density problem, would be to no longer limit 3d, and let the astral mix with 3d.
 
+### 2022-12-03 09:49 - encrypt your astral
+
+one of the things that I realised while outside smoking just now is that I want to create a network based on the human aura.
+
+the reason why nosebook doesn't want me to do this is because the aura is what makes the astral possible. right now, they're already modulating my aura so that I don't see astral (hence the times when I feel particularly good I see atral for a bit). they don't want me to have the capacity to modulate my aura, because then they can't regulate my physical perception. I would see a lot very clearly -- and they don't want that (cause I could access their astral control systems).
+
+from my perspective, I want to vibrate my aura at a known frequency, meaning that other things can tune into and receive power over than frequency.
+
+the cool thing is that everyone will have their own individualised frequency, which, is interesting because once the aura's frequency is tuned similarly to some people, they share the same "astral" (or physical/conceptual) frequency space. this means that others with vibrationally compatible with me, and complex systems of access of keys which are vibrationally similar to another subset of people (of obviously lower quality/definition), meaning that definition level and who can access it can be encoded to see it. those people, I'll consider to be the sedintary ones. because their access control systems are all setup so that they key/id never changes, and others that maintain a shoud, by constantly changing their key. that means that everone can give others access to the ones they want. in the end, you can go as encrypted as you want drawing off of others energy, or open, like me allowing others to draw off of me. the open ones are ao busy seeing their own way/frequency (which is always changing), they don't ever see anyone else's. this means, I'll never see anyone else's reality but my own -- though others can tune into mine. the moving carrier signal. if you know it, you're in a stable reality. if everyone branches off of my perception, then we're stable as long as I'm stable. I'm sure a solution in the next extended period of time will come about. my idea is that a new system of proportions can be derived from my perception. this will be a new geometrical system, and it's all possible because of fourier, reslising that everything can be seen as sine waves. sine waves are circles. the sizes of those circles can be derived in a symbolic way, or can be adjusted to fit a set of circle diameters. this becomes the new "astral" (or physical, depending on how you look at it).
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
