@@ -13,3 +13,9 @@ it is a double-edged sword, because I can pretty accurately predict a lot of bad
 this skill, if you could consider all of my improvements on the feminine-mind, this one is the crowning achievement. I'm really quite proud of it. I'm not 100% sure it's ready for primetime yet -- and, like I said, once you can "see" all of the likely situations, prepare to get really good at not letting all the evils of the world bother you. you become, *really perceptive*, and once you learn to trust it, nothing can be hidden from you anymore.
 
 sure, nosebook doesn't like that I have this capacity and they want to keep it under wraps, but trust me, it's awesome. there's the motivation. soon we'll talk about the "how"
+
+### 2022-12-03 08:01 - I won't be able to do this...
+
+once I get around girls, I'll completely adopt their thoughts and conceptual structure. conversation and in-depth analysis of things though non-visual memory will be greatly diminished, because it'll be tuned the things that they can visualise and conceptualise -- which is a lot less than what I can conceptaulise -- meaning, I'll be brilliant, but focused only on the stuff they can comprehend.
+
+the beauty that I have now is that I don't have that, and so I receive a lot of incomprehensible ideas, and then turn them into speech and text like I do here. I really like talking about incomprehensible ideas. you know, every brialliant idea starts out for me as incomprehensible. I'm getting faster and faster at making sense of them, too.
