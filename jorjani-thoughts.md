@@ -2029,6 +2029,18 @@ I find it interesting that he's trying to put physicality to the trickster arche
 
 if you've read "gods of eden" you'll see the connection. was he ambidextrous and highly creative as well? notice how all of these st. germain types all love poetry and the arts as much as they love moving around various power structures.
 
+### 2022-12-03 07:09 - remembering past memories
+
+@[youtube](https://www.youtube.com/watch?v=D2Vxq2Kc-FY)
+
+one of the things that I was noticing while watching the end of the video there is my objection to his process. his process appears to be visual, but mine has no visuals, so the "reality" of it has to be tuned into are only capable when I AM the capable receiver of the idea.
+
+what I mean is, without any visuals, I have to be conceptually recective to the idea. all of my understanding of a concept like how tesla energy works is not one of atlantis or anything else, but by understanding of frequency, harmony -- and paying attention to how I feel. for me, that's all I needed to learn about how all of it works. if you look at the different things about the triads, you'll find your basic understanding for tesla coils. for the transmitter, I think it's a FMF triad which I've theorised about, but it's one thing I have to understand, because there's always a hidden fourth without a gender. there are many hidden fourths; a memristor is one of them.
+
+---
+
+for me, when I experience a concept, I "get" the whole idea as an instant knowledge. I then can elaborate on it in any way that I want. such is the same with tesla's ideas. I "get" them now because I "get" LOA and how reality is created. such capacity is the *fire* of prometheus. it's possible to lose knowledge [of your main identity](/t-bone.md#2022-12-01-1448---jeortau-enki-and-epimetheus) though.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
