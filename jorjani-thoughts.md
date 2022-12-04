@@ -2165,9 +2165,53 @@ one of the things that jason also believes, which I find interesting is that he 
 
 because my trajecctory forward is determined by how much resistance I *perceive* in my past, what I'm doing is finding a way for jason's memories to "make sense". to me, they already make sense, but my physical-mind doesn't know so it's fun for me to render it into text (this is quite enjoyable for kenny, noo). therefore, as a planet, what this is doing, is helping us to "make sense" of our past. when it makes sense, the memory goes from data to concept. the concepts, just are. they are no more threatening than a candy wrapper or a fire hydrant.
 
-### the olmec connection
+### 2022-12-04 11:59 - the olmec connection
 
+@[youtube](https://www.youtube.com/watch?v=ZW6wohOZElk)
 
+I think it was that one anyway, jason made a few comments that were notable to me, "karma's a bitch" in reference to the multi-racial sexual relations (between the white atlantian slaves and these black afican very physical enforcers). the other one I'm not remembering now, but it was in relation to the time traveling original atlantians that were running the show (the original original overlords that he wanted to overthrow).
+
+speaking first about the overlords that he wanted to overthrow, these are the greedy INFECTED ONES that had incarnated into bodies in the martian base.
+
+there was a second base that was established from a divide in the martians. prometheus wanted to go his own way and do his own thing, but these overlords ruled from the astral and didn't want to go the fire (4th ray) route. it was too incomprehensible to them to think that they would be able to access others concepts and have their concepts able to accessed by them. prometheus very understandably decides to go another way and figure it out himself. he understands LOA and the the overlords are too worried about others being able to accesss their concepts.
+
+prometheus goes his own way and is spectavcularly successful. so successful in fact that practically everyone in the galaxy (still in the astral) wanted to go there and get that 4th ray upgrade.
+
+things were going really well, perhaps too well, and the martian overlords (INFECTED ONES incarnate into astral) are getting jealous of prometheus' success, and didn't want them to upgrade. lots of discussions and things were made, and prometheus said, fine I'll make my own solar system so I don't bother you guys. you can have full control over this solar system". he proceeded to make all of the components to make his own solar system (being a 2nd ray himself). anyway, a 2nd ray male will appear as a galaxy and a 2nd ray female will appear as a star is what I've gathered. by creating a star system he would have eventually found himself (his system) turning out to be more like a galaxy anyway.
+
+his plan was aborted though when the martian overlords attacked prometheus' setup. this plan was put forward by enlil, and so enlil got rid of the prometheus problem for the martian overlords. things got worse on mars though so they had to go to earth to live anyway. enki made it possible to do all of prometheus' physical layer, but remove perception of the conceptual and the fire, these are hidden behind the veil of our imagination, and so we think we need a picture to experience these forms of perception, when that isn't so at all.
+
+prometheus' vibrational direction is in the direction of making a galaxy, and he's interacted with various of us when looking from a 4th ray perspective. the reason for it is that the 3rd ray touches both the 4th and also the 2nd. the importance of being able to see the epimetheus/enki perspective was important to me, and so I actually believe that these olmecs are actually a timeline enhancer. they encode the enki/epimetheus (3rd ray) perspective into a primitive human being, in some sense, you can think of this one as enki's self-sabotage. these primitive black people that jason speaks of hold values like "insurance of accomplishment of mission at all costs" and other such values that are also similar in russians into a "primitive" race. in my other article on becoming-epimetheus, when I understood (got) the fire of prometheus, it was because I had learned in that moment, the capacity for compartmentalisation, but desire *always* is more powerful than the category.
+
+this primitive form of perception of accomplishment of the mission at all costs, is also most notably present in the current overlords of today. the link here is that their primitive form of compartmentalisation to be able to be slave overlords in exchange for physical pleasure *is* what runs the present economic and social power structures. the martian overlords installed them, and they have stayed our overlords. they've persisted through changes in technology, but like the atlantian overlords, they pass from body to body having to continue on their mission by their overlords in exchange for pleasure. they're egregores too, just like the rest of us, and that was their concept and physical form. no big deal.
+
+from a time-traveling super species of us perspective, the creation of these egregores, is a potential improvement on the original (very slow evolution) of our primitive selves. we are the prometheian fire stuck inside of a species for hundreds of millions of years, meaning that it's our destiny to make a galaxy, and one can see why -- because the more you stone age a species with a more powerful (impossible to defeat) overlords, the more magnificent they turn out, when they figure out how to use their creative capacity.
+
+think about this ultra slow evoution (long stone age of overlords) now from a galactic perspective. imagine now an "inner earth" the size of a galaxy with all sorts of stars in the centre. they don't have an "internal sun" but an internal galaxy. when they *finally* (and this is going to take a long time) start to get to the poles, then they can find out that there is an extra-galactic universe.
+
+the humans that we put out there are primitive versions of ourselves, with primitive humans in there as their overlords. we'll be "from the stars" and they'll all have different mythologies based on their angle of viewing us. from their perspective, they are being controlled or gifted, whatever by these "star gods"... we'll each have our own civilisation(s) that are our own, and they'll spread out on this astral/physical layer that we used to call "earth", but is now the size of a galaxy. they'll think we're all overlords anyway, so there are no rules. you can do whatever you want, you know. it's your species anyway, so you're really only "doing it to yourself".
+
+you can then see, from that perspective, why it is a good idea to "incarnate ourselves" into the olmec, learning that aspect of the thing.
+
+---
+
+you see, one of the things that I noticed about the olmec heads when I interacted with them is that they have a "feeling" to them. this feeling appears to me as a feeling, and they were the feeling that the original olmecs had encoded into the head. around the head, you can feel that way and practise that feeling. large tribes, after the cataclysm, used these heads to practise and remember the feeling of their ancestors -- thinking that if they could maintain that feeling then they'll continue to feel good like those ancestors.
+
+two things to note about that is that, the way that they felt was notably bad.. having to accomplish their mession out of duty and negative desire (but not quite fear: "I hate doing this thing I like") and this feeling was transferred to them by the atlantians. they thought it was good because it was received along with so much pleasure, it was perceived by these olmec overlords as "good".
+
+these tribes that continued to practise the feeling of their olmec ancestors continued to attract calamity after calamity which manifests that aspect of their given feeling from the atlantian pleasure. this feeling is one of worry, things falling apart, and not being able to ever get the ideals that they want.
+
+that feeling of not being able to get the ideals that they want is the same feeling that the inhabitants of the other solar system (tiamat) were going to have, instead we get another destruction/oppression from the astral overlords. because these feelings are so similar, it's an intesting thing to note what jason is saying between these new aryan overlords and the olmec overlords and the central/south americans, where the original atlantian resistance thing was built: teotihuacan, one of the towers of babel.
+
+the reason why I say one of the towers of babel is because this promethian spirit of desire to get access to that *fire*, which is the abity to perceive from a 5th and 4th ray perception, is to notice that this promethian echo is sorta like a tidal wave. you can see it try over and over (phoenix) and each time rebuild to try again. it'll evetually happen, and because I can see the 2nd ray perspetive, I can say that your dreams (forethought) never die; they may take a few iterations to find a suitable medium for their manifestation, but they ALWAYS make it. that promethian spirit will continue to want to bring in its manifestation...
+
+---
+
+so, remember I wrote something about "what I think is coming" a while back, and I said that I thought it was maybe source or that "worst possible manifestation" perception... well I was still confused and didn't really understand a thing, but I can see it now.
+
+there are a lot of these guys out there that are enjoying the 6th ray (astral) perspective. there are a whole lot out there that can start to see the 4th ray perspective, and they're beginning to see the 4th ray perspective. I however am still the only one that can see the "whole thing" as a complete manifestation according to our perception -- but there will be many that are joining me up there, and there may be some others besides myself that see it that way.
+
+by practising to see the promethian perspective, we're kinda preparing for the recepion of the promethian perspective, which is 2nd ray. the way to get there is by understanding the 3rd ray (memory, mentation) perspective -- our good buddy enki or epimetheus. we'll get there. I don't know how many years from now or anything, so I have to imagine that once me and others enough will get it, we'll "see" things differently. like I said, some are going for 4th, some for 6th, but I'm going for that 2nd, always novelty perspective.
 
 
 ### what are your differences with steiner?
