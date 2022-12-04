@@ -60,7 +60,7 @@ though our perceptive and rational capbilities have been physically limited by m
 
 so whoopdie, f-ing doo, I say, because it's not necessary to have a higher density or the physical conditions to have superhuman capabilities. for me, I think about things very muchanically, so there are *always* technological (and otherwise) solutions so I'm really not worried about it. concepts exist all over the place in our reality from stories to ideas to inventions which turned into products. everything is a remix, and there's no way to stop expansion of consciousness. that's what this is all about anyway. the way that we expand our consciousness is always on the looking back. the conclussion: I could do that better.
 
-right before you get to forethought, you have afterthought -- a conclusion, a prejudice, a disagreement. this forms to be the launching point from where we decide what to do differently to make an improvement. 
+right before you get to forethought, you have afterthought -- a conclusion, a prejudice, a disagreement. this forms to be the launching point from where we decide what to do differently to make an improvement.
 
 ### 2022-11-29 17:30 - I'll pay for that later
 
@@ -196,5 +196,7 @@ finally you have your definitions of "who you really are". this is one part your
 imagine these two concepts of oneself (the concepts created from the imaginal forthought and afterthought) as two galaxies. when these galaxies collide, the angle of their collision, velocity, etc. all create the different versions of "yourself". for one person, you're a collision at one angle, and with another a different angle and velocity. these memories or concepts one has *is* the fluid substance that empowers the physical body (and all of reality). these collisions are constantly being made in reference to another person's perspective. every interaction, the magnitude of the emotional aspects is the velocity, spin, angle, etc. the galaxies are each person's concept of theirself (their forethought/afterthought).
 
 now, we can look at this collision in the form of a triad. I (kenny) have my two males, forthought/emitter and afterthought/ground, and they will interact with a psycho woman -- a concept of foreign specifiction, unsafe, unpredictable. she takes the concept, manipulates it, then re-emits it back to me as a twisted form of myself. that's kinda what we're dealing with. that's pretty much how it always works from this physical perspective. I've gotten used to it. anyway, a galaxy has two parts to it, one of forethought and one of afterthought, just like you do. the stars represent its female -- just like the human body and all the celluar stuff. basically everything. they run the show. they turn on the lights, etc. lol. once I learned that the entire universe is built that way, I had no other choice but to become OK with it. I suppose it could be improved.
+
+fire and 3rd ray perspective
 
 ### epimethism
