@@ -1587,4 +1587,12 @@ that was the symbolic look at it. now the next really interesting way to look it
 
 let's give the writers a rest and play some captain...
 
+### 2022-12-04 20:13 - c for syke!
+
+let's try p.
+
+#### 2022-12-04 20:18 - this feels like a form of hypnosis a bit
+
+mr azkath is tricky, you know... it has extra data encoded. I will be listening to your reactions...
+
 ### interests diverging and individualisation
