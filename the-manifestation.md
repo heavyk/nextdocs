@@ -1582,4 +1582,9 @@ that was the symbolic look at it. now the next really interesting way to look it
 ### another way to look at it
 - since, see the whole universe as a reflection of myself -- including the evil
 - if you then imagine the INFECTED ONES are also a reflection of the universe, then we can picture the whole ordeal as similar to a story
+
+### 2022-12-04 20:08 -  mr coffee maker needs to be turned OFF.
+
+let's give the writers a rest and play some captain...
+
 ### interests diverging and individualisation
