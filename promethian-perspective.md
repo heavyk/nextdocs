@@ -59,6 +59,8 @@ a society built on imaginal conditions is one of slavery, because one has to ima
 
 the promethian perspective is ALL of the epimethian perspective, but the added condition of seeing the tidalwave of the waves producing waves, all in the direction of desire.
 
+this perspective has a tangible interface, like the 4th ray has the living blackness. I don't know what it is because I've never experienced it thus far, but I'll know it when I see it. it's always been there, but I just didn't see it *that* way before.
+
 ### 2022-12-04 16:41 - I'm basically the first to perceive the promethian perspective.
 
 I got it the "wrong" way so, we're creating a demiurge. many others will also get the promethian perspective as well, as I believe it'll spread about as rapidly, but a bit delayed from the epimethian perspective. it'll be like a virus. get in while it's hot. it's cool inside.
