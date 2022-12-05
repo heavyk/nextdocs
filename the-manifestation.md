@@ -1563,6 +1563,10 @@ I decide I want to be a "bad boy". I notice an opportunity to begin to work on a
 
 I practise my acting first with an invisible signal, not worrying too much about he physicality of it, focusing only on emitting the proper responses to having to wait a really long time for a signal. finally, after some times waiting for the final signal (of which I know is fake), I decide to to go the "wrong way" on to the expressway.
 
+### 2022-12-04 19:28 - one demiurge to look out for...
+
+imagine for a moment that in this extra light cycle that I wait for before going the wrong way, I'm getting to know other men, and perhaps even in an naked sort of way -- right, so you can imagine that some of the girls seeing things through my perspective will see some of these guys as I see them. she can be the excuse that he needs to finally believe in himself. he (or she) doesn't need to figure it out for himself. this trains them to believe they need a muse to make their reality come to manifest.
+
 ### now, conceptually (after this)
 
 that was the symbolic look at it. now the next really interesting way to look it is from the conceptual/relational (5/2). there were many connections
