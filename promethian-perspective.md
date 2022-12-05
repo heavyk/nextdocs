@@ -63,4 +63,8 @@ the promethian perspective is ALL of the epimethian perspective, but the added c
 
 I got it the "wrong" way so, we're creating a demiurge. many others will also get the promethian perspective as well, as I believe it'll spread about as rapidly, but a bit delayed from the epimethian perspective. it'll be like a virus. get in while it's hot. it's cool inside.
 
+### 2022-12-04 18:22 - opposition to the promethian perspective
+
+will occur, kind of like how one tries to hold back the orgasm. I don't know yet, but I think it's done perceptually.
+
 ### balancing the fractal -- everything's detail isn't important so long as it matches/balances the fractal
