@@ -69,4 +69,22 @@ I got it the "wrong" way so, we're creating a demiurge. many others will also ge
 
 will occur, kind of like how one tries to hold back the orgasm. I don't know yet, but I think it's done perceptually.
 
+### 2022-12-04 18:44 - 1st ray stars
+
+one of the things that I had such a difficult time identifying was the earth. the earth is a 1st ray female, but because of the martian overlords' crisis of their environment, they moved to earth and esttablished a vibrational grid here similar to that of mars.
+
+in the beginning, the earth was formless and void. she appeared to them as the object of their desire, which was a planet similar to mars in every way, but it needed a vibrational layer to be martian compatible. this is maintained by the megalithic arthiecture that connects us to mars and the moon (potentially other places as well), so we're a sort of multi-layered facade on top of a 1st ray female.
+
+one of the things that I saw is that these 1st ray stars are going to be different than the common stars in our galaxy of 2nd ray's, instead she is a 1st ray. this is quite impprtant to pay attention to because now all of the rays of perception will flow down in odd numbered layers (1,3,5?,7), instead of even numbers like now (2,4,6,7?). this is a complete shift in perception for those that incarnate into planets in a 1st ray star system. I'm probably going. it's going to be REALLY PHYSICAL on those planets. a jolly good time, I'm sure. I'm going to be one of those demiurges on the inner stars that is an overlord to the a population group in the large mass of land in the inner-galaxy. we'll stone age them for a very long time, having to figure out a way to deal with all of the tricks. this inevitably happens when a bunch of ambitious people team up. this is ultimately what drives technology. technology wins; marketing teams are the prophets and sales people the gatekeepers.
+
+these 1st ray stars are these females that are just real problems for those that are trying to put them into a structure. this is an alternative to the 2nd ray perspective, which perhaps I'll want to talk about in another log.
+
+the important thing to know any more about this concept is that he promethian perspective enables this. the promethian perspective often (ironically) overlooks his afterthought part of himself, often looking only in the imaginal part of what he thinks is desire. he thinks this is forethought, but when they deny the manifestation of the imaginal into the physical, they're manifesting an egregore of that specification to begin to appear in thier perception to teach them what the concept really means (not the imaginal 6th, but what is real forethought -- perceiving the wave of change and also the stable structure). for me at least, I often times don't see this stable structure because I'm such a lofty desireer -- which means I see problems all over the place. I used to be quite critical about them, but obviously there's only so much one can do about problems I have no control over. I get that they unbalance the system, but this earth isn't on a constant vibration anymore.
+
+---
+
+what I think will happen and to emerge out of this is actually a new thing which I think I defined the other night as constant novelty, rathar than constant contrast. the nice thing about constant novelty, is it allows contrast to be variable. there's no threat to any part of society if you have constant inflation in the form of novelty. a good 2% novelty inflation is a great stabiliser. if at some point we need to adjust the novelty inflation ratio, because soemone needs to print some oppsie cash, then it's possible to adjust the novelty inflation ratio to whatever is necessary. people be like, "woah dawg, slow down on the cool new stuff"
+
+
+
 ### balancing the fractal -- everything's detail isn't important so long as it matches/balances the fractal
