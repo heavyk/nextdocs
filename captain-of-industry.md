@@ -86,6 +86,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 ### small things
 
+- ability to set unity build something as soon as unity and build reqirements are met also the ability to unity transfer specific materials (helpful in the early game to save diesel)
+
 - console command to remove terrain designatons that are greyed out all all sides (leaving only the active ones)
 
 - it'd be really nice to set alarms for settlement modules, to say when the buffer is full. I can put a storage between it and put an alarm on it, so it's low priority, but for limited space circumstances, it's still nice to know when I'm not getting a unity bonus.
@@ -99,7 +101,7 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 ### small bugs
 
-- in power statistics panel, the +production and -consumption are confusing. it appears that production is how much power is produced (it's constant for me), meanwhile consumption is the total of all buildings/belts using power (minus the ones that are low power). the demand isn't recorded. 
+- in power statistics panel, the +production and -consumption are confusing. it appears that production is how much power is produced (it's constant for me), meanwhile consumption is the total of all buildings/belts using power (minus the ones that are low power). the demand isn't recorded.
 
 - paused buildings with unity boost still cost unity.
 
@@ -418,3 +420,9 @@ sitting outside in the sun I had a crazy idea. I was noticing that the next vers
 building things changes to where the production facilities are more abstracted with the nanobot swarms now building many large features that were setup previously. all the process of gaining the resources and nanobots putting the resources in the right spot to build the big thing (vehicles production plant, instantiator). you now fight against others within the concepts that you created in your build order.
 
 these games are meant to take days or even weeks. the idea is that the whole team can do the segment evolution and stuff together (moving around in the portals). most of it will be blueprinted out, but you have to imagine that the resource system that the island starts with will be the starting production values to later build combat units. you can make this greedy or not.
+
+### mod ideas
+
+#### captain's goals
+
+ability to set objectives to accomplish and records the date when accomplished. this data is collected along with save games (at various accomplishments) is uploaded to a database.
