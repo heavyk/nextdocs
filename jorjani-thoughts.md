@@ -2257,6 +2257,12 @@ the most intensity is derived always from the most difficulty, so if you're a re
 
 [2]: which I think is probably a real thing, as he's probably still alive on the moon, still in the stone age, and actually sitchin was basically the the only person that could contact him in the astral and understand him in writing. I find it plausible that enki did write him that book. while reading it, I felt much more connection to the author "enki" than I did to sitchin, which is why I could read through the alalu cover story; I was seeing it from conceptually similar concepts that we have in common (a few at least) -- that was my experience though.
 
+### 2022-12-05 21:21 - the promethian pirate
+
+@[youtube](https://www.youtube.com/watch?v=byc-X7AhStE)
+
+most of these discussions are about creating more well defined borders. today when I was waking up, I noticed that if the edges of things are no longer the intersection of two concepts, but instead theirselves being a gradient. therefore, imagine infinite zoom/depth into the borders of things perceived through gradients. the whole world gains a dimension by losing clarity. it's kind of a symbolic physical manifestation of me, so also kinda cool.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
