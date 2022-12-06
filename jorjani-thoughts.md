@@ -2300,6 +2300,18 @@ so the failures of the previous culture/fashsion to satisfy the people of that c
 
 lol
 
+### 2022-12-06 00:09 - concepts as different from hypotheses and beliefs
+
+I agree, but I wanna try and see if I can see the diffrence. so, here we go...
+
+for me, like I said in other places, I structure "belief" into four different aspects of the same thing. the word belief for me is very undefined because stuff we have concepts for are all the stuff we "believe in" which can be of both belief and unbelief (which is still a belief that some thing isn't possible).
+
+beleiefs in that format of perception, one will notice that belief is all the stuff that we can deduce "logically" -- as in, there is a system or formula to predict it's manifestation with some accuracy.
+
+hypothesis are different from from beliefs, but not by a whole lot -- with the only difference is that a hypothesis is a belief with a mechanism attached. the mechanism makes it look more real, and the more accepted it is, this becomes "habit" manifestation for our reality. we justify the things we believe in, and those are a dffrent thing than beliefs, but part of the group (trio?).
+
+finally, a concept for me is the essence of something. that "essence" of the thing is it's "frequency" of emination. if you could imagine a fractal that places atoms according to a number of different parameters, a concept is an entirely "sovereign" view into reality. each one of these views ultimately has an effect on reality, and that ripple is always a reflection of its frequency. therefore, concepts for me take on a temporal form for me when I perceive the aura (emination) for me because I see the motion of the collision of the diffrent "galaxies" of "meaningful/symbolic" particles and the resulting splash. the concept transmits now (because I see the 2nd ray perspective) the temporal dimension as well, so it's easy to predict what is happening now. that gives me "forethought" but I see and conceptualise the forethought as a reflection of my reflections or my afterthought.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
