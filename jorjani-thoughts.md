@@ -2274,6 +2274,19 @@ the pirate imagery can fall pretty quickly into this concept if it fails to be a
 one of the things I was hearing in the part just before (@[youtube](https://youtu.be/byc-X7AhStE?t=1342)) is that you want to implement the party-LAN idea. I think that's a great idea and think that there are lots of interested early adopters... who knows, party-LAN may already exist and once again I'm left out of the secret again, but I think one thing to note is that you're motivated by wanting to evade this neo-feudal system. by avoiding it, you're attracting it, this is that recognition that you had with selwyn when you said, "karma's a bitch" in that the tides eventually turn. the atlantian protesters (of which saturn was one of) were attempting to avoid an even bigger system of enslavement and stone age mentality. they ended up being on the receiving end of the thing they're trying to avoid.
 
 
+### 2022-12-05 22:21 - an argument in favour of traditionalism
+
+the other day I mentioned the two sides of the chinese dialectic with one saying tradition holds us back, while the other is saying tradition pushes us forward.
+
+I tried to get the esssence of what I was meaning when I said "tradition pushes us forward" and I want to explain that the feeling is kind like that of a clock or carrier signal. it's a constant signal in relation to the others, which is sort of like the rhythm of the thing. imagine a song without any rhythm, and it sounds like a protest. put the protest into rhythm and it takes on order.
+
+for me, something like tradition is very good for me me as a sort of anchor. personally, you may have noticed how much the spanish culture affected me, because I take on the cuture of the people and place that I'm immersed into. this happens to me with everyone and everything that I'm around, which is what makes me look to you guys like I'm a reflection. one of the most energetic reactions that I notice is that I copied someone's "bad behaviour" and used it shamelessly because "I didn't know" -- which, if I may defend myself a minute, I do to some aspect know that it's considered "bad behaviour" for reasons like destroying some people's lives, but for me, it's a new way to behave in a situation that will allow me to get my way. I see from the perspective of desire, so you can excuse me or undersand me, or not (which is fine as well). I take on everything that I see without much prejudice and try to use the same thing for my own purposes. I rip people off shamelessly, too. therefore, I like traditionalism, cause it's my "default" singular persona.
+
+in cultures where I'm required to be different ways to different people, I had various personas that I put on for various situations. one of the nice thing about a "traditionalist perspctive" for me is actually the established syntax of interaction which I can use to interact with others in an understandable way -- not to express myself emotionally, but to emit concepts in a tangible form.
+
+in some sense, I desire the traditionalist perspective as for its capacity for me use it as a foundation to build new concepts on. one of the things that you'll notice is that for me (and others I'm sure) is that concepts build on eachother and eventually form to become this enmormous mountain of a thing that would take pages and pages to write it all out.
+
+when we think of this kind of explosion of data which would take thousands of words to describe a picture, I would say that it would take a new orders of magnitude of words greater to express a concept of mine in its entirety. the further problem is that in the process of writing it out (which is why I repeat myself so much), the concept updates, changes and improves.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
