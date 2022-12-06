@@ -2263,6 +2263,12 @@ the most intensity is derived always from the most difficulty, so if you're a re
 
 most of these discussions are about creating more well defined borders. today when I was waking up, I noticed that if the edges of things are no longer the intersection of two concepts, but instead theirselves being a gradient. therefore, imagine infinite zoom/depth into the borders of things perceived through gradients. the whole world gains a dimension by losing clarity. it's kind of a symbolic physical manifestation of me, so also kinda cool.
 
+#### 2022-12-05 21:33 - followup
+
+one of the things that I would like to notice is that a thing of any type follows after it's initial concept. therefore, if you build a society up on an untruth (a noble lie), then the society will continue to build things up on a foundation of untruths. this is largely the curse on our civilisation, because we still think that the imaginal is better than the reality version. I strongly disagree with talking about anything but the tangible/graspable things, because I really like things I can interact with, and the imaginal is really not ineteractive for me -- so I prefer the "real". I foundation my concept of reality based on the el/la belief/unbelief system now. that gives it the flexibility to be whatever I feel like it is, meanwhile completely leaving the imaginal behind. it's got to be real for me to interact with it. I like real more than imaginal.
+
+the pirate imagery can fall pretty quickly into this concept if it fails to be an actual threat -- meaning, they have to actually do real violent damage to be anything greater than a noble lie -- a sort of imaginal enemy. personally, this is where I don't take part, but it's your reality, and it sounds like you're looking for takers on your reality. I know we've got some preppers, so this is a sort of alternative to that I guess. an interesting "twist" on the storyline, I see. nice.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
