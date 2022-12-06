@@ -2294,6 +2294,12 @@ the stereotypes experessed in fashion and home culture as presented as an extrem
 
 so the failures of the previous culture/fashsion to satisfy the people of that culture is what creates the next trend. fashion and culture in general is a slow-motion crash of sorts. stuff is flying everywhere as a reaction to the previous failure. culture is what those in control are scared of, which is why they intend to control culture.
 
+### 2022-12-05 23:54 - gnome chomski
+
+@[youtube](https://youtu.be/byc-X7AhStE?t=2181)
+
+lol
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
