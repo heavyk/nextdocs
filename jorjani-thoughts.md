@@ -2312,6 +2312,14 @@ hypothesis are different from from beliefs, but not by a whole lot -- with the o
 
 finally, a concept for me is the essence of something. that "essence" of the thing is it's "frequency" of emination. if you could imagine a fractal that places atoms according to a number of different parameters, a concept is an entirely "sovereign" view into reality. each one of these views ultimately has an effect on reality, and that ripple is always a reflection of its frequency. therefore, concepts for me take on a temporal form for me when I perceive the aura (emination) for me because I see the motion of the collision of the diffrent "galaxies" of "meaningful/symbolic" particles and the resulting splash. the concept transmits now (because I see the 2nd ray perspective) the temporal dimension as well, so it's easy to predict what is happening now. that gives me "forethought" but I see and conceptualise the forethought as a reflection of my reflections or my afterthought.
 
+### 2022-12-06 00:30 - philosopher as a steering mechanism
+
+I started to listen to "shamen amongst the machines" the other day, because ultra-hippie terence belives that the shaman should lead humankind into the future in a cloud of smoke. he's literally "vendiendo humo". he was aware of his snake oil sales.
+
+the more hilarious the steering mechanism, the more successful it is. terence was given a pass just because he was so goofy and genuine about his prospects about our capacity to think beyond and without borders, but only in that cloud of smoke where reality isn't all that "real". the difference with terence and me is that his concept for humankind was purely imaginal. mine is one of reality, and for me it does not seem at all inconcievabale for us to make it eventually to become a galactic civilisation.
+
+trying to fight against the promethian perspective by contiually believing that the imaginal is "forethought" will only get their pictoral predictions to be pretty inacurate, because of the underlying feeling. a good guide is, if it feels bad (angry, discouraging, depressing, frustrating, etc.), it's not likely to happen unless you make it happen *because you want to be right about it*.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
