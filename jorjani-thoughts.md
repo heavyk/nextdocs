@@ -2269,6 +2269,12 @@ one of the things that I would like to notice is that a thing of any type follow
 
 the pirate imagery can fall pretty quickly into this concept if it fails to be an actual threat -- meaning, they have to actually do real violent damage to be anything greater than a noble lie -- a sort of imaginal enemy. personally, this is where I don't take part, but it's your reality, and it sounds like you're looking for takers on your reality. I know we've got some preppers, so this is a sort of alternative to that I guess. an interesting "twist" on the storyline, I see. nice.
 
+### 2022-12-05 22:03 - the neo-feudal system
+
+one of the things I was hearing in the part just before (@[youtube](https://youtu.be/byc-X7AhStE?t=1342)) is that you want to implement the party-LAN idea. I think that's a great idea and think that there are lots of interested early adopters... who knows, party-LAN may already exist and once again I'm left out of the secret again, but I think one thing to note is that you're motivated by wanting to evade this neo-feudal system. by avoiding it, you're attracting it, this is that recognition that you had with selwyn when you said, "karma's a bitch" in that the tides eventually turn. the atlantian protesters (of which saturn was one of) were attempting to avoid an even bigger system of enslavement and stone age mentality. they ended up being on the receiving end of the thing they're trying to avoid.
+
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
