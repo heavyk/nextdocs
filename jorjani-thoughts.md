@@ -2338,6 +2338,13 @@ it's really hard to talk about this subject cause I just look at the concept and
 
 as an example to describe his perception, enki can describe how a microprocessor works and how to make a well tuned one, but cannot in any way explain what the hell windows is doing. we're windows.
 
+### 2022-12-06 02:37 - dna was different
+
+in response to a question about DNA and stuff, the way that enki and the gods perceived our DNA is something like looking at C++ code in comparison to assembly. the DNA coding inside of the organism is all that remains now. previously, in that world tuned to enki's frequency, the DNA is perceived as a machine. there are all sorts if different variables of angles and things we would call colours (which look like spectrums), to create the entity. there's like this wireframe thing which isn't all that dissimilar to rigging for a 3d model. it's more mathematical, and when one thing angles toward another thing it makes a bulge or a suction, etc. they could design the muscles shapes in each angle of its extension, something today's body builders do with their imagination.
+
+it's interesting this designer that they used because it's entirely based on appearance. the appearance was created and all of the detail were sorta filled in -- like they didn't design the muscles, because that was deep in the program to make the proper sequence to get protiens or whatever of those bulging shapes specified. they had a lot of time so many things were quite perfected and optimised.
+
+the designer has a lot of diffreent things that we would call "implications" and so when a thing was placed into an environment, because all of the frequencies of the other entities are known, along with the environment, then the intceraction can be calculated. this was how many species had their syntax of interaction encoded, by tuning the variables to generate the "proper" (desired) interaction. it's funny because the instruments remind me of what I would consider for a TV set. it makes me wonder who's watching? why are they carving out t-rex' tiny hands with magnificent dexterity? what I mean is, it looks like they're playing to an audience or trying to impress them. as if the audience that eventually accepts them, is the one they're visualising to come and give them a pat on the back and say "good job" "you're acceptable" "yes, I saw t-rex' hands, they're perfect"
 
 ### what are your differences with steiner?
 ### promethian egregore and science
