@@ -421,6 +421,16 @@ building things changes to where the production facilities are more abstracted w
 
 these games are meant to take days or even weeks. the idea is that the whole team can do the segment evolution and stuff together (moving around in the portals). most of it will be blueprinted out, but you have to imagine that the resource system that the island starts with will be the starting production values to later build combat units. you can make this greedy or not.
 
+### replay mode
+
+one thing that would be really fun would be a simulation mode where you can "save" a game as a list of actions through time. when I load it, I can move forward and backward in time and see the actions that were made.
+
+all interactions can then be edited and or added. this technically "invalidates" the rest of the actions save file so it's necessary to either delete those actions (ie go into real-time/saving mode), or let the replay go as far as forward in time still performing the same actions.
+
+this would also be pretty cool if I just realised something in my setup that could be fixed much nearer to the problem  start. this could allow me to tighten up my saves as I progress through the challenge... in general, this feature is best to be able to go back in time, fix the error and then replay all of my actions since then (cause usually I'm working on something other than the problem).
+
+
+
 ### mod ideas
 
 #### captain's goals

@@ -1595,4 +1595,7 @@ let's try p.
 
 mr azkath is tricky, you know... it has extra data encoded. I will be listening to your reactions...
 
+
+### what are the things I want to be right about?
+
 ### interests diverging and individualisation
