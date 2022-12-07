@@ -19,3 +19,5 @@ we'll actually "understand" each other from an emotional perspective much better
 ### 2022-12-07 15:15 - I'm going to go receive an idea.
 
 brb.
+
+### power structures are mediums
