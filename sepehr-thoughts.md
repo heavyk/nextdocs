@@ -149,3 +149,15 @@ then nothing can create something.
 ### 2022-12-08 23:12 - I get it...
 
 it's really easy to see subatomic as a higher frequency than the physical and all that stuff, but logically, it feels very false for me to say that physical creates things not like itself. everything reproduces after its own kind according to God and law of attraction (so pretty safe this is true). therefore, the only way that it can be true for non-physical to create physical (or viceversa), is if we are also non-physical in physical bodies.
+
+### 2022-12-08 23:58 - wouldn't lucifer be the inner sun?
+
+in the quote of the proper application (harnessing?) the power of the inner sun, he has learned the mystery of (his inner) craft. the seething energies of lucifer are in his hands.
+
+this is the 7st ray male with an inner lucifer (1st ray female). I think he's referring duplicitically to both the inner female and also to the light bringer in the centre of the planet.
+
+the edge of the planet is most signifcantly affected by the sun on the interior, as I think it's what modulates the rotation of the planet, and this is lucifer they're talking about. this energy of the dawn is the energy the ancient egyptians were harnessing.
+
+I think lucifer is none other than inner ana. it's a star that's black as night. it's very very dark because it's a very high frequency and lots of attraction, because when the primordial substance (hydrogen) is very densely compressed, it creates a very very dark black. a living black if you have active eyesight.
+
+the inner star that's pitch black (but does have some sort of red atmosphere apparently) straight up explains all of the dark goddess, earth as a dark cube, stuff in one go.
