@@ -72,6 +72,6 @@ the evens often limit theirselves to see only (or neither) the perspective above
 
 this interplay between 5 (1 even + 4 odds), 7 (4 odds + 3 invisible evens), 7 (4 odds + 2 visible evens + 1 visible even), and 7 (4 odds + 3 evens) looks similar to a picture (painting?) made by frank chester (which I can't find right now of a 5 pointed star extruding into his 7-sided form). I can't find it now, but I think it's "phenomenally authorized" so you can see it.
 
-it looks like we see 7 but 3 (triangle) are invisible, the 5 sees all 4 (square) not invisibly[^1], and only 1 ("the one", singular perspective) visibly. there's one more I explained above, but I can't see it -- the one of 4-2-1 four visible evens, 2 invisible evens/odds, and l visible even/odd.
+it looks like we see 7 but 3 (triangle) are invisible, the 5 sees all 4 (square) not invisibly[^1], and only 1 ("the one", singular perspective) visibly. there's one more I explained above, but I can't see it -- the one of 4-2-1 four visible evens, 2 invisible evens/odds, and 1 visible even/odd.
 
 [1]: words are very hard on this concept. they're visible -- but not really. they're not invisible, but neither fully visible; they're experienced. they make a square, and I'm not sure why because they're supposed to be a pentagram, so that doesn't make sense, I know.
