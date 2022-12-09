@@ -45,3 +45,7 @@ the normal reaction to this is to want to do something about it, but I didn't di
 the thing is, I didn't have that feeling at all. instead, in afterthought there I remembered the idea of the other day where I was suggesting to build an empire based on contrast/drama -- well, that idea also came to me in the moment when previewing the reaction while walking of walmart. my rememberance of that idea of an empire built on contrast made me feel real good, because in such a system, it doesn't matter how much consciousness you have, only that you're having fun/funny/dramatic time; something that makes you feel alive. that's how we all start? that's how every successful person that I know of started, anyway. it began with a feeling of being alive (wanting to do something cool/awesome/fun/impossible) and then seeing where it grews into more. we all want to get back to that feeling of being alive.
 
 my constant feeling of being alive is why I'm so attractive to those successful types. I look like they did ("alive", for lack of better words) before they started to get successful; that youthful nievate. as such, I am actually accomplishing the second path, but doing it from the perspective of someone who found what he was looking for at the end of the path, while still maintiaing the exubernce of someone beginning the path still. one day they'll all get it.
+
+### 2022-12-08 19:38 - so, thankfully I don't have to be relased from the bondage of apetites and impulses...
+
+badum-pusshhh
