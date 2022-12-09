@@ -117,3 +117,31 @@ death is the matra of attraction. this is why desire is so destructive to those 
 ### 2022-12-08 22:42 - by admitting that my theory of reality can prove that physical created non-physical...
 
 my entire theory is a bit suspect. I admit that it's pretty good at explaining stuff -- it just needs that one little miracle to work.
+
+### 2022-12-08 22:56 - I wonder if terence ever wondered...
+
+if he could come up with a theory that just needed one little miracle to get it working, but, other than that, it works. the giggle is that everything we all experiece is all founded on a fallacy of logic. who could argue with that?
+
+---
+
+not a fallacy of logic. we created invisible.
+
+I disagree. it's a fallacy of logic because if physical was the first thing that came (before non-physical). this is absolutely preposterous, because from where did physical come from? it came from our imaginations, which came from concepts, which then came from non-physical. it's circular logic like holy, sanctified, and that other one I can't remember. physical and non-physical circularly define each other. that's not the hierarchy you were looking for.
+
+something cannot create nothing.
+something has to create more somethings like itself.
+if not, something does not exist.
+
+nothing cannot create something.
+nothing can only create more nothing, like itself.
+
+physical cannot create nothing.
+physical has to create more physicals like itself.
+if not, physical does not exist.
+
+non-physical cannot create physical.
+non-physical can only create more non-physical,
+like itself.
+
+if we created non-physical,
+then nothing can create something.
