@@ -85,6 +85,35 @@ the important thing to know any more about this concept is that he promethian pe
 
 what I think will happen and to emerge out of this is actually a new thing which I think I defined the other night as constant novelty, rathar than constant contrast. the nice thing about constant novelty, is it allows contrast to be variable. there's no threat to any part of society if you have constant inflation in the form of novelty. a good 2% novelty inflation is a great stabiliser. if at some point we need to adjust the novelty inflation ratio, because soemone needs to print some oppsie cash, then it's possible to adjust the novelty inflation ratio to whatever is necessary. people be like, "woah dawg, slow down on the cool new stuff"
 
+### 2022-12-09 15:44 - the desire to be right
 
+the desire to be right is an important part of the promethian perspective. in fact, it's the most important perspective. when you want to feel good, this is the state of non-resistance, and so I experiennce life in a dream-like state. things move in and out and I don't really know why they're there. I hate the dream state personally. I like being *alive*, and in order to be alive you have to feel alive.
+
+we can give thanks to the titans for this desire to be right. when we're "doing the right thing" (that is in harmony with the established system), then we feel really good. the difficulty with that setup is that "right" is largely determined by many social and political factors (politeness, etc). it's a giant mess of systems used to control and inspire *behaviour*. it's a 3rd ray system so it's all about action, commands, order, formulas and calculations.
+
+this 3rd ray perspective that the original martian/atlantian overlord DNA has (the coneheads), and it was the aryans that figured how to accomplish that 3rd ray perspective in the DNA of the slave class. this was a huge overturning of power because it came with some extra conceptual advantages (addtions from vulcan), and stuff.
+
+the epimethian-perspcetive *is* the 3rd ray perspective. it wasn't until I too made that symbolic and calculatory connection (working in tuenti, programming, and other stuff) that I developed the conceptual and symbolic mentation necessary to gain the promethian perspective.
+
+
+lots of people want to be right, but they don't really know why they want to be right. as such, these desires to be right stay down in astral, emotional/conceptual, balance/fairness, or symbolic reasons, never letting the "big picture" that they're right about have so much evidence for it, that it *has* to manifest. when desire for something increases to a high enough amount, or there are sufficient justifications for why you're right -- and I don't mean any of the real, imaginary, emotional, conceptual or symbolic reasons -- I mean things that make it impossible for reality to continue on the way they were currently going. this is the archetype of mithras I believe where something has happened which makes it impossible to keep going that way, and so then a change *has* to happen; mithras shows up and then things are never the same again.
+
+for me, this happened as I was having my ability to use my eyes and ears properly challenged by some ideas that resisted the change, and that set into motion a number of events that I have to be right about. it's really annoying from everyone else's perspective. the sense I get is they want to like me, but they can't because I'm right about something that shreds their version of reality. I'm not totally sure, actually -- I mainly wanted to point out that my necessity to be right and their inability to like me *because* I'm right, means that we continue on until the system breaks. this is the power of being right.
+
+the best examples of two sides desire to be right is with wars. two or more sides will continue on until the death for what they believe is right. the result is usually that neither system wins, but results an a new or unexpected system. I know the "illuminati" use controlled conflict to create controlled results, which is sorta like saying sex and money are freedom. the controled conflict *is* two sides wanting to be right, and it will produce a new thing, so the way the illuminati does it is they schedule who is going to be right -- and for how long. they play these games all over the place from sport to economics, ensuring that nobody is too long of a losing streak. this is how they keep you in their system of what is right and wrong...
+
+however, when you are no longer accepting commands from those determinining what is right anymore, you have all of the power (so long as you're actually right about it). the reason why nobody is ever really right like I am, is because everyone else has "dirt" that can be brought up. I have nothing to hide, so for me truth and righteousness are sorta my game. they can try and tell me I'm not right for a while, but because I'm *actually* right (not justified by ideological, imaginary, emotional, concptual, evenness, or symbolic reasons).
+
+then, I'm listening to LEFTL a lot and this one song "take the fire back" keeps getting stuck in my head and seriah keeps playing promethian songs, and I'm starting to really start to get this idea that I need to take the fire back. don't tell me what's right and wrong; I'll decide what's right and wrong. (the song is like -- don't unsult my intelligence with bullshit explanations I'll tell you that's not what happened on JFK based on evidence, etc -- another seriah topic)
+
+it kinda gets into my head that I really need to take the fire back and start telling others that I'm right. thanks worm quartet -- seriously :)
+
+I want to report that being right, when you're actually right about it, it's the most alive feeling ever[^1]. I can *understand* and see any part of the universe *from its perspective*. the supra imaginal.
+
+---
+
+so, here's the thing -- is that in some ways, I kinda don't want to push anyone to do anything. I imagine my decision to decide to be right about everything all of a sudden is probably inconvient for some. oh, it's probably the single most repulsive thing to the snake-bros, so I imagine it's attracted in the sense that they did desire to keep us not talking. those sorts of things add up. it's all attraction.
+
+[1]: I just noticed that this feeling is kinda similar to coke. coke may be a artificial similarity. on coke I've seen people's need to be right greatly increased. mine was not so much then, but I dunno about now.
 
 ### balancing the fractal -- everything's detail isn't important so long as it matches/balances the fractal
