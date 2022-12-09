@@ -148,4 +148,4 @@ then nothing can create something.
 
 ### 2022-12-08 23:12 - I get it...
 
-it's really easy to see subatomic as a higher frequency than the physical and all that stuff, but logically, it feels very false for me to say that physical creates things not like itself. everything reproduces after its own kind according to God and law of attraction (so pretty safe this is true). so, the only way that it can be true that non-physical to create physical (or viceversa), is if we are non-physical in physical bodies.
+it's really easy to see subatomic as a higher frequency than the physical and all that stuff, but logically, it feels very false for me to say that physical creates things not like itself. everything reproduces after its own kind according to God and law of attraction (so pretty safe this is true). therefore, the only way that it can be true that non-physical to create physical (or viceversa), is if we are also non-physical in physical bodies.
