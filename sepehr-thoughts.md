@@ -49,3 +49,21 @@ my constant feeling of being alive is why I'm so attractive to those successful 
 ### 2022-12-08 19:38 - so, thankfully I don't have to be relased from the bondage of apetites and impulses...
 
 badum-pusshhh
+
+### 2022-12-08 19:54 - it's the process, not the destination
+
+this can be seen for a lot of religious things, most notably fasting. the abstinance process is the process of taking something that feels out of control (in attracting wanted or unwanted), and begins a fast, boycot, or abstinence, to try and regain control over the thing. this process has manifest in everything to relgious symbols to protests/manifestaciones.
+
+you see, it's not the goal to rid oneself of all physical pleasure, because by doing so, you're really limiting your experience. in actuality, what is happening is that you are making your desires no longer *depend* on this thing/person/event/substance/symbol to satisfy the desire. you are saying that your desire (what you want) is no longer regulated or manipulated by this thing anymore, and so you boycot or abstain from whatever it is.
+
+when you no longer feel steered, driven, lead, or coearced by this thing (whatever it is), then it no longer has power over you. *you* decide what you want. you are stronger than the concept.
+
+diffrent concepts/egregores have stronger feelings to them, and so it's a difficult thing to superimpose my will over such a strong feeling impulse (like programming) -- and all those that tell you to use willpower are the illuminated ones. for them, willpower works, because they're on a higher plane than the egregore (these are the evens).
+
+let me touch a bit on this... I've noticed that some people tend to see mostly either from the even (2-4-6) or from the odd (1-3-5-7) perspective.
+
+the evens tend to not like to get their hands dirty and do any difficult physical work. they tend to see theirselves as visionaries and successful and impactful people. their impact is their notoriety. in short, these mostly see theirselves through the perspective of others.
+
+in contrast, the evens tend to see theirselves more through their own eyes. they consider others' opinions strongly, but usually, they've kinda figured out what's what and so they have their system. some of our system is based on desire, some part symbolic/calculatory/timelines, some based on concepts (what we think stuff is), and what we think the physical stuff works like. these tend to be the scientists, engineers, workers, etc. they actually "do" things, as opposed to thinking about it.
+
+what's interesting about this is that most of evens can see the perspective above or below them (2, 4, or 6) pretty well, *if they want to* -- but not unless they want to or have a need for it. they prefer to see the illusion rathar than to get their hands dirty out in the "reality" layers. 2, 4, 6 layers are all a superreality sort of perception. we cause until I discovered the promethian (2nd ray) perspective I also only saw even rays). evens see plain reality and the odds see super reality. the odds can see the perspective above or below them, so they're limited to 3 perspectives. evens, in contrary can perceive all of the 4 primary/even realities (1-3-5-7) without any difficulty, so we actually have a perspective advantage (4 vs 3), and if you are willing, like me, to accept the even realities as being non-visual, then you get access to all 7, which is a significant advantage (7 vs 3). the odds can find a way to see all 5 (7 minus the other 2 evens) too if they want. it looks to me like a weird symmetry of 5 and 7 that is illustrated in frank chester's picture (which I can't find now of a 5 pointed star extruding into his 7-sided form). I can't find it now, but I think it's "phenominally authorized" so you can see it.
