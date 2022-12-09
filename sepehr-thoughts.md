@@ -171,3 +171,9 @@ the most potent force for us 7th ray males is 1st ray desire, so when we figure 
 you desire, so it has to become a reality.
 that's change you're looking for.
 you just have to find it.
+
+### 2022-12-09 00:55 - ein sof is a concept just like you are.
+
+so, let's make a race of humans where programmed in them, is the concept of yourself instead of YHVH as that ein sof in their DNA. then, you incarnate into the race, and everyone looks at you like God, because you have a very similar concept to their pre-programmed god/pleasure feeling, so they're all really glad to see you. crazy idea, huh?
+
+do you wonder if early humans had the concept of anu, enki, and enlil pre-installed into their DNA to evoke a sense of wonder, pleasure, excitement, etc. it's likely that zeus was so much of a rapist, as they were naturally drawn to him, thinking he is somehow "god". thanks vulcan.
