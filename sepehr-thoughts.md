@@ -156,15 +156,15 @@ in the quote of the proper application (harnessing?) the power of the inner sun,
 
 this is the 7st ray male with an inner lucifer (1st ray female). I think he's referring duplicitically to both the inner female and also to the light bringer in the centre of the planet.
 
-the edge of the planet is most signifcantly affected by the sun on the interior, as I think it's what modulates the rotation of the planet, and this is lucifer they're talking about. this energy of the dawn is the energy the ancient egyptians were harnessing.
+the edge of the planet is most signifcantly affected by the sun on the interior, as I think it's what modulates the rotation of the planet, and I'm fairly certain this inner star is lucifer manley is talking about. the energy of the dawn is the energy the ancient egyptians were harnessing. it comes from the inner sun, and is an upward levity coming out of the planet most powerful during dawn.
 
-I think lucifer is none other than inner ana. it's a star that's black as night. it's very very dark because it's a very high frequency and lots of attraction, because when the primordial substance (hydrogen) is very densely compressed, it creates a very very dark black. a living black if you have active eyesight.
+I think lucifer is none other than inner ana. it's a star that's black as night. it's very very dark because when the primordial substance (hydrogen) is very densely compressed (very attractive), hydrogen forms into a very very dark black (strong x-rzy emitter like sirius b) cube. a living black if you have active eyesight.
 
-the inner star that's pitch black (but does have some sort of red atmosphere apparently) straight up explains all of the dark goddess, earth as a dark cube, stuff in one go.
+the inner star that's pitch black (which does have some sort of red atmosphere apparently) straight up explains all of the dark goddess, earth as a dark cube, stuff in one go. you could imagine that all the clairvoyant's have gone to look and so that's the mainstream report of what's down there. once you know that stars like sirius b are also probably black cubes at those levels of density/attraction for hydrogen, it get wonderous.
 
 ### 2022-12-09 00:21 - albert pike agrees with me
 
-> there is, in nature, one most potent force by means whereof a single man who could possess himself of it and should know how to direct it, could revonutionase and change the face of the world.
+> there is, in nature, one most potent force by means whereof a single man who could possess himself of it, and should know how to direct it, could revonutionase and change the face of the world.
 
 the most potent force for us 7th ray males is 1st ray desire, so when we figure out the inner 1st ray female thing (the inner star), this is that luciferian energy that albert pike is talking about. by accessing this energy, you will, like me "revolutionise and change the face of the planet"
 
