@@ -164,6 +164,6 @@ the inner star that's pitch black (but does have some sort of red atmosphere app
 
 ### 2022-12-09 00:21 - albert pike agrees with me
 
-> there is, in nature, one most potent force (1st ray) by means whereof a single man who could possess himself of it and should know how to direct it, could revonutionase and change the face of the world.
+> there is, in nature, one most potent force by means whereof a single man who could possess himself of it and should know how to direct it, could revonutionase and change the face of the world.
 
-I'm telling you, most of us are 7th ray males, so if we figure out the inner 1st ray female thing, this is that (luciferian) energy that albert pike is talking about. by accessing this energy, you will, like me "revolutionise and change the face of the planet"
+the most potent force for us 7th ray males, so when we figure out the inner 1st ray female thing (the inner star), this is that luciferian energy that albert pike is talking about. by accessing this energy, you will, like me "revolutionise and change the face of the planet"
