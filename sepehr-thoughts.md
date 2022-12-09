@@ -114,6 +114,6 @@ image twe strings or metronomes next to each other. their vibrations get similar
 
 death is the matra of attraction. this is why desire is so destructive to those in the way of the new attractive thing. attraction doesn't run on the schedule of those running the show. what this means is that the more rapidly these signals approach similarity, they're both moving toward each other at equal speed in time but not space (probably becauase of the way physical is organised).
 
-### 2022-12-08 22:42 - by admitting that my theory of reality states that physical created non-physical...
+### 2022-12-08 22:42 - by admitting that my theory of reality can prove that physical created non-physical...
 
 my entire theory is a bit suspect. I admit that it's pretty good at explaining stuff -- it just needs that one little miracle to work.
