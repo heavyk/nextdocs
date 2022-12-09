@@ -135,7 +135,7 @@ if not, something does not exist.
 nothing cannot create something.
 nothing can only create more nothing, like itself.
 
-physical cannot create nothing.
+physical cannot create non-pysical.
 physical has to create more physicals like itself.
 if not, physical does not exist.
 
