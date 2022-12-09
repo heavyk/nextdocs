@@ -82,9 +82,9 @@ the thing that doesn't have form when the earth was still formless and void is a
 
 ### 2022-12-08 21:27 - ein sof is the precursor to symbol
 
-because of our loss of capacitty to tune to this (this was the language of one reconncted various times in the various towers of babel, phoenix that have crashed so many times). humankind is stranded and we can no longer connect directly (physically) with the concept like we could inthe various towers of babel. to us physical specimen, it looks to us like we've lost that direct connection to God. therfore, because the concept is now *physically* impossible to tune to (you used to be born into it), now one of the ways that various institutions have preserved that "name" of God, is in symbolic form. in combination with the visual preservation of these symbols, that has preserved the concept of God, in symbolic form (see how concept is opposite of symbol?).
+because of our loss of capacitty to tune to this (this was the language of "one" reconncted various times in the various towers of babel, phoenix that have crashed so many times). humankind is stranded and we can no longer connect directly (physically) with the concept like we could inthe various towers of babel. to us physical specimen, it looks to us like we've lost that direct connection to God. therfore, because the concept is now *physically* impossible to tune to (you used to be born into it). one of the ways that various institutions have preserved that "name" of God, is in symbolic form. in combination with the visual preservation of these symbols, that has preserved the concept of God, in symbolic form (see how concept is a conjugate of symbol?).
 
-when we look at ein sof as the concept that we're trying to keep connection to, it looks like the symbols are a concepts' form of preservation, but I posit that there is another way to see this, which is that the concept gave rise to the symbol as a form of preservation.
+when we look at ein sof as the concept that we're trying to maintain our connection to in the various names of God, it looks like the symbols are a concepts' form of preservation, but I posit that there is another way to see this, which is that the concept gave rise to the symbol as a form of preservation.
 
 there is a difference. one of the differences is a physical connection as opposed to a symbolic connection. the physical symbols want to preserve the non-physical symbols, which are conjugates of the non-physical concept.
 
@@ -101,3 +101,9 @@ so if you are one of those that believes you have a conjugate, you have to come 
 I personally have no way to know what became of him, but his version of phyris seems too fantastical. there's no way she couuld be that much better than he is. they will always be the same in perception. you mostly just interact with reflections of yourself anyway, so even if you have a conjugate or not, you have to imagine that (from my perspective here), everyone is always interacting with your conjugate, and it's only the physical automaton that prevents full interaction between conjugate symbols and concepts.
 
 you know that every concept (and that's all of us) is supported and preserved by a set of non-physical symbols that propagate the concept forward in time in the form of concepts which take on a physical form that resonates with the original concepts. we're a mix of all of those symbols and their resulting concepts, so we're sort of self-transformed instantiion of the the ancestor's concepts. we (humans as a whole) are prometheus-5.0 if you want to look at it that way.
+
+### 2022-12-08 22:16 - concept gave rise to the symbol as a form of preservation...
+
+imagine for a moment the concept of me saying that physical produced the non-physical. that's basically what I'm saying. it's logically preposterous.
+
+but it works.
