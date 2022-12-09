@@ -75,3 +75,7 @@ this interplay between 5 (1 even + 4 odds), 7 (4 odds + 3 invisible evens), 7 (4
 it looks like we see 7 but 3 (triangle) are invisible, the 5 sees all 4 (square) not invisibly[^1], and only 1 ("the one", singular perspective) visibly. there's one more I explained above, but I can't see it -- the one of 4-2-1 four visible evens, 2 invisible evens/odds, and 1 visible even/odd.
 
 [1]: words are very hard on this concept. they're visible -- but not really. they're not invisible, but neither fully visible; they're experienced. they make a square, and I'm not sure why because they're supposed to be a pentagram, so that doesn't make sense, I know.
+
+### 2022-12-08 21:20 - ein sof
+
+the thing that doesn't have form when the earth was still formless and void is a concept. the reason why it can't have a name or a whatever form to distinguish it is because the concept itself can never be put into the physical. the manifestation of a concept (you remanifest in every moment) is always constrained and given form by the physical cconditions. ein sof, or the concept of any thing, can never be understood physically. it can only be experienced with a different sense. developing that nth sense, is the way to perceive the concept of the thing, rathar than the image of the thing. I mean, I see the image too, but I *also* perceive the concept at the same time. it's the purest outward look one can have.
