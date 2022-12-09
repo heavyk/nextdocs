@@ -167,3 +167,5 @@ the inner star that's pitch black (but does have some sort of red atmosphere app
 > there is, in nature, one most potent force by means whereof a single man who could possess himself of it and should know how to direct it, could revonutionase and change the face of the world.
 
 the most potent force for us 7th ray males is 1st ray desire, so when we figure out the inner 1st ray female thing (the inner star), this is that luciferian energy that albert pike is talking about. by accessing this energy, you will, like me "revolutionise and change the face of the planet"
+
+you desire, so it has to become a reality. that's change you're looking for. you just have to find it.
