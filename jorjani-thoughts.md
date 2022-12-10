@@ -2348,9 +2348,13 @@ the designer has a lot of diffreent things that we would call "implications" and
 
 ### 2022-12-10 00:54 - (untitled for now)
 
-in the part wheen you said you have these sort of heros (the mythological parts of american popular culture and science fiction) -- which I had an idea on... I don't know if this memory is mine or not, but I had heros too -- but they're not very good to believe in a religious way because I hang my own identity on these heros. I eventually abandoned this way of perceiving heros, and instead just absorbing them I "deeply internalised" their form and character, making it my own, instead of repicating them.
+> the mythological parts of american popular culture and science fiction
 
-as someone who has had a fair bit of religous experience, I'd like to say that religious wants you to replicate (at  most) if you can pass the impossible challenge, so a "mythic religious signifcance for me" could mean replicating, which is limiting or improving. I have to make a better version of it because I perpetually don't like (am dissatisfied with) my own character attributes. to combat such drastic changes (complete reworking of my personality), I just compliment myself often. it's fun :)
+in the part wheen you said you have these sort of heros -- I had an idea which roughly followed yours... I don't know if this memory is mine or not, but I had heros too -- however, heros aren't not very safe to believe in a religious way because I'm hang my own identity on these heros. if they falter (I'm not their author), my character takes a hit too. I eventually abandoned this way of perceiving heros, and instead just absorbing them. I "deeply internalised" anything and anyone as their form and character, making it my own, instead of repicating them. you mentiond this talking about star trek and (something else). it's the internalisation of their "essence" into my character that's a sort of alchemical process for the self-narrator.
+
+I'd also like to mention as someone who has had a fair bit of religous experience, that religious figures want you to replicate (at most, if you can pass the impossible challenge), so a "mythic religious signifcance for me" could mean replicating, which is limiting -- or, improving.
+
+I have to make a better version of my character all the time because I'm perpetually dissatisfied with my own character attributes. so, to combat such drastic changes (complete reworking) of/to my personality, I just compliment myself often. it's fun :) I'm my own biggest cheerleader.
 
 
 ### what are your differences with steiner?
