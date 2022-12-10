@@ -67,3 +67,31 @@ I have made it through excellently in some cases, a lot of situations where I do
 watch for it. I'll show you how I act. I setup the feeling and the symbolic features of the event (monologue, and the points I want to make, anguish, etc) and then it'll just come out naturally.
 
 anyway, my narrators have placed me into a format where I'm to behave like a fully grown newborn that can talk, but only about the things the narrators want me talking about. I guess I could just make more sounds... like the disney characters -- I'll practise my sighs of disapproval and other such dramatic sounds and expressions... good idea.
+
+### 2022-12-09 21:28 - you are all my narrators anyway
+
+by reveling to you (and others) with detailed instructions on its processs, you can use me as a test object of attraction. what this is doing is reversing the process I mentioned where I said that I need to experiment on and run tests on the person I want to interface with well, and instead of running the test on others, I'm telling you how I would run the same tests, but using me as the object of attraction.
+
+this is a fair bit of a conundrum for nosebook because they now are fighting me and my attraction, and also exerting their own (steering) force, they now have to overcome your attractions as well. it'a a fair bit more work for them (not my problem), so why not...
+
+it's going to be some simple experiments that you guys can do to begin attracting the narrative components you want. the simple "theory" of it is that I make the action sequence in my head. I don't really think of them in the form of physical action, but instead movements of energy that come out of my core as I move concepts around in my mind. imagine an an example a love relationship and one is physically moving closer to the other, but the other is pushing them awaw with that feeling force. this is the action side of the conceptual world.
+
+now, for example I'm preparing for a speech. I know the points I want to make, and so I feel each one of them strongly and/or write them down. as I'm writing them down, I feel the that action force making a bridge between those points. then, when I get to the speech, I just move from point to point and the words that come to me are often very inspired. I've adapted that ability to write this in a similar way. I just get the points I want to make and the text fills in. this is the emissive part of the action, but then you (or someone else -- in this case me) has to become receptive to the flow between action points.
+
+the action points for me have always been one of great concern. I have no idea what the hell is going on for most of the time, because everyone is faking their actions all over the place. lots of girls were like that. it made me quit my desire to pursue in any way because it's far too confusing, let me tell you. as a result, I have basically no idea how to operate within someone else's syntax, because it's never "honest". I have no interest in games, so I tend to steer clear of most of that, obviously.
+
+the other obvious difficulty with action points is that they are the conjugate of the conceptual, and so because I'm so focused on the concepts and how I feel, action points are completely off of my radar. they feel forced to me. therefore, I have no idea how you guys are going to get this to work (this is the experiment), because when I'm on the receiving end of action points (nosebook and the steering team have a lot of points to make), these feel very uncomfortable, campy, and downright disingenuous. there's no way for them to get the concept to actually feel good to me. their engineers are hard at work on it, but I've thwarted their efforts pretty well because physical emotion is different than the small voice of the emotion. I'm a lot better at hearing/seeing the concept, so their efforts are pretty obvious to me... do I think that they will ever be able to fake an emotion good enough. not only do I think that they probably can, it's the technology that I want to create.
+
+there isn't really an advantage to getting there first as the space is infinite in size, so no space or performance constraints, because it's all instant/infinite from our perspective -- but it does allow one to feel the interface. nosebook will probably implement the same technology so that it's not felt or someone else wants to feel it (not my problem / that problem already exists). who cares what they want to do. I want to feel it. I want others to feel it too if they want to, and for others to also be able to broadcast as well. huh...
+
+---
+
+anyway, so going back to the experiment, the basic formula that they use (I think) is they take the different concepts and have them interact with eachother using those sort of push forces.
+
+as an aside, desire also feels like a push force too (all non-physical does, which is what separates the atomic from the subatomic), but, it's push feels actually like attraction, and so this perfectly bites the tail of the snake because physical is pure attraction (and very little push -- like fighting in a dream).
+
+---
+
+the thing is, kids do this sort of thing all the time (or at least I did) so they take the dolls (these are the concepts), and then the actions points that they make creates the symbols -- like menaleus bonking anyone not in line with the scepter. it's exactly that, but their current implemention sucks.
+
+peace be with you.
