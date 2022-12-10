@@ -2346,6 +2346,13 @@ it's interesting this designer that they used because it's entirely based on app
 
 the designer has a lot of diffreent things that we would call "implications" and so when a thing was placed into an environment, because all of the frequencies of the other entities are known, along with the environment, then the intceraction can be calculated. this was how many species had their syntax of interaction encoded, by tuning the variables to generate the "proper" (desired) interaction. it's funny because the instruments remind me of what I would consider for a TV set. it makes me wonder who's watching? why are they carving out t-rex' tiny hands with magnificent dexterity? what I mean is, it looks like they're playing to an audience or trying to impress them. as if the audience that eventually accepts them, is the one they're visualising to come and give them a pat on the back and say "good job" "you're acceptable" "yes, I saw t-rex' hands, they're perfect"
 
+### 2022-12-10 00:54 - (untitled for now)
+
+in the part wheen you said you have these sort of heros (the mythological parts of american popular culture and science fiction) -- which I had an idea on... I don't know if this memory is mine or not, but I had heros too -- but they're not very good to believe in a religious way because I hang my own identity on these heros. I eventually abandoned this way of perceiving heros, and instead just absorbing them I "deeply internalised" their form and character, making it my own, instead of repicating them.
+
+as someone who has had a fair bit of religous experience, I'd like to say that religious wants you to replicate (at  most) if you can pass the impossible challenge, so a "mythic religious signifcance for me" could mean replicating, which is limiting or improving. I have to make a better version of it because I perpetually don't like (am dissatisfied with) my own character attributes. to combat such drastic changes (complete reworking of my personality), I just compliment myself often. it's fun :)
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
