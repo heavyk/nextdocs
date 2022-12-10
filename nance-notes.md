@@ -95,3 +95,9 @@ as an aside, desire also feels like a push force too (all non-physical does, whi
 the thing is, kids do this sort of thing all the time (or at least I did) so they take the dolls (these are the concepts), and then the actions points that they make creates the symbols -- like menaleus bonking anyone not in line with the scepter. it's exactly that, but their current implemention sucks.
 
 peace be with you.
+
+### 2022-12-09 22:31 - when you make the pull or push action...
+
+I have a feeling that goes along with it. so like for example, if I wanted to signal to many people (doesn't matter how many) that we need to prepare for something, it's time to make a point, so a small lecture comes up (that's what, like a sequence of 5 concepts or something?) and then the point of the lecture is pushed out to people. that push manifestss in any moment it can happen now, even more than once.
+
+like I said, the push to it has a feel to it, and that feeling can be a sequence of concepts as well as, in the other case, actions... the sequence of concepts is felt in the pushing out, and then later manifests in me as the ... I lost you guys... OK, lol try again later.
