@@ -1595,7 +1595,24 @@ let's try p.
 
 mr azkath is tricky, you know... it has extra data encoded. I will be listening to your reactions...
 
-
 ### what are the things I want to be right about?
+
+### 2022-12-09 16:53 - I just realised what this is all about...
+
+I want to teach anyone who is listening about the universe. you want it to be easy, by looking at the cute girls. the idea here is that my new way of looking at things will be a lot easier to learn from cute girls -- and I won't give you all that excuse (satisfaction). I insist that you all begin to make sense of your reality *without* the cute girls as a distraction. I want you to be *real*. I want to continue to make the physical realm even more HD. I don't mind so much I'm stuck in physical, so I decided I'd start being right about what I want. if I have to use only the physical and don't have an imagination -- no problem, but I'm goin the tech route. I'm going to build out an entire system based around feeling and concept. it's far superior to anything imaginary and calculatory. it's better than a computer, but still *physical* -- and I'm right about it too. is it hard is it to actually try and begin to learn how the universe works.
+
+I'll let you all in on a secret. I'm not super whatever... all of that legends and prophecies and all that other nonsense is put there by time traveling symbolic thieves, trying to take away (steal) your authenticity by prophesying in the past. these prophets get great noteriety because one can "feel" when one is right; and so, when the prophet is somewhat right, they could really feel it back in those days. I think things were more energetically different then.
+
+these guys are always trying to make me look unsomething by explaining/predicting/whatever me so that they can give the narrative of what it is I am.
+
+well, from this perspective:
+
+- I've done this before (many times)
+- no sweat
+- I'm doing just fine and there's actually nothing going wrong
+- it's not my problem
+- lol, wheee
+
+in more defined terms, I'm definitely someone who can navigate time and space consciously. I seem to have a pretty good idea of what everything around me is happening in a desire, symbolic, and conceptual standpoint. my physical is quite lacking, but it's OK, because physical is a conjugate of conteptual. I'm still figureing out "who I am" to some degree. you know, I don't raelly have mine very well defined. I'm kinda anyone to anyone. I explained this the other day as shapeshifter from physical or desire perspective. from that perspective, I am desire. in kenny's perspective, it's like he has ideas of who he is still. he could be anything.
 
 ### interests diverging and individualisation
