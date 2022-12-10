@@ -18,4 +18,18 @@ my intention is to do all of this *technologically* is because they are saying n
 
 ---
 
-so, that went a completely different direction than I wanted to go. sometimes I have to stay on track. I just wanted to give the imagination of writing even more ridiculous epic poetry for a future human race. that'd be dope right? I think it's dope. I'd do it. 
+so, that went a completely different direction than I wanted to go. sometimes I have to stay on track. I just wanted to give the imagination of writing even more ridiculous epic poetry for a future human race. that'd be dope right? I think it's dope. I'd do it.
+
+### 2022-12-09 19:13 - humans are like organisms when they start out
+
+I tond to think of it like mycellium in a mudium/substrate. the organism reachs a stable equillibrium and then continues to grow or die (like mycellium). after enough perturbations in the organism consciousness begins to emerge, like a mushroom sprouting up -- it's like a head starts to form and then it grows to its hight. it's height is determined by some unknown process, and then when it hits that height, it sorta sprays out in some cases. others it's like an umbrella. you can think of the support structures that allow the vela to come out are determind by conceptual and emotional factors (that's my experience anyway), and so our conscious focus can actually change the shape of the mushroom (ref: penis envy). civilisations that begin to emerge in these heads of consciousness are still largely group think because they haven't developed enough mentation of their universe to do more -- and they definitely don't have the *I* am right perspective yet, still adhering to we (the organism) perspective.
+
+---
+
+therefore on their path to become conscious and more individual, it my belief that we learn through a narrative structure. the humans, being naieve, still thinking the gods are so great are willing to try anything. so, awful things get happened depending on how you're tuning the species.
+
+I noticed tonight that the more war there is, the less the individuals of the species want to be right -- because wars (illiad) and petty arguments (shakespere's works) have been great reality authorship to guide our interactions with each other, we must look to see how that effects the resulting *individual*. so, it looks like: the more pointless wars, bloodshed, and domestic disputes that a race can have, the less of a desire to be right the individual will have. what that means is, it will take a monumental set of circumstances to break from the group and become an individual in his rightness.
+
+therefore, I wonder how far this could be taken. like, what if there was a massive race that had billions and billions of years of no need to be right about things, followed by lots and lots of bloodshed, nobody ever will think to be right. it'll be like a beehive. who in the world would ever have the preposterous idea to decide "no, I'm right" in *that* culture? well, probably me.
+
+
