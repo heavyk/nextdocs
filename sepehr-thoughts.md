@@ -50,9 +50,9 @@ my constant feeling of being alive is why I'm so attractive to those successful 
 
 badum-pusshhh
 
-### 2022-12-08 19:54 - it's the process, not the destination
+### 2022-12-08 19:54 - abstinence is the process, not the destination
 
-this can be seen for a lot of religious things, most notably fasting. the abstinance process is the process of taking something that feels out of control (in attracting wanted or unwanted), and begins a fast, boycot, or abstinence, to try and regain control over the thing. this process has manifest in everything to relgious symbols to protests/manifestaciones.
+this can be seen for a lot of religious things, most notably fasting. the abstinence process is the process of taking something that feels out of control (in attracting wanted or unwanted), and begins a fast, boycot, or abstinence, to try and regain control over the thing. this process has manifest in everything to relgious symbols to protests/manifestaciones.
 
 you see, it's not the goal to rid oneself of all physical pleasure, because by doing so, you're really limiting your experience. in actuality, what is happening is that you are making your desires no longer *depend* on this thing/person/event/substance/symbol to satisfy the desire. you are saying that your desire (what you want) is no longer regulated or manipulated by this thing anymore, and so you boycot or abstain from whatever it is.
 
