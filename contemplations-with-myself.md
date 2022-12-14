@@ -59,3 +59,9 @@ this is a bit of a conundrum for me, because I'm totally fine giving them *all* 
 I was thinking about all the stuff I wrote above yesterday, and the reaction that I was getting last night was that they simply don't think it's possible for me to be around all of you guys and/or any girls and not get pulled in by them. I would [need a better reason to maintain abstinance](/sepehr-thoughts.md#2022-12-08-1954---abstinence-is-the-process-not-the-destination), then.
 
 [1]: I like to think about cars that have their parking brakes on. if you have a weak car, it's quite noticeable. however, if you have a powerful motor, you could go for miles before you realise that you've got the parking brake on. it's like jon's description of microprocessors and softwar. the continually increasing power of microprocessors is completely hiding that software is gaining uncontrollably in complexity. our problems are growing but we can't see the problem because hardware is advancing so quickly.
+
+### 2022-12-13 21:48 - whos desire is stronger?
+
+as much as I try to mostly talk to myself here, I notice that it's still a bit of a group conversation. I don't mind that much, cause it still causes me to think about these ideas... the reaction is if I go with girls, when, and stuff like that...
+
+I still keep my idea that I'd like to "get connected" before any girls, because then I'd be using the girls then as a condition to find my connection -- and I don't really want to do that. if I want to use conditions to get connected, I'll go outside and watch stars until my kundalini rises; it's not really that hard. the real question here is whos desire is stronger? is nosebook's desire to keep me held down stronger than other peoples' desire for me to get out from under nosebook (which, depending on how you look at it, is the precursor for cataclysm)?
