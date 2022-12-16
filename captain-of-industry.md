@@ -86,6 +86,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 ### small things
 
+- it seems like the fuel trucks should also load up fuel to the cargo depots and shipyard
+
 - ability to set unity build something as soon as unity and build reqirements are met also the ability to unity transfer specific materials (helpful in the early game to save diesel)
 
 - console command to remove terrain designatons that are greyed out all all sides (leaving only the active ones)
@@ -100,6 +102,8 @@ this opens up an interesting conversation though, which is how the pipe should b
 - I have pickups put on my fuel stations because they carry 20 and are fast. however, even though there are many excavators (27 fuel tank) at 7 or less fuel, the pickup does not refuel.
 
 ### small bugs
+
+- if I am deconstructing a storage of CP2 and it's set to be empty, and then I unity build some belts costing CP2, it'll take the CP2 out of the shipyard before the storage of CP2 (save 0.3.4-1)
 
 - in power statistics panel, the +production and -consumption are confusing. it appears that production is how much power is produced (it's constant for me), meanwhile consumption is the total of all buildings/belts using power (minus the ones that are low power). the demand isn't recorded.
 
