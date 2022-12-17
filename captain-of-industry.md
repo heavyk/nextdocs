@@ -2,8 +2,6 @@
 
 inspired by things I've encountered while playing myself or watching [JD's videos](https://www.youtube.com/c/JDPlays/videos) (or both).
 
-- blueprint mode is extremely hard to see what I'm doing. after a while it just becomes a mess of blue. an option to enable normal view or to show the schematic of the build in a conceptual way would be nice while building.
-
 - in a mess of pipes with many connections, it's difficult to see where it goes. it'd be nice to have a button or something to show the complete path the pipe/belt takes and what resources ports it's connecting to.
 
 - impossible to see the direction a connected pipe is going in blueprint mode. same suggestion as above, putting an arrow on the indicated path, to see the direction
@@ -20,7 +18,6 @@ inspired by things I've encountered while playing myself or watching [JD's video
   - paused
   - etc.
 
-- upgrading a belt with a lot of connections is pretty painful. if there were an upgrade tool (like the unity tool), this process would be a lot easier (click and drag or point and click)
 
 - later on in the game when I have a large population, it doesn't matter so much, but it's annoying to constantly have to adjust the amount of workers on world resources. it'd be cool to set a range of minimum and maximum level for the resource, and also a priority (in case I set a range on more than one)
 
@@ -90,7 +87,7 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - ability to set unity build something as soon as unity and build reqirements are met also the ability to unity transfer specific materials (helpful in the early game to save diesel)
 
-- console command to remove terrain designatons that are greyed out all all sides (leaving only the active ones)
+- console command to remove all terrain designatons that are completely surrounded by blank or at the correct height areas. (leaving only the active ones)
 
 - it'd be really nice to set alarms for settlement modules, to say when the buffer is full. I can put a storage between it and put an alarm on it, so it's low priority, but for limited space circumstances, it's still nice to know when I'm not getting a unity bonus.
   - also would be nice to set alarms for world mines too, so I can know when my trees or oil is getting full or empty
@@ -109,20 +106,15 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - paused buildings with unity boost still cost unity.
 
-- clicking on maintenance percent bar on the right takes me to statistics screen, but not to the maintenance panel
-
 - if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building until I reload from a save.
 
 - when the tree harvester has a tree in its claw, if I tell it to move to another place on the map where it can't go, it gives me the error, then I tell it to go to a new spot it can go. the truck comes to get the tree, the truck gets the wood, but the tree doesn't disappear from the claw. it cuts down another tree still with the tree in its claw. after another truck comes, it's fine again.
 
-# bugs
+### bugs
 
 - bug: I'm not totally sure the conditions which produce this bug. I think it's something to do with scrapping the tree harvestor while he's paused. then if I try to recover him, he goes back to trying to harvest trees, and scrap doesn't do anything, and neither does pause. neither does unselecting the tree he wants to harvest. even more amazingly he can drive under belts and through buildings. it seems like a bad fsm state, probably from trying to scrap while being paused.
 
-- recipe bugs (in general, all of these can probably be pretty easy to find and fix by walking the tech tree (all possible combinations) and seeing if one of the requisite machines are unlocked yet for the recipe and set the dependency correct. kinda easy to fix -- just need to walk the tree):
-  - clicking on the recipe for glass will show me the recipe for making PCB in robotics assembly 2, when I don't even have robotics assembly 1 yet.
-  - the recipe for toxic slurry in wastewater treatment is shown when I right click on brine.
-  - before I have gas combustion tech, it shows me that I can burn hydrogen in the gas boiler (I don't have gas boiler)
+
 
 - it'd be nice if crude oil pumps could have the same notification system as boxes, but no need for the full ones so I can alert if < 30%, 20%, 10%, empty (also see above suggestion for slideable alerts)
 
@@ -162,17 +154,12 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 - small bug: if there are many trucks doing diggers, and one has dirt (for example), it should continue to wait for more dirt instead of going to dump only with a very suboptimal load (like 6 dirt for example). with other trucks waiting, the truck should continue to wait for more dirt (especially if there is still dirt in the mining designation) (TODO: rewrite. confusing english)
 
-- in the statistics, it'd be cool to have a power generation/usage screen like the maintenance, population, health, etc.
-
 - small thing: clicking on the notification for not enough maintenance 1 (2 or 3) doesn't take cycle the camera to my maintenance depots (1, 2, or 3).
-  - it'd also be kinda useful to click on the maintenance progress bar on the right side and have that cycle through the maintenance depots of its type
 
 - default "truck import/export" setting (on / off / auto) for all newly created buildings
 
 - it may be easier to put the mining priority on the mining tower, rathar than the digger
   - if two priorities are set, then the priority is evenly (or make it configurable for picomanagement) split amongst the diggers
-
-- it'd be kinda cool to have a tool that removes all of the outside mining designations that are completely surrounded by blank or at the correct height areas.
 
 - small thing: it would really help if all pipes simplified connecting pieces of the same pipe (ie. med pipe touches med pipe)
 
