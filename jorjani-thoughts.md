@@ -2464,6 +2464,24 @@ reality is a reflection of your concepts, which is how psi/PK works in the first
 
 do what thou wilt, and those that reasonate with what you've done, will also perceive it in their experience. no need for laws or authorities unless you want some sort of constancy or assurance that they (not you) will maintain that order for you.
 
+### 2022-12-19 00:50 - external forces derailing you from your destiny
+
+@[youtube](https://youtu.be/byc-X7AhStE?t=7207)
+
+I just want to note here something that I've learned through the years, because it would also seem to me that certain forces have attempted to derail or prevent me from fulfilling my destiny. my opinion has changed dramatically in the last few years, and I'd like to start by saying that's a victim mentality and perspective to see it that way.
+
+I now believe that it's all attraaction, and the various things that had happened to derail a number of things (like tuenti or raquel or whatever) were actually *self-sabotage* from a higher-self(?) perspective.
+
+those derailings, from a physical perspective appear to have done harm, but in reality, my perspective now is that I wouldn't go back and change them if I could -- meaning, that if I had access to singularity level technologies to go back in time and ensure my success, then move my consciousness into the body on that successful timeline, I wouldn't do it.
+
+in fact, especially in the case of tuenti and raquel and stuff like that, I'm actually glad they didn't happen, and if they had've happened, I would be stuck in a life or job that I don't think would have provided me with nearly as much novelty as I have now. I'll just say this: I wouldn't understand the universe and all of these things I write about now if I were still working on a social network and/or with a stable wife/girlfriend.
+
+it actually seems to me that these superhuman versions of myself (like fwh) that have interacted with me, were sort of like spectral egregores that prevented me from going "the wrong way" into a timeline where I wouldn't be able to achieve my destiny.
+
+imagine for a moment that I did move my consciousness into kenny's body when he was 16 with the intention of going in a direction into the future. it doesn't matter if this is my own desire or a collaborative effort -- let's call this my "destiny" -- and so in order to prevent me from being distracted by these diffeernt "temptations", there are these superhuman egregores that step in and ensure that I don't get locked into a path that doesn't arrive toward my destiny.
+
+one can also repaint the same picture in terms of attraction and say that my "destiny" is so attractive that I am assured to arrive to it, and anything that would prevent me from arriving to my destiny must get derailed.
+
 
 ### what are your differences with steiner?
 ### promethian egregore and science
