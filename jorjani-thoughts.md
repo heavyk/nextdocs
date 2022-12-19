@@ -2494,6 +2494,16 @@ interesting. I like that.
 
 I also like the acknowledgement later on that it's a mistake to sacrifice your true will and deepest intitions for a concern for another person.
 
+### 2022-12-19 01:22 - not interested in saving humanity
+
+I also like this idea too, as I share it as well. I was rather surprised though when you follow it up by saying that "in fact humanity can go to the devil". I felt something strongly there that resonates with me, but it felt kinda good... I don't know what it was, though.
+
+the final followup really surprised me too, which was saying that your book and ideas is for a minority of humankind able to make an evolutionary leap.
+
+just saying... I'll have to think about what I felt, though it felt good (*wink*).
+
+yep dude, follow your true will. compassion is seeing the improvement even though it's not present yet, and pity is seeing the present (awful) situation in spite of a potential improvement. nice.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
