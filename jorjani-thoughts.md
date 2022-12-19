@@ -2394,6 +2394,30 @@ it seems obvious, so I wonder why I'm writing this, so sorry if I'm being redund
 
 michael keeps talking about resonant concepts (celebrities, traumas, archetypes), showing up in our experiences (dreams, everyday experience, etc.)
 
+### 2022-12-18 22:27 - can you sympathise with traditionalism?
+
+@[youtube](https://youtu.be/byc-X7AhStE?t=4221)
+
+I want to try this answer because I see it differently than where jason is going...
+
+traditionalism, or the "divine order" is something that I see as a structure or foundation upon which something is built. for example, in a microprocessor, you *need* to have a divine order or a traditionalist perspcetive (ie a constant/predictable clock rate), or in music, it's nice to have a stable rhythm. both microprocessors and music lose their impact without something stable and constant to work with.
+
+we all want faster speeds on our CPUs, so a faster clock rate is desirable, but the jump from a stable slower clockrate to a stable faster clockrate needs to be a transition which does not bring down the whole machine. for example, nowadays, microprocessors can adjust their clock rate to consume less power, but that was not always the case. in computers a few decades ago, if you increased the clock rate even a little bit while the machine is running, it would be a cascading disaster of misaligned timings.
+
+this is the 3rd ray perspective btw. many aspects of society, namely manufacturing and production, metrology, rely on precision and stablity of the "divine order" of their operatingv environment in order to function properly.
+
+I can see jason's perspective where he doesn't want to be locked into a constant clock rate of novelty, advancement, etc. for the rest of his life -- and I can see the traditionalist perspective (in jason's definition), where the "singularity" is terrifying, because it means unbounded acceleration.
+
+what I propose, and the way I sympathise with the traditionalist perspective, is that constancy and stablility is desirable, but so is expansion. therefore, I feel like we should aim to have seemless upgades and transitions between versions.
+
+if we look at "divine order" from a software development standpoint, it becomes a nodejs disaster if packages and their apis are constantly changing without any divine order to them. when I write something that uses an API, I can't have it go changing around on me, else the software stops working. the way google solves this is to go the difive order way, and states that all software has to work with trunk (the latest version) -- and so everything committed has to conform to the divine order, which is itself always changing. any breaking changes have all of the dependencies changed right along with the change in the divine order.
+
+the alternative to this is compartmentalised packages each with their own versions (ex v1.2.3) and changes are only compatible up to the last number (so, 1.2.4 is compatbile, but 1.3.1 will not be). this sounds nice, but it creates "dependency hell".
+
+it'd be nice honestly, if governments and religions were to be run like google, where their divine order is a moving target, but always functioning properly. however, reality dosn't run exactly like this.
+
+if we were to reimagine each version as a frequency instead of a number, each version is itself a frequency representation of its api, one could see compatibility between versions based on resonance between the various versions in the part of the frequency where compatibility is necessary. that could potentially work as an update to the traditionalist perspective, though, like I said, google is already doing the traditionalist perspective better than any religion or government I have knowledge of.
+
 
 
 ### what are your differences with steiner?
