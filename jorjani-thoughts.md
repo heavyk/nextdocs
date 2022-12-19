@@ -2436,7 +2436,15 @@ I see both stories as quite plausible (considering each are narrated from their 
 
 the so called "INFECTED ONES" are the traditionalist perspective incarnate. they want things to remain the same, keep the established hierarchy at all costs, etc. and from the creator's perspective, they refuse to rehabilite to get into alignment with the universe; a classic case of pointing out your own problem in someone else. therefore, the creators want to rehabilitate the INFECTED ONES to get back in line with the "right way" of the universe.
 
-this galaxy was constructed as a reflection of the INFECTED ONES so they would be attracted to it, and it's here that we're going to be changing our version of what the traditionalist perspective is. I'll continue later. lots of reactions.
+this galaxy was constructed as a reflection of the INFECTED ONES so they would be attracted to it, and it's here that we're going to be changing our version of what the traditionalist perspective is. I'll continue that thought later. lots of reactions.
+
+---
+
+(back to the video) the idea that these biological robots are created beings (by us), gives rise to the idea that these newly create beings exist outside of this indestructible soul of atman/jehovih, and so they're a sort of violation of this pyramidal hierarchy set into place by the atman/jehovih.
+
+jehovih, I believe, is a [glactic strawman](/oahspe/thoughts.md#galactic-strawman), which, like zeus, presents such an awful concept of how reality should be, it's not to accept the olympian (first rebels against jehovih) perspective, or the atman/jehovih perspective either, but to come to realise that we are ourselves creators, and that we create all aspects of realitity, including biological robots as a reflection of or conceptualisation of reality.
+
+we are definitely NOT forced to continue to conform to this indestructible soul of atman/jehovih. btw, you see two bad ideas facing off against each other, and we're supposed to pick between two bad ideas all the time in politics, etc. I believe the concept of having to choose between two bad ideas is the nature of this galaxy, which is why it's one of the reoccurring (resonant) concepts we continually deal with in our reality (in triads, this is the female vs the emitter/demiurge).
 
 ### what are your differences with steiner?
 ### promethian egregore and science
