@@ -2378,6 +2378,14 @@ I'd also like to mention as someone who has had a fair bit of religous experienc
 
 I have to make a better version of my character all the time because I'm perpetually dissatisfied with my own character attributes. so, to combat such drastic changes (complete reworking) of/to my personality, I just compliment myself often. it's fun :) I'm my own biggest cheerleader, you know.
 
+### 2022-12-18 21:58 - what draws children to archetypal power?
+
+@[youtebe](https://youtu.be/byc-X7AhStE?t=3723)
+
+personally, I don't remember ever having had any past life memories or anything of that nature. however, I have been quite drawn toward some types of people of quite similar nature to myself.
+
+the archetypes are the symbols, and they have a number of concepts which can play out in those symbolic interactions. so, for example, I felt quite a bit of resonance with tesla on some aspects, yet obviously not on all aspects. I know others (including you), have also voiced similarity to tesla additionally. these, I beleive are similarity in the resonances of the conecpts OR the symbols -- meaning that we're attracted to things that resonate with us, and so "what draws children to archetypal power" -- the answer is simply that they have not yet the resistance to keep them away from the attraction of those archetypes. simply put, they've not been sufficiently defined by theirselves and others yet, to have enough of a distinction of theirself as different to conclude that they are *not* the archetype. adults unfortunately have had years of self-definition and societal and social definitions which build up barriers (resistance) to identifying with these archetypal powers.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
