@@ -2446,6 +2446,25 @@ jehovih, I believe, is a [glactic strawman](/oahspe/thoughts.md#galactic-strawma
 
 we are definitely NOT forced to continue to conform to this indestructible soul of atman/jehovih. btw, you see two bad ideas facing off against each other, and we're supposed to pick between two bad ideas all the time in politics, etc. I believe the concept of having to choose between two bad ideas is the nature of this galaxy, which is why it's one of the reoccurring (resonant) concepts we continually deal with in our reality (in triads, this is the female vs the emitter/demiurge).
 
+### 2022-12-19 00:30 - anarchy and PK
+
+on one hand, you have the concept of belial:
+
+- without values
+- without law
+- without God
+
+which all seems fine, but then jason turns around and says that we need to have PK and psi training so as to not dirupt the organised flow of society. these concepts seem a bit contradictory to eachother. I personally of the belial viewpoint, seeing no problem with someone with a belial perspective having access to PK and psi capabilities. for this reason, I don't think there needs to be a training (which will soon become "how psi/PK should be used prperly" aka the divine order of psi/PK). such a divine order of how to use psi capabailities, I believe will dramatically reduce the amount of novel techniques and procedures involved with psi and PK. it would become the new form of ceremonial and ritual magick, having a "proper" way do to do a summoning or incantation. no thanks.
+
+the reason why I can have such a dramatically open perspective to anything psi related is because I know that it's all attraction. nobody will be splitting my jugular vein with PK, unless in some way I have attracted it, and so if I did, then it'll work; otherwise, they'll wave their hands around and nothing can happen. why? because my own concepts of reality prevents a manifestation that does not resonate with my concepts in them.
+
+if you want to teach or train anything, it would be that it's all attraction, and then in that case it's perfecttly fine to have a lawless society, without a controlling authority (be it God or anyone else).
+
+reality is a reflection of your concepts, which is how psi/PK works in the first place. I tune into something or a thought/idea resonates with the frequency my consciousness is on, and it's called telepathy. if I don't want to receive those telepathic ideas anymore, I simply tune somewhere else, or conceptualise my world in a different way. I fully support belial.
+
+do what thou wilt, and those that reasonate with what you've done, will also perceive it in their experience. no need for laws or authorities unless you want some sort of constancy or assurance that they (not you) will maintain that order for you.
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
