@@ -2418,7 +2418,25 @@ it'd be nice honestly, if governments and religions were to be run like google, 
 
 if we were to reimagine each version as a frequency instead of a number, each version is itself a frequency representation of its api, one could see compatibility between versions based on resonance between the various versions in the part of the frequency where compatibility is necessary. that could potentially work as an update to the traditionalist perspective, though, like I said, google is already doing the traditionalist perspective better than any religion or government I have knowledge of.
 
+### 2022-12-18 23:18 - the universal atman or indestructable soul that belongs to brahma
 
+@[youtube](https://youtu.be/byc-X7AhStE?t=5897)
+
+as jason is talking in this section, I'm constantly reminded of OAHSPE. in OAHSPE, there is a universal "God", jehovih (spelled with an i), and I've read enough of the enormous tome to sort of agree with what it says (if you look at it like I do). let me explain: imagine this galaxy that we live in and we'll call it jehovih. he is the conscience or divine order of the galaxy, and he has inherited a number of astral entities from all over the universe, and jehovih's job is to bring those rebel souls into alignment with him. as such, the earth was created in a place where there are these periodic times when jehovih's angels can physically manifest along with humans, and supposedly we're entereing one of those times now. those times are called "harvests" and the size of the harvest is determined by how many souls can be brought into alignment with jehovih.
+
+that's your pyramidal hierarcy right there, and I think this jehovih entity which I've correlated with this galaxy, does exist and has a large number of angels in his service which are here on earth trying to get us back into alignment with the divine order of jehovih. that's your traditionalist perspective right there.
+
+it's kind of strange how the book has these rebellions against jehovih and I don't think it names atlantis directly, but there are a number of references to all your traditionalist legends, even to zarathustra, and other rebellious ones (aparently osiris was one). the interesting thing about the book is, for example, osiris was a son of jehovih and was appointed by jehovih to be a God, but then there was another dual or rebellious osiris that went against jehovih by illegitimately declarting himself "God". the strange thing is that most of all of the big names which bring so much glory to jehovih in the harvests, seem to have a dual aspect which also causes jehovih much grief. there are a lot of mirrors to the story, but what I wanted to say here is that the main propoents of the jehovih's traditionalist perspective seem to kind of flip and turn on him later.
+
+the whole story is also quite interesting in how it correlates with kuthumi's extraterrestrial view of creation. same thing -- astral entites all over the unvierse, a created galaxy with a physical plane (jehovih), and these astral entities are attracted to the galaxy (meaning the resonate with jehovih, the concept of the galaxy), and a bunch of other creator gods also are born into civilisations inside the galaxy, great wars happen and most of the galaxy (planets and stars) are destroyed, se the two factions are at opposite ends of the galaxy at odds with each other (earth is on one side), and we're the place where rehabilitation is taking place...
+
+I see both stories as quite plausible (considering each are narrated from their perspective, kuthumi also being one of these astral entities), but my perspective is a bit different which is what I wanted to relate.
+
+---
+
+the so called "INFECTED ONES" are the traditionalist perspective incarnate. they want things to remain the same, keep the established hierarchy at all costs, etc. and from the creator's perspective, they refuse to rehabilite to get into alignment with the universe; a classic case of pointing out your own problem in someone else. therefore, the creators want to rehabilitate the INFECTED ONES to get back in line with the "right way" of the universe.
+
+this galaxy was constructed as a reflection of the INFECTED ONES so they would be attracted to it, and it's here that we're going to be changing our version of what the traditionalist perspective is. I'll continue later. lots of reactions.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
