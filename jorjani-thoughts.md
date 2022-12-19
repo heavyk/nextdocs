@@ -2386,6 +2386,16 @@ personally, I don't remember ever having had any past life memories or anything 
 
 the archetypes are the symbols, and they have a number of concepts which can play out in those symbolic interactions. so, for example, I felt quite a bit of resonance with tesla on some aspects, yet obviously not on all aspects. I know others (including you), have also voiced similarity to tesla additionally. these, I beleive are similarity in the resonances of the conecpts OR the symbols -- meaning that we're attracted to things that resonate with us, and so "what draws children to archetypal power" -- the answer is simply that they have not yet the resistance to keep them away from the attraction of those archetypes. simply put, they've not been sufficiently defined by theirselves and others yet, to have enough of a distinction of theirself as different to conclude that they are *not* the archetype. adults unfortunately have had years of self-definition and societal and social definitions which build up barriers (resistance) to identifying with these archetypal powers.
 
+### 2022-12-18 22:11 - trauma and opening up the psyche to transpersonal energies
+
+@[youtube](https://youtu.be/byc-X7AhStE?t=3760)
+
+it seems obvious, so I wonder why I'm writing this, so sorry if I'm being redundant. however, trauma and other initiation rituals have stronger emotional/conceptual energy attached to them. what happens is, the person says either, "this hurts, so I'm going to find a new thing that feels better" or "this feels good, so I'll consider defining myself in terms of the concept which feels good" (pretty easy to see in sexual encounters).
+
+michael keeps talking about resonant concepts (celebrities, traumas, archetypes), showing up in our experiences (dreams, everyday experience, etc.)
+
+
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
