@@ -2482,6 +2482,17 @@ imagine for a moment that I did move my consciousness into kenny's body when he 
 
 one can also repaint the same picture in terms of attraction and say that my "destiny" is so attractive that I am assured to arrive to it, and anything that would prevent me from arriving to my destiny must get derailed.
 
+### 2022-12-19 01:10 - one must never betray one's deepest intuitions or will for oneself
+
+that's a paraphrase of the concept that you (jason) emitted when talking about nietzsche. when you said it, it hit me pretty hard and I recognised it as similar to the feeling I felt as a reaction to my thoughts on tesla being stuck in his hotel room. it was at that time also that I felt that this constant self-betrayal of one's intuitions has been a reoccurring theme.
+
+---
+
+just listened again and this time the part not doing something that turns you into a fraud stood out to me, as if felt to me like the "will" for yourself that you spoke about is one of being a straight-shooter.
+
+interesting. I like that.
+
+I also like the acknowledgement later on that it's a mistake to sacrifice your true will and deepest intitions for a concern for another person.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
