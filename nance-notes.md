@@ -431,3 +431,12 @@ she simply waits for it to happen
 as if the universe *owes* it to her;
 
 ...obviously very patiently and steady in her emotion :)
+
+### 2022-12-20 06:30 - the universe owes it to her
+
+actually, she deserves it.
+really, she just wanted it.
+a girl that can do that
+ia probably worthy.
+really, it was just cause she wanted it.
+no other reason at all.
