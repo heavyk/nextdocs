@@ -396,10 +396,38 @@ when cordelia is talking she cannot relate the narrative in a temporally coheren
 
 ### 2022-12-20 05:56 - shepherds
 
-I've never been to keen on the idea of shepherding. it's not my bag. I stand as a pillar of example and action. I don't need to shepherd anyone, as anyone who wants to follow will naturally stay attracted to me.
+I've never been too keen on the idea of shepherding;
+it's not my bag.
+I stand as a pillar of example and action.
+I don't need to shepherd anyone,
+as anyone who wants to follow
+will naturally stay attracted to me.
 
-I suppose that idea may come as a surprise that I find that concept inferior. I've improved greatly on that idea. I wouldn't be where I am today if I had've sherherded.
+I suppose it may come as a surprise
+that I find the concept
+of shepherding inferior.
+I've improved greatly on it.
+I wouldn't be where I am today
+if I had've sherherded.
 
 ---
 
-so here's the thing which now that I have helena somcwhat figured out, I can use her. she wants to be shepherded. helena in the form which I now embody and therefore attract, is not interested in shepherding anyone, not even her self. she's pure desire. she just waits for it to happen as if the universe *owes* it to her; obviously very patiently and steady in her emotion.
+now that I have helena somcwhat figured out,
+I can use her.
+
+helena wants to be shepherded.
+helena placed inside
+the conceptual structure
+I now embody (and therefore
+attract from others),
+is not interested in shepherding anybody;
+even her self.
+
+when helena knows the difference
+between *I* thouhts and other thoughts,
+helena is pure desire.
+
+she simply waits for it to happen
+as if the universe *owes* it to her;
+
+...obviously very patiently and steady in her emotion :)
