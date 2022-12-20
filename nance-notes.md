@@ -440,3 +440,9 @@ a girl that can do that
 ia probably worthy.
 really, it was just cause she wanted it.
 no other reason at all.
+
+### 2022-12-20 06:35 - you know another thing I really dislike about shepherds
+
+I've been conditioned from the tick and el planto, to compost guy and the landscape architect, I'm dealing with plants, not animals. I'm an agrarian figure in how I have seed ideas that grow bigger and flourish, just as all concepts do, cause all concepts are living organisations in a higher dimensional space.
+
+trying to fit me into a shepherding outfit will me a massive disaster. prepare for them comedy.
