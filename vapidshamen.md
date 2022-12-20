@@ -191,3 +191,11 @@ if we can hook into this technologically, this is that third possibility in the 
 long and actually kinda unnecessary at parts second intro.this whole thing about becoming the new solar regime, is based on the 3rd ray (throat) aspect, because the sun, being a 2nd ray, takes in 1st ray with is the chaos of frequencies from vibrational collisions (1st) and pumps that into the 3rd ray computer that spit out concepts on the other side. the system is defined as a bunch of concpts of frequency resonances. we just make our own. I imagine it'll be a group effort, and I'm sure lots of fingers are going to be trying to get an advantage for theirselves -- which is totally fine.
 
 imagine for a moment you're inifinity minus one million, compared to your friend who's at infinity minus one thousand. you now have a new ladder to climb. the medium is the message.
+
+### 2022-12-20 02:47 - I have to find a way to become bert
+
+@[youtube](https://youtu.be/Rd0IDS14ivg)
+
+I fired up this video and a number of things happneed, but I arrived at the concept that I have to figure out how to become bert. or, if I think about it backwards, I have to reinvent bert/bret.
+
+I don't really know where to begin. I'm just writing this to make the concept more physical. it'll come up again soon.
