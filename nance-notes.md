@@ -315,8 +315,9 @@ without a good reason for it.
 without a justification either.
 just cause.
 
-does it always have to obey all the rules?
-breakin the law
-breakin the law
+does it have to always obey all the rules?
+rules are nothing more than suggestions anyway
 the new divine order,
 just as you please.
+
+divine suggestions, just as you please
