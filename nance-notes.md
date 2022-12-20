@@ -204,5 +204,15 @@ no need to control.
 
 ### 2022-12-19 22:41 - if I inconvenience myself for him
 
-maybe then I can get what I want.
+and give him some space;
+maybe then he'll want me.
 
+I need to be the one
+that's inconvienced.
+
+I want to be close,
+but he stays so far away.
+
+---
+
+maybe then I can get what I want.
