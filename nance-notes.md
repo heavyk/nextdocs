@@ -158,3 +158,9 @@ not like these optimistic psycho chicks.
 girls are like an anchor.
 it's very unfortunate.
 let's do something even more unfortunate.
+
+### 2022-12-19 22:07 - snooty women of upper class
+
+looking down on the peasants.
+I'll lie to her because I don't like
+she has more ambition than I.
