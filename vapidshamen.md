@@ -142,6 +142,8 @@ somehow, it looks like there was this transition. I think jason speaks of it whe
 
 so basically, I'm on the same frequency as all of the scoundrals basically since atlantis. we intercommunicate telepathtically really really easily, which has been a bit of a problem they're still solving. looking at it logically now, it seems fairly obvious that this race of scoundrals is the "aryan" race. the most powerful have temperment and attract very strongly, but I never gained temperent, so I keep attracting stronger and stronger all the time.
 
+I'm done for now.. need a break.
+
 I
 
 ---
