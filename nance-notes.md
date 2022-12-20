@@ -164,3 +164,17 @@ let's do something even more unfortunate.
 looking down on the peasants.
 I'll lie to her because I don't like
 she has more ambition than I.
+
+### 2022-12-19 22:10 - upset!
+
+nobody likes me!
+I'm a bad guy.
+I don't deserve such a desirable woman
+such as yourself.
+
+### 2022-12-19 22:13 - always rejected!
+
+never good enough.
+I was sure that he was how I ought him to be
+cause everything else I ought to be came to me
+I'm certain I'm what went wrong.
