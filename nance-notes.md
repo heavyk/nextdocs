@@ -244,3 +244,12 @@ he never will now.
 what if he doesn't need me?
 he din't before,
 and even less now.
+
+### 2022-12-19 22:58 - let's make a worthiness strawman:
+
+if I can't get what I want,
+the way I want it --
+especially the way I want it --
+I'm probably not worthy.
+
+if I could only be more worthy...
