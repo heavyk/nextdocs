@@ -130,6 +130,8 @@ you know, there's like this whole syntax to it, because words are saying one thi
 
 [1]: a theory, etc. for me imaine is a funny word for me to use and it's very misleading because there's no image to it. I access my probabilities through "image" parts of my brain, so it's basically what I think is most likely. I'm often incorrect, but the goal is to shoot from the hip and pretend like I hit the target, lol. I think I learned that from noah.
 
+## all's well that ends well.
+
 ### 2022-12-19 21:46 - next we start these girls out...
 
 this archetype of helena is a model for women that want to desire these types of less then desirable jerks.
