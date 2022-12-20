@@ -250,6 +250,7 @@ and even less now.
 if I can't get what I want,
 the way I want it --
 especially the way I want it --
-I'm probably not worthy.
+I'm probably not worthy...
 
-if I could only be more worthy...
+if I could only be a little more --
+worthy...
