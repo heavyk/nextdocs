@@ -129,3 +129,7 @@ it's only later in short-form english, I get the idea. it takes so many words to
 you know, there's like this whole syntax to it, because words are saying one thing, but nobody is getting the concept from the words, because my goodness that's near impossible for me to parse in under 30s. so I imagine that the reason why I don't "get" the concept when you're saying the words, you don't also feel the concept like they did.
 
 [1]: a theory, etc. for me imaine is a funny word for me to use and it's very misleading because there's no image to it. I access my probabilities through "image" parts of my brain, so it's basically what I think is most likely. I'm often incorrect, but the goal is to shoot from the hip and pretend like I hit the target, lol. I think I learned that from noah.
+
+### 2022-12-19 21:46 - next we start these girls out...
+
+this archetype of helena is a model for women that want to desire these types of less then desirable jerks.
