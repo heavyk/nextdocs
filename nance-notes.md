@@ -389,3 +389,7 @@ you know, I suppose I *can* have mixed feelings, because when I "act" my body fe
 dude, I can't help it, people attract the most dramatic shit from me. I couldn't avoid their manifestational attraction without considerable effort, and I'm in effortless mode. from my perspective, you're teaching her to effort, by behaving a certain way. being a shapeshifter is way easier. just *know thyself* and you're good. I prefer to teach her how to know yourself, and know what is "my" voice. who is "I" aka who am I? don't you think it illustrates the idea better with who is "I". or perhaps who is *I*. you can be whatever you want to be. behaviour is a reflection, otherwise it's effort.
 
 I would be *the worst* influence on her, because I can already tell we will have some disagreements on how some concepts are perceived.
+
+### 2022-12-20 05:46 - I noticed...
+
+when cordelia is talking she cannot relate the narrative in a temporally coherent (sequential) manner, so she just relates to it through one emotion -- which is weird because I thought she had mixed feelings.
