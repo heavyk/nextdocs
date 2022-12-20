@@ -199,3 +199,13 @@ imagine for a moment you're inifinity minus one million, compared to your friend
 I fired up this video and a number of things happneed, but I arrived at the concept that I have to figure out how to become bert. or, if I think about it backwards, I have to reinvent bert/bret.
 
 I don't really know where to begin. I'm just writing this to make the concept more physical. it'll come up again soon.
+
+#### 2022-12-20 02:51
+
+so, you know when I first wrote it down, I wanted to emphasise VERY STRONGLY that we all start wherever we start. personally, my development was quite rapid because early on I remember having a few really embarrassing situations because of my untruths. those fueled my desire to go toward maximum impact. I then became a shockjock and that obnoxious radio host howard stern was my hero. he asked people *really intelligent* questions and his questions illuminated deep facets of their character by catching them off-guard.
+
+I learned how to really make an impact with my words by evoking the grotesque and unmentionable. it made me kinda dirty feeling, but that was then. I no longer feel dirty when I approach a topic of questionable nature. I jump in. I learned that from noah with spanish food. we walk into the bar and he goes straight for the "most aggressive" looking spanish food -- and there were some real cringers for me at first, but then I just muscled it down and learned to love it. it's the same with aa coversation; I want to walk into the conversation and find my way right to the most ourageous food and just down it.
+
+you know how in those american movies where the real macho guy rolls into the bar and he does something outrageous or intense to kinda set his stature up (or like jason's story about getting left in the middle of nowhere after getting gaslighted) -- well, you go for the most aggpressive strat straight-away and then go from there. it was the same way for noah. he walked in and by being loud obnoxious and automatically ordering the deepest spanish dishes, he was really proving himself as the guy that was strong and assertive. I liked that. I copied it.
+
+how's that for a start?
