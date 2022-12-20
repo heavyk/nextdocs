@@ -201,3 +201,8 @@ for this, will solve my problem.
 
 his desire is my desire.
 no need to control.
+
+### 2022-12-19 22:41 - if I inconvenience myself for him
+
+maybe then I can get what I want.
+
