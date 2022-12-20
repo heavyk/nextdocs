@@ -373,8 +373,10 @@ you know if that really happened, I wouldn't feel the toture for too long, as I'
 
 ### 2022-12-20 05:09 - mixed feelings
 
-when you and she (kiara?) talked about mixed feelings, I could feel two distinct opposing feelings. I don't experience this anymore. I think I used to but the concept is so far from me now it's even weird to even kind of talk about it or even give it mental focus. I like having singular feelings.
+when you and dilly(?) talked about mixed feelings, I could feel two distinct opposing feelings. I don't experience this anymore. I think I used to, but the concept is so far from me now it's even weird to even kind of talk about it or even give it mental focus. I almost have a detest for thinking anything other than I would think. I like having singular feelings.
+
+there are a lot of thoughts that pass through my head, but very few of them are *mine*. what are my thoughts? they are what *I* would think.
 
 ---
 
-you know, I suppose I *can* have mixed feelings, because when I "act" my body feels one way, but "I" feel another way about it; so yeah, I do have mixed feelings, but I'm conscious of which one is which. I like to listen to "I" on the subject, so I'm pretty selfish. I would never feel bad i that situation because I only care for what I want, and what I want is alway way better than any of that "normal" stuff. I'm atypical. I'm a riot, a hoot, and not even I take myself seriously. who cares what anyone else is doing, look at me.
+you know, I suppose I *can* have mixed feelings, because when I "act" my body feels one way, but "I" feel another way about the same situation; I can just let it happen; so yeah, I do have mixed feelings, but I'm conscious of which one is which. I like to listen to "I" on the subject, so I'm pretty selfish. I would never feel bad in that situation because I only care for what I want, and what I want is alway way better than any of that "normal" stuff that other people want and are getting. I'm atypical. I'm a riot, a hoot, and not even I take myself seriously. who cares what anyone else is doing, look at me.
