@@ -335,3 +335,22 @@ grows the plant you grew.
 
 that's important to know,
 *you* know.
+
+### 2022-12-20 04:30 - what if I tempt the serpent
+
+promise her the world
+everything she could ask for
+and all of her dreams
+
+in exchange that she worshipped me.
+
+wouldn't that be hilarious,
+and a bit tortorous
+to watch her try
+and figure out how to worship me
+without looking silly?
+
+I couldn't keep a straight face honestly,
+I would laugh so hard for so long,
+there's no way I could possibly even
+let them carry on for so long.
