@@ -393,3 +393,13 @@ I would be *the worst* influence on her, because I can already tell we will have
 ### 2022-12-20 05:46 - I noticed...
 
 when cordelia is talking she cannot relate the narrative in a temporally coherent (sequential) manner, so she just relates to it through one emotion -- which is weird because I thought she had mixed feelings.
+
+### 2022-12-20 05:56 - shepherds
+
+I've never been to keen on the idea of shepherding. it's not my bag. I stand as a pillar of example and action. I don't need to shepherd anyone, as anyone who wants to follow will naturally stay attracted to me.
+
+I suppose that idea may come as a surprise that I find that concept inferior. I've improved greatly on that idea. I wouldn't be where I am today if I had've sherherded.
+
+---
+
+so here's the thing which now that I have helena somcwhat figured out, I can use her. she wants to be shepherded. helena in the form which I now embody and therefore attract, is not interested in shepherding anyone, not even her self. she's pure desire. she just waits for it to happen as if the universe *owes* it to her; obviously very patiently and steady in her emotion.
