@@ -232,3 +232,8 @@ really, marcos probably would be a good kid,
 but he just had all these awful influences
 which corruped him.
 it's *their* fault my perfect angel was corrupted.
+
+### 2022-12-19 22:53 - he's starting to become successful without me...
+
+what if he doesn't need me.
+
