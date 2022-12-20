@@ -121,3 +121,11 @@ when he first told me this, I immediately reminded me of a note in andreas' code
 I very highly doubt that bert is this way. in fact I know it for certain, but it makes a good example of decisions to be different. we all do it (don't lie to yourself) -- but then we limit ourselves and say this is as far as I go, and anyone who goes further/farther is a selfish brat. I suppose I myself am one too. it's fun.
 
 I see already a lot of myself in helena, but she's running on a whole different set of concepts than I am. my concepts make sense, and so therefore they're legit. unfortunately, I'm sure it's going to be the case that helena doesn't critically analyse her situation in any way. I already feel bad for her; if only she knew what I know.
+
+### 2022-12-19 21:34 - when you say shakespere, I don't understand a thing you're saying
+
+it's only later in short-form english, I get the idea. it takes so many words to say so little. anyway, so I saw this picture where when they speak these long drawn out words, they would hold a sort of tone or frequency, in which this emotion is described. he's building up a library, which then later on in the play an opposite (desire) tone while they say different words.
+
+you know, there's like this whole syntax to it, because words are saying one thing, but nobody is getting the concept from the words, because my goodness that's near impossible for me to parse in under 30s. so I imagine that the reason why I don't "get" the concept when you're saying the words, you don't also feel the concept like they did.
+
+[1]: a theory, etc. for me imaine is a funny word for me to use and it's very misleading because there's no image to it. I access my probabilities through "image" parts of my brain, so it's basically what I think is most likely. I'm often incorrect, but the goal is to shoot from the hip and pretend like I hit the target, lol. I think I learned that from noah.
