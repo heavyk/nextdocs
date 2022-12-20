@@ -209,3 +209,7 @@ I learned how to really make an impact with my words by evoking the grotesque an
 you know how in those american movies where the real macho guy rolls into the bar and he does something outrageous or intense to kinda set his stature up (or like jason's story about getting left in the middle of nowhere after getting gaslighted) -- well, you go for the most aggpressive strat straight-away and then go from there. it was the same way for noah. he walked in and by being loud obnoxious and automatically ordering the deepest spanish dishes, he was really proving himself as the guy that was strong and assertive. I liked that. I copied it.
 
 how's that for a start?
+
+#### 2022-12-20 03:06
+
+another thing to think about is this gives an unxpectedly tough or resiliant presence. I do this purely by accident because I sleep on the floor. I don't require much comfort, so that gives out a vibe of less comfort, which gets compensated for by more comfort. I don't look for it, but it follows me bcause I like to sleep on the floor. it's an accident because I sleep on the floor for a completely different reason, and that's mostly that I find a bed really too soft and I prefer to feel like close to earth or something when I sleep. I like the vibration of the ground.
