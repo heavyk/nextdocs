@@ -283,3 +283,15 @@ yet is nothing of it.
 ### 2022-12-19 23:17 - we're going to racion
 
 is a funny expression because it has the double meaning of ration and of rational. this is where things are going to be worked out "rationally" by ending up with a meager portion.
+
+### 2022-12-19 23:20 - the corrupting demiurge is
+
+shamed and made servile.
+scorned by all.
+
+---
+
+stay away from the negative
+opinions the world has of me
+
+never let them see who I really am.
