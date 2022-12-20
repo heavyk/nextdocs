@@ -139,3 +139,16 @@ this archetype of helena is a model for women that want to desire these types of
 so what she needs to do is to elevate her status to be able to reach these top level jerks. the reason why this is important is you have to marry and have relations with a properly brought up girl, which helena is not. she's trying to kinda weazel herself into a position of power through love.
 
 that's really interesting because this creates a problem for these inbred world leaders. now, they've got non-in-the-family girls that are hot and enticing. they have no where to go than to go gay, I imagine.
+
+### 2022-12-19 21:59 - first signs of disappointment
+
+this is another model for them to never be able to get the imaginary guy in her mind that she thinks he is or wants to be. unbwarrented optimism for them.
+
+### 2022-12-19 22:01 - bros before hoes
+
+boys prioritise time with other boys
+over alone time with girls.
+girls are not interesting
+and don't care for anything worthwhile.
+here's a war. that's worthwhile;
+not like these optimistic psycho chicks.
