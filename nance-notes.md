@@ -380,3 +380,12 @@ there are a lot of thoughts that pass through my head, but very few of them are 
 ---
 
 you know, I suppose I *can* have mixed feelings, because when I "act" my body feels one way, but "I" feel another way about the same situation; I can just let it happen; so yeah, I do have mixed feelings, but I'm conscious of which one is which. I like to listen to "I" on the subject, so I'm pretty selfish. I would never feel bad in that situation because I only care for what I want, and what I want is alway way better than any of that "normal" stuff that other people want and are getting. I'm atypical. I'm a riot, a hoot, and not even I take myself seriously. who cares what anyone else is doing, look at me.
+
+### 2022-12-20 05:29 - dude, I'm the worst influence
+
+> he should have just gone and talked to her in private.
+> isn't it better to just talk to them instead of telling everybody about it. it's much more polite.
+
+dude, I can't help it, people attract the most dramatic shit from me. I couldn't avoid their manifestational attraction without considerable effort, and I'm in effortless mode. from my perspective, you're teaching her to effort, by behaving a certain way. being a shapeshifter is way easier. just *know thyself* and you're good. I prefer to teach her how to know yourself, and know what is "my" voice. who is "I" aka who am I? don't you think it illustrates the idea better with who is "I". or perhaps who is *I*. you can be whatever you want to be. behaviour is a reflection, otherwise it's effort.
+
+I would be *the worst* influence on her, because I can already tell we will have some disagreements on how some concepts are perceived.
