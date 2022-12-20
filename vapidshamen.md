@@ -213,3 +213,28 @@ how's that for a start?
 #### 2022-12-20 03:06
 
 another thing to think about is this gives an unxpectedly tough or resiliant presence. I do this purely by accident because I sleep on the floor. I don't require much comfort, so that gives out a vibe of less comfort, which gets compensated for by more comfort. I don't look for it, but it follows me bcause I like to sleep on the floor. it's an accident because I sleep on the floor for a completely different reason, and that's mostly that I find a bed really too soft and I prefer to feel like close to earth or something when I sleep. I like the vibration of the ground.
+
+### 2022-12-20 03:23 - fate or faith
+
+in the song that's playing, "personal believer" (lol oops, jesus).
+
+> you know I'm gonna deliver, you know I'm a forgiver
+> reach out and touch fate/faith
+
+the woman there is armina and she has a serpent on her arm, so that specific section seems to question me this one question that enki talks about a lot which is the idea of fate vs destiny. I honestly can't remember what the hubub was about cause I see it all as attractin now, but imagine that she representsx the serpent in the garden of eden in this symbolic play that is now my life.
+
+she says she's going to deliver (what?)
+she's a forgiver (to what problem?)
+
+I just have to wonder what in the world went so wrong that she needs forgiveness. nothing makes sense.
+
+here's the way I see it. fate is something that tries to derail or disengage me from the full manifestation. I talk about this in the concept of "going infinite" that I will be derailed infinitely. she's offering me a derail in the sense of fate -- but she's not.
+
+she's asking for *faith*.
+faith is the *evidence* of things not yet seen
+it's a substance that you can touch.
+you can feel it before it's physical.
+that's that link between the two.
+
+it's kind of a pretty big difference.
+figure out what you want.
