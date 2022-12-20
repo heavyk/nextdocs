@@ -233,7 +233,14 @@ but he just had all these awful influences
 which corruped him.
 it's *their* fault my perfect angel was corrupted.
 
-### 2022-12-19 22:53 - he's starting to become successful without me...
+### 2022-12-19 22:53 - he's starting to become successful at what he loves
 
-what if he doesn't need me.
+what if he loves THAT more than me?
+if he didn't like me enough before,
+he never will now.
 
+---
+
+what if he doesn't need me?
+he din't before,
+and even less now.
