@@ -295,3 +295,10 @@ stay away from the negative
 opinions the world has of me
 
 never let them see who I really am.
+
+### 2022-12-19 23:23 - I must be punished for the asshole that I am
+
+I must become servile.
+ojala, never domicile.
+
+now it's OK to want you again.
