@@ -111,3 +111,41 @@ I highly doubt those images were real places -- instead, I believe it was my ima
 I don't really know about what though. the thing is, I opened up captain of industry to play and listen to metal, but I totally can't right now. it looks like a bunch of problems I have to deal with -- and I'm totally not in the mood for that. I thought about what else I would want to do (cause I'm pretty stoned), and since playing that isn't one of them, I'm inclined to find something I want to write about. it's my basic inspiration formula -- but the thing that makes it difficult is, I'm stoned. normally, it's effortless and by now I've got ideas of what I want to write.
 
 effortless.
+
+### 2022-12-19 16:33 - I just had the funniest smoking experience ever.
+
+I just got back from the BI group christmas thing, and thad was there, etc. -- and he was on my mind when I started smoking; a perfectly mundane experience. I was thinking about my comments to mom when we were talking about thad. I said I wished to have an experience of swimming with the whales. he was describing it visually, and I wasn't actually wanting to have a visual swimming with whales experience. I was thinking more like communicating and being in their like vibe and shit. anyway, that's the thing for me -- you guys keep forgetting I'm not visual. I don't think like you do.
+
+it was then that I realised that I do *already* have whale swimming experiences but I'm unconscious to them. the sound that they make in the ocean is a carrier signal for the concepts. all the whales focus on the sounds which they like (their frequency range) and everyone on that frequency shares the same concepts.
+
+I tuned in to their frequency, but the concepts were unintellible to me, so I didn't even try to translate anything -- or even kind of feel what their well-being is like. it was so foreign to me I was kinda repulsed, because I like how I feel so much, especially in this moment when I'm that stoned and feeling nice.
+
+a few thoughts passed my mind which I think turned a bit into english or something understandable, then I realised why the snake-bros last night felt so bad to me: it's that they're 7th ray focused and nosebook doesn't want me to see my astral or the living black or any of that so all the even layers are tured off visually, so I access them concptually. I'm pretty interested in the conceptual, because that's basically where I live (reality-kenny is getting pretty good at doing his thing). however, what it really is that I'm interested in is the 3rd ray water perspective. I'm good at fire, but it's a big mistake to disregard the 3rd ray perspective. I then looked at the 3rd ray perspective, and I could see that alalu/prometheus/jerutau wanted to *only* be fire, and so because he neglected to make a "theory of everything" -- a "manual for how the universe works :: solar regime edition", things didn't go by his rules.
+
+I then noticed that the other day I said "fuck marduk" and that could be seen symbolically. I just realised I didn't contemplate saturn, and so you had this solar regimes installed by these 3rd rays. ra/zeus, isis, and enki. at that time I felt certain that ra/zeus is the current solar regime, and that was like symbolic of dethroning him.
+
+I was very surprised at this idea, because I never had an intention of becoming the next solar regime. I was just a guy that wanted to make a website really badly... one thing led to another and here I am now... wow, OK, so I feel honoured... let's do a good job, ya know... I feel like there's no better qualitifed person than myself to do it. so like sure, I guess.
+
+I noticed the sun was lower than I thought and so I ran out to get the last moments of sun. while staring into the sun, I thought about how this could have possibly happened. I could see this massive and very rapidly moving massive but tiny particle that was on a very gentle angle to this solar system with a bunch of things orbiting it[^1]. normally the incoming particle's trajectory would be changed only slightly, but because of its gentle and my contuinually increasing attractive qualities, this massive particle is getting closer to me because of its attractive qualities.
+
+I looked at this massive particle to see what it was and I could see two things: first, the particle is like this group consciousness, where were like all of the schemesters and stuff -- the guys that get around the rules and bend reality with our desire (this is that 1st ray energy). the other thing was that this thing will eventually hit, you know... my attraction is obviously gaining in strength and it's orbiting around me right now (I have no idea its periodicty) and because it's getting pulled in, one thing is certain is that we'll eventually collide.
+
+just a side note before I return to the experience: I can see now that this is what creates the split. there are inevitably be those that join my in catching it and there are those that refuse. those that refuse all create their own realities. they eventually get absorbed back in and then the process repeats. each cycle of this is a solar regime.
+
+another side note: apparently, it looks like the sirian guide thing was something like a fishing lure to begin to start attracting this thing. trying to figure out this 7 rays thing, is how I attracted this group consciousness. apparently, we're like the enlightened ones that all join up in time (the singularity) where novelty goes infinite for a while before that split happens.
+
+after that, I noticed that the guy in dtp which has the signature of 11, came and installed the regime in atlantis is basically me right. lots of interesting things to think about there. it was a lot different then, and energies were a lot lot higher than they are now. the world was very vibrant so it was really easy for someone to catch the signal/particle. nowadays, the energy levels on this planet are much much less coherent (and powerful) than they were then. enki made a really good system, you know.
+
+you know, in a lot of ways, he's kind of like the master cycle, because I think his predecessors didn't actually do anything new. they kept it pretty much how it was, trying to constantly *return* to the divine order that they lost. because things were so coherent and fixed, nobody ever had very many good ideas back then. novelty was very low.
+
+somehow, it looks like there was this transition. I think jason speaks of it where a set species of subhumans were created with an alterated ambition -- which is the desire for novelty in specified form. this race of subhumans or whatever (I forgot what all he said, so I take the concept instead)... anyway, these guys were created out of unwanted, and all the awfulness. to explain the concept it's easier to see a resonance of it: in dtp, they had these magnetic therapies that they gave to people who had these mental conditions like greed/greediness, unauthorised desire, etc. and you know what ends up happening is these guys all get tuned to the same "passive" frequecy and they start to become a group consciousness. another example of group consciousness is the group consciousnesses created through these various initiation rituals. I've also rendered the concept in box-consciousness.
+
+so basically, I'm on the same frequency as all of the scoundrals basically since atlantis. we intercommunicate telepathtically really really easily, which has been a bit of a problem they're still solving. looking at it logically now, it seems fairly obvious that this race of scoundrals is the "aryan" race. the most powerful have temperment and attract very strongly, but I never gained temperent, so I keep attracting stronger and stronger all the time.
+
+I
+
+---
+
+saturn
+
+[1]: probably like planets or big particles or something; it's not important to this rendering of the concept
