@@ -152,3 +152,9 @@ girls are not interesting
 and don't care for anything worthwhile.
 here's a war. that's worthwhile;
 not like these optimistic psycho chicks.
+
+### 2022-12-19 22:05 - leave behind the old ball and chain
+
+girls are like an anchor.
+it's very unfortunate.
+let's do something even more unfortunate.
