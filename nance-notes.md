@@ -254,3 +254,9 @@ I'm probably not worthy...
 
 if I could only be a little more --
 worthy...
+
+### 2022-12-19 23:01 - I think this play is a mockery
+
+of queen elizabeth, the last of the tudor dynasty.
+
+artemis! diana! goddess of chastidy!
