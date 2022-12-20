@@ -183,3 +183,8 @@ I'm certain I'm what went wrong.
 
 if if you can get me into bed
 and produce a child from it/us
+
+### 2022-12-19 22:36 - feel my guilt
+
+as I blame myself
+for everything went wrong
