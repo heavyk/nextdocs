@@ -216,3 +216,19 @@ but he stays so far away.
 ---
 
 maybe then I can get what I want.
+
+### 2022-12-19 22:46 - helena's mother-in-law reminds me of marisa
+
+all day long she would think about it,
+and when she'd see me,
+she'd check in on me and talk to me
+asking very non-invasive questions.
+
+she thought I was this angel
+and her son (marcos) was really
+always doing things with the wrong intentions.
+
+really, marcos probably would be a good kid,
+but he just had all these awful influences
+which corruped him.
+it's *their* fault my perfect angel was corrupted.
