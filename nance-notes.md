@@ -354,3 +354,19 @@ I couldn't keep a straight face honestly,
 I would laugh so hard for so long,
 there's no way I could possibly even
 let them carry on for so long.
+
+### 2022-12-20 04:36 - if people worshipped me...
+
+it would *literally* feel like continual torture to me.
+it pains me so much to watch people give their power away;and, watching people give their power away,
+
+even to me, would actually be
+a very negative experience for me.
+
+I wonder if religion is a sick twisted joke on the creators of the universe. they probably *hate* being worshipped. it's embarrassing to even go out into public for them.
+
+they could take a lesson or two from me about keeping it real, cause lol...
+
+---
+
+you know if that really happened, I wouldn't feel the toture for too long, as I'd quickly find a way around the feeling. most probably I'd find a really humourous way of dealing with it. I'd find a way to turn it into a meme. like what would (the guy on snl that says, "ok!" to whatever the woman says). like how would he react to it? ok! *shrugs and walks away*
