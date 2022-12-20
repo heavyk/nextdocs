@@ -279,3 +279,7 @@ she's the black madonna
 the dark woman.
 she parades herself in white
 yet is nothing of it.
+
+### 2022-12-19 23:17 - we're going to racion
+
+is a funny expression because it has the double meaning of ration and of rational. this is where things are going to be worked out "rationally" by ending up with a meager portion.
