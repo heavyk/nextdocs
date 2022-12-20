@@ -178,3 +178,8 @@ never good enough.
 I was sure that he was how I ought him to be
 cause everything else I ought to be came to me
 I'm certain I'm what went wrong.
+
+### 2022-12-19 22:16 - the only way I'll accept you
+
+if if you can get me into bed
+and produce a child from it/us
