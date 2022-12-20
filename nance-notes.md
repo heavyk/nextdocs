@@ -133,3 +133,9 @@ you know, there's like this whole syntax to it, because words are saying one thi
 ### 2022-12-19 21:46 - next we start these girls out...
 
 this archetype of helena is a model for women that want to desire these types of less then desirable jerks.
+
+---
+
+so what she needs to do is to elevate her status to be able to reach these top level jerks. the reason why this is important is you have to marry and have relations with a properly brought up girl, which helena is not. she's trying to kinda weazel herself into a position of power through love.
+
+that's really interesting because this creates a problem for these inbred world leaders. now, they've got non-in-the-family girls that are hot and enticing. they have no where to go than to go gay, I imagine.
