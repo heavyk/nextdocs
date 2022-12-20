@@ -308,3 +308,15 @@ now it's OK to want you again.
 ### 2022-12-19 23:29 - I gatta get a ring on it
 
 before a bigger slut shows up.
+
+### 2022-12-20 03:44 - why can't someone just like something
+
+without a good reason for it.
+without a justification either.
+just cause.
+
+does it always have to obey all the rules?
+breakin the law
+breakin the law
+the new divine order,
+just as you please.
