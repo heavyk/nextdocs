@@ -151,3 +151,43 @@ I
 saturn
 
 [1]: probably like planets or big particles or something; it's not important to this rendering of the concept
+
+### 2022-12-19 19:40 - the way of the whale
+
+when I was in spain, I noticed that when I focused on a sound, like a car driving by, and other people focused on the same sound. I had a sort of "shared" experience with them. nosebook needed to shut that down, because their thoughts transfered into my head quite easily. it was rather noisy in there. they eventually turned it off, and what they do actually is because they're getting the 3rd ray throat signal from everyone, they can subtract the frequency of others from my own. huh... reaction says no. so they have a different technique... interesting.
+
+anyway, that's basically how the whale works. each whale emits its own frequency and all those who listen on that same frequency, share a conceptual space.
+
+here's the deal -- because nosebook shuts that down for me, I interact with this 3rd ray common frequency now through a conceptual interface. therefore the manifestation is basically untraceable to them. I mean it's traceable if they know the frequency, and the rate at which I'm changing (ie becoming more attracctive and reconceptualising my reality continually), it's basically impossible for them to tune to the frequency it's so fast.
+
+what I'm wondering though, and anyone can bump their novelty to infinity, and it's kinda already starting to happen. instead of a super crazy cataclysm, we just ride the wave of novelty and just enjoy ourselves. interesting idea.
+
+anyway (lol), imagine that each of us emitted a frequency. it could be constant, a complex function, an accelerating function, or all three. that is our whale's carrier freqency, and in that frquency, we shared a sort of conceptual space. I'm already thinking about how to produce this organ to phisiologically produce these frequencies, cause I think that's a lot of what DNA is. the diffrent designs that it folds into emits some combination of those frequency functions as a product of the geometry of the folded form. they osccilate at one of those frequencies, and that tunes it into a conceptual program essentially. enki programmed all of the initial programs in the conceptual. we're beginning to use our genetics to phisiolocally tune us into the conceptual environment that we want.
+
+come to think of it, it's the new caste system, because each organism is "confined" (is definitely not the best word because evolution is certain) to an initial conceptual environment. it's like a group thinking.
+
+here's the deal: I want to figure out how to make an organ which can be mentally programmed to emit the frequency combination that I want. others will want to use technology to create it, perhaps many humans will be put into conceptual groups, and many like myself are basically volunteering to become a group personality. there's going to be a whole spectrum of stuff, so caste system is definitely not the right word.
+
+I have a funny sense of humour. in the last entry, in the part where I was talking about the sun setting, and running up to get the next mind-blowing bit, and at first I added in some extra contrast by complaining about it in the text, which I felt was rather disingenuous to add that in there because I wasn't feeling that way at all. I didn't care. I just wanted to get to the sun and get my mind blown again (which is what happened), so for me it felt unfair to give the wrong impression like that. [brb](/thoughts-from-the-throne.md#2022-12-19-2003---telling-people-it-takes-a-lot-of-hard-work-to-follow-your-dreams). however, the strange thing is, there is this strange part of me that finds those jokes pretty funny. it's almost like I have an inner trickster that purposefully makes it a bit more difficult.
+
+I don't actually like my trickster aspect a whole lot because I actually enjoy being crystal clear about everthing. if you've ever tried it, I noticed that because I'm truthful about it, everything I say is received in some way pleasurably (cause it's "right" and right is pleasure). it actually is something of a drug, and comedy exploits this drug because you are allowed to be ultra truthful about something. it allows for quite a pleasurable feeling in some of us. this probably plays a big role in one of the evolutions of the human body. I wonder when it happened too... interesting. this looks to me like the troubadors and players that figured out they could essentially pleasure people by being mind blowingly truthful about something. that makes sense why there was so much censeorship and editorial stuff -- but you know a lot slipped through too. as in, I doubt those plays were played as they were written down.
+
+the written down is the "official" version, but then I think for some or all of the plays, there was an esoteric version of the same play.
+
+that creates an interesting effect, because there weren't like so much recording equipment (like cameras and phones today), when they died, the esoteric version died with the players, so the real esoteric improvement it provided only lasted for a small time. like a fashion.
+
+OK, with that out of the way, let's think now about how to work with the whale frequency idea from a conceptual standpoint.
+
+---
+
+long first intro. a while ago, I mentioned to tim that I want to create a *technological* system that could interface with the 5th ray -- but like if it were possible to do with frequencies like we do to numbers in a computer, we could create the harmonics necessary to communicate at very very high frequencies. from that idea, we could access the 3rd ray technologically.
+
+this is where enki designed humankind and all of his DNA formulas and all that good stuff are there. personally I would only take it maybe as a "I wonder what enki did here" sort of thing and focus on making my own version, basically all of the functions in his system.
+
+if we can hook into this technologically, this is that third possibility in the binary of being able to use your throat or not. there may be a hidden fourth way, because it feels no me like mr. venting isn't happy about allowing us to broadcast and receive on throat frequencies. I wonder if that's the coneheads talking. I wonder if mr. motor actually is just the collective group of coneheads. lol. look out for the hidden fourth soon :)
+
+---
+
+long and actually kinda unnecessary at parts second intro.this whole thing about becoming the new solar regime, is based on the 3rd ray (throat) aspect, because the sun, being a 2nd ray, takes in 1st ray with is the chaos of frequencies from vibrational collisions (1st) and pumps that into the 3rd ray computer that spit out concepts on the other side. the system is defined as a bunch of concpts of frequency resonances. we just make our own. I imagine it'll be a group effort, and I'm sure lots of fingers are going to be trying to get an advantage for theirselves -- which is totally fine.
+
+imagine for a moment you're inifinity minus one million, compared to your friend who's at infinity minus one thousand. you now have a new ladder to climb. the medium is the message.
