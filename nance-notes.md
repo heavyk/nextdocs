@@ -260,3 +260,22 @@ worthy...
 of queen elizabeth, the last of the tudor dynasty.
 
 artemis! diana! goddess of chastidy!
+
+---
+
+hear the mockery in his voice.
+this becomes the model for us men
+to perceive the opposite of this
+beautiful flower.
+
+he's saying: here's helena,
+she's a real sadist;
+a perfect specimen of a woman..
+and now compare her to this so-called *diana*
+
+    "goddess of chastidy"
+
+she's the black madonna
+the dark woman.
+she parades herself in white
+yet is nothing of it.
