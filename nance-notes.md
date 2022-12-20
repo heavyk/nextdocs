@@ -321,3 +321,17 @@ the new divine order,
 just as you please.
 
 divine suggestions, just as you please
+
+### 2022-12-20 04:06 - it's important to be important
+
+and to ask yourself if you
+want an image of yourself
+given to you by someone else,
+or -- if you want to cultivate your own.
+
+you are the farmer and
+whatever you plant you plant,
+grows the plant you grew.
+
+that's important to know,
+*you* know.
