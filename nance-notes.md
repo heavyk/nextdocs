@@ -188,3 +188,16 @@ and produce a child from it/us
 
 as I blame myself
 for everything went wrong
+
+### 2022-12-19 22:38 - yes, it was my desire to control
+
+that made everything go wrong
+if I could have only listened
+to what he wanted
+
+I resolve to be submissive
+to anything he desires
+for this, will solve my problem.
+
+his desire is my desire.
+no need to control.
