@@ -513,4 +513,33 @@ in fact, these hightened DMT experiences are very good at assuring you that it i
 
 if that's what shepherding is, then I'm already a shepherd. I don't want anything to do with steering anyone else. all of these things I say are in effort to illuminate how easy it is to steer oneself perceptually.
 
+### 2022-12-21 16:18 - I want to contemplate the symbols
+
+I have reason to beleieve this will be helpful. I want to relate the symbols that I've seen in "[as you like it](/shakespere/as-you-like-it.md)" and elsewhere. I'm just going to tell you what I see. to state my intentions up front:
+
+I'd like to rewrite the symbols to be more agrarian because: - I'm much more of a farmer than a shepherd.
+- the symbols need to be understandable to the common folk and plain in their perception (sorta like how disney does it).
+- I think the shepherd is linked with animal slaughter, (which is another less than favourable aspect of enlil)
+- farming is also vegan/vegetarian friendly.
+- from my perspective, I strongly disagree with herding anyone.
+- this is the age of extreme individuality, and we have to accept it.
+  - personally, I practice hyper individuality, but I'm not going to try and make anyone else see it my way
+- they need to actually reflect me and my grandiose sense of ambition, hyper-selifshness, and hyper-individuality as the good guy.
+  - I'm kind of a "bad-guy" in every sense of the word. I'd like to talk about that more...
+
+yesterday, when I was thinking about the bert stuff, I was really intending to get across that I (kenny) am kind of like bert, but from the female perspective. I'm helena, so I see bert how she sees him. you know, that's what makes me special to all of the "bad guys" that are out there -- is that I just don't really care at all about any of that stuff. I've watched so much south park, nothing, is really bothersome to me. I mean, me goodness, we had the office in chueca... it was bumpin, you know... crazy times. my point is, in addition to seeing these guys like helena does, I also represent *all* of berts qualities, but in feminine form.
+
+therefore, if we accentuate my symbols that are the ideals, because of the way I am, the "bad guys" will now be perceieved indifferently to, just like I have to them. it's kinda the south park effect. my effect is to make something mind blowing seem completely normal. that's my quality, and anyone can do it.
+
+as an example, yesterday, when I was talking about the "I want to see the finished product" thing as being bert, I'm fairly certain that would be patricia talking... know what I mean?
+
+yes, the symbols are programmable, obviously.
+
+---
+
+OK, so there are two prometheuses, one is alalu and the other is vulcan (queen hera), and so in the symbols, this is rosalind, and she/he is trying to land orlando. right, so we have vulcan trying to land mars.
+
+I lost you. well, that was fun.
+
+### bert and gilgamesh
 ### I'm already feeling bert setting in
