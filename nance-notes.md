@@ -483,4 +483,34 @@ after thinking about it a while, because my concepts are so diametrically oppose
 
 I try and shy away from making too many action-oriented suggestions to anyone because they can always be taken out of context and instead teach the process and mechanism behind it (and how to see it). 3rd ray is about action, postures, positioning, etc. so I thought it was really funny that she refused to show any more than 1st position (it's also symbolically relevant). it feels like she's like me in that she doesn't want to perform until she feels ready and solid at it, but it's also a signal that she wants to stay in the realm of desire and not try to make anything too physical yet. directing someone from a position of action doesn't work too well for me, so instead I opt for the opposite side of the 3rd ray which is showing the process/form/structure/mechanism instead.
 
+### 2022-12-20 22:51 - some thoughts on outdoors
+
+it seemed significant to me to explain the concept of the symbol outdoors in the play "as you want it" (whatever you like, can't remember what exactly is the words).
+
+outdoors is where the cold, rain stuff like that is. most people think of that as an inconvienence that they're not indoors during the cold or rain or whatever. well, in my long stints out watching stars (and many other times), I choose to be outside in the elements rathar than indoors.
+
+it's an entirely different relationship with the outdoors if you *want* to be outdoors in the elements. I don't want to say that the outdoors elements are necessarily inconvenient either, because I actually learned to like them, and even started to gain an appreciation for the cold.
+
+the "cold" is a temperature differential in heat/vibration between you and the outdoors. now I know both the outdoors and my body are quanties of heat/vibration, so it seems much easier to regulate my frequency knowing that now -- but that's what I did is I regulated my vibration such that the elements no longer bothered me. I didn't like to be around lots of people unless I was on drugs (drugs are something to focus on or loss of focus on the environment -- so drugs help a lot for learning this) -- and I learned that if I can become OK feeling with the elements, then likewise I can do the same thing with large crowds. I found this capacity of feeling OK with the elements is the foundation of a lot of things that I use, so outside is important.
+
+when I was outside now, I was thinking about how inconvenient the cold is, and I remembered that I used to be outside for hours on end in this cold looking up at the stars and just hanging out/walking in the field.
+
+there's another interesting aspect to the outside which is different from the indoors and city environments. concrete, and most of our structures direct the energy coming up out of the ground in weird ways and dampen its effects. way out in the field, because there is a pretty good energetic equilibrium, energy flows a lot easier. I get a lot of really impressive ideas out in the field, but my computer is here, so they don't get written down and epounded on a whole lot. one of the main advantages of writing like this is the feedback, so it kind of becomes a bit of a lecture or dialogue where I'm conscious of, and that audience is in some way affecting me (like a twitch streamer) -- and it's in those environments that concepts evolve. derailed, lol.
+
+---
+
+there are a dwindling number of professions that have a person outside, and one of those are the shepherds. I'm fairly certain that star watching (and interacting with the psychedellic landscape that pops in from the DMT) was a very popular pasttime. it's probably the origin of the word, "stargazing" and "staring" (star-ing means to keep looning for a really long time). I use shepherd techniques myself like star watching, and they're a great way to learn about life. here's a brief explanation (as I know it).
+
+stars emit a continuous spectrum of light which is shifted slightly from our own, different ones emit more or less really high frequency stuff like gamma rays and much higher, and when they hit my eye, they cause my entire body to begin to vibrate at a much faster pace. normally, when this happens, your vision will improve dramaticlly, and I think that's because the brain is now, going at that higher frequency, is producing more DMT.
+
+all that extra speed and stuff will strongly highten emotions that one experiences for some time after the experience. I'm sure there was also affection shared between the shepherds, because of that intense feeling of pleasure and at oneness that one can feel after looking into the stars for a while.
+
+the increased emotion will also dramatically increase the speed at which you attract something, so life can be a bit chaotic. I like to think of this one as the trial by fire to do it the way I did it, because it's something like the movie "speed" when artificially stimulating one's perception to peer deeper, before one is ready to see all the extra stuff. the stuff that bothers you will bother you at even greater distances now, and all manners of ugly will be more apparent.
+
+most people don't go that path though because it's kinda hard to navigate especially if you don't know it's all attraction. however, I still recommend it for those that want to try it. take the bumps easily and rememeber it's all attraction; you'll be fine. I like to think, "if I chose to do it, somewhere deep down, I know I'll succeed".
+
+in fact, these hightened DMT experiences are very good at assuring you that it is all attraction, because all aspects of life starts to get really resonant in those faster speeds and it's easier to see how the resonation of one thing leads to another as oscillation more than a collision.
+
+if that's what shepherding is, then I'm already a shepherd. I don't want anything to do with steering anyone else. all of these things I say are in effort to illuminate how easy it is to steer oneself perceptually.
+
 ### I'm already feeling bert setting in
