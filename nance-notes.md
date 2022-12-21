@@ -430,7 +430,9 @@ helena is pure desire.
 she simply waits for it to happen
 as if the universe *owes* it to her;
 
-...obviously very patiently and steady in her emotion :)
+...obviously patiently by feeling
+whatever way she wants to feel
+however that may be :)
 
 ### 2022-12-20 06:30 - the universe owes it to her
 
@@ -446,3 +448,39 @@ no other reason at all.
 I've been conditioned from the tick and el planto, to compost guy and the landscape architect, I'm dealing with plants, not animals. I'm an agrarian figure in how I have seed ideas that grow bigger and flourish, just as all concepts do, cause all concepts are living organisations in a higher dimensional space.
 
 trying to fit me into a shepherding outfit will me a massive disaster. prepare for them comedy.
+
+### 2022-12-20 21:10 - another rant about shepherding
+
+I'm having a lot of reactions about my comments on shepherding. shepherding, I believe is mostly a 2nd or 1st ray attribute (as far as I can tell). it appears at various times throughout history and is the opposite component of worship.
+
+worship, to me, is saying someone or something else is superior to you AND that you are inferior to it. if I'm just a fan, or I like something just cause, it could be superior or not, (doesn't matter), but by being a fan, I don't feel like I'm making myself inferior in any way. the act of worship is to give your own power away to the object of worship and say that they're much more authoratative or qualitied or something on whatever it is
+
+shepherding is the same as worship but seen from the opposite direction. I'm still giving my power away to the shepherd by saying that they know better than I do. shepherding is more of a status than an act. the status is, I don't know where I'm going, so I'm being steered by them to get to where I want to go (or to be safe, secure, etc.)
+
+---
+
+I don't intend on ever telling anyone what they should or shouldn't do. they can ask me if they want, but I've noticed that asking is a really weird thing for other people to do to me (probably because I come off as such a know-it-all).
+
+so like for example, my own goals are my own, and not anyone else's. I figure people can either join me, follow me, or try and steer me. I will *not* be trying to steer others, and if anyone sees that I do try and steer, I'll quit immediately.
+
+in relationship to the girls, my goal is to observe them, and steal their ideas and things. I'm a sponge myself, not a parent.
+
+because my mantra is "rip people off shamelessly", I'm much closer aligned to the thieves and the "get what you can" types than anything else. I'm not a "good" person in any way. I stand for doing all the wrong stuff in an improved way. I don't see any value in shepherding.
+
+this topic kinda bleeds into one I was going to write yesteday, where I can already feel myself turning into bert. I don't want anything to do with her growth process. I just want the finished product. I want her to figure it out for herself. it's so much important that she gets it herself than has someone steering her toward her goal.
+
+it's not her goal if I'm steering. it's my goal and my desire for her which never works out well. when feeling the way *she* wants to feel is her own goal, then she's got it. she'll figure it out all by herself, and then after that, it's just ripping off good ideas for more characters and aspeccts for herself from others like me. see what I'm saying?
+
+---
+
+shepherding also implies good and bad in it construction ... as in, there's a "right" or good way to go, and then the bad or "wrong" way to go, if you don't heed the shepherd's advice. I make no such distinctions, because good and bad are constructs put into social and power structures by the "gods" (and they're still doing it), or order to exploit our ability to perceive the difference/contrast between two things (like good and bad).
+
+good and bad don't exist. in fact, it's a large effort by the "gods" to keep us away from "bad" -- because in the "bad" stuff is usually where the most powerful and effective things lie. this is why it's my intention to "redeem" the bad things, stripping them from their evil/bad label and just using the principle in its raw form.
+
+stripping away the physicality of the action, and just perceiving the vibrational exchange can turn some really awful things like killing, death, and things like that into something that eventually produces its opposite (life, growth, etc). they're two sides to the same coin and neither side of the coin should be feared. the bigger picture (2nd ray) can see how the death, killing, lies, destruction, eventually turns into the opposite, so it's important (I think) for a 1st ray to default to the 1-2-5 perspective.
+
+after thinking about it a while, because my concepts are so diametrically opposed to the conceptual structure of the current social paradigm, I think I would be a pretty big disaster for me to begin "shepherding" anyone. for example, let's just take the "I want to see the finished product" aspect of bert -- well, the desire there is to *not* try and steer her but to let her come to her own conclusions. however, "I want to see the finished product" sounds pretty opposite to "enjoy the journey" or "have fun along the way" or "it's about the process, not the result" "beware of lust for results" etc.
+
+I try and shy away from making too many action-oriented suggestions to anyone because they can always be taken out of context and instead teach the process and mechanism behind it (and how to see it). 3rd ray is about action, postures, positioning, etc. so I thought it was really funny that she refused to show any more than 1st position (it's also symbolically relevant). it feels like she's like me in that she doesn't want to perform until she feels ready and solid at it, but it's also a signal that she wants to stay in the realm of desire and not try to make anything too physical yet. directing someone from a position of action doesn't work too well for me, so instead I opt for the opposite side of the 3rd ray which is showing the process/form/structure/mechanism instead.
+
+### I'm already feeling bert setting in
