@@ -64,7 +64,7 @@ I will declare myself a captain of 3d.
     (optional) into another body
     (optional) into a machine
     (optional) into a nano network or something
-    (optional) and die purposefully.
+        (optional) and die purposefully.
 
 ---
 
