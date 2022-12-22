@@ -83,6 +83,11 @@ I will declare myself a captain of 3d.
 (optional) I'm more like a
     farmer,
         I plant seeds
+            (optional) sometimes they grow
+            (optional) sometimes flurish
+                (optional) right away
+                (optional) after a while
+                (optional) never[!]
         I cultivate them
         they get replanted
         they get recultivated
