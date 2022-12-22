@@ -31,4 +31,5 @@ I will declare myself a captain of 3d.
     (optional) whatever I set my mind to create, I can.
     (optional) whatever I set my mind to have, I can.
     (optional) I'm the centre of the universe.
+    (optional) keep me in 3d forever.
         (optional) duh
