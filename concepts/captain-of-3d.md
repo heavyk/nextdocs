@@ -5,7 +5,7 @@ I want 3d to stick around.
 I want to make 3d better[ again].
 
 ---
-
+```
 it comes from the contemplation
     that anyone can be a captain,
     (optional) but there can only be a king.
@@ -97,20 +97,20 @@ I will declare myself a captain of 3d.
             (optional) sometimes it takes a number of (optional) different cultivations to get it right
             (optional) they don't have to be
                 (optional) all at once
-
+```
 ---
 
 some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
 
 ---
-
+```
 it'd be really dope to make that into a website.
     make it updating in real-time to all people
         (optional) because an (optional) addition is always possible
             (optional) I'd want to use <dominic's|a> system like I had where everything is updating to be the same.
-
+```
 ---
-
+```
 you know some really wicked stuff
 is gonna get added in there.
 it'll be a sort of list
@@ -128,3 +128,4 @@ the order is[ an]
         (optional) it's not perfect
         (optional) it can be improved upon.
 the rhythm is[ an]
+```
