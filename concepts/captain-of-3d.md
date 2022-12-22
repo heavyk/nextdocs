@@ -14,12 +14,12 @@ it comes from the contemplation
         (optional) for couples to play together
             when we're both captains rathar than kings.
 
-it comes from the contemplation
-    of upsetness
-        --
+it comes from the contemplation of
+    (optional) - upsetness
         (optional) where I'm kinda just fed up with all of the nonsense,
             (optional) I'm just like
                 I have solutions.
+
 (optional) if I have solutions,
     (optional) they have solutions.
 (optional) they don't want me to do my solutions.
