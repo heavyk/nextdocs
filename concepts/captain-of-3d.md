@@ -52,3 +52,7 @@ I will declare myself a captain of 3d.
     (optional) you can rate the captain's performance
     (optional) you can comment on the captain's performance
 
+(optional) I want to keep to myself
+    (optional) because I feel much better when it's just my own thoughts
+    (optional) [and|so ]I don't have keep to myself forever
+    (optional) for now
