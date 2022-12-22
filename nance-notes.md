@@ -590,6 +590,10 @@ also, I just want to rant a moment. I go so fast all the time, sometimes it's qu
 
 I invented a whole symbol to represent this: maxine-foot-dragon. she drags her feet as much as possible. I make nosebook and the US military look rapid in comparison to how slow I like to take things -- which is linear velocity.
 
+you can see what I mean when I play coi. pay attention to how it's more about my mental awareness than anything else. when I get tired, I lose that mental awareness. the last times I played, I didn't really have that mental awareness. that kind of expansion is what I consider linear velocity. if I have proper management techniques, then it's easy to expand and mind-bending speeds. that might be why coi has interested in me so much because it's allowed me to kind of look at the game in different forms of perception. in fact, one of the things I want to do is to go through all of the features that I desired for and arrange them into which form of perception it belongs to and adapt it to fit the conceptual interface in my mind... anyway
+
+it's not fast, if you're capable of keeping up with it.
+
 
 
 ### bert and gilgamesh
