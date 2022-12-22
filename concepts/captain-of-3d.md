@@ -1,23 +1,28 @@
 # captain of 3d
 
-I like 3d. I want 3d to stick around. I want to make 3d better (again?).
+I like 3d.
+I want 3d to stick around.
+I want to make 3d better[ again].
 
 ---
 
 it comes from the contemplation
     that anyone can be a captain,
     (optional) but there can only be a king.
-    I got that from "captain of industry" game title and concept that it's way easier
-        (optional) for couples to play together when
-        we're both captains rathar than kings.
+    (optional) I got that from "captain of industry" game title and concept that it's way easier to play together
+        (optional) for couples to play together
+            when we're both captains rathar than kings.
 
 it comes from the contemplation
-    of upsetness --
-    (optional) where I'm kinda just fed up with all of the nonsense,
-    I'm just like I have solutions.
-(optional) if I have solutions, they have solutions.
+    of upsetness
+        --
+        (optional) where I'm kinda just fed up with all of the nonsense,
+            (optional) I'm just like
+                I have solutions.
+(optional) if I have solutions,
+    (optional) they have solutions.
 (optional) they don't want me to do my solutions.
-(optional) so, they have solutions.
+    (optional) so, they have solutions.
 (optional) I perceive that everything is fine.
 (optional) in fact, I see it as going so fine,
 I will declare myself a captain of 3d.
@@ -69,6 +74,13 @@ I will declare myself a captain of 3d.
 ---
 
 some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
+
+---
+
+it'd be really dope to make that into a website.
+    make it updating in real-time to all people
+        (optional) because an (optional) addition is always possible
+            (optional) I'd want to use <dominic's|a> system like I had where everything is updating to be the same.
 
 ---
 
