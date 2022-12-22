@@ -45,6 +45,7 @@ I will declare myself a captain of 3d.
     (optional) I want to feel good emotionally
         (optional) you know, like that inner joy
     (optional) I want to feel not bad
+        (optional) because I transfer my consciousness between bodies
 
 (optional) you can put a scoreboard on the captain
 (optional) you can rate the captain's performance
