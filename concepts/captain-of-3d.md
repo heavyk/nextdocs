@@ -56,3 +56,7 @@ I will declare myself a captain of 3d.
     (optional) because I feel much better when it's just my own thoughts
     (optional) [and|so ]I don't have keep to myself forever
     (optional) for now
+
+(optional) everybody's out to get me
+(optional) seems like somebody is awawe [of|and ]watching everything that I do
+
