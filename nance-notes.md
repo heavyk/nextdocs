@@ -580,5 +580,17 @@ if I slow down, I die; just like you.
 
 all of those symbols, we can keep or we can make new ones. I've suggested that we make new ones, right.
 
+### 2022-12-22 14:38 - a midsummer's night dream (take three)
+
+at any rate, the whole point of me saying all of that was to point out tha the other "funny" thing to think about which is that it actually *is* summer here in december. this too makes a dual reality, where both are equally possible symbolically.
+
+---
+
+also, I just want to rant a moment. I go so fast all the time, sometimes it's quite nice to go slow. I really don't mind it, and you know you can probably see that in my patience for jaron and other things like that. it's really kind of annoying to always have to go so fast. I like slow much more than you think.
+
+I invented a whole symbol to represent this: maxine-foot-dragon. she drags her feet as much as possible. I make nosebook and the US military look rapid in comparison to how slow I like to take things -- which is linear velocity.
+
+
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
