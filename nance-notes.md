@@ -611,5 +611,11 @@ it's not fast, if you're capable of keeping up with it.
 
 one of the things that I was ... nevermind.
 
+### 2022-12-22 15:43 - one of the things I whish is that I were asked more things
+
+when I invade others' symbolic/thought space, like what happened above, I can't just leave with the symbols directly, but I have them conceptual form still. I'll probably talk about them in a monologue, but if I get asked questions, it's pretty easy to get the answer in a reasonable time to *anything*. I mean literally anything. it could you just pontificate on X, and that'd be fun, because then it's *my* thoughts because I (and others) and an emotional invenstment in it.
+
+you know, I don't know if github is the best place for it, which is why I was suggesting a website where we could write (true) things which contain all of the possiblities, things. then we could explore subjects and also create identities for ourselves and others. you can see how those option lists will get really long with all sorts of twisted stuff on it, and it'll contain a lot of other things too, so people can use it to build profiles. I also didn't reveal that the possibilibies branch and can have other variables to the sentence. like full logical structure. we can write it all down. it's there, "everyone" knows about it, but only the really sick and twisted make their character profile out of *those* things. lol.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
