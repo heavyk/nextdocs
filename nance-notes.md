@@ -596,7 +596,11 @@ it's not fast, if you're capable of keeping up with it.
 
 [1]: I just noticed this word "coi". it sounds like "coy" but it's more like I can see the factory. so, what if maybe instead of captain-of-3d, it was coi-3d? seems easier and I kind of like it (telling you I'm like a virus at how fast I absorb and then retransmit[^2]).
 
-[2]: I had a few reactions on this. why wouldn't I be gaining consciousness of other attributes (I'm the perspective of the universe) that I'm also like? it seems perfectly logical to assume that I can gain consciousness, right?
+[2]: I had a few reactions on this. why wouldn't I be gaining consciousness of other attributes (I'm the perspective of the universe) that I'm also like? it seems perfectly logical to assume that I[^3] can gain consciousness, right?
+
+[3]: who am I? that is what I ask myself, and it looks to me that I'm gaining consciousness on all 7 of the rays. I wouldn't limit it to 7 though, as perhaps more coming soon. who knows. I mean I guess it'll happen eventually, but it's probably something that can be delayed. like I said, I think of myself as captain-3d because I want to stay in 3d. I'm the make 3d better again guy, so you know, those ones will be growing upwardly, and so not something I control[^4].
+
+[4]: what'll happen I think -- or at least the trap I see from their perspective is that they're setting up all of these crazy freaky (fearful) things to keep psychonauts out of the dimensions they're in. now, they have to build them to keep me out. but when it finally collapses, they'll live out their own nightmare realm. more dimensions they go now, more dimensions of nightmare for theirselves later. they make their own nightmares for theirselves. classic behaviour between humans, but it's especially notable here because of the non-resistantness of those dimensions, they're dealing with pure imaginal structures designed to keep the imaginal out. well, because I don't have imaginal, I don't see it either, and so being down here on earth in body form, those imaginal structures don't really bother me so much because I don't see anything. meaning their safeguards don't work on me because of my lack of imagination, cause otherwise I'd see them. see, so they keep my imagination off, which means here in physical, like I am now, I can access really high dimensional thought, essentially through the conceptual instead of the visual.
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
