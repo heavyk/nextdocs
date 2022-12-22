@@ -602,5 +602,12 @@ it's not fast, if you're capable of keeping up with it.
 
 [4]: what'll happen I think -- or at least the trap I see from their perspective is that they're setting up all of these crazy freaky (fearful) things to keep psychonauts out of the dimensions they're in. now, they have to build them to keep me out. but when it finally collapses, they'll live out their own nightmare realm. more dimensions they go now, more dimensions of nightmare for theirselves later. they make their own nightmares for theirselves. classic behaviour between humans, but it's especially notable here because of the non-resistantness of those dimensions, they're dealing with pure imaginal structures designed to keep the imaginal out. well, because I don't have imaginal, I don't see it either, and so being down here on earth in body form, those imaginal structures don't really bother me so much because I don't see anything. meaning their safeguards don't work on me because of my lack of imagination, cause otherwise I'd see them. see, so they keep my imagination off, which means here in physical, like I am now, I can access really high dimensional thought, essentially through the conceptual instead of the visual.
 
+### 2022-12-22 15:24 - one thing to think about
+### 2022-12-22 15:26 -
+### 2022-12-22 15:27 - the combination of symbols
+
+
+
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
