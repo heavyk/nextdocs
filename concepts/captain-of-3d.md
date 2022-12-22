@@ -1,9 +1,10 @@
 # captain of 3d
 
+```
 I like 3d.
 I want 3d to stick around.
 I want to make 3d better[ again].
-
+```
 ---
 ```
 it comes from the contemplation
@@ -106,9 +107,14 @@ I will declare myself [a ] *captain of 3d*.
 (optional) I feel the way I want to feel.
 ```
 ---
+```
+some people will pobably
+take a look at that monster
+and say well, I'll just stick
+to the first three lines.
 
-some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
-
+that other stuff is unnecessary.
+```
 ---
 ```
 it'd be really dope to make that into a website.
