@@ -572,9 +572,9 @@ that something really awful is up ahead.
 consciousness is how much depth you see,
 and it's expressed in the vision.
 
-seeing high depth on unpleasant things is probably
-really annoying; but I can't slow down.
-if I slow down, I die. just like you.
+seeing high depth on unpleasant things, is
+probably really annoying; but I can't slow down.
+if I slow down, I die; just like you.
 
 ---
 
