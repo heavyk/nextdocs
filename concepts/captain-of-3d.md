@@ -16,3 +16,5 @@ it comes from the contemplation of upsetness -- where I'm kinda just fed up with
     (opgional) whatever I want to know, I can.
     (optional) whatever I set my mind to create, I can.
     (optional) whatever I set my mind to have, I can.
+    (optional) I'm the centre of the universe.
+        (optional) duh
