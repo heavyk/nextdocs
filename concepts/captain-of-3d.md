@@ -33,3 +33,8 @@ I will declare myself a captain of 3d.
     (optional) I'm the centre of the universe.
     (optional) keep me in 3d forever.
         (optional) duh
+
+(optional) in 3d forever,
+    (optional) I think what we should do is instead of dimensions, we're gonna do different perspectives.
+    (optional) eventually we'll all turn into a giant organism anyway, so
+    (optional) if we have many perspectives already, it makes the organism maneageable
