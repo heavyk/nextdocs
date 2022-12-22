@@ -80,6 +80,16 @@ I will declare myself a captain of 3d.
     (optional) into a nano network or something
         (optional) and die purposefully.
 
+(optional) I'm more like a
+    farmer,
+        I plant seeds
+        I cultivate them
+        they get replanted
+        they get recultivated
+            sometimes it takes a number of different cultivations to get it right
+            they don't have to be
+                all at once
+
 ---
 
 some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
