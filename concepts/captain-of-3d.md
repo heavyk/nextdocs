@@ -25,7 +25,7 @@ it comes from the contemplation
     (optional) so, they have solutions.
 (optional) I perceive that everything is fine.
 (optional) in fact, I see it as going so fine,
-I will declare myself a captain of 3d.
+I will declare myself [a ] *captain of 3d*.
 
 (optional) because
     (optional) I own it.
@@ -97,6 +97,13 @@ I will declare myself a captain of 3d.
             (optional) sometimes it takes a number of (optional) different cultivations to get it right
             (optional) they don't have to be
                 (optional) all at once
+
+(optional) I am right
+(optional) I am just
+(optional) I am pure
+(optional) I am me
+
+(optional) I feel the way I want to feel.
 ```
 ---
 
