@@ -121,9 +121,10 @@ to a very tiny portion
 of those things, but they're
 there. it's kinda like a human
 confessional I guess,
-
 you'll notice I have an order and rhythm
 to the (optional) statements above,
-the order is an emotional roller coaster
-    (optional) it's not perfect
-    (optional) it can be improved upon.
+the order is[ an]
+    (optional) emotional roller coaster
+        (optional) it's not perfect
+        (optional) it can be improved upon.
+the rhythm is[ an]
