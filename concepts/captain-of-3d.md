@@ -40,9 +40,18 @@ I will declare myself a captain of 3d.
         (optional) duh
 
 (optional) in 3d forever,
-    (optional) I think what we should do is instead of dimensions, we're gonna do different perspectives.
-        (optional) eventually we'll all turn into a giant organism anyway, [so ]
-            (optional) if we have many perspectives already, it makes the organism maneageable.
+    (optional) I think what we
+        (optional) should do, is
+            (optional) instead of dimensions,
+                we're gonna do different perspectives.
+                (optional) eventually we'll all turn into
+                    a giant organism
+                        anyway, [so ]
+                            (optional) if we have many
+                                perspectives
+                                    (optional) already,
+                                        it makes the organism more:
+                                        - maneageable
 
 (optional) in 3d forever,
     (optional) I plan to [continuallly ]improve
