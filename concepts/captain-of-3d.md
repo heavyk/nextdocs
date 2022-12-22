@@ -60,6 +60,12 @@ I will declare myself a captain of 3d.
 (optional) everybody's out to get me
 (optional) seems like somebody is awawe [of|and ]watching everything that I do
 
+(optional) I plan to transfer my consciousness
+    (optional) into another body
+    (optional) into a machine
+    (optional) into a nano network or something
+    (optional) and die purposefully.
+
 ---
 
 some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
