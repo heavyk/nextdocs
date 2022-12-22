@@ -81,19 +81,22 @@ I will declare myself a captain of 3d.
         (optional) and die purposefully.
 
 (optional) I'm more like a
-    farmer,
+    (optional) farmer,
+    (optional) conceptual artist
+    (optional) con-artist
+    (optional) manipulator
         I plant seeds
             (optional) sometimes they grow
             (optional) sometimes flurish
                 (optional) right away
                 (optional) after a while
                 (optional) never[!]
-        I cultivate them
-        they get replanted
-        they get recultivated
-            sometimes it takes a number of different cultivations to get it right
-            they don't have to be
-                all at once
+        (optional) I cultivate them
+        (optional) they get replanted
+        (optional) they get recultivated
+            (optional) sometimes it takes a number of (optional) different cultivations to get it right
+            (optional) they don't have to be
+                (optional) all at once
 
 ---
 
