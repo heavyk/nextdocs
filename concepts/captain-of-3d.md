@@ -37,4 +37,12 @@ I will declare myself a captain of 3d.
 (optional) in 3d forever,
     (optional) I think what we should do is instead of dimensions, we're gonna do different perspectives.
         (optional) eventually we'll all turn into a giant organism anyway, so
-            (optional) if we have many perspectives already, it makes the organism maneageable
+            (optional) if we have many perspectives already, it makes the organism maneageable.
+
+(optional) in 3d forever,
+    (optional) I plan to [continuallly ]improve
+    (optional) I want to enjoy myself
+    (optional) I want to feel good emotionally
+        (optional) you know, like that inner joy
+    (optional) I want to feel not bad
+    
