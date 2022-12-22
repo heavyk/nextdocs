@@ -541,5 +541,11 @@ OK, so there are two prometheuses, one is alalu and the other is vulcan (queen h
 
 I lost you. well, that was fun.
 
+### 2022-12-22 13:55 - a midsummer's night dream
+
+I've been thinking about the symbols in "as you like it". it says, "woo'd in may and wed in december. first of all, the only place where it's summer in december is in the southern hemisphere.
+
+I have so mucch to say. brb
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
