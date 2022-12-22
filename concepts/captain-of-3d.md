@@ -60,3 +60,25 @@ I will declare myself a captain of 3d.
 (optional) everybody's out to get me
 (optional) seems like somebody is awawe [of|and ]watching everything that I do
 
+---
+
+some people will take a look at that monster and say well, I'll just stick to the first three lines. that other stuff is unnecessary.
+
+---
+
+you know some really wicked stuff
+is gonna get added in there.
+it'll be a sort of list
+of all the stuff that's
+happened in 3d too. many
+people will only subscribe
+to a very tiny portion
+of those things, but they're
+there. it's kinda like a human
+confessional I guess,
+
+you'll notice I have an order and rhythm
+to the (optional) statements above,
+the order is an emotional roller coaster
+    (optional) it's not perfect
+    (optional) it can be improved upon.
