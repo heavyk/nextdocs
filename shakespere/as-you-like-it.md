@@ -9,9 +9,11 @@ celia - best friend of rosalind
 
 #### rosalind
 
-rose is a very important word for shakespere. he was mostcertainnly rosicrucian. to me the name means "holder of the rose" -- and let's just say the rose is some sort of visual capability that was passed between men through the rose.
+rose is a very important word for shakespere. he was mostcertainnly rosicrucian. to me the name means "holder of the rose"[^1] -- and let's just say the rose is some sort of visual capability that was passed between men through the rose.
 
 we can also deduce that ganymede, as the primary "cup-bearer" for zeus is "queen hera" -- aka haephestus/vulcan.
+
+[1]: turns out I learned later it means "nice butthole" lol, guess I can't get everything right.
 
 #### celia
 
