@@ -547,5 +547,38 @@ I've been thinking about the symbols in "as you like it". it says, "woo'd in may
 
 I have so mucch to say. brb
 
+### 2022-12-22 14:06 - a midsummer's night dream (take two)
+
+the other thing to do is to combine the symbols with the problem plays. so for example, I've demonstrated that I'm helena, and she's meeting bert. in this combination of symbols, we're looking at "much ado about nothing" (I think) -- and in it, I think it was claudio that has a premarital affair, but this is strongly rejected and he's sentenced to death by the court. this is a sacrificial role, where he's accepting a future death. also, wood and woo'd in may seem to combine there.
+
+I don't really like the symbol of his sacrificial role. I have a better "sacrifice". which I will relate. I can't relate it in pure symbols, because I don't have an imagination, so my environment is my imagination. therefore, real-life items will blend seemlessly, like it does in my experience.
+
+---
+
+this morning I was joking around with jaron, and I came across an idea of an "antiquarium" and I pictured it as the underground subway as illustrated in jason's video (forgot which one). in this underground setup, there's a giant aquarium with a sperm whale in it. I can see the sperm whale in there and it's in the shadows (light all focused is in the centre of the doughnut where the club/restaurant is) and so when looking from inside of the diner, the aquarium, because of the dimly lit underground vibe, the back of the aquarium is pitch black, and there are these trees that I grow. the underwater plants, and there are tons of these underwater trees and somewhere in there swimming amongst the trees, there is a sperm whale that occassionally looms a little more present.
+
+this is an enormous money sink, but we think that if we build thing thing symbolically, they it'll attract the right guy to build our project -- remember, because this is combining the panza(?) symbols in don quixote and the adam symbols in ayli (as you like it). what this does is allows them to either make it happen, or not. both possiblities exist in equal validity. therefore, if they want to abort us and our project symbolically, they'd just redefine their symbols so then they can say, "nope, we have a better set of symbols now. this is what that means to us." and by "that" I mean the sperm whale and that stuff.
+
+it's the worst idea ever.
+the most ennormous money sink.
+it's positively the worst idea ever.
+
+OK, let me explain: I just love the idea of giving them full power, because they think they can do whatever they want, but because I'm growing so rapidly, I really think everything is going along fine, so it kinda forces them to keep up a bit. they learn what I'm saying, but don't apply it, so it's a bit of a game for me to put something that comes to me easily because I'm a good attractor, and then I put it right into the hands of a bunch of guys that think they don't know what they're doing. end result is, they make me feel like I don't know what I'm doing, when I really do, so I get the effect of looking like a buffon for them and then getting even better feeling like I know what I'm doing. I'm highly conscious.
+
+I'm highly conscious because I'm fairly certain that our bodies run on consciousness. the nutrients that we eat are broken down into their vibrational consciousnesses that have a feeling to them. this strengthens our body on those frequencies, but when a lot of consciousness is flowing through you, our cells are nourished the feeling that is streaming that much consciousness.
+
+for some, it may be a really strong knowing
+that something really awful is up ahead.
+consciousness is how much depth you see,
+and it's expressed in the vision.
+
+seeing high depth on unpleasant things is probably
+really annoying; but I can't slow down.
+if I slow down, I die. just like you.
+
+---
+
+all of those symbols, we can keep or we can make new ones. I've suggested that we make new ones, right.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
