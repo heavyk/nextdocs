@@ -594,7 +594,9 @@ you can see what I mean when I play coi[^1]. pay attention to how it's more abou
 
 it's not fast, if you're capable of keeping up with it.
 
-[1]: I just noticed this word "coi". it sounds like "coy" but it's more like I can see the factory. so, what if maybe instead of captain-of-3d, it was coi-3d? seems easier and I kind of like it (telling you I'm like a virus at how fast I absorb and then retransmit).
+[1]: I just noticed this word "coi". it sounds like "coy" but it's more like I can see the factory. so, what if maybe instead of captain-of-3d, it was coi-3d? seems easier and I kind of like it (telling you I'm like a virus at how fast I absorb and then retransmit[^2]).
+
+[2]: I had a few reactions on this. why wouldn't I be gaining consciousness of other attributes (I'm the perspective of the universe) that I'm also like? it seems perfectly logical to assume that I can gain consciousness, right?
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
