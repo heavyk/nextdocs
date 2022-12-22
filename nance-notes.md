@@ -607,7 +607,9 @@ it's not fast, if you're capable of keeping up with it.
 ### 2022-12-22 15:27 - the combination of symbols
 
 
+### 2022-12-22 15:41 - redefining bert
 
+one of the things that I was ... nevermind.
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
