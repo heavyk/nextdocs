@@ -4,9 +4,23 @@ I like 3d. I want 3d to stick around. I want to make 3d better (again?).
 
 ---
 
-it comes from the contemplation that anyone can be a captain, but there can only be a king. I got that from "captain of industry" game title and concept that it's way easier for couples to play together when you're both captains rathar than kings.
+it comes from the contemplation
+    that anyone can be a captain,
+    (optional) but there can only be a king.
+    I got that from "captain of industry" game title and concept that it's way easier
+        (optional) for couples to play together when
+        we're both captains rathar than kings.
 
-it comes from the contemplation of upsetness -- where I'm kinda just fed up with all of the nonsense, I'm just like I have solutions. if I have solutions, they have solutions. they don't want me to do it so the have solutions. I perceive that everything is fine. in fact, I see it as going so fine, I will declare myself a captain of 3d.
+it comes from the contemplation
+    of upsetness --
+    (optional) where I'm kinda just fed up with all of the nonsense,
+    I'm just like I have solutions.
+(optional) if I have solutions, they have solutions.
+(optional) they don't want me to do my solutions.
+(optional) so, they have solutions.
+(optional) I perceive that everything is fine.
+(optional) in fact, I see it as going so fine,
+I will declare myself a captain of 3d.
 
 (optional) because
     (optional) I own it.
