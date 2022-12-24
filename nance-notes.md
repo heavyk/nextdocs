@@ -118,15 +118,15 @@ yeah, this was kinda the idea for promethian pirate. imagine how awesome dance w
 
 when he first told me this, I immediately reminded me of a note in andreas' code that mentioned bert. you said he's passive and a jerk -- but that's just the starting point, right? we've all been there -- and then we decide to do something different -- or maybe that's what happened to me with this form of truthfulness. this gives me the sense that this whole play is going to be perceived as the passive of the two, really nocicing all of helena's awful attributes cause of her selfishness and stuff. I picked that concept up from thad and marcos. you can see the polarities there from my standpoint of this bert character.
 
-I very highly doubt that bert is this way. in fact I know it for certain, but it makes a good example of decisions to be different. we all do it (don't lie to yourself) -- but then we limit ourselves and say this is as far as I go, and anyone who goes further/farther is a selfish brat. I suppose I myself am one too. it's fun.
+I don't see bert is this way. we choose to be different than our perceived nature (this is like the coding for the egregore; it's creators are "right" about this thing, which we (the egregore) thinks is our nature or natural behaviour. the bert character then turns into a good example of decisions (and their reasons for it) to be different. it starts out as reactions to other people and our environment (we have valid reasons we're right about as reasons for the change) -- but then we limit ourselves and say, "this change is as far as I go; anyone who goes further/farther than me a selfish brat." we say selfish brat because inevitably each ensuing change forces bert/me to become more and more selfish (this happened to me, so I gatta look out for me a bit more). bert tends toward selfishness, thinking himself to be the centre of the universe.
 
-I see already a lot of myself in helena, but she's running on a whole different set of concepts than I am. my concepts make sense, and so therefore they're legit. unfortunately, I'm sure it's going to be the case that helena doesn't critically analyse her situation in any way. I already feel bad for her; if only she knew what I know.
+helena is bert's feminine "opposite". instead of seeing herself as worthy of all of that selfishness, she sees bert as being worthy of all of that selfishness. I see already a lot of myself in helena too, but she's running on a whole different set of concepts than I am. my concepts make sense, and so therefore they're legit. for me, the selfishness that I came to through that process of change with helena (for me this is interior), I became bert and helena combined. I've come to see myself as worthy of that selfishness (bert) and also see others as worthy of that selfishness (helena). unfortunately, in this story I'm sure it's going to be the case that helena doesn't critically analyse her situation in any way. I already feel bad for her; if only she knew what I know.
 
-### 2022-12-19 21:34 - when you say shakespere, I don't understand a thing you're saying
+#### 2022-12-19 21:34 - when you say shakespere, I don't understand a thing you're saying
 
 it's only later in short-form english, I get the idea. it takes so many words to say so little. anyway, so I saw this picture where when they speak these long drawn out words, they would hold a sort of tone or frequency, in which this emotion is described. he's building up a library, which then later on in the play an opposite (desire) tone while they say different words.
 
-you know, there's like this whole syntax to it, because words are saying one thing, but nobody is getting the concept from the words, because my goodness that's near impossible for me to parse in under 30s. so I imagine that the reason why I don't "get" the concept when you're saying the words, you don't also feel the concept like they did.
+you know, there's like this whole syntax to it, because words are saying one thing, but nobody is getting the concept from the words, because my goodness that's near impossible for me to parse in under 30s. so I imagine[^1] that the reason why I don't "get" the concept when you're saying the words, you don't also feel the concept like they did.
 
 [1]: a theory, etc. for me imaine is a funny word for me to use and it's very misleading because there's no image to it. I access my probabilities through "image" parts of my brain, so it's basically what I think is most likely. I'm often incorrect, but the goal is to shoot from the hip and pretend like I hit the target, lol. I think I learned that from noah.
 
@@ -517,7 +517,9 @@ if that's what shepherding is, then I'm already a shepherd. I don't want anythin
 
 I have reason to beleieve this will be helpful. I want to relate the symbols that I've seen in "[as you like it](/shakespere/as-you-like-it.md)" and elsewhere. I'm just going to tell you what I see. to state my intentions up front:
 
-I'd like to rewrite the symbols to be more agrarian because: - I'm much more of a farmer than a shepherd.
+I'd like to rewrite the symbols to be more agrarian because:
+
+- I'm much more of a farmer than a shepherd.
 - the symbols need to be understandable to the common folk and plain in their perception (sorta like how disney does it).
 - I think the shepherd is linked with animal slaughter, (which is another less than favourable aspect of enlil)
 - farming is also vegan/vegetarian friendly.
