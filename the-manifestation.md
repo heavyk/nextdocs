@@ -1615,4 +1615,53 @@ well, from this perspective:
 
 in more defined terms, I'm definitely someone who can navigate time and space consciously. I seem to have a pretty good idea of what everything around me is happening in a desire, symbolic, and conceptual standpoint. my physical is quite lacking, but it's OK, because physical is a conjugate of conteptual. I'm still figureing out "who I am" to some degree. you know, I don't raelly have mine very well defined. I'm kinda anyone to anyone. I explained this the other day as shapeshifter from physical or desire perspective. from that perspective, I am desire. in kenny's perspective, it's like he has ideas of who he is still. he could be anything.
 
+### 2022-12-24 14:22 - the way I see the manifestation presently
+
+1. I want to create the social network thing that I've been working on for quite a while.
+  - there are a lot of symbols "foretelling" of such an event, like "silicon valley" and the scarlet woman which a communication rides on top of her
+  - there is a lot of effort to try and prevent me from such a thing
+  - even if I have similar symbols to tesla, there is the part where tesla becomes very sick and he has his father promise that if he gets better, he study engineering.
+  - even the symbols in "as you like it" have this idea where orlando and adam decide to embark on a journey together with only adam's savings to carry them. (I see that as the "angel" investment for my idea)
+  - in don quixote, panza embarks on a mission with don quixote, and don teaches panza to see things the way he does. well, if I consider myself don quixote and the strange way that I see the world which eveyrone is trying to cure me from is the capacity to see and understand the conceptual realm. if I'm teaching panza to see things like I do, that's part philosophical, but in my mind, this is the social network that I want to make which concepts can be transmitted and received
+  - I know from LOA that everything that I desire will eventually come about, so it feels pretty destined to happen. you might say it's my "destiny" (ref: jason)
+
+2. I offered that instead of a "sacrifice", [I presented a more suitable idea](/nance-notes.md#2022-12-22-1406---a-midsummers-night-dream-take-two), which I said that instead of making a sacrifice, what we do instead is just arrange the symbols in such a way that if they want to come up with a better manifestation ("better" from my perspective), then the symbols can be aborted by redefinining the symbols to something that's more attractive.
+  - the sense that I got, is that this is the way that they want to go, but they don't want me involved in the symbol creation process (good luck with that one, lol).
+  - therefore, I find it pretty reasonable to say that they absolutely don't want me working on any social networks or anything like that, and they don't want me knowing that they've aborted the symbols.
+
+3. after that, yesterday, I was in one of those half-conscious states where I talk with them in a partial lucid dream without visuals, and it seemed like the way to abort the idea was to get me to go with allie (the neighbour) and I would play the role of helena and mars. I would meet bert as helena, and instead of creating a social network, the story will instead about how helena transforms bert, which is very reminescent of rocky. we'll go up against the sun (apollo) and eventually lose, but everyone wins because *love!* (ref: lindsay).
+  - an alternate to this set of symbols that I heard too is that somehow kyle swoops in the middle and makes it possible to work on the conceptal network (I need a name for it -- I'll think on it).
+
+4. combine all of those symbols together and what I see is eerily similar (symbolically) to the book of revelation. what happens is, the serpent of old (that's me) is cast down by the saviour figure that will make it possible for humankind to evade the disaster (the solar peak).
+  - the way I think they're doing it is they're working on a sort of heavily controlled reality.
+    - most of this is my idea, so since I have solutions and they don't want me doing them (captain-3d)
+    - the moon is 6th ray, pluto is 4th ray, and charon is 2nd ray. the moon arleady regulates the astral, so the other two will regulate the other two major mediums (the spectral 4th ray) and the (???? 2nd ray).
+      - each of those 3 touch all of the 4 primary/odd rays, so it's a completely control all of reality.
+      - 2nd ray inputs desire from people and also solar rays and outputs all of what we call reality. 2nd ray sees the "manual for how the universe works -solar edition", so it sees that desire playing out in 3d space (through the 6th). this is just a really really good internal model for how the universe works, kinda like tesla and myself have.
+      - the 4th ray keeps everything balanced (and stuff), by seeing things from other people's perspcetives (this is one of the things I want to integrate into the narrative, so that others can actually see it like I do -- and this 4th ray narrative is made possible by my 5th ray conceptual network).
+      - the 6th does everything it alrady does.
+  - this reality however, is not expanding. it feels very strongly to me that my galaxy idea is way too big of a problem, because it would reveal so many of their secrets so I feel like they want to keep everything constricted (ahriman) and contained to this earth.
+    - my idea for the galaxy, is allowing the planet (earth) to expand to become the size more like a galaxy (it'll need to keep expanding as energies rise again). this is an idea of expansion, and it'll dramatically reduce tension.
+    - instead, they want to fight earth's desire to expand (the reason for major geological unheaval, such as the end of the last ice age) and try to keep the planet it's size (with the moon setup that I mentiond above).
+    - I figure the duration that they'll be able to keep that up, will be for as long as a major solar cycle (which I think is about 1ky). it looks to me like solar output will intensify contiually, and thuogh it is possible to keep the planet contained its size, I don't think it'll last forever. they're trying to mess with the planet's "destiny".
+    - they have another problem too, which is that the planet itself (likely the star inside of it) is outputting more and more as well, and because this is a 1st ray, it'll intensify. the charon/2nd ray aspect of the moon will significantly smoothe this over, so this next part may not be necessary.
+      - as such, from time to time, we need to push the ball of hydrogen in the middle of our planet out one of the poles to release this energy. as we on the planet continue to produce desire, the star in the centre of the planet will gain in size, density, and attractivness until she (1st ray) is let out into the greater area around our planet (which is now like a galaxy, so more like a bubble with a earth nucleation point)
+  - as such, I feel like in the greater picture we're heading toward a decision point where some of us decide to go one (symbolic) way vs another.
+    - some will choose to go the way that I want to go, and others will choose to abort the symbols cause they have a better idea of what they want to do. both are equally valid realities, and so therefore will exist simultaneously.
+
+5. in the "as you like it" play, the end of the play is where they lose physicality and become "sans teeth" (ie without carnal desires). therefore, this is the alchemical purification process being played out here where we're actually stripping ourselves of the desire that it is to stay in 3d. my writing captain-3d is important, because I like 3d. I want to make 3d better.
+  - the other night I was thinking about what it would be like to begin to see things as outside of time. I could see from the 4th(?) ray perspective, where you can imagine a giant gloing ball with all of these spikes coming out of it that wiggle around (like how I imagine ball lightning would look), and these all come from a centre very luminous origin point. each of the tendrils represents a "timeline" (a ionised path where more energy flows, so it's not a black and white thing, but a sharp gradient). I could walk around it, there were like control panels and things and in that moment, I could essentially remove myself from time and go to that space, interact with others there, and then reinsert myself into the timeline at roughly the same place I left off. that night, I could have made my transition to see that.
+    - others were encouraging me to come, but that state of mind is easy and no progress. 3d for me is easy and there is tons of progress. I chided them a bit because they exist in a place where they neither grow or change, and insert theirselves into the timeline into the compatible body that they want to gain xp and lvl up their char -- so why would I want to go there? you get max xp the more "real" the experience, and the more you learn from it. so, I want to be in 3d, not there (as such, this is part of the origin of captain-3d idea).
+  - I really like 3d and I kinda like it. I don't know that I want to try and remove my carnal nature -- maybe not the best way of saying it -- so I'll go back to explaining with LOA.
+    - I'm not interested in getting "perfected" and making my transition into the conceptual where I begin to lose my connection to the world of change. I like change -- in fact I like it so much, it's what I'm constantly doing. one who seriously considerers himself to be on the path of max novelty (like myself), has to come to terms with actually liking both 3 dimensions and also change. these are fundamental aspects. I fully embody them. as such, I am a captain-of-3d.
+    - as such, it looks to me like my "destiny" may be slightly misplaced, and instead what it looks like I'm really here to do is to "make 3d better (again)"
+
+---
+
+I think I'll end here. there is more I wanted to say, so I'll leave with this final thought. today, I was telling greg that sometimes I simply cannot understand him. I don't listen to words a whole lot, getting the majority of the conversation from them conceptually, and I just listen to their voice (like the whale's carrier signal), and so then by focusing on their voice, like they are, I can access their concepts.
+
+it's quite likely that greg's aura is encrypted because I'm so good at picking up others' concepts. therefore, his concepts are unintelligible or planinly wrong to me. so, if you want to hide your concepts, fine, but why not present the concepts your speaking so that people like me and jaron can understand you?
+
+---
+
 ### interests diverging and individualisation
