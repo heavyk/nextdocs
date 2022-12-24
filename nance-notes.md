@@ -617,5 +617,17 @@ when I invade others' symbolic/thought space, like what happened above, I can't 
 
 you know, I don't know if github is the best place for it, which is why I was suggesting a website where we could write (true) things which contain all of the possiblities, things. then we could explore subjects and also create identities for ourselves and others. you can see how those option lists will get really long with all sorts of twisted stuff on it, and it'll contain a lot of other things too, so people can use it to build profiles. I also didn't reveal that the possibilibies branch and can have other variables to the sentence. like full logical structure. we can write it all down. it's there, "everyone" knows about it, but only the really sick and twisted make their character profile out of *those* things. lol.
 
+#### 2022-12-22 15:59 - I like laughing at my own jokes
+
+it makes me funny to myself,
+so others can feel funny
+around me too.
+
+I learned that from jimmy fallon.
+he was always beaming and couldn't
+not laugh at his own jokes. (cowbell)
+
+just thought I'd share.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
