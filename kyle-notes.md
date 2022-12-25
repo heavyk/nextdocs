@@ -36,4 +36,40 @@ as a philosophical topic, there's quite a bit of difference between the concept 
 
 [3]: I think that may be why so many of his legends are of shapeshifting to get away with rape or to sway some thing. then hera shows up, and she can shapeshift just like zeus and turns out to be kind of an asshole with that capability too.
 
+### 2022-12-24 21:43 - narrative and shepherding
+
+the other day, I was writing about shepherding and how I don't like it because it feels like steering to me. just now, I was also thinking about how I write these ideas down -- as in they just come to me and I write them. it seems like maybe I'm not translating them just as how my feeders of information want me to write it. I also wrote about how I wasn't sure if shepherding is 2nd ray or 1st. after some thought, it's clearly 2nd ray -- but what showed up to me is how similar it is to narrative.
+
+narrative, is a medium just like all of the others, cept the thing that transfers in the 2nd ray medium is the narrative, let's say. therefore, it's not so muchm what the narrative *is*, but that there is a narrative. nosebook is constantly steering and shepherding me to the concept that they think they want me to find.
+
+in my opinion, nosebook would be pretty much the equivalent of zeus in technological form. nosebook is built literally on top of tesla technology (it's the world system made to run in their astral environment, not the suns). that's also interesting because tesla has all of vulcan's symbols (and I would also consider the second prometheus) -- cept a strange thing is that he's the tall aryan body and build (mars), not the lame zeus. considering that vulcan created technology for zeus, tesla and his gifting fields are the modern equivalent.
+
+additionally, it's also helpful to note that when I was looking at the jupiter and saturn solar regimes, in mythologies it's said that saturn was first, but then zeus supplanted him, but this is opposite from the triads, where first is enki's (1st ray triad), then zeus (2nd ray triad), saturn is the 4th ray triad, and he would have come after zeus -- so I don't know why I felt like the saturnian and jupiterian regimes were concurrent. in the end, I think the difference is the moon (osiris). osiris and the pre-dynastic egyptians made the moon possible. this overthrew the martians (enlil's setup) in cairo and stuff, allowing jupiter/ra to rise to power.
+
+so, when I think about why it's the saturnian (atlantian) regime, the reason why I think I feel it as concurrent is because of the moon. the moon and the various pyramids seem to set the "tone" of the planet. I believe we're running on the astral system of the moon (as seen during a solar eclipse), and also the megalithic structures, probably most built on enki's system. therefore, nosebook, truely is jupiter's (moon) system using and providing additional astral infrastructure to enki's system.
+
+---
+
+obviously, I want to create a new system. in this case, I'm the emitter here (1st ray), and so my system is all based on desire and LOA. I've basically started my manual from a 1st ray perspective. this implementation needs to be hung on a narrative.
+
+if I just have materialistic science, this is the most lifeless explanation, and has no motivating factor. everything is a lifeless reaction, and there's nothing motivating all of this chaos -- just random collisions. what a 2nd ray sees is the motivating aspect, more than the reality (2nd ray perspective like to justify and stuff), and so this is your basic narrative structure. whether you have a mcguffin or whatever to move the thing forward, it is, in the end the story that moves the players from scene to scene.
+
+---
+
+now, here's the weird thing: I realised that the story doesn't matter. there are sad stories and there are happy stories, stories of accomplishment and failure. what matters is the medium which the story is told in. this is what we call "reality". we live a narrative reality, and that narrative reality is our own creation.
+
+another way to look at it is, that it doesn't matter who writes the narrative. zeus himself could be writing my narrative for me, like I'm one of his play-thing dolls, and it still doesn't matter because it's not the exact narrative that makes anything. all vibrations flow through the manual and get turned into perceivable reality for us.
+
+remember how my system/manual is based on desire and LOA? well, that's exactly it. in my system you attract things perceptually through the use of symbols.
+
+I noticed one of the reactions I get frequently is that "I see whatever I want" -- which is accurate -- cept, I'd say I see it as a reflection of my perception and/or how I conceptualise the universe.
+
+the way that I do that is one of an entitled brat. I see narrative elements around me (like shows on TV, stories, myths, etc.) and the elements that I like, I feel association with, and so the symbols that my associated character receives in response to their actions, I begin to think of myself that this can happen this same way. those are the legends that I inspire myself to. I like to take those symbols, rearrange them, manipulate them, and find a way for them to conform to my desire. I embody that 1st ray female.
+
+the 1st ray female (anatau, not genxicat/aphrodite/ishtar) doesn't care what it takes to get the thing done. she just wants something and violence, warfare, etc are equally valid in her box of tricks. here's how it happens (I'll explain from my perspective). I want to force a change in regime in some place, so I've seen before in my past that all elections have a dialectic, and both sides are saying roughly the same thing, but their approach angle is different, so you pick the thing that you want (desire) and then just make two "opposite" sides that take different angles of approach to the same thing.
+
+this way of looking at things, seeing the desire and the requisite elements to arrive to the desire is the perspective of desire. at the end of every desire is a destiny; it's like a destination and you do eventually get there. allong the way is the aarrative elements that "get you ready" for the destiny. this is how reality works for me anyway.
+
+seeing the 1st ray system displayed so plainly, it should be easy to see now how that is zeus' same system, but perceived from the ground up. in his 3rd ray system, he needs to manipulate physical and conditions (3-7) to get his desire to take place. this new 1st ray system, doesn't need any such conditions for something to happen -- all it needs is a way to get there -- and quite literally all narratives arrive to the same destiny; so, like choose the path you want to go, you know.
+
 ### FFF triad and the difference between an emitter and female
