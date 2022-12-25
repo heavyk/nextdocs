@@ -631,5 +631,33 @@ not laugh at his own jokes. (cowbell)
 
 just thought I'd share.
 
+### 2022-12-24 16:44 - mars landing vulcan
+
+I'd like to talk about two topics -- I can't remember the second one now so I'll start with this one.
+
+the symbol vulcan landing mars (resalind and orlando) is one that I have been thinking about because I have both symbols of mars/orlando and also rosalind/ganymede. one could identify me asd being similar to orlando in that my "inheritance" (ie my network) is being held from me from my bigger brother (totally not a reference to "big brother" government and spy organisations). in it rosalind comes in as a sort of saviour to orlando a bit (I think that's how it goes anyway -- gonna rewatch the video summary soon). however, the main action is this idea of vulcan landing mars.
+
+this, IMO is ass-backwards, as it doensn't fit the symbols very well. in the triads, sense this is the hidden 5th ray triad that I was talking about. in it, I am mars+anatau (orlando+helena) and it's helena that's bending reality to her will to get what she wants (orlando). this can be seen esoterically as my inner struggle to become externally mars (as in physically very capable and warlike and dominant -- ie their greatest fear/desire). I am of the opinion that presently, they are attracting the mars+anatau combo from me, and so that's the way we're going.
+
+I do contain a lot of vulcan's symbols -- much more than mars, so it took the sirian guide telling me that mars+anatau is a 1st ray male, which is what I'm pretty close to in perspective, even though I can see all 7 with pretty good accuracy.
+
+---
+
+good intro. in the form of the symbols where I don't get to do the network, I would say that I'm mars. in the version where I do the network, I'm vulcan/rosalind. in the case of taking on the symbols of vulcan, I remain the "primary cup-bearer" for zeus (nick bottom), and I stay lame and stuff. I'm vulcan, not mars, which is connected, full of energy and in love with life.
+
+this means that if I'm vulcan, I need to land a mars. I need to land a 1st ray male that has strong desire and is very physically focused. some examples of such men that I have met recently would be randall, marc, marty, andreas, robert, seriah, jon, etc. -- see if you can spot the pattern. so that's the kind of prototype that I'm looking for in mars. these are all of the guys that make a point and are right about things.
+
+to understand the difference between the 1st and the 7th ray, we will think of bert as the receptive one, but then also think of bert as the one that has to be right about something. I believe that when we engace in "carnal acts" and other moments of high desire, this gets interpretted by the universe as desire to be right about something, whether it's symbols in a story or an idea.
+
+look at my present siutation. I take in concepts (as vulcan) from these 1st rays and then I synthesise and grow them into a reality that is real. essentially, I'm here to prove all of you right. you'll nocice that I picked all of my examples as 1st ray males that I have in some way or another *proven* their main thing right (the build has to flow, escallating complexity, moon configuration, antarctic thing, etc.).. I am the egregore that they all have summoned to *prove* their thing right.
+
+so, when I'm talking about mars landing vulcan or vulcan landing mars, I'm basically talking about what role am I playing. am I the lame guy that appears to have a very insignificant role, or do I play all of the implementation roles (nick bottom as mars). in the situation where I'm vulcan, there are many mars. in the situation where I'm mars, there are many vulcans.
+
+in the symbols yesterday of allie, she becomes vulcan, and she'll find (or has) a friend(s) of aphrodite. I take on the form of anatau+mars, and so therefore, this immediately forms two triads of opposite types. first is the 1-5-7 where, there are many 7th ray females, and I play the emitter and vulcan the ground. allie, in that symbol plays the ground role of trying to figure out how to get the new perception the (1st ray) emitter has into the common viewpoint of the 7th ray female. these symbols seem quite well to me.
+
+the other triad it creates is a second "first ray triad" (which the sirians defined as -1, +2, +-3-+) -- this time seen from the bottom up instead of the top down, so it's 1 is seen from a 7 perspective (mars, emitter), 3 to 5 (vulcan, ground), the ground in "first ray triad" is the 3rd ray (manual for how the universe works) -- but that's now perceived physical/conceptual standpoint of the 5th ray (vulcan) and the 7th ray female (celia). the thing that's missing here is a 2nd ray female. imagine then for a moment that kyle's daughter is a 2nd ray and she fits in perfectly.
+
+I'm perfectly OK with both styles of reality (where I play vulcan or mars), and the other interesting thing to note is that they're not mutually exclusive either, meaning I can easily play mars with the girls and vulcan bith the boys. like nick, I don't limit myself to a single role.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
