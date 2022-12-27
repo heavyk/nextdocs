@@ -2592,6 +2592,16 @@ I believe the 2012 date was actually the end of present ebb and flow calculated 
 
 2012 meant the end of the frequency spectrum which the taurens and their megalithic architecture can control. we now summon these egregores more and more redily with our own thoughts. these narrative elements appear as a response to our thoughts and desire to be right (the original promethian fire).
 
+### 2022-12-26 23:33 - so, they raided agrarians?
+
+that doesn't make sense. the "plea of the soul of the cow" is strange to me because they're raiding *farmers*, which means if they're killing or multulating cows, they're killing their tools and dramatically increasing the difficulty of farming on a massive scale. this is opposite to the cattle slaughter than YHVH was interesed in, which was of the shepherds. the cattle slughter in this case was their feed, not their tools, and so we need to look at the difference in desire this creates.
+
+when my father was working out in the field, the most fearful thing he had was of losing his tools. if he got his tools stolen, that was how he made his income, so it would be a devistating loss. meanwhile, for a sheperd, losing some cattle is an annoyance, but there are more, so as long as they reproduce this is not a significant problem. however, when looking at it from a desire perspective, the shepherd losing cattle feels like a an assult on survival creating desire for more survival (typical of that time), the assult on one's tools, creates desire for better tools and more protection/security and laws to protect the "plea of the soul of the cow".
+
+I thought that was significant: desire for bottter tools vs survival. both take the symbol of cow slaughter and interpret them differently to produce a tool/security oriented culture vs survival oriented culture of the very early humans. it's also significant because it's a reinterpretation of the time-resonance of prometheus being taken down by cattle slughtering psychos. who's the bad-guy now?
+
+also, keep in mind that saturn/dumuzi was notably very pro-agrarian, not shepherd.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
