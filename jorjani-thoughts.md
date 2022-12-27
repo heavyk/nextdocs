@@ -2602,6 +2602,12 @@ I thought that was significant: desire for bottter tools vs survival. both take 
 
 also, keep in mind that saturn/dumuzi was notably very pro-agrarian, not shepherd.
 
+### 2022-12-27 00:07 - the agrarian and shepherd perspective
+
+the agrarian perspective is notably one of 4th ray, where you're in harmony and balance with the "divine order" (nature) and living off of its bounteousness -- a harkening back to the time of saturn, when the ground was plentiful.
+
+the 2nd ray perspective, in contrary is one of the shepherd, (pathing) where you have a desired destination (a destiny) for the cattle to go, so you mix 1st ray desire with the rules of reality (3rd ray) and you get the pathing toward the destiny. it works the same for a narrative as well, because you have a goal/desire for a character, and so the narrative is the complex interconnectedness of interactions between characters to ultimately bring the character from where they are (1st act) to the goal/desire (5th act). the 2nd ray perspective is the one of thme 3rd act, where the peak/tipping point is passed and no further looking back is possible.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
