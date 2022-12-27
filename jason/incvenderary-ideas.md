@@ -278,13 +278,13 @@ this is extremely interesting considereing dr. eugene's thoughts on pigs and hyb
 
 interesting that the symbol for the aryan warrior designed to completely rework all of the symbols (red and white) and stuff of the "gods" is a menacing boar, with horns coming out of its mouth, instead of its head. mars also is a bit of a symbolic shapshifter.
 
-### 2022-12-27 00:26 - mithras slaying the bull
+### 2022-12-27 00:26 - 009 - mithras slaying the bull
 
 remember how I said that stonework originally was used to determine the destiny of a person, by modifying the locations of the planets (as in the tauren function of the great pyramid), the new form of stonework installed by the aryans is one of narrative, where simply figurative and symbolic statues and situations are placed in the public eye (as the cathedral builders did with "christian" symbols), so as to summon an egregore of that follows the symbols.
 
 I don't know this for sure, but randall carries on at length about the "taurid meteor shower" and mithras -- I have to wonder if the original reason for this symbol, and its incorporation into the mystery cult's saturn worship (father time), and the broken corinthian column (atlantis?) -- as a way to summon a mithraic egregore that that will put an end to the taurid meteor shower and slay the bull (which enlil represents) once and for all. stonework narratives. I'm reminded of the song "stone lady" by eliminator (off the ancient light album)
 
-### 2022-12-27 00:36 - tauren stonework's grip on summoning egregores
+### 2022-12-27 00:36 - 009 - tauren stonework's grip on summoning egregores
 
 that's right, I'm claiming that the great pyramid and other megalithic architecture is used to control the apparition of egregores by controlling the astral, and keeping the physical confined to all frequencies less than the astral (down to zero). this summoning, was done astrologically (which is why mithras takes over the movement of the celestial bodies/rotation of the earth) and conformed to enki's 3rd ray setup where everything was done in harmony with "divine order".
 
@@ -296,8 +296,16 @@ tte various "tower of babel" that have showed up have been efforts to physically
 
 combined with the redefining of shepherd symbols that zarathustra did, mithras is a narrative reality of our own creation.
 
-### 2022-12-27 01:11 - bottom to top script
+### 2022-12-27 01:11 - 009 - bottom to top script
 
 @[youtube](https://youtu.be/atkOawrde20?t=2256)
 
 in that image right there, the script on the bottom is written, it looks like, from right to left, but most notably it's different from sanscrit, because all of the symbols start (holding the stylus with the left hand) from the bottom to the top, rathar than from the top to the bottom like the brahaman sanscrit.
+
+### 2022-12-27 02:28 - 009 - freedom, growth, and joy
+
+as you're talking about ahura mazda and how all things are subject to change, therefore defining that change into two categories: spenta mainu and angra mainu -- one of expansion/progress and constriction/constraint -- and I'm constantly reminded of abraham's "triad of intentions", one being of freedom, growth and joy. these appear to me also as 2nd ray attributes. I noticed that prometheus (and other derivatives) offer the symbol of progress/growth (as opposed to constriction), and of freedom (bound for freedom), but they do not encapsulate the concept of joy.
+
+joy is an interesting concept to contemplate, because joy is not formulaic. you cannot perform a ritual and accomplish joy. joy has an aspect to novety to it, where a joyful thing will be less joyful the more often it's repeated, meaning that joy is related to novelty. it's hard to experience joy in a mundane situation. growth and progressive improvement enhances the experience of novelty and so its also linked to joy. joy has that really high frequency feeling of excitement and desire linked to it, so it's the desire/justification aspect of the 2nd ray perspective.
+
+in fact, that's a very interesting observation that joy is the opposite of justice in the desire perspective. (*wink*)
