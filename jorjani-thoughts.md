@@ -2572,6 +2572,18 @@ either way, the martians are not singular in thier efforts. as only the INFECTED
 
 you also know the fable of the [black] smith that makes a deal with the devil? the smith part I believe is zarathustra, and the devil is saturn/satan, which was the 4th ray ground in atlantis (he was with thoth, the emitter, too).
 
+### 2022-12-26 22:40 - north and south pole
+
+when looking at a map of aryan descent, they clearly came from the north pole, hyperborea. their colour is red. the south pole is saturn's domain and his colour is black. when I look at "pre-dynastic"[^1] egyptian status there's a pre-dynastic period of a black colour, but then it turns white and they get the rounded shaped bowling pin hats.. this is the fall of the black dynasty (a time resonance of the end of the tudor dynasty), and became white, as in white and red (cross), like where the aryans of that time fled to, and why gaelic is syntactically similar ty pre-dynastic egyptian.
+
+this black vs red or black vs white I believe was revived with the return of the coneheads (taurens?) in the time of the 18th dynasty (and earlier like with joseph), and the return of YHVH (tauren). queen nefertiti wore a golden hat adorned with the condor, which normally is a black bird. this black bird, cat goddess shows up again.
+
+so, when I think of red zarathustra/santa as the north pole and black saturn/satan as the south pole, again these appear to me to be forces to once again move the martian red ones to a new location. santa is a false black goddess masquerading in black, and zarathustra is a false red as well, wearing the colour of the martians and the symbol of the taurens. this causes further migrations, and may have been what created the east/west schism (we still divide east and west hemispheres of the planet by that position[^2]).
+
+[1]: I put quotes because some black status with insane detail are listed as being kafre, when they clearly are pre-dyanastic
+
+[2]: at the moment, I believe the planet is divided east and west somewhere in the united states, but it's soon returning back to its location of dividing east and west (magnnetic north and south pole) to about where ankor wat is located (dividing russia and china now)
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
