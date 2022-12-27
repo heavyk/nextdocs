@@ -295,3 +295,9 @@ we summoned all of these concepts/egregores into reality by our own focused thou
 tte various "tower of babel" that have showed up have been efforts to physically replace this 2nd ray "divine order" perspective of our destiny, and replace it with a narrative one. mithras is a stonework narrative that turns into reality. the apparition of mithras proves destiny is no longer determined by the stars. he's an anti-narrative, designed to show up at the *wrong* time (when "divine order" can no longer constrain his manifestation).
 
 combined with the redefining of shepherd symbols that zarathustra did, mithras is a narrative reality of our own creation.
+
+### 2022-12-27 01:11 - bottom to top script
+
+@[youtube](https://youtu.be/atkOawrde20?t=2256)
+
+in that image right there, the script on the bottom is written, it looks like, from right to left, but most notably it's different from sanscrit, because all of the symbols start (holding the stylus with the left hand) from the bottom to the top, rathar than from the top to the bottom like the brahaman sanscrit.
