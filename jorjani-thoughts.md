@@ -2554,7 +2554,23 @@ I also want to mention that this concept is really easy to write down in so many
 
 if the borg were a human race, this is how they would fight with only swords and horses. assimilate all things and continue going forward. never look back. etc.
 
+---
+
 also, the scalps make for great performance metric to show who is better combatant, and good for competition amongst the warriors. obviously why they were so prolific and successful.
+
+the cattle slaughter also is another thing that they did which is the same as the devas. you'll notice that these devas/olympians are always associated with bulls and the taurus constellation. they require cattle sacrifice, and so did the aryans (potential connection to cattle mutilations and UFO activity). they're copying the taurens as a mind game, assimilating the taurens' tactics and reusing them on their victims.
+
+it looks to me like there's quite a vibrational prelude to this. remember how I talked about the galaxy being divided in half with one side in opposition to the earth? in kuthumi's ET guide to creation, he talks about this divide in the galaxy of astral beings. one group is to be attracted to the martian base (this is where enki and alalu are), and so I'm assuming that the unwritten aspect there is that many of these martian overlords are actually imported from taurus.
+
+I claim that this episode happened as a response to alalu/prometheus' defeat and is connected to the first self-sabotage. what I mean is that I think the whole kuthumi's guide is a narrative.
+
+imagine two timelines: in both, the INFECTED ONES are birth theirselves into the martians along with enki and alalu. in one timeline, alalu is successful and builds his solar system (which, as a 2nd ray male it would actually make a galaxy). that 2nd ray galaxy is the one the narrative reality we're in now and the whole opposite side of the galaxy of the taurens including enlil are all created beings. alalu self-sacrifices and allows himself to be defeated by YHVH/enlil and his whole setup gets destroyed and enlil uses the moon to control the earth with it.
+
+either way, the martians are not singular in thier efforts. as only the INFECTED ONES, the martians are united, but with enlil in charge and calling the shots, some part is tauren aligned and another part is original INFECTED ONES.
+
+---
+
+you also know the fable of the [black] smith that makes a deal with the devil? the smith part I believe is zarathustra, and the devil is saturn/satan, which was the 4th ray ground in atlantis (he was with thoth, the emitter, too).
 
 ### what are your differences with steiner?
 ### promethian egregore and science
