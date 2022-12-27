@@ -2554,6 +2554,8 @@ I also want to mention that this concept is really easy to write down in so many
 
 if the borg were a human race, this is how they would fight with only swords and horses. assimilate all things and continue going forward. never look back. etc.
 
+also, the scalps make for great performance metric to show who is better combatant, and good for competition amongst the warriors. obviously why they were so prolific and successful.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
