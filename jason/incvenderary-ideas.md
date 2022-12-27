@@ -309,3 +309,9 @@ as you're talking about ahura mazda and how all things are subject to change, th
 joy is an interesting concept to contemplate, because joy is not formulaic. you cannot perform a ritual and accomplish joy. joy has an aspect to novety to it, where a joyful thing will be less joyful the more often it's repeated, meaning that joy is related to novelty. it's hard to experience joy in a mundane situation. growth and progressive improvement enhances the experience of novelty and so its also linked to joy. joy has that really high frequency feeling of excitement and desire linked to it, so it's the desire/justification aspect of the 2nd ray perspective.
 
 in fact, that's a very interesting observation that joy is the opposite of justice in the desire perspective. (*wink*)
+
+### 2022-12-27 02:40 - joy as a fulcrum
+
+this concept of joy being the opposite of justice in the desire perspective directly links to a concept I created yesterday (christmas) of "justice or evolution" a cognate(?) of "justice and retribution" -- where an ultimatim is put forward saying that justice *will* be inacted, unless evolution or progressive improvement takes place.
+
+in in this dialectic between justice and evolution, one can see that the fulcrum is on the aspect of joy. in the triad of freedom, growth and joy, justice is the opposite of freedom, and so it's using forced evolution/growth/expansion as the ultimatim to produce the opposite of "joy". which one is worse? the discomfort (opposite of joy) of evolution or of justice.
