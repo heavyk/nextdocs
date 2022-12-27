@@ -2584,6 +2584,14 @@ so, when I think of red zarathustra/santa as the north pole and black saturn/sat
 
 [2]: at the moment, I believe the planet is divided east and west somewhere in the united states, but it's soon returning back to its location of dividing east and west (magnnetic north and south pole) to about where ankor wat is located (dividing russia and china now)
 
+### 2022-12-26 23:00 - time resonances
+
+I noticed in lbe (cause it's most visible) and other places (including terence's timewave), that there are seeming repitions of history, which repeat events not literally, but symbolically. therefore, I would conclud that probably all three dates (or at least two) are correct, and that these are actually time resonances of the original fall of prometheus. the only differences in these resonances is how the culture environment receives the manifestation of the egregore we're summoning; egregores are the heros we're summoning with or legends and myths (novel folklore), and these summonings are actually what create the "timewave" ebbs and flows.
+
+I believe the 2012 date was actually the end of present ebb and flow calculated and stable appearance of these egregores originally installed by enlil through megalithic architecture, which is why stonework is always in association of summoning the saviour/hero the culture is intending to bring. this summoning is what I believe joseph was doing in the great pyramid during that time. those energies have the capacity to directly affect the prana (earth energies, which we associate with girls and attraction), and chi (solar, emotional/conceptual energies emitted by the sun and presented by moon), thereby creating the conditions for the appearance of something (like YHVH to "save" them from their "slavery").
+
+2012 meant the end of the frequency spectrum which the taurens and their megalithic architecture can control. we now summon these egregores more and more redily with our own thoughts. these narrative elements appear as a response to our thoughts and desire to be right (the original promethian fire).
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
