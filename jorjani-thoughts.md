@@ -2544,6 +2544,16 @@ sure, there are things that annoy me and stuff, but those are things that happen
 
 I also want to mention that this concept is really easy to write down in so many paragraphs, but I'm by no means well practised at it. I'm still making tons of improvements on my own technique to how I conceptualise reality in this regard. we're all learning, and I consider myself pretty rapid and agile in how quickly I can allow things to change for the improvement. most of us want to be right about the brokenness or injustice.
 
+### 2022-12-26 21:57 - rituals of aryan warriors
+
+@[youtube](https://youtu.be/atkOawrde20?t=1261)
+
+- they sacrificed 1 out of 100 prisoners of war and put the blood on an inverted sword on a stone platform -> we do the same thing as the devas (sacrifice), but ours is in the context of war (the sword and the stone), so it's like, "we do the same, but expect the opposite cause our victims are not innocent".
+- they scalped the prisoners and put their enemies scalps onon their armour -> the hair is like transmitting antennas for people, conceptually speaking, so by wearing their enemies hair, when their enemies would see their armour, they would also see their defeated comrades adornning their armour. huge mental defeat before even engaging in combat.
+- they took the skulls of their enemies, dipped them in metal (this is a capacitor) and then drank out of them -> the skull, you can imagine is the most resonant part of the body with the person's thoughts -- so, by drinking an intoxicant and hallucinogen (soma), they were amplifying the thoughts of their enemies so they would be more proficient in defeating them (it's all a mind game, before you even get to the ring/battlefield) -> this also has the added effect of the conquering aryans absorbing the concepts of the culture they're destroying, retransmitting the signals (like the female) from the perspective of the aryan thought structure.
+
+if the borg were a human race, this is how they would fight with only swords and horses. assimilate all things and continue going forward. never look back. etc.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
