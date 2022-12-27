@@ -2544,7 +2544,19 @@ sure, there are things that annoy me and stuff, but those are things that happen
 
 I also want to mention that this concept is really easy to write down in so many paragraphs, but I'm by no means well practised at it. I'm still making tons of improvements on my own technique to how I conceptualise reality in this regard. we're all learning, and I consider myself pretty rapid and agile in how quickly I can allow things to change for the improvement. most of us want to be right about the brokenness or injustice.
 
+### 2022-12-27 02:58 - the monad
 
+not related, but I got to the monad idea a little bit and it's a circle with a point in it. I wanted to illuminate the idea from my perspective.
+
+a galaxy or planet has the shape of a sphere or bubble, and a star has the shape of a point. for a planet, the sphere wants to have a size (sphere of influence), and a point wants to always be its smallest size. therefore a planet takes hydrogen and puts it out to the sphere (think gas giant), meanwhile a star wants all of its hydrogen to go toward the centre.
+
+the point symbolises attraction and constriction, as all elements are compressed into their highest density (like sirius b vs sirius a), and the sphere represents expansion.
+
+the sphere can be considered like the aura and the point, the heart. also interesting thing to note is that stars (like our own) push out higher density stuff to the edge of the sphere (solar wind), and planets like our own compress high density to the area around the sphere (the tectonic plates), leaving the area inside and out of the sphere as lower density.
+
+as such, earth in its present state represents a completed monad, a sphere with a point in the middle. it wasn't always like that.
+
+the monad is neither the sphere or the point, but both at the same time, in divine harmony and balance with each other.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
