@@ -2544,69 +2544,7 @@ sure, there are things that annoy me and stuff, but those are things that happen
 
 I also want to mention that this concept is really easy to write down in so many paragraphs, but I'm by no means well practised at it. I'm still making tons of improvements on my own technique to how I conceptualise reality in this regard. we're all learning, and I consider myself pretty rapid and agile in how quickly I can allow things to change for the improvement. most of us want to be right about the brokenness or injustice.
 
-### 2022-12-26 21:57 - rituals of aryan warriors
 
-@[youtube](https://youtu.be/atkOawrde20?t=1261)
-
-- they sacrificed 1 out of 100 prisoners of war and put the blood on an inverted sword on a stone platform -> we do the same thing as the devas (sacrifice), but ours is in the context of war (the sword and the stone), so it's like, "we do the same, but expect the opposite cause our victims are not innocent".
-- they scalped the prisoners and put their enemies scalps onon their armour -> the hair is like transmitting antennas for people, conceptually speaking, so by wearing their enemies hair, when their enemies would see their armour, they would also see their defeated comrades adornning their armour. huge mental defeat before even engaging in combat.
-- they took the skulls of their enemies, dipped them in metal (this is a capacitor) and then drank out of them -> the skull, you can imagine is the most resonant part of the body with the person's thoughts -- so, by drinking an intoxicant and hallucinogen (soma), they were amplifying the thoughts of their enemies so they would be more proficient in defeating them (it's all a mind game, before you even get to the ring/battlefield) -> this also has the added effect of the conquering aryans absorbing the concepts of the culture they're destroying, retransmitting the signals (like the female) from the perspective of the aryan thought structure.
-
-if the borg were a human race, this is how they would fight with only swords and horses. assimilate all things and continue going forward. never look back. etc.
-
----
-
-also, the scalps make for great performance metric to show who is better combatant, and good for competition amongst the warriors. obviously why they were so prolific and successful.
-
-the cattle slaughter also is another thing that they did which is the same as the devas. you'll notice that these devas/olympians are always associated with bulls and the taurus constellation. they require cattle sacrifice, and so did the aryans (potential connection to cattle mutilations and UFO activity). they're copying the taurens as a mind game, assimilating the taurens' tactics and reusing them on their victims.
-
-it looks to me like there's quite a vibrational prelude to this. remember how I talked about the galaxy being divided in half with one side in opposition to the earth? in kuthumi's ET guide to creation, he talks about this divide in the galaxy of astral beings. one group is to be attracted to the martian base (this is where enki and alalu are), and so I'm assuming that the unwritten aspect there is that many of these martian overlords are actually imported from taurus.
-
-I claim that this episode happened as a response to alalu/prometheus' defeat and is connected to the first self-sabotage. what I mean is that I think the whole kuthumi's guide is a narrative.
-
-imagine two timelines: in both, the INFECTED ONES are birth theirselves into the martians along with enki and alalu. in one timeline, alalu is successful and builds his solar system (which, as a 2nd ray male it would actually make a galaxy). that 2nd ray galaxy is the one the narrative reality we're in now and the whole opposite side of the galaxy of the taurens including enlil are all created beings. alalu self-sacrifices and allows himself to be defeated by YHVH/enlil and his whole setup gets destroyed and enlil uses the moon to control the earth with it.
-
-either way, the martians are not singular in thier efforts. as only the INFECTED ONES, the martians are united, but with enlil in charge and calling the shots, some part is tauren aligned and another part is original INFECTED ONES.
-
----
-
-you also know the fable of the [black] smith that makes a deal with the devil? the smith part I believe is zarathustra, and the devil is saturn/satan, which was the 4th ray ground in atlantis (he was with thoth, the emitter, too).
-
-### 2022-12-26 22:40 - north and south pole
-
-when looking at a map of aryan descent, they clearly came from the north pole, hyperborea. their colour is red. the south pole is saturn's domain and his colour is black. when I look at "pre-dynastic"[^1] egyptian status there's a pre-dynastic period of a black colour, but then it turns white and they get the rounded shaped bowling pin hats.. this is the fall of the black dynasty (a time resonance of the end of the tudor dynasty), and became white, as in white and red (cross), like where the aryans of that time fled to, and why gaelic is syntactically similar ty pre-dynastic egyptian.
-
-this black vs red or black vs white I believe was revived with the return of the coneheads (taurens?) in the time of the 18th dynasty (and earlier like with joseph), and the return of YHVH (tauren). queen nefertiti wore a golden hat adorned with the condor, which normally is a black bird. this black bird, cat goddess shows up again.
-
-so, when I think of red zarathustra/santa as the north pole and black saturn/satan as the south pole, again these appear to me to be forces to once again move the martian red ones to a new location. santa is a false black goddess masquerading in black, and zarathustra is a false red as well, wearing the colour of the martians and the symbol of the taurens. this causes further migrations, and may have been what created the east/west schism (we still divide east and west hemispheres of the planet by that position[^2]).
-
-[1]: I put quotes because some black status with insane detail are listed as being kafre, when they clearly are pre-dyanastic
-
-[2]: at the moment, I believe the planet is divided east and west somewhere in the united states, but it's soon returning back to its location of dividing east and west (magnnetic north and south pole) to about where ankor wat is located (dividing russia and china now)
-
-### 2022-12-26 23:00 - time resonances
-
-I noticed in lbe (cause it's most visible) and other places (including terence's timewave), that there are seeming repitions of history, which repeat events not literally, but symbolically. therefore, I would conclud that probably all three dates (or at least two) are correct, and that these are actually time resonances of the original fall of prometheus. the only differences in these resonances is how the culture environment receives the manifestation of the egregore we're summoning; egregores are the heros we're summoning with or legends and myths (novel folklore), and these summonings are actually what create the "timewave" ebbs and flows.
-
-I believe the 2012 date was actually the end of present ebb and flow calculated and stable appearance of these egregores originally installed by enlil through megalithic architecture, which is why stonework is always in association of summoning the saviour/hero the culture is intending to bring. this summoning is what I believe joseph was doing in the great pyramid during that time. those energies have the capacity to directly affect the prana (earth energies, which we associate with girls and attraction), and chi (solar, emotional/conceptual energies emitted by the sun and presented by moon), thereby creating the conditions for the appearance of something (like YHVH to "save" them from their "slavery").
-
-2012 meant the end of the frequency spectrum which the taurens and their megalithic architecture can control. we now summon these egregores more and more redily with our own thoughts. these narrative elements appear as a response to our thoughts and desire to be right (the original promethian fire).
-
-### 2022-12-26 23:33 - so, they raided agrarians?
-
-that doesn't make sense. the "plea of the soul of the cow" is strange to me because they're raiding *farmers*, which means if they're killing or multulating cows, they're killing their tools and dramatically increasing the difficulty of farming on a massive scale. this is opposite to the cattle slaughter than YHVH was interesed in, which was of the shepherds. the cattle slughter in this case was their feed, not their tools, and so we need to look at the difference in desire this creates.
-
-when my father was working out in the field, the most fearful thing he had was of losing his tools. if he got his tools stolen, that was how he made his income, so it would be a devistating loss. meanwhile, for a sheperd, losing some cattle is an annoyance, but there are more, so as long as they reproduce this is not a significant problem. however, when looking at it from a desire perspective, the shepherd losing cattle feels like a an assult on survival creating desire for more survival (typical of that time), the assult on one's tools, creates desire for better tools and more protection/security and laws to protect the "plea of the soul of the cow".
-
-I thought that was significant: desire for bottter tools vs survival. both take the symbol of cow slaughter and interpret them differently to produce a tool/security oriented culture vs survival oriented culture of the very early humans. it's also significant because it's a reinterpretation of the time-resonance of prometheus being taken down by cattle slughtering psychos. who's the bad-guy now?
-
-also, keep in mind that saturn/dumuzi was notably very pro-agrarian, not shepherd.
-
-### 2022-12-27 00:07 - the agrarian and shepherd perspective
-
-the agrarian perspective is notably one of 4th ray, where you're in harmony and balance with the "divine order" (nature) and living off of its bounteousness -- a harkening back to the time of saturn, when the ground was plentiful.
-
-the 2nd ray perspective, in contrary is one of the shepherd, (pathing) where you have a desired destination (a destiny) for the cattle to go, so you mix 1st ray desire with the rules of reality (3rd ray) and you get the pathing toward the destiny. it works the same for a narrative as well, because you have a goal/desire for a character, and so the narrative is the complex interconnectedness of interactions between characters to ultimately bring the character from where they are (1st act) to the goal/desire (5th act). the 2nd ray perspective is the one of thme 3rd act, where the peak/tipping point is passed and no further looking back is possible.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
