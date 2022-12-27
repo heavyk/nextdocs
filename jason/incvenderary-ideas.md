@@ -271,3 +271,9 @@ also, keep in mind that saturn/dumuzi was notably very pro-agrarian, not shepher
 the agrarian perspective is notably one of 4th ray, where you're in harmony and balance with the "divine order" (nature) and living off of its bounteousness -- a harkening back to the time of saturn, when the ground was plentiful.
 
 the 2nd ray perspective, in contrary is one of the shepherd, (pathing) where you have a desired destination (a destiny) for the cattle to go, so you mix 1st ray desire with the rules of reality (3rd ray) and you get the pathing toward the destiny. it works the same for a narrative as well, because you have a goal/desire for a character, and so the narrative is the complex interconnectedness of interactions between characters to ultimately bring the character from where they are (1st act) to the goal/desire (5th act). the 2nd ray perspective is the one of thme 3rd act, where the peak/tipping point is passed and no further looking back is possible.
+
+### 2022-12-27 00:18 - 009 - the giant boar as a symbol for aries/mars
+
+this is extremely interesting considereing dr. eugene's thoughts on pigs and hybridisation. the idea is that a lot of human's notable qualities come from pigs, may very well be the origin of "kosher" -- which is because we (humans) have pig qualities mixed with godlike qualities, so when we eat pigs' flesh, we're tuning ourselves to the animal perspective of our DNA instead of our godlike (promethian) perspective of DNA. it may have happened that after consuming pig flesh, some of the kosher people lost their godlike qualities, so in order to maintain a race of purebreads, they are to abstain from foodstuffs that will bring out the animal instinct.
+
+interesting that the symbol for the aryan warrior designed to completely rework all of the symbols (red and white) and stuff of the "gods" is a menacing boar, with horns coming out of its mouth, instead of its head. mars also is a bit of a symbolic shapshifter.
