@@ -1662,6 +1662,16 @@ I think I'll end here. there is more I wanted to say, so I'll leave with this fi
 
 it's quite likely that greg's aura is encrypted because I'm so good at picking up others' concepts. therefore, his concepts are unintelligible or planinly wrong to me. so, if you want to hide your concepts, fine, but why not present the concepts your speaking so that people like me and jaron can understand you?
 
----
+### 2022-12-27 12:20 - don't worry about me
+
+this is a concept that I woke up with yesterday morning with, and it continued until last night. the gist is that I'm requesting to be bolted into 3d, as I feel that it's always my goal to accept, become OK, and then to begin liking and flourishing in my present conditions (another aspecet of the 2nd ray perspective, orlando) -- so the reaction comes with the sense that kenny is going to to be stuck in an inferior perspective on reality meanwhile all the others are having a glorious time in many more dimensions than 3.
+
+you have to understand my perspective, which is that of the hare. I go really fast, but my weakness is turning around and comparing myself to the position of others. as such, I've stadily removed all of my competitive and comparative spirit out of myself. I compare and measure frequently, but it's from a pure logical (3rd) perspective, and I ensure that the comparison does not produce a feeling response, which is what competition is. I'm not out to compare myself to anyone. I have things that I want, and though others will benefit from them, it doesn't matter to me. I'm not in competition with them, so I none of that matters. what matters is that I want it, and that's it.
+
+I don't compare myself to others and have a constant sense of unbound improvement, expansion and progress, (spenta mainu), so my present circumstances don't really matter to me too much, as 3d is just the starting point. it will improve. I could see when I was writing the captain-of-3d document that I would take a technologcal/machine approach to it, and although all of the screens are flat, the first major improvement is to have many screens -- kinda like a fly. remember that one movie, "the fly"? something like that but less gross and unsightly. I often wondered what is the shape of the cells in the fly's eyes that allow them to see so many perspectives. when I've jumped into the perspective of the fly, it feels perfectly normal not dizzing at all to see so many perspectives. in fact, it's quite interesting because the fly's eyes create a sort of vacancy in the centre of the spatial image (the angle of diffrent  eye cells perspectives provide depth and that space in the centre of the image). it's hard to explain, but more perspectives mean more data.
+
+we see the model of what our brain thinks is reality, so even if I *only* see physical but have more than one perspective, either biologically (as in my eyes gain facets), or technologically, the result is that the image has depth. in addition not all of the perspectives need to be of the same thing, so it would be hypothetically possible to perceive various flat (physical) perspectives from various bodies as well. I don't see any problem with bolting myself into 3d. I have solutions, which mainly involve looking at the same thing from more perspectives.
+
+who knows, my 3d form of perception may become even desirable once the bugs are worked out -- who knows.
 
 ### interests diverging and individualisation
