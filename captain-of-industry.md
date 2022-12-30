@@ -83,30 +83,19 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 ### small things
 
-- it seems like the fuel trucks should also load up fuel to the cargo depots and shipyard
-
-- ability to set unity build something as soon as unity and build reqirements are met also the ability to unity transfer specific materials (helpful in the early game to save diesel)
 
 - console command to remove all terrain designatons that are completely surrounded by blank or at the correct height areas. (leaving only the active ones)
 
 - it'd be really nice to set alarms for settlement modules, to say when the buffer is full. I can put a storage between it and put an alarm on it, so it's low priority, but for limited space circumstances, it's still nice to know when I'm not getting a unity bonus.
   - also would be nice to set alarms for world mines too, so I can know when my trees or oil is getting full or empty
 
-- maybe add dust clouds to when terrain falls down, just for a visual effect.
-
 - planning mode should maybe pause upgrades as well. my reason for this I want to use unity to upgrade, but my trucks start grabbing parts, but then have to return them after I upgrade with unity.
 
-- I have pickups put on my fuel stations because they carry 20 and are fast. however, even though there are many excavators (27 fuel tank) at 7 or less fuel, the pickup does not refuel.
+- I have pickups put on my fuel stations because they carry 20 and are fast. however, even though there are many excavators (with 27 fuel tank) at 7 or less fuel, the pickup does not refuel them until they're empty -- at which time they refill the excavator to ~21 fuel.
 
 ### small bugs
 
-- if I am deconstructing a storage of CP2 and it's set to be empty, and then I unity build some belts costing CP2, it'll take the CP2 out of the shipyard before the storage of CP2 (save 0.3.4-1)
-
 - in power statistics panel, the +production and -consumption are confusing. it appears that production is how much power is produced (it's constant for me), meanwhile consumption is the total of all buildings/belts using power (minus the ones that are low power). the demand isn't recorded.
-
-- paused buildings with unity boost still cost unity.
-
-- if I click on upgrade a building, then pause the upgrade, then cancel the upgrade, the blue paused icon stays on top of the building until I reload from a save.
 
 - when the tree harvester has a tree in its claw, if I tell it to move to another place on the map where it can't go, it gives me the error, then I tell it to go to a new spot it can go. the truck comes to get the tree, the truck gets the wood, but the tree doesn't disappear from the claw. it cuts down another tree still with the tree in its claw. after another truck comes, it's fine again.
 
@@ -117,8 +106,6 @@ this opens up an interesting conversation though, which is how the pipe should b
 
 
 - it'd be nice if crude oil pumps could have the same notification system as boxes, but no need for the full ones so I can alert if < 30%, 20%, 10%, empty (also see above suggestion for slideable alerts)
-
-- it'd be nice if the green chevrons that show something is being queued for upgrade, but then when it actually starts the upgrade process, it'd be cool if it changed colours again so that when I unity build the upgrades, I have confirmation that it started the upgrade.
 
 - instead of assigning a truck to a single box, I want to assign a truck to a zone which contains various boxes and their whole job is to service the boxes/buildings in that zone
 
@@ -183,7 +170,7 @@ this opens up an interesting conversation though, which is how the pipe should b
 - remove products option from connectors (this helps a lot with fluids). even better would be to remove all types of a certain product type (seawater, steam, etc.) from all pipes and connectors that can reached from the pipe
 
 - when selecting the cargo depot, it'd be cool to see when the ship has departed and it's return time. it'd also be cool to set priorities on the contracts too in case of running out of unity.
-  - it'd also be nice to se t the fuel saver on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
+  - it'd also be nice to set the fuel saver on the depot rathar than the ship. I seem to always need to change it when the boat is gone.
 
 - sometimes I want balancers to have a priority, but also allow some percent to pass through (for example, some amount of CP2 I want to pass and another amount to go on to become CP3). in general though, I want to be able to define logic for the routing, incuding with the ability to query the status of other machines/storage. as in, when this part is running slow, route prioritise one route, else do a different thing.
 
