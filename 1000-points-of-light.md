@@ -97,3 +97,38 @@ the thing they're doing to be wrong.
 
 they're acting like children;
 let's make sure they know what right and wrong is.
+
+### 2023-01-01 13:06 - what's the point of being a good guy?
+
+if everything is just a vibration,
+then all things must go up equally
+to the amount to the amount they go down.
+
+therefore, if I spend the majority of my time
+experiencing undesirable (not bad) things,
+I'm entitled to an equal amount of desirable.
+
+amount/amplitude is not time though.
+
+---
+
+so let's say I have a 1000 units of desirable accumulated from 1000 units of undesirable. it took me years to accumulate that amount of desirable by experiencing undesirable. I could experience 1000 units of desirable in a single moment though (this is death), or I could amortise that desirable over a longer period of time.
+
+why then would I want to spend so much time experiencing undesirable only for a brief moment of desirable?
+
+---
+
+the above perspective is the 4th ray perspective, and it appears as if everything is for naught. the 2nd ray perspective knows the triad of intentions:
+
+"freedom" (cause you can always feel/perceive however you want and therefore attract reflectively)
+
+"growth" (cause even though it is a vibration, its amplitude is growing boundlessly so it sums,  not to zero, but a bounlessly increasing number)
+
+"joy" (cause why wait for the desirable conditions to start enjoying myself? after all, all concepts are relative to my perception of them).
+
+I have unlimited freedom to perceive anything
+anyway that I want.
+I take the fire back!
+
+don't tell me how to perceive them;
+I'll perceive them how I want.
