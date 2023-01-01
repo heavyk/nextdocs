@@ -68,3 +68,32 @@ we both want the same thing
 [2]: not totally true. another bit of context is the [first part of this idea](/kyle-notes.md#2022-12-26-1749---the-last-days-of-night) written to kyle, but none of those points are going the direction I want to take this entry now.
 
 [3]: is a topic that sepehr covered when he talked about alister crowley accidentally revealing the secrets of the (I think) ordo templars (or something like that) -- but anyway they had to initiate him on the spot to be able to talk about it.
+
+### 2023-01-01 12:32 - good/bad and right/wrong don't exist
+
+in the garden we were given the ability to *discern*
+the difference between one thing and another.
+
+I have a concept for *this* and a concept for *that*,
+therefore *this* thing is different than *that* thing
+(conecptual differentiation is the fire of prometheus)
+
+if we were to find out that
+good/bad and right/wrong don't exist,
+we would become god-like them.
+
+every good thing has a bit of bad in it,
+and every bad thing has a bit of good in it --
+therefore, good and bad, right and wrong
+are all relative to the perceiver --
+and how they perceive the concept.
+
+all things are attracted based on how they're perceived
+they can only exist as good or bad inside of our perception
+nothing is absolutely good or bad.
+
+nobody can do any wrong unless they perceive
+the thing they're doing to be wrong.
+
+they're acting like children;
+let's make sure they know what right and wrong is.
