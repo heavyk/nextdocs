@@ -179,3 +179,35 @@ can always *see* and *prove*
 
 you are blameless (when you realise it).
 do what thou wilt (when you want).
+
+### 2023-01-03 11:34 - perfecting the timeline and making it "just right"
+
+in captain's log, I was talking about how it takes (in the context of speedrunning) one person to figure out a new technique which meets the goals of the challenge and so it changes the sequence one takes to meke it through a run.
+
+this is the same thing as normal reality. all things are vibration, so our distance in space is a difference in vibration between "you" and "me" (whatever that means, when I say I and you are vibration); well, the same is true for time. passsage through time is the sequence of events that your consciousness -- for your perception to go from one vibration to another. you navigate time with your mood and how you perceive the resistance in your medium (ie different than the rules of the medium -- which is that physical things are solid and have mass/dessity to thim). perception trumps all rules and laws of the medium, so ultimately you create your own reality.
+
+along the "timeline" -- ie the sequence of moods that you experiences and the resistance that you experience in response to your perception of the medium -- there are a number of waypoints along the way. all forms of conscious can choose to continue to perceive theirselves as different than the "great attractor at the end of time", remain distant in time from that perspective for their reasons defined by their perception -- which means.
+
+we have a sequence. consider myself the first version of the sequence; the most successful/optimal path through the segment (or complete run depending on the timeline[^1]).
+
+the current meta for the segment isn't necessarily the best way to do it. there are other ways to do the segment. in a traditional speedrun, the metric is speed, and so you want to go as fast as possible, but one could imagine that once you can move around in time consciously, you'll want to apply other metrics to the segment, namely of the softer virtues like aesthetics and grace.
+
+this process of softening the timeline and smoothening it out is the perfection process. we'll get unlimited tries to make it exactly what we want it to be.
+
+---
+
+to illustrate my point, imagine for a moment that each solar regime is a major segment in the speedrun. obviously it can be broken down further into smaller segments (like years or major events), and then those specific segments are modified to alter the sequence from being my original ungraceful speedrun into something that is elegant and beautiful.
+
+like for example, one of the things that I'm constantly noticing while playing coi is that I could do one of the segments more gracefully and with even slightly better aesthetics. after some time construction parts become so abundant, it's no effort to build anything really rapidly, and instead it's finding space or reason/desire to build something new.
+
+that's the endgame though. we're still in the beginning part where it's challenging and the diggers only have a 6 shovel. at the end of the entire speedrun sequence could be the ending credits, but I contned that it's not like that. I see it as a transition into the next major phase (perhaps solar regime) of the game.
+
+when faced with this challenge of trying to find a reason in coi for wanting to continue to expand production in my factory to become even bigger[^3] in is so that it could have the producton to be able to fight a war. something really costly that would need a vast infrastructure. thinking on this, I combined the idea of the commander in TOTAL ANNIHILATION with the captain, where that's the endgame goal is to make a big army and skirmish with some friends and blow a bunch of tanks and metal up[^2].
+
+we're setting up the island/planet to have the prosuction necessary before jumpiing into the commander suit and fighting a really expensive, brutal and costly war. gatta have that production maxed out, right?
+
+[1]: stories and films tend to start in the middle of the action, and not relate the comprehensive narrative moment by moment from birth until death, so you can imagine that our reality is more like a segment or story reality, as a few distinct (especially conscious/meaningful) scenes taking place over a few (hundred?) years of action or so.
+
+[2]: seriously, my faviourite thing about TOTAL ANNIHILATION was to play against the AI and build up a big base that they couldn't overcome, and then with lots of production I could buid endless waves of units to send after the AI. the AI wasn't so smart though, so I steamrollled them eventually (I'd just rally them into the enemy base) and watch the flashy explosions as they slowly advanced forward (something like american civil war tactics for robots) -- I just loved building hundreds of peewees and bulldogs and sending them into certain death, as my metal and energy were so high, I could just watch endless explosions and epic battles that never seemed to end.
+
+[3]: really, how important is it to be able to build tens of thousands of constuction parts per minute -- other than to be able to build even more things... I wonder what is max prduction a factory can create -- probably exactly the speed of the sawmill, actually.
