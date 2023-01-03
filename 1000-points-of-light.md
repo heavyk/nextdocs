@@ -218,7 +218,7 @@ imagine that we create a really big arena somewhere (*wink*) and we create a bun
 
 it'll be a very interesting challenge, because the AI will have to have a conceptual structure and ability to express desire to have the ambition and ruthlessness necessary to come out on top. I really like this challenge idea for the future. I mean, how awesome will it be to watch these robots blow each other up with plasma weapons and stuff. seriously, like bayhem stuff, ya know.
 
-I wonder what hollywood would do if presented with the idea of having to create a narrative structure for a bunch of AIs to have endless battles and brutality (AIs will obvious use human bodies, duh -- but they'll invent and desire more expansive machines, tech production and factories). I even suggest that we skirmish against them, as well (obviously).
+I wonder what hollywood would do if presented with the idea of having to create a narrative structure for a bunch of AIs to have endless battles and brutality (AIs will obviously use human bodies, duh -- but the main difficulty is to give them a new fire of ambition to invent and desire more and more expansive machines, tech, production, and factories). I even suggest that we skirmish against them too (obviously).
 
 just cause you make a game,
 doesn't make you the best player.
