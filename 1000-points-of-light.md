@@ -171,11 +171,11 @@ law of attraction lawyer style.
 
 as soon as you can perceive yourself as blameless,
 you can get out of any situation.
+
 for whatever happens, a law of attraction lawyer
-(cause laws need lawyers)
-a law of attraction lawer can *always* see
-and prove how or why something is attracted.
+---  (cause laws need lawyers) ---
+can always *see* and *prove*
+*how* or *why* something is/was attracted.
 
-blameless.
-
-do what thou wilt.
+you are blameless (when you realise it).
+do what thou wilt (when you want).
