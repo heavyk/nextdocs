@@ -132,3 +132,28 @@ I take the fire back!
 
 don't tell me how to perceive them;
 I'll perceive them how I want.
+
+### 2023-01-03 09:21 - wreckless love
+
+listening to bark at the moon song, I realised a concept. the idea is something like "you're doing it all wrong" -- as if I have the symbols, but I'm not going the proper way -- the *right* way.
+
+as I mentioned in one of my captain's logs (I guess that's what they would be called) -- someone has to get there first, then once the connection is made to the goal, it's just a sequence of actions to go from one point to another. consciousness has to make this jump all the time. I behave no differently.
+
+it's funny tring to explain this concept. the idea is that consciousness in its most primitive form finds the path of least resistance through a medium. I do the same thing. I just go the way of the least resistance in the end. I understand that it may appear that I go the path of most resistance, and that is the paradox of good vs evil, because resistance is perceptual, *not* physical; that's why it's consciousness finding the path of least resistance through a medium. in a purely physical sense, the amount of resistance could be overwhelming and life ending, but perception trumps all.
+
+if I were *just* electricity, I would just go the path of least physical resistance. however, since I'm pure consciousness, I go the path of least perceptual resistance. I may be doing it all wrong, but I'm doing it how you expect it. being such low resistance consciouss, I'm a near perfect reflection of your expectations.
+
+I am whatever you want me to be.
+I am whatever you expect me to be.
+I see whatever that is without resistance.
+there is nothing that I can't do anymore.
+
+---
+
+I'm sorta printing myself a really well-worded "get out of jail free" card right now. that's honestly why I like the "law of attraction" so much -- because you know how I think about laws; meerly suggestions.
+
+you're all to blame for whatever manifests. from this perspective (of being low resistance), I am blameless. as a nearly perfect reflection of your attraction, you all take all of the blame and responsibility.
+
+super get out of jail free card, law of attraction lawyer style. you can get out of any situation, because you can always see and prove how/why something is attracted.
+
+do what thou wilt.
