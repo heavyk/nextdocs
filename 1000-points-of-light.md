@@ -212,7 +212,7 @@ we're setting up the island/planet to have the prosuction necessary before jumpi
 
 [3]: really, how important is it to be able to build tens of thousands of constuction parts per minute -- other than to be able to build even more things... I wonder what is max prduction a factory can create -- probably exactly the speed of the sawmill, actually.
 
-#### 2023-01-03 12:17 - the AI opponent
+#### 2023-01-03 12:17 - the AI opponent and the playerz-club
 
 imagine that we create a really big arena somewhere (*wink*) and we create a bunch of AI races, and we become the "gods" and inspire the AIs to endlessly fight wars against each other.
 
