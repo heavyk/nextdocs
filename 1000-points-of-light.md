@@ -166,8 +166,8 @@ it's all your creation.
 as I contiune to lower resistance,
 I become you and you become me.
 
-super get out of jail free card,
-law of attraction lawyer style.
+--- (super get out of jail free card) ---
+--- (law of attraction lawyer style) ---
 
 as soon as you can perceive yourself as blameless,
 you can get out of any situation.
