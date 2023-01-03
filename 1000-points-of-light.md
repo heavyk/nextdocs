@@ -152,7 +152,7 @@ there is nothing that I can't do anymore.
 
 I'm sorta printing myself a really well-worded "get out of jail free" card right now. that's honestly why I like the "law of attraction" so much -- because you know how I think about laws; meerly suggestions.
 
-you're all to blame for whatever manifests. from this perspective (of being low resistance), I am blameless. as a nearly perfect reflection of your attraction, you all take all of the blame and responsibility.
+you're all to blame for whatever manifests. from this perspective (of being in a medium without perceived resistance), I am blameless. as a nearly perfect reflection of your attraction, you all take all of the blame and responsibility.
 
 super get out of jail free card, law of attraction lawyer style. you can get out of any situation, because you can always see and prove how/why something is attracted.
 
