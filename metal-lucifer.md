@@ -985,7 +985,7 @@ LEFTL-2022-07-10
 
 I'll write two topics so that one can be avoided
 
-### strange happenings
+#### strange happenings
 
 I was listening to this one while playing coi and I started to read into a bit just joe's emotional responses to seriah and chris. things really started to go south when chris requested the "balls to the wall" song (~1:32:00), and that's when the game started to go bad. things started to go wrong, already since I started the episode, and I pushed through it, but now they're really starting to go bad. I went upstairs because I felt hungry so I was going to make or help mom make dinner or something.
 
