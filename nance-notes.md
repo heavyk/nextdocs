@@ -687,6 +687,78 @@ later on, the skirmish over nosebook is whether it exists or not. she believes t
 
 it may coming a time soon when I go back to team up with my arch nemesis (silicon valley or some kind of tech thing) to defeat nosebook, and make my own social network. it's possible that my mom (or some other familiar type character that will try to ease my hatred for rome), but I will not. maybe the play is right, and I'll eventually capituate, like coriolanus does, and that'll be my end -- who knows but, from my perspective now, I'm writing this now to *prove* that I will not capituate to the suggestions of my mother. I will continue on until rome is destroyed. I will have my way.
 
+### 2023-01-07 07:00 - comedy of errors
+
+I can see a lot of symbols in here, but I can't quite make sense of them. the two inns are half-horse and half-man (centaur), which represents the wild untamed man -- meanwhile, the phoenix is the fire bird that gets destroyed (loses the battle) and then is reborn continually from the ashes. I see these two twins as being similar in my own two sides.
+
+on one side, there is the kenny that is untamed and wild. I sleep on the floor, I don't quite meet hygene standards, impossible to control, etc. I believe this is one side that nosebook capitalises on a lot.
+
+the other side is my phoenix side. you can't hold me down. I just keep getting back up and going at it another angle, etc. from the perspective of nosebook's narrative, I'm sure these sides sort of appear to be in contradiction to each other.
+
+AND -- because it's all attraction, the different narratives create different expectations from people, and so different people attract different things from me. from my perspective I notice this all the time. in one moment with one person, I seem to have the phoenix costume on, and then with other people I seem to behave like a wild untamed crazy person.
+
+to try and combat this, I try my absolute hardest to try and keep my own ideology consistent, and just let the actions be whatever anyone is attracting out of me.
+
+---
+
+I'll need to watch the play to get some more details, cause for example, emilia is from *babylon* -- so the names are important.
+
+e to point out the ephesians thing from my perspective. when I was younger, I noticed my birthdate in matthew:
+
+> But I tell you that anyone who looks at a woman lustfully has already committed adultery with her in his heart.
+
+I subsequently looked up my birthdate in all the other books to see what it was. I remember I didn't find anything else quite as notable, cept I did notice ephesians 5 also talks about marriage...
+
+> In this same way, husbands ought to love their wives as their own bodies. He who loves his wife loves himself.
+
+I did subscribe to this idea, that I would love my wife like I love myself. that is a very bad idea. very very bad idea. the way that I love myself, I don't think anyone would ever want to be "loved". I am an extremely harsh taskmaster for myself, holding extremely high standards. I can't possibly expect to ever love anyone else the way I love myself.
+
+you know, I'm one of the few people (in fact, I know of zero others) that actually like theirselves and hold theirselves in high regard. all of the people that I've ever tried to hold in high regard reject my elevated opinion of them, or they'll choose to take advantage of it. I simply have not ever found a way to ever hold anyone else in as high of regard as I do myself. I am the only person I trust. I actually believe myself more than I believe others, and I don't think that's ever really possible to have have that kind of love for someone else. they will let you down.
+
+as a result, I try and see others as a reflection of myself. if I see something in you that I don't like, I'm really noticintg an aspect of myself I don't like showing itself to my through another person (cause otherwise it wouldn't bother me). I've found this works wonders because as I've learned to actually like myself, I find that liking/loving others is *extremely* easy. I think of it like me recognising things that I like about myself in others, and it works really well.
+
+you'll notice that the verse there says "love their own bodies" (I used NIV cause that's what I grew up with), and that is the main source of my difficulty -- because here's the centaur. I don't really love my body all that much. I mean, it's OK, I guess -- but I see it as a vehicle or something of pure function -- nothing more. it gets me from A to B and it allows me to think, talk and move around, but for all practical purposes, I don't really *love* my body in any way.
+
+my body is much more like the phoenix, in that I've had numerous failures in my body, but yet it continues to return to rise up from the difficulty and somehow continue on. I attribute this to my strong personal identity, and not to the great care and love that I give to my body -- which is where we get to the matt 5:28 part of the thing. matt 5 is all about the reflective nature of reality, and in this verse it's saying that the things that I picture in my mind are real as if I have committed them -- meaning that the way that I perform and think about things in my head is the same as how it is in reality. I pondered this considerably growing up.
+
+later on around 29-30yo, there was a book I read called "project superman" which helped me to understand this concept. it's a story, likely embellished, about a guy named andy pero. in it, the US govt put him through all sorts of difficulties, which would have killled any normal person, but andy would go in his mind to a magical place and allow his body to begin healing. in short the way he perceived his body in his mind, reflected the image into actuality. he was a living phoenix, by using the power of his mind.
+
+I think these represent symbolically two opposites, but the symbolic opposites are hidden in the comedy of errors.
+
+---
+
+> how do you love your wife as yourself, when you're losing your own identity?
+
+you asked this question... some counter-questions:
+
+- is my identity defined by me, or my narrators?
+- is my behaviour a reflection of my identity or a reflection of what is expected of me?
+  - if what's expected of me, who's expectations?
+    - my own?
+    - the narrators'?
+    - or, the audience's?
+
+#### notes
+
+dromio sounds like romeo.
+antipholus sounds like antithesis
+luciana sounds like lucid (mental state) -- so it's probably important to note that syracyuse antithesis falls in love with lucidity (the non "one flesh", wild centaur twin)
+
+similarity to theseus:
+
+Solinus, duke of ephesus -- (sol invictus)
+adiade -- adrianne
+
+Theseus is a prominent character as the Duke of Athens in William Shakespeare's plays, A Midsummer Night's Dream and The Two Noble Kinsmen. Hippolyta also appears in both plays.
+
+theseus:
+  - son of poseidon/enki
+  - founder/hero of athens
+  - is the one that slays the bull/minotaur (like mithras)
+  - hippolyta is his mother, the amazon queen. (her name is something of female horse -- wild woman)
+
+theseus' second wife, phaedra is also the daughter of king minos.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
