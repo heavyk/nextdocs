@@ -740,14 +740,14 @@ you asked this question... some counter-questions:
 
 #### notes
 
-dromio sounds like romeo.
+dromio sounds like romeo. name could be a combination of romeo and dionysus
 antipholus sounds like antithesis
 luciana sounds like lucid (mental state) -- so it's probably important to note that syracyuse antithesis falls in love with lucidity (the non "one flesh", wild centaur twin)
 
 similarity to theseus:
 
 Solinus, duke of ephesus -- (sol invictus)
-adiade -- adrianne
+ariadne -- adrianne
 
 Theseus is a prominent character as the Duke of Athens in William Shakespeare's plays, A Midsummer Night's Dream and The Two Noble Kinsmen. Hippolyta also appears in both plays.
 
@@ -758,6 +758,8 @@ theseus:
   - hippolyta is his mother, the amazon queen. (her name is something of female horse -- wild woman)
 
 theseus' second wife, phaedra is also the daughter of king minos.
+
+theseus, after decapitating the bull/minotaur, escapes with the young athenians (pied piper of hamelin?) and ariadne and phaedra. theseus abandons ariade, where dionysus finds her and marries her
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
