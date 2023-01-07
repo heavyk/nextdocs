@@ -673,5 +673,21 @@ the other triad it creates is a second "first ray triad" (which the sirians defi
 
 I'm perfectly OK with both styles of reality (where I play vulcan or mars), and the other interesting thing to note is that they're not mutually exclusive either, meaning I can easily play mars with the girls and vulcan bith the boys. like nick, I don't limit myself to a single role.
 
+### 2023-01-07 04:57 - coriolanus
+
+youtube suggested me this video and I felt inspired to watch it. I recognised the plot being very similar to my own present situation. coriolanus is me. rome is nosebook.
+
+I hate the people of nosebook. they annoy me a lot of times, and they don't at other times. my approval of them is very conditional. I suppose I could be seen as a hero there. his nemesis is probably most closely related to zaryn or the tech industry in general. I'll retell the story from my perespective.
+
+I see the volscians defeat as probably similar to my initial establishment of a social network in spain (tuenti). it could also be seen as my initial appearance on nosebook. in both cases, there was effort to change the people's perception of me, such that I would be seen as not suitable to run the company or whatever happened in nosebook.
+
+I speak my heart and I don't really have much interest in trying to say the right words to the right people. my mom is a central figure in both skirmishes too, as in the tuenti skirmish, it was how I should treat my family differently than the rest of the world, elevating them to a higher status. I won't do it.
+
+later on, the skirmish over nosebook is whether it exists or not. she believes that I need to follow her guidelines and believe her unwaveringly. I will not.
+
+it may coming a time soon when I go back to team up with my arch nemesis (silicon valley or some kind of tech thing) to defeat nosebook, and make my own social network. it's possible that my mom (or some other familiar type character that will try to ease my hatred for rome), but I will not. maybe the play is right, and I'll eventually capituate, like coriolanus does, and that'll be my end -- who knows but, from my perspective now, I'm writing this now to *prove* that I will not capituate to the suggestions of my mother. I will continue on until rome is destroyed. I will have my way.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
+
+(currently noting 2022-12-09 20:12)
