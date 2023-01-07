@@ -1674,4 +1674,164 @@ we see the model of what our brain thinks is reality, so even if I *only* see ph
 
 who knows, my 3d form of perception may become even desirable once the bugs are worked out -- who knows.
 
+### 2023-01-06 16:47 - saviour vs attraction
+
+yesterday, I got stuck in a weird thing where I was trying to play coi, but the songs that seriah was playing were making it especially difficult to do so.
+
+the main symbol that stuck with me was the false dinosaurs/giants offering me a saviour, meanwhile the real dinosaurs are offering me a clever little girl, presumably located from a system that has 2 million lines of code (which is a lot of code). I presumed that this is a reference to nosebook, as it's pretty likely that velociraptors *do* run the network.
+
+along the way to discovering these symbols, I was trying to look up lyrics for a song that has a loop in it, which says that regression causes/becomes aggression and aggression causes/becomces regression. this self-reinforcing loop is pretty easy to see in my life, because I want to move forward, but there are a lot of interests in me staying put. when I'm stuck, I'm sorta passive and apathetic, but when I'm being regressed, I become very angry and aggressive. the song also suggests that I should "rely on my reputation" for things to become effortless and also let others plan my adventures now for me.
+
+so here's the thing, it's my reputation that makes people treat me differently than everyone else. I can never go back to being treated like a normal person, and I know that. I have to just accept that my reputation precedes me at this point. so, I kinda need to start thinking and behaving like a celebrity does -- meaning, I need to start relying on my reputation for things to become effortless. I still choose to use my perception for things to become effortless, but from the perspective of the outsider, I think it's a lot easier to accept that I have all of these things happen to me, *not* because of my perception, but because of my reputation. I'm just another snobby celebrity now that can get what they want because of the name and image they've made for therselves.
+
+I do perceive the idea of relying on my reputation as regression and don't really want to do that, but I suppose I'm willing to do it because, like acting I think I can do it better. remember when I used to hate the idea of acting, thinking it to be disingenuous to behave different than I felt? well obviously I found a way to do acting better. I think it's the same way with using my reputation. no big deal.
+
+so, along the way to trying to find the lyrics to this regression song, I was searcrhing for lyrics about reputation, and my body just sorta clicked somehow on a link which brought me to lyrics on a taylor swift song about reputation...
+
+    End Game (featuring Ed Sheeren & Future)
+    Written by: Ed Sheeran, Max Martin, Nayvadius Wilburn & Taylor Swift
+
+    I wanna be your end game
+    I wanna be your first string
+    I wanna be your A-Team (Whoa, whoa, whoa)
+    I wanna be your end game, end game
+
+    Big reputation, big reputation
+    Ooh, you and me, we got big reputations, ah
+    And you heard about me, ooh
+    I got some big enemies (Yeah)
+    Big reputation, big reputation
+    Ooh, you and me would be a big conversation, ah (Git, git)
+    And I heard about you, ooh (Yeah)
+    You like the bad ones, too
+
+    You so dope, don't overdose, I’m so stoked, I need a toast
+    We do the most, I'm in the Ghost like I'm whippin’ a boat
+    I got a reputation, girl that don't precede me (Yeah)
+    I'm one call away whenever you need me (Yeah)
+    I'm in a G5 (Yeah), come to the A-Side (Yeah)
+    I got a bad boy persona, that's what they like (What they like)
+    You love it, I love it too 'cause you my type (You my type)
+    You hold me down and I protect you with my life
+
+    I don't wanna touch you, I don't wanna be
+    Just another ex-love you don’t wanna see
+    I don’t wanna miss you (I don't wanna miss you)
+    Like the other girls do
+    I don’t wanna hurt you, I just wanna be
+    Drinking on a beach with you all over me
+    I know what they all say (I know what they all say)
+    But I ain't tryna play
+
+    I wanna be your end game (End game)
+    I wanna be your first string (First string)
+    I wanna be your A-Team (A-Team)
+    I wanna be your end game, end game
+
+    Knew her when I was young, reconnected when we were little bit older
+    Both sprung, I got issues and chips on both of my shoulders
+    Reputation precedes me, in rumors, I'm knee-deep
+    The truth is, it's easier to ignore it, believe me
+    Even when we’d argue, we'd not do it for long
+    And you understand the good and bad end up in the song
+    For all your beautiful traits, and the way you do it with ease
+    For all my flaws, paranoia, and insecurities
+    I've made mistakes and made some choices, that's hard to deny
+    After the storm, something was born on the 4th of July
+    I've passed days without fun, this end game is the one
+    With four words on the tip of my tongue, I'll never say it
+
+    I don't wanna touch you, I don't wanna be
+    Just another ex-love you don't wanna see
+    I don't wanna miss you (I don't wanna miss you)
+    Like the other girls do
+    I don't wanna hurt you, I just wanna be
+    Drinking on a beach with you all over me
+    I know what they all say, yeah
+    But I ain't tryna play
+
+    I wanna be your end game (End game)
+    I wanna be your first string (Wanna be your first string)
+    I wanna be your A-Team (A-Team)
+    I wanna be your end game, end game
+
+    Big reputation, big reputation
+    Ooh, you and me, we got big reputations, ah
+    And you heard about me, ooh
+    I got some big enemies
+    Hey, big reputation, big reputation
+    Ooh, you and me would be a big conversation, ah
+    And I heard about you, ooh
+    You like the bad ones, too
+
+    I hit you like bang, we tried to forget it, but we just couldn't
+    And I bury hatchets, but I keep maps of where I put 'em
+    Reputation precedes me, they told you I'm crazy
+    I swear I don't love the drama, it loves me
+    And I can't let you go, your hand prints on my soul
+    It's like your eyes are liquor, it's like your body is gold
+    You've been calling my bluff on all my usual tricks
+    So here's the truth from my red lips
+
+    I wanna be your end game (End game)
+    I wanna be your first string (Me and you, first string)
+    I wanna be your A-Team (Be your A-Team now, A-Team)
+    I wanna be your end game, end game
+    I wanna be your end game (Oh, I do)
+    I wanna be your first string (First string)
+    I wanna be your A-Team (A-Team)
+    I wanna be your end game, end game
+
+when that happened, I immediately recognised this as being a copy of one of the stories that seriah told about not being able to figure out which game he wanted to play, but then his hand just clicked on the play button for a game about the astral realm and different secret societies and other esoteric things (don't remember all that he said about it).. anyway, the point of the story was that he said, "OK, I guess I'm playing this" and then really liked it, claiming it to be one of the best games he's ever played.
+
+so, I mean it looks like I should just follow my instinct and stuff and go in that direction...
+
+---
+
+the other symbol that this one contrasts to is the one of the false dinosaurs -- which is asking if I want a saviour or not. I don't really. I'm perfectly fine doing things how I am doing -- but, like I was saying in the captain's log, I have roughly 2 months or so before mom wants me to move out -- and though I do believe it is a bit of a bluff on her/their part, I do kinda want to start going my own way. I'd like to figure it out myself. I want to figure out how to make my own network.
+
+as I mentioned in the clog, coi in its present instantiation pretty closely mirrors my own perception of how to manage tech teams back in 2006 when I wanted to make my first network. all of the machines/actors were separate entities, not really having much communication or coordination between them. because of such a lack of intra-communication, it took quite a bit of time to notice there was a failure somewhere and it was only after a huge dip in the server graphs before the failure was even detected (this doesn't even come close to talking about all of the intra-personal relations on the team that mirrored these disconnects).
+
+you see, when I was in spain, mom was very upset with me because I refused to go to see amorina's birth and be there for melissa. this was an enormous problem for mom which [I wrote about in metal-lucifer](/metal-lucifer.md#2023-01-03-1855---weird-interaction) (though it happened as a result of listening to seriah and playing coi -- see how everything is connected?). my perspective at the time is that I want to make a social network, and mom sees that I'm out drinking with my friends instead of doing the important stuff like being there for my family, but in my eyes, I'm team-building z-dawg style. these after-work drinking sessions were where we brainstormed new ideas and had fun with each other. I already had the CTO position taken from me because of the car accident and having to be in basque country instead of madrid where all the action is. it's pretty easy to see how in my simple brain, spending more time in basque country with mom means yet another lost opportunity to do what I want to do.
+
+---
+
+I've rethought a lot of how I see the whole factory integrating with each other and working together a lot over the years, and it's a pretty interesting way to see how all of these different parts work together as a sort of choreographed dance with each other, and ultimately, the dancers don't need to be directly involved with each other, but because there is a rhythm or clock cycle that holds everyone in unison, the whole piece flows together. it's stability of tradition (in the form of constancy -- another thing dani drilled into my head that I need to be successful) which keeps the group cohesive and flowing together (otherwise, like a microprocessor, it's a cascading disaster of misaligned timings).
+
+as such, I've thought quite a lot on all of this and I have a lot of solutions. they don't want to use tesla technology, no problem. I've got a crude oil to hydrogen power setup, etc. I don't see any reason to push through their resistance in a forceful way. converting crude to hydrogen isn't ideal but it's still an improvement on what we're doing. we can turn oil into a CO2 heavy thing to only water as output zero emissions setup -- and obviously, I'm sure there are probably technologies that can be done to further optimise the separation of hydrogon from carbon/graphite (which is then used to cleanly smelt copper/iron/steel). I mean, it's not hard; let's just work with what we have.
+
+also, for example, right now I'm burning my trash -- but when I was younger I envisioned this "waste sorting facility" which emitted a frequency of a base element, and then would vibrate all elements of that kind, suspending them in the air and separating them from the rest of the waste -- so like if there were copper and tin (bronze) and the frequency (created by a mechanical resonatory) was at the copper frequency, it would vibrate all of the copper separating and suspending it, leaving the tin behind. this is the most optimal form of recycling waste, because the gasses (HNO) would separate from the base elements, breaking all waste down to their elemental forms. this is also a technology I think is not only possible but very feasible. nobody can argue with the desire to return our landfills back to nature and mass clean our air and other existant waste problems (not to mention preventing future ones). seems like a no-brainer to me, as all the required technology exists.
+
+cept, if we're levitating base elements, it seems like now it seems possible with a bit of infrastructure to have hoverboards and other really cool stuff. let's figure out how to improve the waste sorting facility to do *all* the elements :)
+
+---
+
+so here's the thing: from my perspective, I'm not interested in having a saviour. I would never have written any of the clogs in the way that I did, as a way to advertise my desire to create new communication mediums -- but it felt pretty necessary to explain the symbols that I was receiving from seriah's music. for me, this was a reaction more than self-promotion.
+
+from my perspective, I'm completely happy to continue on how I am going and just keep playing the game and stuff. the thing is, the other reaction is that I have to start coming up with money now because mom wants me out.
+
+I had three ideas for how to make money (other than applying for a job). the first one was to ask thad to help me to find a job. I felt like this was too saviour-esque. I'd probably rather to just go and do it myself, as I've got to take full responsibility for any future conflicts that may happen with customer interactions[^1]. I'll probably go myself to look for a job as a last resort.
+
+the second way I could see doing it is to start streaming. I know that JD streams even without a camera, so that means that it's quite possible with a very minimal setup (I have neither camera or microphone), to get started. my name on twich is "vapid_shamen" so I'll be playing coi and talking about shamanistic and vapid things as my gimmick -- I would imagine.
+
+well, I have this other thing that I just started doing which is to put up my save games, so maybe I could put a paypal donate button there -- but the thing I want to do is to talk about philosophy. jason never responded to me, so that door closed, which is fine because I don't need him to talk about philosophy. coi is a *perfect* game to do it on, because nearly everything about it has a direct correspondence to something mental. before I put up a donate button, I want to test to see if others want my philosophy, or if they just want to see my savegames. thanks to seriah and some resin, I kinda felt forced to go the philosophy route because the reactions and desire for me to talk about some of the things in my head were too much.
+
+the third option that I have for finding ways to make money was also a reaction to seriah and his music -- but I can't honestly remember now the song or circumstances -- which is to, prostitute myself. this idea of prostituting myself is in the original symbols I received from neuoticfish, which includes "mechanic of the sequence" (my identity and main theme of the clog) and also "hate me" the general symbol that I use and feel in response to you guys[^2]. so, it seems pretty obvious to me to begin to prostitute myself.
+
+the idea here is that I have something that I want to do (make a social network), but I don't believe I'll ever be able to get any "angel" investor to invest in the idea. neither do I want to be responsible to them. I have something that others want (my genetics), and they have something that I want (money), so I'll do an exchange. I have no interest in doing anything the "right" way -- and from my perspective, I can make spreadsheets now, direct a team, do marketing and promotion, and all of the CEO tasks -- and I want to do it myself. so, it seems like a no-brainer for me to say, "OK, I'm not going to try and get anyone to do anything to save me" and instead I'll figure it out and do it all myself.
+
+in the case that I decide to do it all myself, nosebook, I'm sure will have less and less influence over me, so their only option will be to influence those around me (ie the team). this is an interesting challenge to me because I tell people all the time that it's about tuning, *not* control -- so I'll have to figure out how to tune myself and the team toward what's desired, instead of trying to control them. I'll have to come up with novel ways to organise and choreograph the machines/players in the factory (rathar than control) to produce what is wanted. it's a very interesting challenge.
+
+---
+
+the major problem with the last option and also the taylor option is that my body isn't really all that great at stuff. I mean, it's a real dificulty to even do simple things like pee, so how can I even pretend to be a prostitute, when the thing I'm selling isn't even very good; I'm not one of those sales guys that can sell ice to penguins.
+
+as such, I think I'm going to to probably just retreat from the philosophy angle of things and just get back to pure coi save games because that seems to be working well[^3]. I'm not going to delete my philosophy (keeping it only constrained to here), but it'll get buried in there after I restructure the repo and talk exclusively about my thoughts on the game (only).
+
+[1]: I manifest people's desires/fears/expections pretty quickly, and [the last episode with greg](/metal-lucifer.md#2023-01-03-1855---weird-interaction) tells me that seemingly I also can inspire others to feel things that I do not even feel myself, but are emotions that had simply recognised in others. so, for example, imagine I see some people in a store having a big argument, and unlike matt, I recognise the conflict for whatever it is (like some kind of insecuirity or threating of superiority) and I recognise it -- well, that emotion doesn't bother me because I don't see it as a problem, but I'm not resonating like that and so now I'm attractive to people that may have a similar insecurity and they want to come over now and interact with me (like greg), and I'm just going to be a reflection of their emotion/concepts back to them. this could be problematic and may very well create conflicts.
+
+[2]: I put out some of the most ridiculous stuff and somehow I can't seem to get rid of you guys.. "why don't you hate me?" I don't treat you well. I treat you with aggression and contempt, yet you continue to like me. I'm the abusive boyfriend that you keep wanting around.
+
+[3]: like thijs, why try to branch out into something different when I've found something that has such a positive result? I pay a lot of attention and learn a lot from other streamers, and it's especially relevant now bwecause I'm going to start relying on my reputation.
+
 ### interests diverging and individualisation
