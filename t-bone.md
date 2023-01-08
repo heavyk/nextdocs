@@ -139,3 +139,7 @@ the thing that I was really having fun with last night were two conflicting conc
 ---
 
 the other thing I was looking at is that there are infinite ways to get there, so check out this crazy idea. the humans that don't want to make the transition -- don't worry so much because what we can do is put them on a planet (or planets) and they'll have other planets and stuff with them, they'll grow up, and then we'll be their "gods". they'll grow up and figure out really amazing stuff. the cool thing is that anyone wanting to be a saviour can do that. imagine a race of humans in right about the technological capability of 2020 and they're just on an earth-like planet that's out there. jump into one of the bodies and do what I'm doing now and make your own galaxy. it provides self-recursion, which is a staple of something that expands infinitely.
+
+### 2023-01-08 15:54 - the worst case scenario
+
+the worst case scenario is that someone splits this timeline and continues on with this timeline put inside of a (destroyable) physical object -- and somehow that physical object gets destroyed, all of the stuff with the galaxy goes up in a puff of smoke (probably melted computer parts), then I'll have to start over again.
