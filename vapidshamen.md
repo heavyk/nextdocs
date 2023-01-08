@@ -238,3 +238,18 @@ that's that link between the two.
 
 it's kind of a pretty big difference.
 figure out what you want.
+
+### 2023-01-08 05:45 - I know deep down...
+
+I really want to do it. it wasn't until I smoked that all this crazy stuff started to happen. when I was just doing     the sativa resin, things were going fine. so expect me to be back to normal tomorrow. just thought it was interesting to have the forward thinking on this one.
+
+### 2023-01-08 05:47 - emotions feel like forever...
+
+so, it's good to have the ability to feel ahead in emotional time. like, how will I feel tomorrow. how will I perceive life next week, etc.
+
+my favourite way to look at this as putting open-ended goals, like:
+
+I'm going to feel better at getting better.
+I'm going to feel sober tomorrow, not stoned like I am now.
+I'm going to feel x way at y time.
+I'm going to feel y way at x time.
