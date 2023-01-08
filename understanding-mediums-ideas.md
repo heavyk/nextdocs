@@ -24,4 +24,8 @@ brb.
 
 brb.
 
+### 2023-01-08 05:27 - going to receive another idea.
+
+brb..
+
 ### power structures are mediums
