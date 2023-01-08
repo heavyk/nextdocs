@@ -92,4 +92,10 @@ when you understand enki's perspective, prometheus.
 
 ### 2023-01-08 03:12 - fire thoughts
 
-available (somewhere, I'm sure) to rent or buy
+available (somewhere, I'm sure) to rent or buy.
+
+### 2023-01-08 04:44 - fire thoughts
+
+available (somewhere, I'm sure) to rent or buy.
+
+and, another great joke: when you understand enki's perspective, prometheus.
