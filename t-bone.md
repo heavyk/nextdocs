@@ -89,3 +89,7 @@ the downfall of atlantis was enki's fault because he restricted the fire (emotio
 unfortunately, right now memory (and how we perceive the past) affects greatly how we perceive possibilities. as kids, we say "it'll never/always happen" because things wohk in those infinites. later we start to make more cases than just always or never and, finally where I'm at, it's more like a gradient of possibliites. to make a gradient understandable, I've broke it into 4 different qualities, that I've called el/la belief/unbelief. these are the aspcets that make up our perception. they are epimetheus. they are enki personified in our being.
 
 when you understand enki's perspective, prometheus.
+
+### 2023-01-08 03:12 - fire thoughts
+
+available (somewhere, I'm sure) to rent or buy
