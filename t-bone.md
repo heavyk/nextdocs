@@ -99,3 +99,11 @@ available (somewhere, I'm sure) to rent or buy.
 available (somewhere, I'm sure) to rent or buy.
 
 and, another great joke: when you understand enki's perspective, prometheus.
+
+### 2023-01-08 05:17 - what all of this is, is
+
+is, a redirection of the timeline. we're approaching differently, but one of the main takeaways is that we should not try to make jumps and continue with as little acceleration as possible. the goal is not to get there as fast as possible but to think of this as an investment.
+
+I assimilate thoughts much faster than most people, and I see everyone else as relative to me, so I'm a new medium and that mans that everyone can either accelerate or decellerate then accelerate, but the end result is acceleration for everyone.
+
+this regime probably won't be lasting too long because I see other girls starting to "get" this stuff. because they're kinda a bit of a group consciousness, I think they'll become the new zero that everything else is relative to. then, maybe another faction. every new medium (faster than its parent medium) started, everyone else is already relatve to the new zero, so nobody gets lost. the stuff that's relative to the parent medium is that low temperature pressure wave of smoke on the top touching the cold air on the rising flame.
