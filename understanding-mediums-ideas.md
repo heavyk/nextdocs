@@ -20,4 +20,8 @@ we'll actually "understand" each other from an emotional perspective much better
 
 brb.
 
+### 2023-01-08 03:20 - going to receive anothter idea.
+
+brb.
+
 ### power structures are mediums
