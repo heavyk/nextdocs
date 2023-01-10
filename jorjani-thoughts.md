@@ -2574,7 +2574,18 @@ I claim that everything is a reflection of its parent concept -- which, now that
 
 rapid technological development also has its dangers too -- as the capability of the technology exceeds the reasonable and safe (temperance) utilisation of it. therefore, it's my goal, neither to shun advance, or to reject stability.
 
-### not maria, but sara
+### 2023-01-09 21:59 - not maria, but sara
+
+as you were telling the story of tesla with sarahb, I was noticing the difference between this and another authorized history of tesla which has paul, agnes, and tesla. the symbols would be the same (assuming there's a hotshot in there somewhere), and the thing is, it could seem like it's two conflicting histories, but what I think could be happening is more elaborate. I think I understanding paranormal authorization.
+
+the triad of genxicat, mars, and vulcan is a triad that I've seen happen a number of times. vulcan was also instant no doubtedly during the time of enki because they say that vulcan hangs out a lot with anatau (mars' feminine side). in it, there is a hidden fourth of anatau and that's what make the triad (or quad) so powerful back in the day -- because they (together) essentially created a 1-7 reality matrix just like the planet (same setup of genxicat, mars, and vulcan). this composes all of the physical information layers, and then the material is filled in by the medium -- which in this case is the astral.
+
+anyway, there are so many accounts of some combination of these four, that one could say that this behaviour seems to be narrated from a position that perceives not the individual, but the trend. that's basically the narrator perspective that I laid out a long time ago when I proposed my own 9 layers, following another expansion into 11 layers of perceptual reality. I'll talk about it another time. back to sara.
+
+sara and agnes in both of these histories had a strong but platonic relationship with tesla. there are other similarities, but the important thing to note is that they are symbolically equivalent, allowing both histories to exist simultaneously as solution to a problem that reality poses for legitamacy to manifest (the "law of attraction").
+
+therefore, because these histories can exist in superposition to eachother, it's theoretically possible for *any* setup that follows the symbols; some will be more believable/realistic than others.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
