@@ -2586,6 +2586,20 @@ sara and agnes in both of these histories had a strong but platonic relationship
 
 therefore, because these histories can exist in superposition to eachother, it's theoretically possible for *any* setup that follows the symbols; some will be more believable/realistic than others.
 
+### 2023-01-09 22:22 - do I hijack revolutions?
+
+@[youtube](https://youtu.be/Rt30CTsSWWY?t=3789)
+
+when jason said this, I felt something. I don't really know what I felt, but I translated it initially into that thought: kenny hijacks revolutions.
+
+that's such a funny thought to me because I don't think of them as revolutions, because I have no other objective to be completeley open and giving to everyone around me (abundance mindset).
+
+as a consequence, I believe the word revolution is actually what's outdated. the idea of a revolution is to turn one power strutcture into another (usually more formidable) one.
+
+the concept of things being so abundant, including all knowledge, I found out watching nikki the other night, is the war that's being fought.
+
+abundance thinking in the spectrum of knowledge, is the actual "revolution", meethinks
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
