@@ -2612,7 +2612,7 @@ there's no problem with them having this knowledge, because free will is not neg
 
 as lev is talking, I'm getting this thing (what did I call it?) I zolted this idea of how one side is order and the other side is chaos. put that as one being male and the other being female. therein lies the problem because I can see a male as being both one of strict order, but also one of chaos. both can be both.
 
-therefore, it is not the distinguishing of one discreet instantiation of MF/FM pair, but instead to see the 5th aspect: the one that sees as if order and chaos work together to create what is wanted (like me).
+therefore, it is not the distinguishing of one discreet instantiation of MM/MF/FM/FF pairs, but instead to see the 5th aspect: the one that sees as if order and chaos work together to create what is wanted (like me).
 
 ### what are your differences with steiner?
 ### promethian egregore and science
