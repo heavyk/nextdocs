@@ -2622,6 +2622,14 @@ I'm not totally sure how it works, but I would assume that when the "soul" enter
 
 so then, I postulate that in those locations, the astral comes in quite clearly, especially for children, and so what's happening is the astral body left behind is still trying to prove itself right, so because it's a consciousness capable of coming up with that as a solution, interacts with the child, to prove itself right.
 
+### 2023-01-09 23:32 - my view of reincarnation
+
+@[youtube](https://youtu.be/Rt30CTsSWWY?t=5412)
+
+the question that lev had there about reincarnation inspired me to look at my concept of how I see reincarnation -- cause it changes so fast, it's good to check in from time to time -- and what I saw is my voracious apetitie to be 3d. I have such little resistance to all aspects of reality now, I don't really see anything holding me back, so I really like being here now. I wouldn't have it any different than I am now. from a a discorporate point of view, I simply can't wait to get back into physical and experience it, that the time between my reincarnation actually drifts into negative numbers, where my own lifetimes are actually overlapping and affecting each other. death would be nothing more than a change of perspective on how the "individual" is traversing reality.
+
+you know, it's quite possible that those negative numbers are actually creating a positive 3d shape as a result (energy has to go *somewhere*). I can't imagine what it is though.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
