@@ -2630,6 +2630,10 @@ the question that lev had there about reincarnation inspired me to look at my co
 
 you know, it's quite possible that those negative numbers are actually creating a positive 3d shape as a result (energy has to go *somewhere*). I can't imagine what it is though.
 
+I feel like I'll talk more about it. it still feels strange to me
+as I've yet to understand it fully. it feels really weird to admit that
+I don't have a solid grip on my own concept of reality.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
