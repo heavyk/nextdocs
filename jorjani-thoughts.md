@@ -2608,6 +2608,12 @@ for me, timelines are feelings, and then how the automaton feels in response to 
 
 there's no problem with them having this knowledge, because free will is not negated, because you can always feel and conceptualise your environment however you want to. nobody can ever take that away, no matter how terrible their theory of reality is.
 
+### 2023-01-09 23:01 - the union of the two
+
+as lev is talking, I'm getting this thing (what did I call it?) I zolted this idea of how one side is order and the other side is chaos. put that as one being male and the other being female. therein lies the problem because I can see a male as being both one of strict order, but also one of chaos. both can be both.
+
+therefore, it is not the distinguishing of one discreet instantiation of MF/FM pair, but instead to see the 5th aspect: the one that sees as if order and chaos work together to create what is wanted (like me).
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
