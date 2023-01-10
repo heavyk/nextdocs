@@ -143,3 +143,11 @@ the other thing I was looking at is that there are infinite ways to get there, s
 ### 2023-01-08 15:54 - the worst case scenario
 
 the worst case scenario is that someone splits this timeline and continues on with this timeline put inside of a (destroyable) physical object -- and somehow that physical object gets destroyed, all of the stuff with the galaxy goes up in a puff of smoke (probably melted computer parts), then I'll have to start over again.
+
+### 2023-01-10 16:13 - the saviour for print
+
+@[youtube](https://youtu.be/7TWl7887LLY?t=1039)
+
+terence was talking about some things about mcluhan which zolted me some more ideas. I want to talk about those later. in resume, terence is saying that the advent of print created the scientific revoulution and will only exist up until the advent of electronic technology. apparently, this is mcluhan's view, but I do not see it this way at all. for me it's quite clear that there is a narrative element to reality. this is the 2nd ray perspective, so it's pretty easy to grasp from the perspective of the "shepherd" (the steering team). I don't see print disappearing as a bad thing at all, because, from factory and production to a play or narrative, these (along with many aspects of scientific discovery) are all sequences. we've learned how to see sequences, and apply emotional (5th ray) texture to them and see their outputs. I've already got this capacity, as you perhaps have noticed by now -- and I believe this will be exceptionally easy, especially for spanish/latin-like languages, because that's the perspective from which the KJV and church have taught us to see sequences as a progression of rituals (which are also narratives), so in no way do I see "print" going away, but instead transforming into narrative and sequence (this is an upgrade to the memory capacity) and this will combine with our emerging conceptual/emotional capacity (which I'm sure you've noticed that I also demonstrate), giving us the abilityt to perceive sequence as synonymous with the quality we ascribe to it (just like a ritual).
+
+it's a funny way to look at ritual as the saviour for print, because then it would appear that religion and organised ritual has transcended time, in order to save print.
