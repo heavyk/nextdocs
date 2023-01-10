@@ -242,4 +242,24 @@ at the same time that I'm now the female race, all of the authors will be author
 
 it was humorous to me the reactions to this thought because the two main reactions were, "oh no, the females really will be superior with him in there" along with fears of having to hold females back and dumb them down again because otherwise they would be superior again -- and the second one being, "I find kenny attractive -- so if he becomes females, I may start liking girls again" -- and other similar thoughts reconsidering their hatred for women if I were to switch sides. I also noticed some females prefer that I remain outside of them, as they don't *actually* want to be as non-resistant as I am, just letting all of the bad things that happened just slide like that.
 
+### 2023-01-10 15:02 - body is there doing stuff, but you're not
+
+as I was outside thinking about what it will become like to become females, there were some reacctions in the air presenting me with a picture of a girl that is having sex with all of the greasiest and grossest guys ever -- really not at all desireable guys, even some of them the most evil ones (dinosaurs) that have persisted through the ages -- and that's one perpective but that's not at all how I see it. I see it from the perspective of so many of these young girls, teenage and younger even, that just have such a massive opportunity ahead of them.
+
+like wow, if I could know what I know now and be 13 and amazing, I'd have a totally different trajectory through life. it would not be that previous ugly awful picture -- I mean, it's possible that there will always be a lot of really awful stuff -- but the thing I noticed being around prostitutes is that their body is there and they're doing stuff, but they're somewhere else. I have often wondered about this, because it would seem like they would go to a dream world like andy pero did, but I don't think this is the case. I wondered all of my life if females are a sort of group personality, because if they were, it's easy to think of then that only some portion of the good/wanted/desirable events are participated in (something like nosebook), and so therefore it's not worth to watch the really awful events. it seems to me like they're basically unconscious during all really mundane and terrible events, which is kinda how I am too. I lose consciousness and then somehow I find myself in another spot where I can get out or find my way.
+
+---
+
+I also noticed that during some of my interactions with girls -- like for example there was this really terrible incident that taught me a lot about the importance of communication and feeling vs numerology/astrology.
+
+what happened is, I had noticed some really crazy planetary alignment and it was happening some time we were in berlin. I decided somehow that I wanted to have sex on or around this alignment. well, it turns out we ended up having a pretty big argument that whole night and when we got back to the hostal, I still had it in my head that is what I wanted to do. raquel was not happy with this idea because she was definitely right about whatever we were arguing about, and I probably disagreed with her because we saw "justice" very differently and argued endlessly about it. that night, she finally relented to my wishes, and she let me have sex with her, but she was not present.
+
+I think from her perspective, she felt too much terrible emotion trying to defend some idea that her culture had installed which didn't benefit her (not sure which one), that her bad-feeling was so great, she simply wasn't present. the way I see it now is she's like asleep or in a dream/mesmerised sort of state where she can get any signal and output it into her body.
+
+I've had enough experiance with prostitutes to have experienced that more than a dozen(?) times by now. it was especially potent that night in berlin though (probably cause of the planetary alignment), and I cannot describe how rapidly our relationship fell apart after that event.
+
+so here's what I'm thinking now -- because I also had (on another occasion) really quite a good time with raquel in berlin as well, and so both of these extremes put a couple into a sort of mesmerised state where, depending on tte feelings transmitted in the sexual interaction, can alter someone's trajectory through time.
+
+combine that idea with another I had which is that I'm the embodiment of the genetic upgrade that the females were looking for, and that they only needed to be given enough time for desire to evolve such that the want to become the thing they desire. I'm like a living patch to their software delivered in the most secure way (best advertised as well). so, from that perspective, it makes a lot of sense that I were able to kinda position myself to gain consciousness in this period of time, and kinda run away with everything... hehe...
+
 ### FFF triad and the difference between an emitter and female
