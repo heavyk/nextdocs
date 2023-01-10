@@ -2558,6 +2558,25 @@ as such, earth in its present state represents a completed monad, a sphere with 
 
 the monad is neither the sphere or the point, but both at the same time, in divine harmony and balance with each other.
 
+### 2023-01-09 21:17 - I'm very similar to the olympains
+
+check this out...
+
+> a people that want to establish an entirely stable and static society
+
+stable, yes, static, no. I feel very strongly about things not moving faster than they're able to go. -- which is why I want to find ways to go stably and safely very fast -- like rapid technologic development.
+
+> and they justify that by claiming that their form of society is a microcosm of some divine order
+
+I claim that everything is a reflection of its parent concept -- which, now that I'm approaching this from the perspective of seeing everything as a medium, it's easy to see that all things in the medium have a sort of minute reflection of the parent vibration upon which the medium is created. now, whether that medium is a reflection of a "divine order" is something that I would encourage a critical analysis of.
+
+> that is being instantiated in their putatively perfect social order
+
+---
+
+rapid technological development also has its dangers too -- as the capability of the technology exceeds the reasonable and safe (temperance) utilisation of it. therefore, it's my goal, neither to shun advance or to reject stability.
+
+### not maria, but sara
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
