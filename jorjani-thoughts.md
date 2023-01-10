@@ -2614,6 +2614,14 @@ as lev is talking, I'm getting this thing (what did I call it?) I zolted this id
 
 therefore, it is not the distinguishing of one discreet instantiation of MM/MF/FM/FF pairs, but instead to see the 5th aspect: the one that sees as if order and chaos work together to create what is wanted (like me).
 
+### 2023-01-09 23:13 - kids reincarnating in villages
+
+as jason is talking, I went to go look into this situation that jason is describing of these villages where a person gets murdered or murders someone, and it looks to me like the astral body of the victim or the killer wants so badly to be "right" about their vengance or victimisation, that they haunt kids with these realities, and if it becomes possible for the astral body to enter the kid if he believes it well enough, then the kids grow up with those "traumas" installed into their new body.
+
+I'm not totally sure how it works, but I would assume that when the "soul" enters into the body, it's just the soul part, and so they leave nearly all or all of the astral body behind. in order to get the child to remember and be able to tune into the astral body which is where most visual memory is located.
+
+so then, I postulate that in those locations, the astral comes in quite clearly, especially for children, and so what's happening is the astral body left behind is still trying to prove itself right, so because it's a consciousness capable of coming up with that as a solution, interacts with the child, to prove itself right.
+
 ### what are your differences with steiner?
 ### promethian egregore and science
 - https://www.youtube.com/watch?v=OQWKcwxkdMc
