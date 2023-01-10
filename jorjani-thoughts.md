@@ -2598,7 +2598,15 @@ as a consequence, I believe the word revolution is actually what's outdated. the
 
 the concept of things being so abundant, including all knowledge, I found out watching nikki the other night, is the war that's being fought.
 
-abundance thinking in the spectrum of knowledge, is the actual "revolution", meethinks
+abundance thinking in the spectrum of knowledge, is the actual "revolution", meethinks.
+
+### 2023-01-09 22:33 - mathematics as negation of free will.
+
+I find mathematics to be useful in the creation of technology. the idea that we will be able to describe our entcire universe with a set of mathematics is entirely possible. that set of mathematics would be acutely aware of the obcvious effect of being able to navigate through diffrenent timelines. here's why I say that:
+
+for me, timelines are feelings, and then how the automaton feels in response to their environment + the conceptualisation of the automaton + the receptivity of the automation (what they're focused on/tuned to) + the emotional state of the automaton, etc. this will perfectly describe all of the "I" realities, and so therefore it would be tremendous to better know our own concepts and emotional state so that the ones trying to control can steer us through the timelines that they feel are best.
+
+there's no problem with them having this knowledge, because free will is not negated, because you can always feel and conceptualise your environment however you want to. nobody can ever take that away, no matter how terrible their theory of reality is.
 
 ### what are your differences with steiner?
 ### promethian egregore and science
