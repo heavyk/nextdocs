@@ -163,3 +163,23 @@ that ability to just be totally cool with whatever anyone else is doing happens,
 from the combined features of the meta-perspective, it's possible to observe all perspectives, but instead see a recomposition/model/narrative summary of the many meta-perspectives. this allows for really undesirable perspectives to be *overlooked* by not even noticing its apparition in the meta-perspective. this is exactly what a story does. a story takes a whole bunch of data (millions dying over hundreds of batallions) and reduces it to a few lines, or omits it altogether.
 
 more than one perspective is key to understanding one's own life narrative (written by you), to see your own progress into the future.
+
+### 2023-01-10 17:31 - service in the myth of method
+
+terence is talking about the office of the shaman (or prophet in some perspectives), as being someone that is permitted, with the aid of some kind, to go into higher dimensional spaces and manipulate the cultural machinery.
+
+he's comparing it to the linear form of thought (sequences) where the written narrative becomes the model for reality, and the authors have access to the controls which manipulate cultural machinery.
+
+the thing is, there is currently a battle raging over there with everyone fighting over who gets the narrative, and often times the narrative is dictated from top down. so, the last thing they would want is for the planet to have a shaman that can use "shamanic plants" (though ironically mushrooms aren't plants) to access higher dimensional spaces to manipulate cultural machinery. I access higher dimensional spaces all the time, but I don't really manipulate anything because I see no value in it (LOA is wayyyy more powerful and effective), so instead, what I did is to take on his advice of his description of a shaman, which is someone that goes off into space, fishes out some really big fishes/concepts (hopefully some whales) and then brings it back for the advantage of everyone.
+
+therefore, it has been my goal since I heard this idea from terence to go out and have fun in that incomprehensible space, but try and make something physical enough out of it to be able to understand (or able to critically analyse) it.
+
+therefore, I've developed techniques for bringing concepts back to the mundane. by improving my skill at dealing with extremely thoughts of a higher dimensional nature in the mundane (or drunk), I made bridges of those thoughts to be able to peer into our reality.
+
+therefore, I'm able to do higher dimensional forms of thought during the mundane. as such, I'm not really ever bored. I just go to that zone where my body is here and thinking about things (or meditating) and I'm in a different sort of world that is kinda incomprehensible to me in the physical, but I do get thoughts and ideas in response to the action that's happening up there. it's also a sequence.
+
+it's that perspective that I think can be seen from a 4th ray. like I said, it's part sequence and part emotion. the sequence is probably similar to how our DNA creates reality.
+
+if I can show/emit a sequence of concepts, that is a thing called a ritual. a sequence of concepts can be perceived from the 4th ray perspecctive, looking up.
+
+if I perceive/received a sequence of concepts which describes the same sequence in the perspective of desire, that is the 2nd ray perspective.
