@@ -260,6 +260,6 @@ I've had enough experiance with prostitutes to have experienced that more than a
 
 so here's what I'm thinking now -- because I also had (on another occasion) really quite a good time with raquel in berlin as well, and so both of these extremes put a couple into a sort of mesmerised state where, depending on tte feelings transmitted in the sexual interaction, can alter someone's trajectory through time.
 
-combine that idea with another I had which is that I'm the embodiment of the genetic upgrade that the females were looking for, and that they only needed to be given enough time for desire to evolve such that the want to become the thing they desire. I'm like a living patch to their software delivered in the most secure way (best advertised as well). so, from that perspective, it makes a lot of sense that I were able to kinda position myself to gain consciousness in this period of time, and kinda run away with everything... hehe...
+combine that idea with another I had which is that I'm the embodiment of the genetic upgrade that the females were looking for, and that they only needed to be given enough time for desire to evolve such that they want to become the thing they desire. I'm like a living patch to their software delivered in the most secure way (best advertised as well). so, from that perspective, it makes a lot of sense that I were able to kinda position myself to gain consciousness in this period of time, and kinda run away with everything... hehe...
 
 ### FFF triad and the difference between an emitter and female
