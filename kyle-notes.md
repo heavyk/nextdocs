@@ -277,3 +277,11 @@ that's one of those conceptual technologies (shamanic plant prosthetics) that I'
 [1]: I've stated over and over that the penis is like a tesla coil. it takes in low vibrations (the orgasm) and receives it's opposite high frequency concepts from out of thin air. this is the reception of that chi energy, so for males, we receive the high frequency and produce low vibration, prolonging the expeience and giving it a rhythm.
 
 [2]: this, I've noticed is the main reason why it made vulcan so valuable to zeus -- because he could take in vulcan's concept and then convert that into symbolic reality (the narrative structure and sequence). that's why it's a sequence of concepts/emotions -- but the sequence is defined by us and our perception (cultural, individual, social, etc.)
+
+### 2023-01-10 19:39 - venus the female zeus
+
+zeus, being 3rd ray, produced venus, also a 3rd ray. it doesn't matter when it happened, because time is not perceived linearly -- meaning from our perspective of the sequence, it venus/athena being birthed from zeus' forhead appears in the past, but it's arrival frequentially speaking still has yet to come. meaning, that athena being birthed from zeus' forhead was the *end* of the sequence and it's liable to repeat.
+
+at any rate, I noticed that zeus' must have, upon the dissolution of his rules, must have decided to look at the same thing, but from the female perspective. essentially, vulcan encoded zeus into the female form as the opposite of the energy he received from zeus.
+
+I noticed other things too, but when I was thinking about it, this concept helped me to understand patricia so much better, because as best as I could tell, she (who I personified in my mind as venus/unessa during the time of the atlantian 7th ray triad (there are many instances of the same triad)). therefore, for me she represented the set of fomulas for how things worked. as long as everythng is just physical, things work fine, but it cannot figure out why somethings happen meanwhile others don't. reality doesn't seem to follow a formula anymore and it appears that there are probabilities now (because of the bottom-up 5th ray approach we now have) instead of certainties. within her formula for reality, she was fine, and ahered to seqauence and any deviation from it spelled disaster (it's very unfortunate for her to have met me, I imagine).
