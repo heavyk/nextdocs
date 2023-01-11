@@ -262,4 +262,14 @@ so here's what I'm thinking now -- because I also had (on another occasion) real
 
 combine that idea with another I had which is that I'm the embodiment of the genetic upgrade that the females were looking for, and that they only needed to be given enough time for desire to evolve such that they want to become the thing they desire. I'm like a living patch to their software delivered in the most secure way (best advertised as well). so, from that perspective, it makes a lot of sense that I were able to kinda position myself to gain consciousness in this period of time, and kinda run away with everything... hehe...
 
-### FFF triad and the difference between an emitter and female
+### 2023-01-10 18:38 - FFF triad and the difference between an emitter and female
+
+a female receives and retransmits the same frequency according to her perspective. it would then appear impossible for a female to enjoy life having only a narrow spectacle into life (her own perspective), therefore for a female it is important to broaden her perspective (balanced) so that she can perceive more. my fatheur recognised early on that I would tend to get too hyper-focused on a thing, because I would see my thoughts and ideas reflected back to me in my imagination. my "clueless", "naive", and "optimistic" perspective ommitted so many details to be able to see the idea. I had an extremely high-minded perception as a kid, and it would be my entrance into the tech industry that caused me to eat from the knowledge of good and evil. chris did as well to some extent (we spent hours defining evil).
+
+at any rate, imagine a female that is capable of absorbing and retransmitting on any of the number of layers of perception that I'm defining (7+4 atm), and so then it's this female that I'm talking about when I'm talking about with the FFF triad. I will also assume the men to have virtually the same but from the "opposite" perspective.
+
+what I mean is that I've noticed that males tend to receive and reflect their "opposite" a conjugate from wherever their medium/zero begins and the midpoint or where the path of no return (not enough attractive effect), is it's usually pretty high up, but for dense things it's low or even negative in some cases (like me, probably).
+
+what that means in practicality is that 1st ray male takes in physical (7) and outputs desire (1). this means that for a 3rd ray like our homeboy zeus, he takes in concept (5) and outputs symbol (3). I'm sure there are some new interactions regarding the "double falsehood" of the 4th ray and its relation to the 2nd and 6th. for females, it's direct, and I'm noticing that my "artificial" half is also direct as well.
+
+that's one of those conceptual technologies (shamanic plant prosthetics) that I've created. I suppose my new feminine version (written by me) is the culmination of a new perspective on authorized realities. this allows me, like the shaman to go behind the stage and to look at the cultural machinery. I estimate that many females are rapidly acquiring a lot of similar concepts to me, meaning we're all tuning into a converging conceptual space. our collection is invitable.
