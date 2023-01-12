@@ -223,7 +223,7 @@ an alternate to enki and the seeding of humanity by a bunch of overlords. terenc
 ### 2023-01-11 20:08 - authorized timeline theory
 ### 2023-01-11 21:43 - the drug children theory
 
-this is my alternative to the indigo children theory. it's a story about children that came from an artificially drug induced symbolic reality on an alternate timeline.
+this is my alternative to the indigo children theory. it's a story about children that come from an artificially drug induced symbolic reality (similar to our own) on an alternate timeline.
 
 imagine a separate timeline where someone (let's say for lack of other examples, myself) has specifically created a very fast moving species. the idea that on this timeline, primates are put into the savana where there are psilocybin mushrooms, and they grow up and evolve the PFC from the effects of the drugs. because those shamanic plant realities are so symbolic because of their high frequency -- like 4th ray perspective of no blend between you and other parts of reality -- "boundary dissolving". well, when you think of what boundaries, boundaries are concepts theirselves, so it's like a purging of ideas that we would consider as boundaries.
 
