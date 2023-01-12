@@ -308,4 +308,16 @@ I used to be on autopilot almost all the time, and it was my religion and stuff 
 
 [1]: this is why I find john fletcher's plays and shakespere's personification of women -- because he authorised for them a new set of responses to contrived and symbolic circumstances.
 
+### 2023-01-12 01:17 - dying, but not to myself
+
+one of the interesting ideas about considering the female consciousness paradigm as a sort of group consciousness, is that when I join them, I'm still 100% me complete with my own set of views, and just like all of the other observers, I have preferences to which kind of content that I like to experience. therefore, this cloud of observers can also be thought of like deceased souls, just like our "source" -- therefore, merging with females is literally dying.
+
+I would not die to myself though, as I still have my perception of the same situation, and because I emit my persspective/conceptualisation of the same situation, other girls will begin to see things like I do, if it's a more freeing and less resistant and therefore energy efficient (christ perspective). I'll start out as an opinion, but the perspectives that I've cultivated will gadually take over as the "default" female perspective.
+
+when thiking about this, I noticed that my perspective is that during this time, some of the 4th rays will join each other in a series of rules and formulas that they have for reality; this is 3rd ray symbolic (top-down) perspective. there is anther group of 4th rays that see not the symbols, but the interactions and how things feel as telling the real story[^1], the bottom-up perspective. I suppose some see both. the origin of the perspective is important, because the top-down perspective will see from the 1st ray (emitter) perspective. the bottom-up perspective seems to see from the 7th ray (emitter) perspective. they compliment each other.
+
+further on that topic, I'd like to mention that it's a different path to understand the others. me, for example, I see mostly the primary rays (1-3-5-7) and I extrapolate the mediums (2-4-6) by mixing the above and below rays. thisx path through thm 4th ray perspective is the way of the medium. I noticed that it's often really difficult for 2nd ray perspective to "get" 3rd ray AND also 1st. likewise, I've noticed it difficult for someone of the 6th ray perspective to perceive both physical and conceptual, as they appear very opposed to each other. however, in the 4th ray perspective, it's possible to see both the 5th and 3rd, if one can allow the conceptual (feeling/emotional) perspective to *also* be a valid solution to the reality manifestation function.
+
+[1]: the players in the time of shakespere I think were real tricksters because they had their lines in the play and the symbols were made with costumes and dialogue, but the feelings that they emitted were the real concepts that were being transmitted to the audience.
+
 ### was jesus ultimately a sort of upgrade for females, as well?
