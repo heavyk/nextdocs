@@ -213,3 +213,9 @@ what I believe is happening there is that information wants to get to me, so all
 because I don't experience the physicality of it, I perceive it conceptually, which, in the 3rd ray perspective is the exact opposite and so thus is occulted behind the 3rd ray perspective of things (hidden behind formulas), and so what ends up happening is that they cause me to see the 3rd ray perspective as a function of the 5th. that's pretty easy, so kinda in a nutshell, they gave me a much more pleasurable experience in my perspective, because I really like the 5th ray perspective. I feel right at home there where it's basically the physical equivalent of the world of desire (opposite though cause one is *harmonics then resonances* meanwhile the other is *resonances then harmonics*). that world that they have punished me to endure, for me is the personification and reflection of desire. it's all things desirable about a person. I can only see their "source" version (eternal concept/soul) of them. this is helena.
 
 to some extent, what I'm saying is that I can (somehow) always find a way to the pure concept of the person and their perspective, and so then I only see them as their eternal selves.
+
+### 2023-01-11 18:53 - did terence's "stoned ape" theory authorize a new timeline?
+
+@[youtube](https://youtu.be/7TWl7887LLY?t=4437)
+
+an alternate to enki and the seeding of humanity by a bunch of overlords. terence sees the transition into power structures as a natural transition from hunter-gatherer into agriculture. terence is pro-shepherd I just noticed -- kinda like shakespere. weird.
