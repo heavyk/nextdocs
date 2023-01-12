@@ -218,4 +218,6 @@ to some extent, what I'm saying is that I can (somehow) always find a way to the
 
 @[youtube](https://youtu.be/7TWl7887LLY?t=4437)
 
-an alternate to enki and the seeding of humanity by a bunch of overlords. terence sees the transition into power structures as a natural transition from hunter-gatherer into agriculture. terence is pro-shepherd I just noticed -- kinda like shakespere. weird.
+an alternate to enki and the seeding of humanity by a bunch of overlords. terence sees the transition into power structures as a natural transition from hunter-gatherer into agriculture. terence is, I just noticed -- kinda like shakespere, pro-shepherd. weird.
+
+### 2023-01-11 20:08 - authorized timeline theory
