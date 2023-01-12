@@ -320,4 +320,10 @@ further on that topic, I'd like to mention that it's a different path to underst
 
 [1]: the players in the time of shakespere I think were real tricksters because they had their lines in the play and the symbols were made with costumes and dialogue, but the feelings that they emitted were the real concepts that were being transmitted to the audience.
 
+### 2023-01-12 14:48 - saturn's effect
+
+see [feminine-mind](/concepts/feminine-mind.md), as I originally wrote it with kyle as a muse, but then somewhere  around the end, I realised my main muse hos now shifted to sara, and I'm speaking now in the form of the feminine-mind -- a concept I want to expand tremendously, as for example yesterday I talked about how I see the perspective of "rape of lock" (a slob takes the lock of the fair maiden's hair), and when I was explaining how I see that, and all it is that she took on his perception of himself and now she sees him how he sees himself, and not in that bight "54" perspective -- which compared to the 43 or 45 perspective, is a totally different thing. she can get back to seeing the 4th ray from a conceptual perspective again. I do it all the time. this would restore for her, her perception of the 4th ray through the 5th ray like previous to her virginity loss. my form of perception, is kinda like the virgin that doesn't ever lose her virginity. she continues to see things her way in opposition to the other ways to look at things (again, anothter thing I'm super good at).
+
+I feel like it's a fairly accurate description of helena, to say that she's a woman that behaves like a virgin does, perpetually. I don't know why it gives me that feeling. what's happening is, I'm probably picking up on the "authorship" -- or the concepts that come encoded with these characters.
+
 ### was jesus ultimately a sort of upgrade for females, as well?
