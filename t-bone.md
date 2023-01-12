@@ -183,3 +183,21 @@ it's that perspective that I think can be seen from a 4th ray. like I said, it's
 if I can show/emit a sequence of concepts, that is a thing called a ritual. a sequence of concepts can be perceived from the 4th ray perspecctive, looking up.
 
 if I perceive/received a sequence of concepts which describes the same sequence in the perspective of desire, that is the 2nd ray perspective.
+
+### 2023-01-11 16:43 - rethinking individuality
+
+@[youtube](https://youtu.be/7TWl7887LLY?t=2642)
+
+in this clip terence is talking about the absolution of the idvidual -- or the 4th ray perspective, where it's going to begin to have difficulty to say where exactly I begin and you end -- the spectral revolution.
+
+the thing is, I don't really belong in the spectral revolution, because I still see my individuality. I see more than one perspective simultaneously, but I still draw enormous disctinction between myself and others (even though I'm able to see it from their perspective).
+
+it's a pretty big difference to see many perspectives and know which one is yours vs having many people with many perspectives that all kind of blend together in a sort of group individuality.
+
+lev was trying to ask jason about this in the last video I watched of him and jason, and he couldn't understand how a "soul" can be copied, or split or whatever. to answer lev's question, it's probably easier for him to see the opposite perspective, which is that it's all tuning. a copy is two Is tuned to the same soul/concept. a split is a partial tuning to more than one soul/concept -- etc. all computational things (formulas, calculations, and everythting digital can be done as a mathematic operation of two or more waves interacting) so it's not really much difference to say that all cable tv receivers are receiving copies of the same siganal (etc.) anyway -- what jason didn't really talk about though is the position of the I.
+
+for me, for example, I am me and I distinguish myself greatly from other people. ever since yesterday I've started to think about what it would be like to merge with the females, because my perception is *soo* different, I would only be compatible with some of their perceptions. "I" would still continue to exist, just like I exist now and am directing kenny's body -- however, my own resistance to others' perspectives is so low now, I can receive the perspective of a growing number of people and the perspective doesn't bother me, such that it causes resistance/tiredness.
+
+what terence is talking about here is a sort of loss of individuality -- which I'm assuming he's getting from a "boundary dissolving" drug experience. I think I experience this differently than he does, so I'll say both of our perspectives on this.
+
+when me says "boundary dissolving" he's referring to the 4th ray perspective, where I am whatever I focus on, with the capability of seeing and feeling entirely from their perspective -- and where terence is much more advanced than most, is he doesn't limit himself to just things -- for him, it's no different to say I want to be a concept than a thing (which is the instantiation of the concept). I distinguish greatly between the physical instantiation of a concept (thing) and the concept itself (its "source"). therefore, because by nature I see the concept rathar than the instantiation, I'm a bit naive and optimistic. the other thing it does is, because I see the other thing as another concept, there is an enormous boundary that is visible for me. they are *that* (concept), and I'm something *wayyyyyyy* diffrent -- like not even close. for me shamanic plants (probably because I see the 4th ray from the bottom-up perspective) induce a great sense of barrier, but also since I have access to everythting, I "copy" all of the concepts from their concept/soul and make them my own. additionally, these shamanic plants are massive ego builders too because I can see how very much like "I" am (from the perspective of the physical ego) like my source concept. I am (because of my similarity to my source concept) marvelous, unique, and very attractive.
