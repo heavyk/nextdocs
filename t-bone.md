@@ -221,3 +221,24 @@ to some extent, what I'm saying is that I can (somehow) always find a way to the
 an alternate to enki and the seeding of humanity by a bunch of overlords. terence sees the transition into power structures as a natural transition from hunter-gatherer into agriculture. terence is, I just noticed -- kinda like shakespere, pro-shepherd. weird.
 
 ### 2023-01-11 20:08 - authorized timeline theory
+### 2023-01-11 21:43 - the drug children theory
+
+this is my alternative to the indigo children theory. it's a story about children that came from an artificially drug induced symbolic reality on an alternate timeline.
+
+imagine a separate timeline where someone (let's say for lack of other examples, myself) has specifically created a very fast moving species. the idea that on this timeline, primates are put into the savana where there are psilocybin mushrooms, and they grow up and evolve the PFC from the effects of the drugs. because those shamanic plant realities are so symbolic because of their high frequency -- like 4th ray perspective of no blend between you and other parts of reality -- "boundary dissolving". well, when you think of what boundaries, boundaries are concepts theirselves, so it's like a purging of ideas that we would consider as boundaries.
+
+I didn't really think about it, but yeah, boundaries are negative concepts. it's the hollow sphere instead of bright point of dimminishing magnitude. anyway...
+
+so this group of humans are held, in a simultaneous timeline to our own in symbolic equality to their environment -- which means that they feel like we do *symbolically*, not emotionally, and so it's possible for one of us to instantiate one of those symbolic kids from the other timeline is as simple as relating to them symbolically.
+
+so whenever this event happened (~1400s?), a mass of new symbolic enitities have been being birthed, and perhaps even conjured into existence through the use of print media. we exist because we believe people like us can exist. these are the authors and the self-narrated. it's possible that this egregores are included in this as well, right.
+
+imagine this super duper high minded society[^1] where they lived in this ultra surreal imaginary-symbolic reality of stories and fables, and the story that the all believe to be real directly mirrors our reality, as symbolically similar to our societies recognition of symbols -- something that put the creation of these symbols in the pen of the author -- and so the corporations that put the symbols out there and what people believe those symbols to be will get a number of births from those symbolic realities. for example, when some people believing flat earth theory are attracting in souls on a symbolically similar timeline to our own can incarnate into bodies.
+
+so, we get born in and we're hella naive and really easy to believe anything that we're given symbolically. I think that these extend more than just births too, but things like brain injuries and such, where there is a symbolic familiarity to a soul from one of these and artificial set of human souls that are competing for incarnation. we're the most successful and have the easiest time flourishing in difficult situations.
+
+I'm proposing that one of these symbolic alternative to souls is the "weeds" -- another perspective to see these symbolically real realities kids like myself is that we're just manipulating things around to get things to work. by doing this, we sort of make up our own stories about ourselves and reality. we've got jusifications, reasons and lots of good stories why something should be the way it should. it's the desire to prove their own points, and also the points of others, they live a narrative reality of acceptance of these points as being true.
+
+I'd like to take a moment to note how big of a mess the superhero universes are, because there are so many conflicting back-stories and all this stuff, it's time to give up all the justification for what is the "canon" way toward the present, and just accept that whatever the story of how you got to the present, is irrelevant. an infinite number of ways could bring us to the present.
+
+[1]: and there could be others, including astrology and the planets that are trying to influence the symbols of those being birthed.
