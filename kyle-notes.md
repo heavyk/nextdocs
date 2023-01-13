@@ -352,4 +352,7 @@ you know what's so cool about me? I've basically passed through all of the dange
 
 I believe that I can continue to allow things to get better so easily, that I imagine that I'm really looking at "ferever". I may shift my consciousness to become something bigger or better, but I imagine all of us will be able to essentially live forever. the other thing is I'm finding thatg I get more and more secure of my continued existence every day -- and that it's increasing, not decreasing. I can simply watch things improve all the time; I'm good at that.
 
+### the 2nd ray "glutton for punishment" perspective
+
+### helena doesn't believe in fairness
 ### was jesus ultimately a sort of upgrade for females, as well?
