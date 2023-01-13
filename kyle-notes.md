@@ -340,4 +340,16 @@ I feel like it's a fairly accurate description of helena, to say that she's a wo
 
 [1]: I'm thinking that this has to do with the transformer configuration. so imagine a penis is a tesla coil, which makes frequency pulses, and gets high frequency pulses in resonse -- etc. well, men receive high vibration (from her), and that high vibration is mostly all conceptual range stuff. I bet if someone did a study, they'd probably find that females emit x-rays during orgasm, and that men receive more x-rays.
 
+#### 2023-01-12 17:02 - what is maternal instinct?
+
+the belief that everything sums to zero and all must be fair, which is kind of like the foundation of mathematics and statistics. they keep our reality stable because they have a lot of rules of what can happen and what cannot.
+
+I think maternal isntict comes from the 34 perspective, where looking at the rules, the quantites, and the needs, an asessment is made on how things should be divided "fairly". this probably became a thing when moving to agicultural lifestyle, too, which saturn is known to be a farmer, not a shepherd. fairness and divison of parts aligns quite well with the 4th ray (saturnian) perspective, which is also of balance.
+
+therefore, for me coming from the 54 perspective, I see nothing like this at all. sure the physical image is overlaid on top of it, but I see the things as concepts that stick out to me. all of the things that I see are reflections of myself in other people. I'm basically only really able to see myself in others, so the physicality of any "thing" doesn't even really matter. I am the continuing manifestation of how I feel myself to be, and that has a dramatic effect on how I recognise myself all around me.
+
+you know what's so cool about me? I've basically passed through all of the dangerous character flaws -- so even if something were to go terribly wrong, I don't think it would disrupt me for more than a day. what I mean is, I'm so willing to take risks now because I calculate the recovery time of a fail to be very low. from here, it really only gets better for as long as I can allow it.
+
+I believe that I can continue to allow things to get better so easily, that I imagine that I'm really looking at "ferever". I may shift my consciousness to become something bigger or better, but I imagine all of us will be able to essentially live forever. the other thing is I'm finding thatg I get more and more secure of my continued existence every day -- and that it's increasing, not decreasing. I can simply watch things improve all the time; I'm good at that.
+
 ### was jesus ultimately a sort of upgrade for females, as well?
