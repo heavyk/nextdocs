@@ -352,6 +352,20 @@ you know what's so cool about me? I've basically passed through all of the dange
 
 I believe that I can continue to allow things to get better so easily, that I imagine that I'm really looking at "ferever". I may shift my consciousness to become something bigger or better, but I imagine all of us will be able to essentially live forever. the other thing is I'm finding thatg I get more and more secure of my continued existence every day -- and that it's increasing, not decreasing. I can simply watch things improve all the time; I'm good at that.
 
+### 2023-01-12 19:50 - fairness and attraction
+
+imagine that all "venusians" are brought in believing in fairness and equality for all -- and a sort of cosmic justice (whatever shape that may be) will keep everything summing to exactly zero. no progress whatsoever.
+
+here's how it works: the 4th ray perspective, all things equal to zero, such that minor perturbations can go a long way. this system ensures the stablity or foundation upon which all conceptual structures are built off ot (trade-off). the 6th ray perspective is the imagination, which shinks everything else around it to make the thing that you're looking at really big. mathematically speaking, you're always looking at less in the 6th ray perspective, but it's never noticed how much the unperceived things need to shrink to amplify the thing desired to be seen. the 2nd ray perspective is exactly the opposite of this.
+
+the 2nd ray doesn't really see "things" so much as the bigger picture. the bigger picture is never a function of things, because things come and go.. cells, humans, plants, etc. live and die, but there is a non-physical organism that is always getting improved upon or dying and being reborn into something greater. this super organisational structure includes the desire for the organism as a whole.
+
+the macro 2nd ray perspective is pretty difficult for many to see, as we've been supposed by our institutions to see separation between us and other humans by a number of distinct attributes. as such, it's hard to take the promethian perspective and say, it doesn't matter "it has to be said; someone has to say it" and just sorta put something out there, now for their own benefit, but for the benefit of all. this generous or abundance form of thinking relating to *things*, *concepts*, and *all nature of reality*, is actually the promethian perspective. it says that it doesn't matter what happens to me, it's the idea that lives on.
+
+> "no matter what anybody tells you, words and ideas *can* change the world"
+
+the individual 2nd ray perspective is one of complete ego, knowing that everything is getting easier and easier to recover from and that no matter what manifests/happens. my perception and how I feel is all that matters, so if all I have to do is change my relationship with something (my perception), and/or how I feel, then recovery in no longer any big deal. risks don't appear risky anymore cause recovery is so easy.
+
 ### the 2nd ray "glutton for punishment" perspective
 
 ### helena doesn't believe in fairness
