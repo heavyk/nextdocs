@@ -16,6 +16,75 @@ OK, I should explain plainly: shakespere and friends are 4th rays so the emotion
 
 so, when the emotion is received my me or anyone else evoking the "spell" of those words (it's a conceptual program), and so you get a feeling response to the input (the spell/werds which activated the concept). to me, the feeling response is often times laughter -- but laughter, and pleasure, sexual stimulation, and pain are all very similar in vibration, so they get mixed up and confused. a sex therapist can verify this. to me it feels like a mix of pleasure and laughter, depending on the juxtaposition of the ideas, cause they're also linked to these other concepts thare are -- dunno if you're familiar with abraham -- but the concept they transmitted when they said, "OK everyone let's get our canoes, put them in the river, point them upstream, and then paddle" -- sort of concepts. these are the real hard-work emotions.
 
-#### 2023-01-13 00:30 - you know, I don't notice attraction in others' eyes, actually
+### 2023-01-13 02:16 - crazy idea on the midsommer's night dream
 
-I really don't. I wonder, is that a problem.
+so as you're talking, it appears to me that this is talking about the current climate control on the planet. the "fairies" are nosebook (let's just say saturn, at its core of the "world system" and the time matrix), those guys are the narrators of our reality, 4th rays. the thing is we're played like pieces in their symbolic game, and the only thing that we can do is to respond to the symbols emotionally. they set symbolic traps out in time, so that when some conceptual conditions are met you feel a certain emotional response to it. it's always body physical, and I don't really have much response to their manipulation of my feeling of my body (you know, like my skin will vibrate or my leg will jump or ridiculous stomach growl -- or whatever), so what's happening now is those plays evove never any negative emotion anymore.
+
+so here's the thing, I see the 4th ray, not from the 3rd ray perspective (34), but from the conceptual. as such it's a completely diffrent way of interacting with it. and it's what this monologue is talking about:
+
+    Lo, she is one of this confederacy! /
+
+the "image" that I get from this line tells me that hermia is one of the crew -- and so this is the reverse thing where the boys are dressed as the girls, so hermia is really hermes. the whole monologue is extremely homo-erotic, but skipping past that -- the way I see it is a 7th ray female (in the upper triad, he's the *emitter" -- so the one that has the plan), but this is done in female form, so think of a little girl that is like thoth in his abolity to produce a physical form/body/medium capable of containing a concept, ranked by more suitablity. they experience each other physically, but I (and you will soon as well) experience other people conceptually. I don't physically feel their pain and anguish like they feel it; instead, I have a concept of what it feels like, it's rich and when it comes from other people, you could say it's a very energetic and tight ball of justifications and reasons for how something like that can exist.
+
+feeling the reality of a person with their massive justification ball for why they are the way they are; the 4th rays all really have a pretty good-sized list of why they're not good people, as do I. normally, that kind of reality concept would be paralytic to a person (my left-side literally shook), and it wouldn't be a very livable situation (I think that's the case for people with seizures, like zara, I believe -- at least it was for me) that my left side (for some their whole body) really tightens up and doesn't work properly when I'm in a terrible emotional state. I have to find a way to relax and let go of the crippling concept -- and/or wait some time for it to pass. it's not really pleasant to be that sensitive, so I've been forced to rework some default concepts (captain-of-the-obvious).
+
+the other image that it gave me was that I (kenny) have joined them in 6d. I don't see it physically but I experience it, which means that I have a conceptual relationship with it.
+
+so, let's say that you're hermia -- we somehow find a way to "Have with our needles created both one flower" -- and "so we grew together". to me this monologue describes the way that I believe that we and any other conceptually receptive types want to join me...
+
+    Now I perceive they have conjoin’d all three
+    To fashion this false sport, in spite of me. /
+
+conjoined all three, I believe is referring to the two that I have (vulcan + anatau) -- and I'm really good at manipulating concept and desire, but someone needs to render it into physical space. essentially, what I'm missing is a 7th ray (aphrodite, genxicat), right -- so hermia is kinda like plan b. she's no aphrodite/ishtar/genxicat, but she'll work well enough to make the conceptual togetherness we'll have with each other.
+
+it's the 7th ray approach. essentially, I am me, and I am clearly someone that is conscious, and I wouldn't really want to lose that, but neither do I have resistance to feeling how others are doing conceptually. usually their feelings even amuse me, so its no threat to me. I already see it this way, but we have to find a way for others to experhience it really easily. I got the capability because I really have basically no resistance to others anymore. I do not really feel I can even have an emotional thing go wrong (reminds me of spring enjoyment growing ill or something like that)
+
+    Injurious Hermia! / Most ungrateful maid! /
+    Have you conspired, have you with these contrived
+    To bait me with this foul derision? /
+
+so hermia is conspiring to bait helena with this foul derision (this awful sidetrack away from goal)
+
+    Is all the counsel that we two have shared, /
+    The sisters’ vows, the hours that we have spent, /
+
+huh.
+
+    When we have chid the hasty-footed time
+
+when we tossed off the quick blasting lord chronos
+
+    For parting us, /—O, is it all forgot? /
+
+parting should be explanatory "--O"
+
+    All school-days’ friendship, childhood innocence? /
+
+basically, this super homo-erotic section is to kind of make the next part appear that it's talking about something gross, but really, they're talking about weaving (nick bottom) together a new sort of reality -- the 54 angle, meanwhile they're up there in 34 chidding lord time.
+
+    We, Hermia, like two artificial gods, /
+    Have with our needles created both one flower, /
+    Both on one sampler, sitting on one cushion, /
+    Both warbling of one song, both in one key, /
+    As if our hands, our sides, voices and minds, /
+    Had been incorporate. /
+
+the way that I see this, is that we all experience "I", so we're all individuals completely in the ego -- this clump of stuff is "me", and so then "I" is just a point of perception "I" can be any concept that I want. all people plants, animals, species, trends, herds, etc. are all concepts, and we can "be" those concepts, allowing those concepts to be available to our knowing (zolting, I guess). as such we'll create super perspectives and share perspectives amongst each other. we can't really have secrets between us, cause we're kinda one, -- a group of ones that all share perspectives. we see concepts, not as their physical apparition, but as their ideal. we're the dreamers.
+
+    So we grew together, / (This finishes the previous line, but a new beat)
+    Like to a double cherry, seeming parted, /
+    But yet a union in partition; /
+    Two lovely berries moulded on one stem; /
+    So, with two seeming bodies, but one heart; /
+    Two of the first, like coats in heraldry, /
+    Due but to one and crowned with one crest. /
+
+interesting perspective on such a union. the important thing to note is that it's a heart connection. I bet it'll feel like we all have a synchronised heart, so we'll share concepts, drive, and passion amongst each other.
+
+    And will you rent our ancient love asunder, /
+    To join with men in scorning your poor friend? /
+    It is not friendly, ’tis not maidenly: /
+    Our sex, as well as I, may chide you for it, /
+    Though I alone do feel the injury. /
+
+I'm not really sure what that means. my sense is saying to watch the video. OK, peace out.
