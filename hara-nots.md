@@ -146,3 +146,32 @@ so, what I've noticed (especially in the other monologues, like the one about tw
 ---
 
 really, the way that this whole play feels to me like is -- imagine for a moment that I were to head down there -- well, at some time I would have to leave. it would be icpossible to stay there forever, so this is a forever eventuality. the whole point of this play is for helena to not try and control but to learn to just let happen. that's my initial feeling and so far I'm only in act 2.
+
+### 2023-01-13 23:25 - I'm reminded of starting the relationship
+
+there was this thing that tim said in one of his videos almost saying as if he had some experience on it. it seems to me that his wife was the one that initiated the relationship and then wanted him to wear the pants. helena (venus) is pursuing bertram (mars), and notice how she's trying to organise and arrange everything just the way she likes it. it's easy thing to do, having committed that sin myself.
+
+from helena's perspective, the problem is when I try and line everything up with the symbols that I want (3 emissive). like helena, when she does that everything falls apart. what I've learned is that the desire perspective is the best one. I know good things are coming to me, so all I have to be is kinda ready or semi-conscious enough to get them. my ablity to get them 150% *always* depends on how I feel. I get these things called zolts, which are massive ideas and concepts, and they're conceptually quieter than a whisper. I can't be all worked up over how I look or whatever if I'm receiving those things. I think on my top things that helea does which is annoying is worrying about stuff she has no control over. attempting to exert control or wish that the circumstance were different is the exact *wrong* (nothing good about this way) to use desire. you can't wish now to be any different than it is; you have to accept now unconditionally, and just allow myself to go toward wanted/desired. it seems like all my life I've been one more step closer to making my own network. anyway.
+
+so, helena in this play is putting the moves on, and what tim would like to add here is that helena can't take over the gas pedal, and then stop pushing the gas. she has to be consistent in her desire, (and in this play) even if it isn't what she wanted at first. she can just try again for what she wants. when something goes away, this is when the desire for the next return.
+
+there's also another strange thing about helena in this play, which is that she's seen like the father in the parable of the prodigal son. in this one, bertram is leaving her nest and going out into the world and becoming material and of the world (wars and conflict), so when bert comes back to helena, it's like the prodigal son returning to the father. have you ever wondered why the father is so happy to have such a failure of a son to come back home to him? put him right to work? "told ya so!" exploit him cause he's of higher social status than she?
+
+---
+
+hey, do you want to make like a website or some kind of program where someone can make notes and link ideas between sentences? I really wish there were a way to express my thoughts more multidimensionally. I have a lot of ideas. it'd be pretty cool to eventually get a bunch of programmers going on some of my ideas. cause, like you know I want to link a number of my ideas together there,
+
+because loss is always only part
+of the cycle, and so it only
+matters how you perceive it.
+
+loss is linked directly to desire.
+more loss, more desire.
+desire is like a void.
+for creation to fill the void.
+
+I'm so awesome; it doesn't matter
+how much I lose, look at everything
+that I continually create because
+
+I'm a radiant star.
