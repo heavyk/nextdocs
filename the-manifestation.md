@@ -1862,5 +1862,6 @@ anyway, beyond that hypothetical reality, what we're really doing on a macro sca
 
 I feel like there's more. too bee continuededd
 
+we should think maybe about a time limit
 
 ### interests diverging and individualisation
