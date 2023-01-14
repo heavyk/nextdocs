@@ -110,3 +110,9 @@ that's pretty much it. for some reason my giant list turned out to be not so lon
 I feel like this is probably a good thing to note, because the capacity for a person to retain this capability through loss of virginity/innocence and is also likely to start out with quite an instinctual form of perception, cause they'll get the physical and still retain the conceptual. boys will probably start out with both (ohhh, that's why they're so keen on me; I get it, now... lol) interesting.
 
 so that's really interesting because I will kind of set the instinct of perception (where to see barriers) for all of the "default" or "new souls" population, meaning they'll be real dreamers, meanwhile because I'm so open-minded, once they figure out how to sever the desire to eventually go toward wanted (only unwanted), they're actually in a bit of a conundrum. they're running an antiquated form of perception where the binary is between good and bad. my binary is not good and bad, but wanted/desired and unwanted/undesired. this creates a problem because if you want to be  a "bad-boy" now, you have to dedicate your life to experiencing unwanted. there are some real workers out there that really want to prove the misery of life, and they'll really work it out for a very long time -- or they could decide to *occasionally* (and, I really mean occasionaly, cause life is bleak) experience a little bit of wanted/desired. I don't mind at all they want to try and keep good and bad/evil going for a little while longer. for me it's kind of amusing, kinda like the players thought the female roles were amusing.
+
+### 2023-01-13 23:01 - the king and bert are the same guy viewed from different perspectives.
+
+I just noticed this, but I can't explain myself just yet.
+
+also, I noticed a that parolles says a lot of really interesting stuff to helena, predicting the qualities of her husband, and explaining that virginity isn't everything is cracked up to be.
