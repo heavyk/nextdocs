@@ -116,3 +116,7 @@ so that's really interesting because I will kind of set the instinct of percepti
 I just noticed this, but I can't explain myself just yet.
 
 also, I noticed a that parolles says a lot of really interesting stuff to helena, predicting the qualities of her husband, and explaining that virginity isn't everything is cracked up to be.
+
+### 2023-01-13 23:06 - reflectance
+
+I noticed that I'm a really good reflector, so who do I want to reflect to whom? so for example, if I take on your perspective, I'll improve upon it greatly and many things -- so for example, thmings that could potentially bother you will probably not bother me, so it's most likely that improved perception is what will get reflected (absorbed and retransmitted) back. something to think about.
