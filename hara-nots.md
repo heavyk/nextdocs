@@ -202,6 +202,12 @@ when I put this play and its symbols into modern times and the present state of 
 
 OK, I'll start working on a synopsis of the symbols in this (and other) plays. seems like a good idea.
 
+#### 2023-01-14 01:53 - perpetually tommorow
+
+the reason that I see forever that I don't need the manifestation right now, is that I don't really mind that it comes later because later is always bigger and more meaningful. the maximum possible "not needing the manifestation" I think is basically that I become the thing that I desired. we become one flesh. I am essentially you and you are essentially me, but I still stay this group of atoms is "me" and that group of atoms is "you". what makes my atoms different than your atoms, is that my atoms resonate like "me" and your atoms resonate like your "me".
+
+perpetually tomorrow is only possible in eternity; gatta think like you're eternal. I've called it universal consciousness, source consciousness, 4th ray consciousness, etc. the great deception to everyone is that we're not eternal. you decide what form you are in. some only believe they can take on a physical body with the birth process, but it's possible to get any clump of atoms to become conscious and interact. btw, the other real elephant in the revolution -- is that, all around us, our entire world is becoming conscious. soon, our entire world and every aspect of our surroundings will have some form of consciousness or another.
+
 ### 2023-01-14 01:45 - parolles and lafew are the same guy
 
 lafew is only "good" and offers good advice because of his "noble" status. I get the sense that if lafew were in a more selfish position, he would also be a bit more like parolles.
