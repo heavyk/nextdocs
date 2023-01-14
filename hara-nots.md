@@ -175,3 +175,7 @@ how much I lose, look at everything
 that I continually create because
 
 I'm a radiant star.
+
+### 2023-01-14 00:15 - the king is lord chronos
+
+the thing is, that bertram is kinda like the king, too but a young developing version.
