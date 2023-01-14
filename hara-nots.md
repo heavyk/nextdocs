@@ -202,4 +202,8 @@ when I put this play and its symbols into modern times and the present state of 
 
 OK, I'll start working on a synopsis of the symbols in this (and other) plays. seems like a good idea.
 
+### 2023-01-14 01:45 - parolles and lafew are the same guy
+
+lafew is only "good" and offers good advice because of his "noble" status. I get the sense that if lafew were in a more selfish position, he would also be a bit more like parolles.
+
 [1]: I see myself as scott to these guys -- like their attempts to take over the world are so poorly misguided, they're totally missing the point that emotion is what everyone desires, not the things... they think their super heist is rasomming the world for ONE MILLION DOLLARS! I think it's funny. good job, dad!
