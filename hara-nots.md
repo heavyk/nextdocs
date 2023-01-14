@@ -229,3 +229,9 @@ the 4th ray perspective is correct, which is "take what you can get" aka, "be pr
 I know that sounds terrifying and painful from a female perspective, but to my perspective (and this is probably an improvement), watching something continue to remain in the birthing process means that it never gets too big too quickly. I have control issues, I guess.
 
 I noticed that only the 1st ray and perhaps the 5th 6th, and 7th perspective like surprises. the 1st ray perspective is that I want to be surprised. the universe shows me more and more awesome things all the time -- way better than I could dream up -- so why not just let it surprise me. the 5th ray loves inspiration -- new thoughts and ideas (and their corresponding feeling of intoxication) popping in, is amazing. in the 6th ray, new things popping in create desire/fear (1st ray), and 7th ray also creates desire/fear directly. interesting relations to the 1st ray there.
+
+### 2023-01-14 03:36 - none of this counts, anyway
+
+by definition, all of the concepts presented in shakespere, are at best conversation starters, because they're so outdated. all things evolve and change, so I like to sorta ride the wave of evolution of a concept (or desire). every time that someone reacts to a concept, the concept changes ever so slightly until it comes to general stability -- then, something like a massive change in social perception can leave a word like "niggardly" in a less than good spot. that word has a high conceptual impact, and doesn't at all feel stable to me like "stable" does, for example.
+
+that means that all of this stuff that I talk about it *automatically* guaranteed *not* to happen... that's so cool, and why I write about a lot of stuff. I know that when I write it, it won't happen. isn't it funny to think about whatever happens, probably won't be written down. looking back from the future, it could be anything. almost certainly it'll have a couple revisions anyway.
