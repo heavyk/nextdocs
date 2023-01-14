@@ -814,6 +814,12 @@ anyway, we'll see if I can get to sleep without dying, cause that would be prett
 
 [1]: *seriously* extremely awesome because when he paraphrases the dialogue, I "get" the play/poem from his perspective and he has a very detailed grasp of these things, so it's extremely mind expanding and thought provoking. don't be like coriolanus and unable to accept praise... it's really cool man :)
 
+### 2023-01-14 04:48 - paris, menelaus, and mars
+
+first, I noticed that helena is sorta like aphrodite/gnexicat, and then that makes menelaus mars, then vulcan is hera. that was interesting, then I noticed that menelaus and paris are like negative aspects of general form of 7th ray male. then, I was thinking about aphrodite/helen as being also negative aspects of a 7th ray female.
+
+it seems to me like the book is saying, these are the characters that we're breeding: +/-7th rays and queen heras (-5+). finally, to hold everything in place, zeus (+3) and athena (-3) set the rules.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
