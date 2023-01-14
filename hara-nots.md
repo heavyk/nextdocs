@@ -179,3 +179,27 @@ I'm a radiant star.
 ### 2023-01-14 00:15 - the king is lord chronos
 
 the thing is, that bertram is kinda like the king, too but a young developing version.
+
+### 2023-01-14 01:04 - problems with the symbols
+
+I'm just going to be ultra straightforward, because why not.
+
+as I'm reading the "all's well that ends well" play, I'm getting a completely different set of symbols from [the shakespearean revelation](/the-manifestation.md#2023-01-13-1743---the-skakesperean-revelation).
+
+the thing is, in that one I had some combined symbols of hamlet and how you like it (and potentially a few others I'm not remembering -- usually the "problem" plays). I also really liked in one of your videos how you edited the play and showed the short vs the long theatrical versions. I'm going to read hamlet next (and it feels like maybe another -- winter's tale? -- oh, msnd) -- but if I take parts from each play and combine the similar characters (like young hamlet and bertram), I can kinda put the stories together.
+
+here's why I say this: let's just assume for a moment that you're helena, and I'll be bertrand. the way it looks is that I get a zaryn-like figure (parolles) sweeps me off to "the war" which is inevitably all of the stuff they're designing to "rule the world" (dr. evil impression[^1]) and apparently lots of girls, too. OK, so then I get like totally annoyed by the fact that you're still chasing me around and I wanna hang out with the boys and play with their toys with them -- you know, like misguided love in helena's opening speech. the main problem is, that's not at all likely to be remotely close to what happens. they have a lot of ideas about how to do things, and so do I, so I'm just going to keep working toward going toward that -- right. in the play, the countess tells bertram that he needs not to be doing any work and he replies that he will not, not with all the legs (open) in front of him. I mean, I don't really want to "not work", and just have to service girls or whatever. in reality, what that I see is saying that he should go for the effortless way of doing things.
+
+here's what I know that's way different from bertram. I know that I'll eventually get what I'm looking for, so there's no need to rush anything or try to make anything happen. so, when it comes to these things, I'll be hanging out with the girls, but not cause it's like some thing I have to do, but because evetually, you get bored and want to make something -- or, in my case, some aspect of technology annoys me and I want to improve it -- so I think about ways to improve things. that's likely what I'll be doing, not going to war or anything like that. I'd love to talk with other people about their products and brainstorm new sollutions. I've actually even been thinking of doing that this summer to make money (cause from my perspective, no thing has changed until I decide to go a different path; "wrong way", I guess).
+
+also, the idea that I'm going to always be away from "home" is entirely a creation of your own mind. I had an interesting experience happen to me this morning (or was it yesterday), where someone came to the realisation that my ego is so large that I'm willing to always just let the opportunity slide by, because I know a bigger one is coming. what that means is, I'm basically learning how to "take what I can get". inotherwords, I'm so willing to just keep letting the desire evolve (until I become the thing), the person observing me had the realisation that I'm learning to be like, "OK, this is enough, 'you take what you can get, right?'". I'm always willing to be like, yeah, no problem, we'll do it next time. I wrote a famous quote down:
+
+> there's no time like the present, to do something later.
+
+I think that's how it went... anyway, the idea is that I can always put anything off, even the "good" stuff. this is probably the updated thing with bert-ram. the problem with that, is if I'm just chilling out, putting off the marriage duties, it's because I'm just like totally fine "doing something later, now." (reminds me of vsauce's dong, anyway). in that case, I'm simply refusing to consumate the marriage because I'm me and I want to really go to work (not war, because we're a few centuries into the future here) and I really want to work on stuff (prolly like coi and stuff). you know, so it's like not even all that big of a deal.
+
+when I put this play and its symbols into modern times and the present state of events, I don't even come close to seeing all of the same things.
+
+OK, I'll start working on a synopsis of the symbols in this (and other) plays. seems like a good idea.
+
+[1]: I see myself as scott to these guys -- like their attempts to take over the world are so poorly misguided, they're totally missing the point that emotion is what everyone desires, not the things... they think their super heist is rasomming the world for ONE MILLION DOLLARS! I think it's funny. good job, dad!
