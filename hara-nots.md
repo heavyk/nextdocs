@@ -88,3 +88,19 @@ interesting perspective on such a union. the important thing to note is that it'
     Though I alone do feel the injury. /
 
 I'm not really sure what that means. my sense is saying to watch the video. OK, peace out.
+
+### 2023-01-13 03:30 - redeeming shakespere
+
+OK, so it felt like there was some loss of the spirit of shakespere when finding out that so much of shakespere's romance, is disgusting toilet humour. I totally agree.
+
+I think we should just redo a whole bunch of it. modernise the language and retell the same stories with a new set of concepts. like, what I mean is to take the major plays and redefine all of the characters and their interactions. we can keep the same kind of symbolic idea, but change the interactions to represent .. hard to explain, but for example malvolio, I think could use an update. I *love* the idea of mixing my self-centredness with awful intentions on top of a villian -- cause I would probably be a pretty awful villian if I were out to try and manipulate people (another thing I'd change about helena and how she manipulates).
+
+I had more ideas, but they're escaping me now.
+
+### 2023-01-13 03:38 - so I'll just lay it out...
+
+the [crazy idea on the midsommer's night dream](#2023-01-13-0216---crazy-idea-on-the-midsommers-night-dream) thing made it sound like I should somehow engage with sarah, and that seems all good, but here's the thing: I don't typically follow symbolic guidance. instead, I follow my emotions. so here's my basic checklist I go down:
+
+1. if the situation were to happen, would I feel bad about it? if so, why/how and solve.
+
+that's pretty much it. for some reason my giant list turned out to be not so long. so, I don't really feel bad about it at all. I don't know that I feel "good" about it either. I mean, it's an idea, and it appears to have "divine providence" to it, which means it has the blessing from lord saturn -- kinda. anyway, there's a lot to like about this. I really like how she's working so hard to vary her perceptions of how the same line can be seen. it's extremely interesting. the thing is, from my mostly 1st ray perspective, I see all emotion and body language as a function of desire. desire is *automatically* felt in conjunction with an emotion. all emotions contain an element of desire, so therefore all body language does as well. her way of looking at things is extremely interesting, kinda like she perceives acting and things as a function with variables -- like put in x ingredients and out comes the sequence. I don't see acting at all like this, though I don't know that I could deliver shakespere-like lines as easily as I deliver normal words. I mean it seems like it'd be a lot of fun to practise acting and stuff. it seems like it'd get me to perhaps think about the physical aspect of the conceptual world (something I never do because that's all astral, so I don't really pertceive it). I see concepts *without* their physicality, much like a girl does.
