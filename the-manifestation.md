@@ -1862,6 +1862,5 @@ anyway, beyond that hypothetical reality, what we're really doing on a macro sca
 
 I feel like there's more. too bee continuededd
 
-conceptual-I vs tangible-I
 
 ### interests diverging and individualisation

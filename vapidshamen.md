@@ -253,3 +253,34 @@ I'm going to feel better at getting better.
 I'm going to feel sober tomorrow, not stoned like I am now.
 I'm going to feel x way at y time.
 I'm going to feel y way at x time.
+
+### 2023-01-13 19:06 - conceptual-I vs material-I
+
+this clump of material/physical
+is me, a thing.
+
+I see from my perspective,
+and I can allow myself to see
+others' perspectives, too --
+without having an identity crisis.
+
+I am a clump of individual concepts that
+all forms a super structure, or concept.
+
+we are, copies of the same soul/concept,
+all in individual states of the macro
+evolution and continuation of its soul.
+
+---
+
+this concept (though not expressed well), is an interesting one to me, because I can see from both perspectives. so, for example, I can see myself as me, and then somehow I can the ability to see from another perspective, like I hear a collision or ricochet, and see from that perspective for a brief moment, or I somehow become of the way that another person feels -- well, that's happened a lot to me, and I have quite an extrasensory perception based on all of your reactions. I see a lot, but very little of it getx down to reality-kenny. it's only the really noticeable stuff that catches my attention.
+
+you see, I am one of the ones (and strong propoent of being one yourself) that is narrated. I have a whole steering committee out there trying to get me to go in another direction. in reality because they don't really bother me, they add in a ton of energy into the manifestation. the way that they're unnoticeable to me is because I don't really *see* with my eyes and brain, the symbols, unless they're really obvious, right -- so instead I sorta just feel them and let them happen.
+
+they sorta put the symbols and stuff in and I just feel the way I want to feel about whatever is happening. that makes it sound like I am completely powerless -- and I would be if this were real life and stuff, but I'm not at all completely powerless because I use 5-1 perception, so my ideas and desires are sorta synchronised. the way I feel gives me ideas, so I'm never really bored -- I just figure out what I want to do. I get put into situations, and then ideas just come to me of what I want to do. it's how I do everything. it's why I write this, or run upstairs to meet mom or greg.
+
+so anyway, when I look it it, I actually see myself from the conceptual-I standpoint, as well as the physical-I classification. I'm noticing now that I would want to add in a part about the physical-I, like the conceptual I can share physicality with other I's (the 34 perspective), but I was trying to write it as a justification of how we become the conceptual alternative to the 3rd ray.
+
+the whole entire thing of the 3rd ray perspective (which I now understand), stands in stark contrast to the 5th ray perspective. the 5th ray, because it's occulted by the 3rd ray and viceversa (like the earth will be soon as well), it's impossible to see the 5th ray from the 3rd ray perspective. between these two and in the centre is the realm of saturn, the 4th ray (which I also understand) -- so I'm commenting from an even more outside perspective that the conflict of perspective is such a massive creator of contrast. the 5th ray seems to defy all of the rules, because the 5th ray (and 7th) is all about tuning. you get the signal you tune to, so a 5th ray, when able to tune really well, is like a god and doesn't need to obey the rules because rules can't hold tuning back. it's the "internet" of the universe and all layers of reality. we'll learn to interface with this universal internet too, because that's what this technology I'm looking to create sets out to do. forget about electricity, we're going the material-I route and communicating with simple vibrations -- if only we could find a zero....
+
+
