@@ -120,3 +120,29 @@ also, I noticed a that parolles says a lot of really interesting stuff to helena
 ### 2023-01-13 23:06 - reflectance
 
 I noticed that I'm a really good reflector, so who do I want to reflect to whom? so for example, if I take on your perspective, I'll improve upon it greatly and many things -- so for example, thmings that could potentially bother you will probably not bother me, so it's most likely that improved perception is what will get reflected (absorbed and retransmitted) back. something to think about.
+
+### 2023-01-13 23:11 - wherever there is a sick joke, there is a message
+
+I noticed the "double falsehood" of the shakesperean method. they put in on the first layer a really cringy and annoying woman, but at the same time making really disgusting image and toilet humour on top (to make these horrible things they're saying easy for the players to laugh at).
+
+    falsehood is the thing that you look at.
+    falsehood is the magician's wand.
+    first falsehood is the ridiculous drama.
+    second falsehood is the erotic imagery.
+    beneath both falsehoods, is an even deeper message:
+
+    Farewell, young lords; these warlike principles
+    Do not throw from you: and you, my lords, farewell:
+    Share the advice betwixt you; if both gain all,
+    The gift doth stretch itself as 'tis received,
+    And is enough for both.
+
+1. war is costly, and a treaty/surrender/agreement would benefit both sides.
+2. something about a gift large enough to stretch between the two.
+3. the idea that it's OK for kenny to go off and help nosebook for a while. his gift can be shared.
+
+so, what I've noticed (especially in the other monologues, like the one about two becoming one), is that when there's really erotic imagery, this is where the actually deeper meaning things are found.
+
+---
+
+really, the way that this whole play feels to me like is -- imagine for a moment that I were to head down there -- well, at some time I would have to leave. it would be icpossible to stay there forever, so this is a forever eventuality. the whole point of this play is for helena to not try and control but to learn to just let happen. that's my initial feeling and so far I'm only in act 2.
