@@ -824,6 +824,10 @@ it seems to me like the book is saying, these are the characters that we're bree
 
 as you're describing the character of paris, I noted that two guys popped into my head. one was ricky (from when I owned a bar in spain) and the other was [curtis (an archeologist youtuber)](TODOK yt link). just noting this because I never really thought of paris as a 5th ray. very interesting.
 
+### 2023-01-14 23:23 - the 7th ray triad
+
+right, so that makes the triad: helen/aphrodite (reflector), paris/vulcan (ground), and menelaus/mars (emitter). it's no wonder these three are recipe for disaster. lol.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
