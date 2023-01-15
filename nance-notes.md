@@ -918,6 +918,13 @@ so we have paris/mercury, menelaus/venus, and ra/jupiter. I believe that mercury
 
 we also know by looking up into the sky, that apollo (-2) is between venus (-3) and mercury (+7)
 
+#### 2023-01-15 02:49 - mercury and ganymede have a lot in common
+
+ganymede/vulcan/hera and mercury are different aspects of the same thing like jupiter and saturn are of dividing the conceptual into time and space. jupiter exerts more influence over apollo (-2) than saturn does. saturn's consort (venus) is also the progeny of jupiter, which is in a triad with apollo along with saturn's emitter, mercury. things are tangled.
+
+mercury and vulcan define another set of limits, just like jupiter and saturn define time and space. it's kind of interesting because it looks to me like they're like the hardware necessary (think of planets like frequency spectrum hardware), they determine the spectrum and how wide it is (ruler). obviously all things create harmonics of other things, but there is always a concentration at certain frequencies (spectroscopy). they determine the frequential qualities of that spectrum/medium.
+
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
