@@ -894,6 +894,14 @@ when you think about what time and space are, they're just vibrations in a frequ
 
 venus is said to have been loved by the war god (mars). menelaus is venus/athena in this story.
 
+### 2023-01-15 02:17 - paris is definitely 7th ray
+
+above somewhere I misidentified him as 5th -- but you know 7th has all of 5th and 6th too included in the same perception (everything is a reflection of your concept (and/or imagination) of it).
+
+anyway, as I was thinking about it, paris is thoth. in the triads, saturn (+-4) the actor is with thoth (+7), the emitter/character of the group. with them, the reflector is venus/menelaus/athena (-3).
+
+then you have zeus/ra (+3), hera/vulcan (-5+), and athena (-3) as some sort of reflection of menelaus (-3) paris (+7) and hector (-+4?)... I should probably write the different triads that I see and make a list. I feel like I understand the book from a completely diffrent way of looking at narrative evolution with character triads.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
