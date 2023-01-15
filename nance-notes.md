@@ -828,6 +828,32 @@ as you're describing the character of paris, I noted that two guys popped into m
 
 right, so that makes the triad: helen/aphrodite (reflector), paris/vulcan (ground), and menelaus/mars (emitter). it's no wonder these three are recipe for disaster. lol.
 
+### 2023-01-14 23:42 - you know, I still see paris as a poorly formed instantiation of mars
+
+the idea here is that a symbol has a number of traits. you can see this in me where I have a lot of really negative qualities (like yesterday I joked about how I was a control freak), but these flaws aren't really rendered as a negative aspect of me. in other situations, a reconfiguration of my aspects would lead to a really dreary individual, even malicious and warlike. instead, I'm powered from within by this unquenchable desire to just do stuff. like, I have no idea why on earth I'm so obsessed with making a social network -- right but this mcguffin is what pushes my narrative along. it's the magician's wand I'm sure from some perspectives. you see, I have to do it; somehow; it needs to be done. you know it feels sorta imperative to me. I have this never-ending march toward ever higher complexity. it's kenny that is always trying to simplify -- cause from my *desire* perspective, these sorts of things just sorta *have* to happen. you know how some women get when they decide that something *has* to happen? after that a common conclusion is to add, and I'll be upset if it doesn't. other conclusions, like I do is, to just let it evolve into the next thing. that's what makes women's perspective feel like effort, cause they need this exact thing; this exact manifestation, just how I want it (kinda a bit like agamemnon) -- which, btw has a lot of female default programming built into it, like if I quit and they keep winning, I'm gonna look bad, so I need zeus to make sure they know they *need* me. so many mothers invite difficulty for the people they support by trying to ensure they're still *needed*.
+
+so anyway, the part about paris, even if he is a 5th ray, can also reflect in a 7th ray. you know, like think about some of those like jocks or whatever that are all pretty boys -- at least, that's how it was in the movies, anyway. what I mean is, that it's just as possible for mars to take on vulcan's attributes, if they allow theirselves to let vulcan's attributes *flow through* their personality, rathar than *out of*. it's funny that they evoke the muse as well, because the idea is that the essence or lifeforce, concepts, etc. are all flowing *out of* the muse, and then *flow through* the poet, actor, singer, etc. interesting.
+
+### 2023-01-14 23:59 - a funny vision
+
+when I was outside just now, I had this funny vision happen aftter smoking, and in it, I was just this raging beast, that just won't stop or slow down -- like this tidal wave that can't really be stopped. it was really cool.
+
+maybe I am the beast's first form, but that definitely doesn't stop anyone from joining in on that. I offer many ways to see this concept.
+I've touched on universal consciousness, seeing thruough the perspective of the universe.
+I've talked about it from a resistance and attraction way of seeing it, because if you get to where expansion is happening faster than resistance, and preferrably (cause it adds up),
+to be linear or static resistance.
+my resistaance, for example is reducing faster than I can add resistance.
+I *purposefully* am so ridiculous to create interactions with you guys *to add resistance* because I'm already going pretty fast. I've definitely lost attachment to ground in that sense.
+I don't meditate because if I do, I go too fast.
+I'm a conscious person, meaning that my resistance is reducing so fast that there's not a whole lot of need to be meditating or trying to slow my thought down.
+I do enjoy my own thoughts a lot more than I enjoy no thoughts.
+I usually think of things like improvements, things I like, things I'm getting to understand better, understanding another dimension to perception.
+abraham said,
+  "we'd rather have you in a state of appreciation, than in a state of meditation;
+  it's so good to think your thoughts while in a state of appreciation." (paraphrase)
+
+wow, what a detailed and weird vision.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
