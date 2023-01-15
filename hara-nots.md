@@ -202,6 +202,8 @@ when I put this play and its symbols into modern times and the present state of 
 
 OK, I'll start working on a synopsis of the symbols in this (and other) plays. seems like a good idea.
 
+[1]: I see myself as scott to these guys -- like their attempts to take over the world are so poorly misguided, they're totally missing the point that emotion is what everyone desires, not the things... they think their super heist is rasomming the world for ONE MILLION DOLLARS! I think it's funny. good job, dad!
+
 #### 2023-01-14 01:53 - perpetually tommorow
 
 the reason that I see forever that I don't need the manifestation right now, is that I don't really mind that it comes later because later is always bigger and more meaningful. the maximum possible "not needing the manifestation" I think is basically that I become the thing that I desired. we become one flesh. I am essentially you and you are essentially me, but I still stay this group of atoms is "me" and that group of atoms is "you". what makes my atoms different than your atoms, is that my atoms resonate like "me" and your atoms resonate like your "me".
@@ -212,7 +214,9 @@ perpetually tomorrow is only possible in eternity; gatta think like you're etern
 
 lafew is only "good" and offers good advice because of his "noble" status. I get the sense that if lafew were in a more selfish position, he would also be a bit more like parolles.
 
-[1]: I see myself as scott to these guys -- like their attempts to take over the world are so poorly misguided, they're totally missing the point that emotion is what everyone desires, not the things... they think their super heist is rasomming the world for ONE MILLION DOLLARS! I think it's funny. good job, dad!
+#### 2023-01-15 14:13 - are they castor and pollok?
+
+I say this because it seems like I remember something tauren or bull-like, then bert'ram. this is the constellations gemini -> taurus -> aries (the war god)
 
 ### 2023-01-14 02:32 - why do I speak so plainly about things?
 
