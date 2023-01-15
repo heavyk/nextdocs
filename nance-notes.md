@@ -854,6 +854,10 @@ abraham said,
 
 wow, what a detailed and weird vision.
 
+#### 2023-01-15 00:13 - a conscious person is a beast
+
+think about it: you're expanding faster than accumulating resistance. that means that every moment going forward, a conscious person, I'm becoming more than I ever was before. you can't stop that.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
