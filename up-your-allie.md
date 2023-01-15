@@ -11,3 +11,7 @@ this is how I deal with problems of perception; which is head-on: I just jump ri
 [1]: "reason" is a fealing sequence of justification concepts that I have as a prefix to a concept. often times I enumerate at least a few when writing before beginning to write the concept
 
 [2]: I'm really bothered by the fact that I really wanted to write "life-changing" instead of "life changing" because, as a concept, "life-changing" can mean something entirely arbitrary.
+
+#### 2023-01-15 04:52 - continuing on...
+
+so, what I was saying is that I'm kinda on a really chill vibe right, so I was thinking we should keep it that way.
