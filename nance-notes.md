@@ -858,6 +858,16 @@ wow, what a detailed and weird vision.
 
 think about it: you're expanding faster than accumulating resistance. that means that every moment going forward, a conscious person, I'm becoming more than I ever was before. you can't stop that.
 
+### 2023-01-15 01:03 - preliterary and procomentary analysis of paris
+
+I decided I wanted to try and use my ability to "zolt" concepts, and take a look at my perspective on paris is. in the process, I think I found a novel way to perceive triads. first things first.
+
+let's begin with the idea of a reflecter (female), a character (emitter), and an actor[^1] (ground). paris/vulcan is in the place of the actor. it's helpful to see the actor as a reflection of the charactor, omg I'm getting really confused with the er and or -- meanwhile the music is playing latin in the background, and I don't remember my declensions, but I'm sure they may have either to do with gender or person. anyway -- the point is, that the actor is the actors' rendition of the charactor. he's like the sidekick or the "right hand man" or the "primary cup bearer". so in this case paris is supposed to be a sort of reflection or a repersonification of menelaus in paris.
+
+so, remember that menelaus is the emitter or charactor, meaning that attributes *flow out* of his personality. for paris or the ground (the body, the vessel), he is going to be pretending to be what menelaus would like to see. but ultimately he doesn't measure up to menelaus' strong charactor qualities, so he's probably going to never measure up. he'll be flaky, get out of it, be busy, have something other to do, than to face the things that scare him -- and there's *a lot*.
+
+[1]: I spelled it with an 'e' because I wanted it to match character. I have future plans for charactor and also reflector, as I already see them coming, but their meaning isn't apparent to me yet.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
