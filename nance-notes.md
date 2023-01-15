@@ -878,6 +878,16 @@ I totally forgot to mention that the reflector and the actor are nearly he same 
 
 therefore, a "good" reflector/actor probably wants to change their reflection to be more the angle the other one is looking for -- attraction. the reflectors are the most beautiful. people love looking at theirselves and when I'm a reflection of you, you can see yourself, and if I make you look good, I like you[,] and myself.
 
+### 2023-01-15 01:47 - menelaus is described as athena
+
+when he hit the ground fully armed, this is an authorised image that I'm seeing, but the concept is clearly an assocation of menelaus to athena. athena, I think is the 3rd ray female -- the feminine counterpart to zeus. this is a world without desire (1) or a saviour (big picture, 2) yet, so the reality matrix we're living in in this story is the one defined by zeus/ra and athena/venus.
+
+now, what that has to do with menelaus, I'm eager to find out. this poem is hilarious, btw.
+
+I'd also like to mention that these two reality matrixes are very interesting and opposite. jupiter/ra is considered to be associated with space. he's the "ruler". his "consort" was vulcan. saturn is the "consort" of venus/unessa/athena. this the entire "reality" of time.
+
+when you think about what time and space are, they're just vibrations in a frequency spectrum -- both space and time. the more harmonious two vibrations in these spectrum are, means their closeness/distance from the other vibration in both space and time. so one planet's harmonics probably converge in the spectrum of space, and the other in the spectrum of time. as such, it feels like they each rule that aspect -- but we create our own reality. I love how the poem is a giant joke because you put all of the worst configurations together of ideas, this is what you get.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
