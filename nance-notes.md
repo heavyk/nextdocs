@@ -880,7 +880,7 @@ therefore, a "good" reflector/actor probably wants to change their reflection to
 
 ### 2023-01-15 01:47 - menelaus is described as athena
 
-when he hit the ground fully armed, this is an authorised image that I'm seeing, but the concept is clearly an assocation of menelaus to athena. athena, I think is the 3rd ray female -- the feminine counterpart to zeus. this is a world without desire (1) or a saviour (big picture, 2) yet, so the reality matrix we're living in in this story is the one defined by zeus/ra and athena/venus.
+when he hit the ground fully armed, this is an author'd image that I'm seeing, but the concept is clearly an assocation of menelaus to athena. athena, I think is the 3rd ray female -- the feminine counterpart to zeus. this is a world without desire (1) or a saviour (big picture, 2) yet, so the reality matrix we're living in in this story is the one defined by zeus/ra and athena/venus.
 
 now, what that has to do with menelaus, I'm eager to find out. this poem is hilarious, btw.
 
@@ -901,6 +901,16 @@ above somewhere I misidentified him as 5th -- but you know 7th has all of 5th an
 anyway, as I was thinking about it, paris is thoth. in the triads, saturn (+-4) the actor is with thoth (+7), the emitter/character of the group. with them, the reflector is venus/menelaus/athena (-3).
 
 then you have zeus/ra (+3), hera/vulcan (-5+), and athena (-3) as some sort of reflection of menelaus (-3) paris (+7) and hector (-+4?)... I should probably write the different triads that I see and make a list. I feel like I understand the book from a completely diffrent way of looking at narrative evolution with character triads.
+
+### 2023-01-15 02:28 - astronomical impacts
+
+this is also an author'd image I'm seeing, because when he's describing the battle of paris (mercury) and menelaus (venus), the reason why venus cries out to jupiter saying that he should be the most deadly, is telling a tale of venus also interacting with mercury. here we have another triad as well: mercury/paris, venus/menelaus, and mars/agamemnon?/achilles?
+
+anyway, this story was used to pass down astronomical information about our solar system; now, whether those things really happened or not is hard to say, but it seems very important that this astronomical data is included. it's probably something to do with tuning this narrative humans (the dreamers) to have corresponded with a specific planetary interaction in history.
+
+as velikovski says, "people witnessed the birth of venus" (paraphrase) -- now whether that was the *actual* planetary event, or just a story of it, we don't really know or really have a way to verify. "now", is like a tiny little island (much smaller than 6ky) where literally *anything* could have happened to bring you to the present. it could be this narrative or another.
+
+anyway, it's an interesting idea to explore how the saturnians use narrative to create, split, and merge timelines. like, it's really important for some reason this astromical data for some reason -- I dunno if it's to get a sufficiently traumatised substrate for the narrative to unfold into. not totally sure.
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
