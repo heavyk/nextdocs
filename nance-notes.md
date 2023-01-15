@@ -820,6 +820,10 @@ first, I noticed that helena is sorta like aphrodite/gnexicat, and then that mak
 
 it seems to me like the book is saying, these are the characters that we're breeding: +/-7th rays and queen heras (-5+). finally, to hold everything in place, zeus (+3) and athena (-3) set the rules.
 
+#### 2023-01-14 23:20 - would paris be a 5th ray?
+
+as you're describing the character of paris, I noted that two guys popped into my head. one was ricky (from when I owned a bar in spain) and the other was [curtis (an archeologist youtuber)](TODOK yt link). just noting this because I never really thought of paris as a 5th ray. very interesting.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
