@@ -886,7 +886,7 @@ now, what that has to do with menelaus, I'm eager to find out. this poem is hila
 
 I'd also like to mention that these two reality matrixes are very interesting and opposite. jupiter/ra is considered to be associated with space. he's the "ruler". his "consort" was vulcan. saturn is the "consort" of venus/unessa/athena. this the entire "reality" of time.
 
-when you think about what time and space are, they're just vibrations in a frequency spectrum -- both space and time. the more harmonious two vibrations in these spectrum are, means their closeness/distance from the other vibration in both space and time. so one planet's harmonics probably converge in the spectrum of space, and the other in the spectrum of time. as such, it feels like they each rule that aspect -- but we create our own reality. I love how the poem is a giant joke because you put all of the worst configurations together of ideas, this is what you get.
+when you think about what time and space are, they're just vibrations in a frequency spectrum -- both space and time. the more harmonious two vibrations in these spectrum are, means their closeness/distance from the other vibration in both space and time. so one planet's harmonics probably converge in the spectrum of space, and the other in the spectrum of time. as such, it feels like they each rule that aspect -- but we create our own reality. I love how the poem is a giant joke because you put all of the worst configurations together of ideas, this is what you get. it's like putting on the three stooges and then tacking on to the end: see, this is why you shouldn't try to install a shower. these guys are the *worst* reasons for why war is a terrible idea... LOL
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
