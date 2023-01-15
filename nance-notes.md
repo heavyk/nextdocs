@@ -912,6 +912,12 @@ as velikovski says, "people witnessed the birth of venus" (paraphrase) -- now wh
 
 anyway, it's an interesting idea to explore how the saturnians use narrative to create, split, and merge timelines. like, it's really important for some reason this astromical data for some reason -- I dunno if it's to get a sufficiently traumatised substrate for the narrative to unfold into. not totally sure.
 
+#### 2023-01-15 02:44 - aphrodite is earth
+
+so we have paris/mercury, menelaus/venus, and ra/jupiter. I believe that mercury probably came from saturn, and venus came from ra/zeus/jupiter so this is a sort of standoff.
+
+we also know by looking up into the sky, that apollo (-2) is between venus (-3) and mercury (+7)
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
