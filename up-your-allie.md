@@ -26,4 +26,4 @@ for me, the no compete came natural because I'm in spain with all these hot shot
 
 and even then, no longer needing to prove anything to anyone else, I can't ever really prove anything to myself either, because I'm already: always right. I don't need to prove that I'm always right. other people just see my rightness differently than I do.
 
-[1]: I decided I'm just going to keep spelling it different, because I noticed today my concept of her is different than her physical instantiation of her and "Sarah" is a reference to that -- and also is very different (from both of our perspectives to my concept of her)
+[1]: I decided I'm just going to keep spelling it different, because I noticed today my concept of her is different than her physical instantiation of her and "Sarah" is a reference to that -- and also is very different (from both of our perspectives) to my concept of her.
