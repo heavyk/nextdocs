@@ -8,4 +8,4 @@ is the "reason" I came in to write this -- meaning they are of the same intuitio
 
 anyway, the "reason" why I'm writing this is I realised that the audience kinda still likes a goofy guy in a shed smoking and exploring life. I'm really a pleasant alternative to a lot of other (media) things they can consume, I guess, anyway that was the reaction. I doint think they're really ready to see a guy around a bunch of girls, I would assume. I'm not really sure. anyway, I'm not really one to think so much about how others perceive me, so I was wondering where that thought came from :)
 therefore, to jump right in on the action, I decided to start off strong with the predefinition of the concept up-your-allie -- which will instead be this rambling monologue. your welcome.
-this is how I deal with problems of perception, which is head-on. I just jump right in to the worst possible perception and then work my way up.
+this is how I deal with problems of perception; which is head-on. I just jump right in to the worst possible perception, and then work my way up.
