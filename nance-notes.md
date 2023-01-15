@@ -916,7 +916,7 @@ anyway, it's an interesting idea to explore how the saturnians use narrative to 
 
 so we have paris/mercury, menelaus/venus, and ra/jupiter. I believe that mercury probably came from saturn, and venus came from ra/zeus/jupiter so this is a sort of standoff.
 
-we also know by looking up into the sky, that apollo (-2) is between venus (-3) and mercury (+7)
+we also know by looking up into the sky, that apollo (-2) is between (in a triad with) venus (-3) and mercury (+7)
 
 #### 2023-01-15 02:49 - mercury and ganymede have a lot in common
 
