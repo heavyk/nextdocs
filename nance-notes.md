@@ -872,6 +872,12 @@ they create their own problems because they fear they can't be *all* of these ch
 
 [2]: in math, only the identity is the same and everything else is slightly different. you are already an identty to yourself. becase all the different you's are all referent to itself (relative). therefore, all identities are all just diffrent angles/aspects/ideas/vibrations to the same point/matrix/vector/etc. therefore, it's impossible for an actor to ever do it 100% perfectly, for only the thing itself could mimic itself perfectly.
 
+#### 2023-01-15 01:36 - followup: reflectors
+
+I totally forgot to mention that the reflector and the actor are nearly he same and struggle with the inibiligy to be a "good" reflector -- because often times a person does not like theirselves, so they sometimes can really lash out at their reflections. unfortunately, it's not often the case that the charactor can recognise their own reflection, and often times blame their own reflection for being terrible.
+
+therefore, a "good" reflector/actor probably wants to change their reflection to be more the angle the other one is looking for -- attraction. the reflectors are the most beautiful. people love looking at theirselves and when I'm a reflection of you, you can see yourself, and if I make you look good, I like you[,] and myself.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
