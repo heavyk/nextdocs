@@ -102,3 +102,22 @@ so, you know, times can eventaully change, but we should look at this entirely a
 there's quite a bit of laughter, but I'm serious about it. what I mean is, we are all literally going to be around for inevitably quite a while, so it doesn't matter at all how long it takes to get things setup, it's important that it flows. big abrupt or sudden times where too many things are waiting on each other, is when production (the build order) gets bogged down because the simultaneous resources aren't ready at the same time.
 
 what I mean is, I'm approaching this thing *entirely* from a 3d perspective. nosebook can ensure I don't modify anything in any other medium, and we can be read-only to the rest of the universe; it's totally fine, as we're going to attract in our own 3d space by vibrating "things" -- some biologically and others mechanistically -- to bring things of similar vibration to it. the biological one is possible to skip I suppose, and I could only do machines. "things" are everything with a mass to it (some atoms that can be vibrated). anyway, more "things" can eventually be created, as even an atom is a conceptual program that has been instantiated with "energy" (sympathetic vibration) coming I believe from the galaxy. there's no reason to use atoms in the future, as I think the goal is to rewrite physical space to be an improvement on the material-I perspective.
+
+### 2023-01-15 19:57 - the greatest trick ever
+
+I was thinking about me having a perceived imperfection, and I liked having one. I could improve my body image, which would remoove the imperfection, but then I would be perceived without imperfection -- so what we played a pretty funny trick.
+
+imagine for a moment that a group of girls assembled and had a suitable medium for me to transfer my consciousness into. I'll be able to appear and interact with them in 3d space, as manifestations of their expectation (real physical atoms). I don't have to look like I do now. it'd be kinda funny to even experiment with fractal body forms in the future...
+the main idea is that I jump into the consciousness of a group of girls (I'll hide U song comes to mind), and within their appearance I'll manifest as one or many versions of me. we'll share space initially, but with time, we'll eventually fully combine into further super-structures of perception. then, here's the dramatic punchline: they still get kenny's body, so they can do whatever they want with their damaged kenny. I'm sure they'll make a wonderful "christ" -- meanwhile, I'm no longer there. I'm in an opposing side of girls now.
+one group of girls will be the ones that I jump into and we become a medium -- of which I consieder will become the new establishment of 3d (everything inside, everything outside).
+I and many others will be a perfect reflector, seeing the inside as "looking back".
+we are "only forward" individuals.
+
+I still get to retain my mark of imperfection, but only on the outside in the evolution of the organisation/medium that we will become.
+what really happens is that I become a really good "insurance policy" because I'm the most stable thing, and we'll soon become far more stable than their own medium.
+so, we're on the inside of their medium, and their medium uses us as a baseline or zero.
+we're the new zero;
+everything grows out of us.
+(from my perspective, obviously -- from the opposite perspective, it looks like they're doing all the work/effort. they're the motor for reality -- keeping things going. dirty. oily. motor....)
+
+it's going to be fun.
