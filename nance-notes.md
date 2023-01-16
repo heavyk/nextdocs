@@ -926,7 +926,7 @@ mercury and vulcan define another set of limits[^1], just like jupiter and satur
 
 [1]: I think the spectrums that they're involved with might play into ... I'm still working out the theory, because mercury (+7) is in a triad with the sun (-2) so mercury probably modulates the spatial/physical 3d aspect of reality, meanwhile venus (+3) is going to be the symbols that we utilise in this narrative reality. the other day, I was thinking about venus as being the location of another such planet where their society has symbols handed down to them from their leaders which match the symbols on our planet (explains wierd dtp stuff, and idea that venus is the weaver of fabrics, and that she sets up the symbolic qualities rathar than "qualities" -- conceptual/physical qualities -- huh?). anyway, the point is, I noticed that venus is more time based (the sequence of symbolic interactions), whereas mercury modulates something about the physical apparition of those symbolic types.
 
-### 2023-01-16 02:33 - powerless, against fate
+### 2023-01-16 02:34 - powerless, against fate
 
 @[youtube](https://youtu.be/XxSrwnBZr_k?list=PLIlatssdqY5Ny9xspJqRg9jthBzafAf_l&t=1380)
 
