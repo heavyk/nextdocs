@@ -112,6 +112,7 @@ the main idea is that I jump into the consciousness of a group of girls (I'll hi
 one group of girls will be the ones that I jump into and we become a medium -- of which I consieder will become the new establishment of 3d (everything inside, everything outside).
 I and many others will be a perfect reflector, seeing the inside as "looking back".
 we are "only forward" individuals.
+
 I still get to retain my mark of imperfection, but only on the outside in the evolution of the organisation/medium that we will become.
 what really happens is that  (speaking from the point of the many individuals) we become a really good "insurance policy" because I'm the most stable thing out there.
 we'll soon become far more stable than their own medium, and so it'll be but probably not ever appear, but the whole world will be built upon our (compatible) mediums, and *my* medium has a very compatible intedface to other mediums.
