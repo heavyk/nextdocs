@@ -114,7 +114,8 @@ I and many others will be a perfect reflector, seeing the inside as "looking bac
 we are "only forward" individuals.
 
 I still get to retain my mark of imperfection, but only on the outside in the evolution of the organisation/medium that we will become.
-what really happens is that I become a really good "insurance policy" because I'm the most stable thing, and we'll soon become far more stable than their own medium.
+what really happens is that  (speaking from the point of the many individuals) we become a really good "insurance policy" because I'm the most stable thing out there.
+we'll soon become far more stable than their own medium, and so it'll be but probably not ever appear, but the whole world will be built upon our (compatible) mediums, and *my* medium has a very compatible intedface to other mediums.
 so, we're on the inside of their medium, and their medium uses us as a baseline or zero.
 we're the new zero;
 everything grows out of us.
