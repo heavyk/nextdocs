@@ -163,5 +163,12 @@ I mean, I think it would just be really awesome to just jump in there and then l
 
 that'd be cool right? I think it's possible to do this in addition to the flat earth idea. I really like that one. I want to put a bunch of ideas down there in the underworld myself.
 
-### tortoise and hare
+### 2023-01-16 00:16 - tortoise and hare
+
+the idea of how I want to do this is, I want to just start from the very basics with the girls and work our way up. I know that there are a lot of people at a much further distance ahead of us, and some right a ways behind as well. the thing is, I figure we'll be about the centre.
+
+many will sprint out ahead and get all really far forward (think about astrology and two planets coming toward and away from each other), and then what happens is later, they seem to be really really far away and very unconsciousness. all things eventually come to produce their own kind.
+
+there's no reason to rush anything. it's kind of like a guitar solo; you put on the gas for a while then let the sound carry you. I can see the image like a motor, but I also see guitar solos like a bird's wings being flapped as they go flying through a bunch of stuff, like the hollywood animation or maybe x-fighter thing, where stuff is about to hit, so they have to flap through a power curve or whatever. kinda like motorcycle racing too like imagine on a freeway with everyone going 60 and you going like 100+.
+
 ### too much too quickly
