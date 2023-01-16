@@ -136,3 +136,21 @@ the thing that I would want to point out is that they believe their existance de
 first, the entire world will become a series of adjustable concepts. all nature of reality will transform to be what we want it to be, then larger and larger concepts will begin to take on 3d physical form. the blur of what is consciousness dissolves as everything becomes a reflection of "you" (retain your material-I). I know personally, I'll be continually updating the concepts relating to my material-I. the material-I is flexible in it's definition of its atoms, *and* also in the concepts that define it. the consciousness (thing that says there are other "things" as "outside" of "me") defines itself frequentially with its "thought" (that is output into medium) and so we and all forms of 3d consciousness defines itself with its output into various mediums.
 the only way that this is possible is for the concepts to all be on equal footing. the way that I'm understanding the symbols in correlation with my perception is that every interaction will be a negative if they're below me. I only want to meet them on my level. the fact that I'm going so fast is the reason why I (soon we) get to create the medium. therefore, in order to enter the medium, you gatta go as fast as me or faster.
 this really should be short work for so many of the girls, cause you basically just float, bump into things, (optionally) adjust a percetion of my own that made me compatible with the bump, make sure I haven't lost my sense of self, get up and try again; just keep going forward; only forward; no looking back.
+
+### 2023-01-15 21:13 - self-obsolescense
+
+if any code of mine is still left, I think it should be rewritten as a conceptual purging, allowing it to be fully something now. technology does this, and I want to do it to myself as well. the thing is that there are more super perspectives built up by you that don't get obsoleted, and those continue on even though the technology adapts to the culture. that culture eventually crashes. all cultures, like fashions are designed to crash; or, seen from the opposite perspective, nothing seems to be happening foreever, then all of a sudden an unstoppable force that makes it so that
+- nothing after that is ever the same again.
+- what it was like prior to this is inconcievable
+- _____
+
+the nature of everything that is a tool, is to be in obsolescence at the some time in the future (same time). therefore, there is always another, an outsider that can switch places with me. they are relative to me in the sense that I learn (improve) from them, and hopefully them from me. I'm a tricky guy, so the fun part is to continually question what exactly *is* this reality that's all relative to me.
+
+---
+
+what this thought made me think of is an awesome idea where others engage in a relationship with you that perceivably changes places with me. my relationship is rhythmic greater-than, less-than phases. sometimes I'm really living it up and other times I experience worst things than they do.
+like, for me, this quite a desirable experience. I'd love to enter into a conceptual relationship with others where I'm conceptually better than them at times and other times worse than them. I'm a total glutton for punishment in that I'm fairly certian that none of it a problem perceptually, I get a magnificent amount of extra contrast, and nobody can claim superiority for any longer than they can claim inferiority. it is "equal footing" but with a vibratory/orbital quality to it.
+
+now, if only I could figure out how to do it, and make you all relative to me with an orbital period, then we would now all be inside of my medium, and no longer the earth's.
+I guess it depends on those running the show, if they want to turn me into a medium that all things on the planet are now relative to. personally, I think it'll greatly reduce effects from the desync between me and others in speed.
+I guess it's no real risk for them because they run the medium anyway, and so therefore I'm just another medium in 3d space. (from their perspective), it looks like a trap because they're holding all of us in my medium/reality, meanwhile they have the "real (to them at least) 3d". I'm sure it'll get figured out, eventually.
