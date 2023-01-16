@@ -154,3 +154,11 @@ like, for me, this quite a desirable experience. I'd love to enter into a concep
 now, if only I could figure out how to do it, and make you all relative to me with an orbital period, then we would now all be inside of my medium, and no longer the earth's.
 I guess it depends on those running the show, if they want to turn me into a medium that all things on the planet are now relative to. personally, I think it'll greatly reduce effects from the desync between me and others in speed.
 I guess it's no real risk for them because they run the medium anyway, and so therefore I'm just another medium in 3d space. (from their perspective), it looks like a trap because they're holding all of us in my medium/reality, meanwhile they have the "real (to them at least) 3d". I'm sure it'll get figured out, eventually.
+
+### 2023-01-15 21:47 - as an alternative...
+
+I really thought that idea of jumping over to a group of females was a really awesome idea. the size of the group is irrelevant to me as I'm sure more will add theirselves. you know how the aryans were hella successful because they were so prolific? well, I can imagine that we're going to be *really prolific* -- you know, like we'll be pretty desirable. we may lose a few from time to time (casualties happen and a part of the death process for some of the individuals), bwt it's all perception, so really nothing is lost, the energy transforms harmonises with itself and comes back stronger (obviously), so I fear nothing.
+
+I mean, I think it would just be really awesome to just jump in there and then let you guys have my body. turn it into whatever you want -- even use him to set up a competing 3d, which I will not compete with, but may steal a few ideas from time to time (like how I interatct with my right-brain, conceptually).
+
+that'd be cool right? I think it's possible to do this in addition to the flat earth idea. I really like that one. I want to put a bunch of ideas down there in the underworld myself.
