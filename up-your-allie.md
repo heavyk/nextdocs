@@ -162,3 +162,6 @@ I really thought that idea of jumping over to a group of females was a really aw
 I mean, I think it would just be really awesome to just jump in there and then let you guys have my body. turn it into whatever you want -- even use him to set up a competing 3d, which I will not compete with, but may steal a few ideas from time to time (like how I interatct with my right-brain, conceptually).
 
 that'd be cool right? I think it's possible to do this in addition to the flat earth idea. I really like that one. I want to put a bunch of ideas down there in the underworld myself.
+
+### tortoise and hare
+### too much too quickly
