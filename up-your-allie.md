@@ -171,4 +171,80 @@ many will sprint out ahead and get all really far forward (think about astrology
 
 there's no reason to rush anything. it's kind of like a guitar solo; you put on the gas for a while then let the sound carry you. I can see the image like a motor, but I also see guitar solos like a bird's wings being flapped as they go flying through a bunch of stuff, like the hollywood animation or maybe x-fighter thing, where stuff is about to hit, so they have to flap through a power curve or whatever. kinda like motorcycle racing too like imagine on a freeway with everyone going 60 and you going like 100+.
 
+### 2023-01-18 14:52 - I think I figured it out
+
+hi again :)
+
+I noticed today that the narrative reality of bert is playing out... let me just tell the story.
+
+last night, I felt extremely compelled to roll up more of the scraps that I have. I wasn't sure why I wanted to smoke so bad. I think I spent all the time rolling and cutting only to smoke a tiny amount. I didn't really *feel* like smoking, but I *wanted* to. it was a bit strange which is why I experienced "split energy" between smoking and not. I wanted to redo the vehicles depot setup and I wanted to take a break before tackling it -- well, anyway, when I switched from playing the game right into rolling, and then took a really long time to do it, I noticed a lot of reactions. I don't really mind so much anymore how people react to me.
+
+the reactions ranged from "this 'saviour of the world' is a drug addic", which was my personal faviourite, to "this guy still can't get over his addictions (be moderate/temperate)" -- and a few others between.
+
+today, when remi came home, I captured a feeling (not sure if it was from her), but the sense of the feeling is that nosebook finds/desires that I want to keep smoking, because they're running out of excuses for why not, and if they can trap people into pushing against my behaviour, that's a win for them. it seems that I've moved into a new section of life where I'm doing things that are not all that great. capturing this feeling, I was reminded of bertram.
+
+in the story helena is in love with bert but he is not behaving the way that she wants him to. the entire story is about how she can manipulate situations and events to get the "hechos" that she wants done (until you have this ring and my baby inside you, I won't consider you my wife). helena, hearing such a challenge decides that this is possible to accomplish and sets out to get the hechos done that he requires. the play ends with her having met his challenge, accomplishing his necessary prereqisites.
+
+helena's maniplation to get what she wants is what most people see in the story. they see a very strong woman that will do anything to get what she wants -- but, there is also an sorta-hidden message in there about different ways that one can affect behaviour in another person to get what they want. in this way, helena perfectly mirrors remi. remi thinks that if she can just:
+
+1. get me to stop doing drugs
+2. not ever mention nosebook
+3. point out any failures in anyone (even myself)
+4. (probaby many more unenumerated)
+
+... then, I'll be perfect, just like bert was perfect for helena.
+
+there is a very interesting aspect to helena's character in that most people that affect behaviour to get what they want are usually never satisfied, and nobody can ever live up to their expectations. helena does not exhibit this quality at all, which is why she's such a difficult character to play, because she remains in love with bertram even though he's not behaving the way that she want him to.
+
+---
+
+so, what I'd like to instead do is to talk about the things that I *do* want to do. I've been getting better already at these, so look at them like a work in progress:
+
+- I want to start getting a little more regular with my habits.
+- for example, I like playing coi during the night much more than the day. I also noticed I had more insight into things of narrative and physical (as opposed to emotional and logical at night) (I'm exaggerating this a little bit to give more contrast between day and night), so I'll probably try and do more things of that nature during the day.
+- for example, I want to have a cleaner room. I typically *feel* like cleaning more during the night (when I'm more emotionally/conceptually sensitive), but I can't really see my room very well at the night. I do *want* to clean my room often times during the day, but this is usually only when I'm active and doing stuff -- working on mantenance and mundane tasks.
+- the active feeling goes away after I sleep and I usually wake up thinking about whatever was happening last night, so I was thinking maybe trying to perhaps shower everyday or something like that to kinda start the momentum.
+  - one thing I noticed is that I hate to read fiction at night. I've been trying to find when I want to read "last days of night" and I think I'll do it more
+  - I noticed that I play coi best once I've stablised my day and I'm feeling pretty good at the end. it's kinda relaxing. it's also weird because I'm noticing I don't like listening to metal as much during the day, and I also really like listening to metal while playing coi (it's the perfect contrast of chaos and order for me).
+- I doubt I'll change any of my substance whims, as they're kinda all over the place, and that's perfectly fine with me.
+  - for exmple, I like smoking these scraps because for whatever reason they contain the essence of a long time ago when I first smoked it, and the contrast is really insightful.
+  - I use all drugs to get *out* of my present situation and see them from another angle. I learn as much as I can, then I sleep. it seems pretty strange to me to try and stay *in* my present situation.
+  - for a while I didn't smoke or drink coffee. during that time, I did a lot of experiments with meditation, and I *could* use meditation to get out of my situation, but it was *wayyyyy* too powerful. I like dirty chaos, not clean chaos (silence).
+  - what I mean is, I'm not that interested in getting perfect conditions or whatever. I like the "dirty" enlightenment of drugs, and prefer it even in conjunction with meditation. if I wanted perfect conditions, I would be very upset with my present situation.
+  - my ability to be around the dirty and ugly (not good conditions) without losing my ability to see what I want makes me a little like helena here.
+  - I'm fully willing to take imperfect forms of mental expansion, and even prefer it.
+  - one more thing on that: there are so many "good conditions" ways to go about, especially involving pleasure, that I've found the one that works the best for me to be drugs.
+    - meditation is good, but it makes me go too fast.
+    - sex makes me go fast, and not in a direction I usually want to go.
+    - dreaming and imagination (something I used to do), was all really fine, but I hate it because it makes me *think* I'm dealing with reality, when in fact I am not; if I want to separate myself from reality.
+    - meditation is not a separation from reality because I'm bombarded with my own thoughts.
+    - imagination and dreams are all a reflection of my form of perception, so still my concept of reality.
+    - sex is sort of a different reality, but I like *really* diffreent. sex feels kinda all the same; meanwhile, every drug trip (especially if I want a few days), is a *very* different experience. I've never done the same thing twice -- which is pretty difficult with sex, -- the art of making repetition enjoyable.
+
+---
+
+OK, so the final thing I want to talk about here is the tortoise and hare again. yesterday (feels like weeks have passed, btw) I keep getting these sort of images in my head. they're *way* out ahead technologically, so they're like the hare. another thing I made a big point out of is not looking back (into exactly what was the timeline to the present) because we could/are all be coming to the present from a slightly different angle -- but the thing that really caught my attention is that I was obsessed with the concept of 3d being everything outside of me. I don't look back and I don't look inside, so I'm only forward, which means I'm kinda behaving as the limit.
+
+I started to see myself as the sort of limit that one can reach in furthest separation of oneself. the way I saw it was that I'm like a mirror. I talked about my reflective qualities being even more than most women, and that's because I'm so low resistance.
+
+most children (and a lot of even older females as well) tend to follow their instinct -- but that instinct is often times not what others in society wants (like my drug habits), and so these lower resistance instinctual types make "mistakes" in the eyes of society and then need to be "trained" to behave properly.
+
+for example, I've been fascinated with a thing that douglas said when he said he was the oldest. doing some quick maths in my head, I noticed that if he's 38 and remi is ~9mo older than me, it's not possible for him to be older. I looked into it and my best guess is that sesily was a little too optimistic with her first selection of a mate. she probably made some "mistakes" and that's how remi was born. robert I think came in as the guiding light and "trained" sesily not to be so intuitive (she's very intuitive), but to instead follow accepted behavioural patterns which are in the best interest for herself and society. I think this probaly got passed on to remi in her childhood. I can't really tell, but I think that paul may have been a perceived "mistake" or maybe rebellion. there's another strange thing too that I noticed, and it's this strong aversion to latin culture and values, which is why paul's family has a sort of negative feeling to it...
+
+I won't get into all of the complex interactions I could see; I told that story becasuse I wanted to illustrate that the idea that we need to be "trained" in our behaviour and then expected to adhere to them is kind of a really strong feeling in the familly.
+
+I rub the wrong way with paul because he's got the image that he's a "bad boy" and he does things "the wrong way" -- but he still very much feels he needs to adhere to expectations that others have on him (to go the bad way), just like marcos. as you've noticed, I like to confront things head-on, so this was the starting point where I begin with paul.
+
+in the situation, he's looking like he doesn't really want to talk to me (same as marcos), and so he goes and takes a bike ride, and then comes back, but it looks like he has the runny nose of someone doing coke. whether it really was or not doesn't make a difference because our interactions started out with "he gets to do X behaviour and get away with it" (ie, is not affected by the negative perception on that behaviour). our (your family with me) entire set of interactions have hinged around behaviour that I'm expected to have, but do not outwardly show.
+
+I've reiterated this point to remi a zillion times (yes, I like to make a point, as well) that it's *all attraction* -- so hopefully with this, it's much easier to see that the interactions that we have are all going to centre around having proper behaviour and not following your inner desire.
+
+just a quick followup thought: I'd like to say that nobody should *ever* think that anything they're doing is bad (unless, of course they're purposefully doing something maliciously or out of spite). obviously society isn't ready to accept that idea.
+
+how do one know what is "maliciously"? -- well, the answer is that it's all attracted, so maliciously is just a conscious recognition on the other party's part that they are doing something undesirable to another. it's always all attraction, so even then, you will always attract behaviour from others.
+
+for those of us that behave mostly on instinct, it's in the moment of recognition that I'm doing something maliciously that I have the ability to change my focus or course of action to a feeling that I'd rather feel. in that moment, be aware if it's "malicious" from the perspective of society/culture, or actually a reflection of their behaviour. in any case, no matter what anyone else is doing, it all comes down to how I *want* to feel.
+
+bye for now :)
+
 ### too much too quickly
