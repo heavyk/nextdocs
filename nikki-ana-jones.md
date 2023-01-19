@@ -61,3 +61,7 @@ the other interesting thing can be explained like this. if I want to feel sadnes
 I choose hammer on purpose because there is a northern european(?) phrase that I picked up somewhere where you *can* feel hammer. it feels really good, like kinda powerful, successful, or awesome. however, the tool doesn't really have much feeling for me.
 
 what I noticed is that the core of the concept has very little feeling to it. the core of the concept is nothing more than just a concept, and all the layers of sensation, meaning, and emotion are things that we have added on to the concept. it's possible to begin to interact with these core concepts directly without having to worry about the outer layers.
+
+### 2023-01-18 20:08 - world made of beliefs
+
+as katie weiss was talking about the chorus existing in a world without beliefs, she said it's hard to relate to, but do a heroic dose of mushrooms and you'll see pretty quickly that our entire world is made up of beliefs. it also made sense what terence was trying to say when he said our world is made of language (which is a subset of beliefs -- we even believe we all use a similar dictionary and share the same conceptual reality when conversing)
