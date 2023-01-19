@@ -65,3 +65,13 @@ what I noticed is that the core of the concept has very little feeling to it. th
 ### 2023-01-18 20:08 - world made of beliefs
 
 as katie weiss was talking about the chorus existing in a world without beliefs, she said it's hard to relate to, but do a heroic dose of mushrooms and you'll see pretty quickly that our entire world is made up of beliefs. it also made sense what terence was trying to say when he said our world is made of language (which is a subset of beliefs -- we even believe we all use a similar dictionary and share the same conceptual reality when conversing)
+
+### 2023-01-18 20:13 - time, body, and distance
+
+as she's talking about this, I had a strange feeling because those are kinda the things that I talk a lot about.
+
+in recent weeks, I've been carrying on about how time and space (distance), are slight diffrerences in frequency, and nothing else. therefore because they are slightly different, we *perceive* time or distance between "I" and whatever that is. inotherwords, we *believe* that there is a difference in time or space, but in reality it's just a difference in vibration.
+
+the last concept is one that has come into my focus really within the last few days. I wrote down that I'm not a person that looks back or inside; only forward. the corrolary to this idea is spatial. outside of me is one thing, inside of me is another thing (body), but there is an very very tiny gap between inside and outside and that's that world without beliefs. that is who you "really are" -- the you that's just a frequency without any beliefs or meaning (concepts) associated with what "you" resonate with.
+
+all is discovery of new vibrations to resonate with and make yours; none of them are bad.
