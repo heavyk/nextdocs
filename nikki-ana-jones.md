@@ -99,3 +99,13 @@ I apparently don't have much fear about channels, or mediums, and I just wanted 
 how do you know *who/what* you're channeling? well it's all about tuning. my perspective is that we're all channeling all the time. by being on this planet and observing nature, we're channeling earth. when watching TV or news or something, we suspend reality a moment, and everything becomes relative to that medium (the film or TV production -- that *narrative*).
 
 now, I would like to draw attention to the set of "rules" imposed by the channel/medium (ie. how vibration is transformed in this medium). think everything from galaxy, star, and planetary mediums, but also down to film and social mediums. depending on how powerful the medium is, the more convincing it is to the perceiver what "reality" is. we say, "on earth, I have to pick the rock up before I can throw it" and so in our sequence or narrative, we *believe* that we must in fact, pick the rock up before it can be thrown. these are rules imposed by the medium. in another medium, that may not be necessary. that links to "linear time"
+
+### 2023-01-18 21:33 - I want to talk about depression
+
+katie is beginning to talk about depression, and I feel like I want to write about it. depression feels to me like unexpressed fear. like for example, I just don't feel at all like anything is working out, and everything sucks. I'm just going to let all the awful things I can imagine happen.
+
+I noticed in that sequence (I'm describing my own experiences with depression), there is a recognition of all of the awful things that *could* happen. this is very similar to fear...
+
+OH, I just noticed that fear seems to be related to body and potentially distance (like fear gets stronger as the thing approaches in distance), and depression seems to be related to time. for me, depression is inversely proportional to distance in time -- meaning that it feels like I'm moving *further* away in time from what I want.
+
+fear seems to happen more in a body sense as things get closer, but depression seems to happen more in a time sense -- however, they're both vibration disharmony with the thing that's approaching in space or time. that's an interesting concept because disharmony appears in time as further away in time (future or past), meanwhile disharmony in space, feels like something getting farther away spatially -- which is weird because I usually think of things going away from me as *less fearful*. perhaps though, this is related to loneliness and feeling separated from the thing you love or are connected to.
