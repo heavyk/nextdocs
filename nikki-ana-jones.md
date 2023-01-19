@@ -75,3 +75,11 @@ in recent weeks, I've been carrying on about how time and space (distance), are 
 the last concept is one that has come into my focus really within the last few days. I wrote down that I'm not a person that looks back or inside; only forward. the corrolary to this idea is spatial. outside of me is one thing, inside of me is another thing (body), but there is an very very tiny gap between inside and outside and that's that world without beliefs. that is who you "really are" -- the you that's just a frequency without any beliefs or meaning (concepts) associated with what "you" resonate with.
 
 all is discovery of new vibrations to resonate with and make yours; none of them are bad.
+
+#### 2023-01-18 20:21 - linear time is the narrative
+
+every possible way to get to the present, is in fact possible, but we only choose between a small amount of these *believable* ways to get to the present.
+
+the narrative, from the 2nd ray perspective, is just the mcguffin to drive the thing forward and to bring about the "change" -- that is adaptation of new vibrations into your own -- even though "you" blends with everything else without beliefs (kinda difficult to explain). without the linear time pointing you toward the objective vibration and giving an environment in which it's assimilatable, you cannot really ever "know" it (to have its vibration change you). like, in this non-physical world of the chorus, they can't really change their vibration on their own, because they don't have any ideas or beliefs to impact against like we do in physical -- so how can you allow something that you're already a part of change you? we have to incarnate into a world of our own creation of resistance (from our beliefs) to begin to modify the thing.
+
+another way to perceive it is like the set of all can never be anything more than all, so you take two or more subsets of all and have them interact creating a 3rd set. that 3rd set is going to add to the all (Infinity+1).
