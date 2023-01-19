@@ -122,3 +122,13 @@ the reason why desire will always catch up to you is obvious because it's like a
 ---
 
 therefore, after talking it out, I have to strongly disagree that desire is the direction you're headed. many people *point* in the direction of their desire for a very long time, never actually allowing theirselves to *go* in the direction of their desire. it's *beliefs* that hold you away from the desire, not the orientation.
+
+### 2023-01-18 22:07 - thinking about the reception of the chorus
+
+one thing that stood out to me when katie was talking about how she receives the chorus is that usually it's like a knowing or that feeling you get after the result of a long conversation (understanding). I've been calling it "zolt" because it's like an instantaneous "download" of the concept. usually, it's my own brain that does not fully understand the concept, and/or I want to get a few more angles on the concept to get it a little better. sometimes that's a voice -- but for me, when I used to have a more physical "voice" talk to me, instead of that feeling of understanding, that's "homo correctus" (a concept I got from snake-bros) jumping in there to make sure I have the "correct" version.
+
+I stopped listening to the voice because I prefer to work it out and get a few angles on it and see the concept from many different aspects (all angles of the same concept shouldn't ever conflict, but you can definitely tell when you're looking at an oblique angle, and they appear only superficially to be in conflict). I demonstrate that a lot when I say that one thing is another thing viewed "from the opposite direction". the way that I "know" both angles are the same is like how you "know" that a cube is an octahedron. they are the same thing, but one perspective perfectly occults the other, and so they appear only superficially to be dfferent, when in reality they *feel* the same.
+
+---
+
+as an example, let's take the negative version of desire. desire is something that you *do not* be/do/have yet (ie vibrational similarity), so the "opposite" of that is something that *do* be/do/have, which is a feeling of sameness, boredom, or accomplishment. easy, right?
