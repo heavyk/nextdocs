@@ -109,3 +109,16 @@ I noticed in that sequence (I'm describing my own experiences with depression), 
 OH, I just noticed that fear seems to be related to body and potentially distance (like fear gets stronger as the thing approaches in distance), and depression seems to be related to time. for me, depression is inversely proportional to distance in time -- meaning that it feels like I'm moving *further* away in time from what I want.
 
 fear seems to happen more in a body sense as things get closer, but depression seems to happen more in a time sense -- however, they're both vibration disharmony with the thing that's approaching in space or time. that's an interesting concept because disharmony appears in time as further away in time (future or past), meanwhile disharmony in space, feels like something getting farther away spatially -- which is weird because I usually think of things going away from me as *less fearful*. perhaps though, this is related to loneliness and feeling separated from the thing you love or are connected to.
+
+### 2023-01-18 21:46 - desire is the direction you're heading
+
+katie has said this a few times now and it's bothered me each time. looking at it, I definitely *don't* see desire this way. the direction you're heading is your *focus*, not your desire. it is possible (I've done it), to be running away from the thing I desire for an extended period of time (this is the limited perspective we *choose/agree* to take part in) -- and no matter how hard we try to avoid desire, it will *always* "catch up to you".
+
+the reason why desire will always catch up to you is obvious because it's like a point (or sphere/orb) that is attracting things to it (like the sun), but it's also pushing things away from it. the galaxy is pulling all of the stars in it toward the centre (gavity), and all of the stars are keeping theirselves away from the galaxy centre for as long as they remain vibrationally incompatible with the galaxy. desire is the same way; it's constantly attracting us toward us, and we use our beliefs (our conceptualisation of reality) to hold ourselves away from it. we only become "one" (connect/merge) with our desire when:
+1. we can "see" or sympathise with perspective as the thing that we desire (vibrational similarity)
+2. our beliefs are no longer holding us back -- vibrational harmony/similarity
+3. desire becomes so great, meaning attraction is also really great -- which just means the desire's amplitude is so great that it's definitely influencing your vibration enough to force vibrational similarity.
+
+---
+
+therefore, after talking it out, I have to strongly disagree that desire is the direction you're headed. many people *point* in the direction of their desire for a very long time, never actually allowing theirselves to *go* in the direction of their desire. it's *beliefs* that hold you away from the desire, not the orientation.
