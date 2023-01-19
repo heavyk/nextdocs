@@ -82,4 +82,12 @@ every possible way to get to the present, is in fact possible, but we only choos
 
 the narrative, from the 2nd ray perspective, is just the mcguffin to drive the thing forward and to bring about the "change" -- that is adaptation of new vibrations into your own -- even though "you" blends with everything else without beliefs (kinda difficult to explain). without the linear time pointing you toward the objective vibration and giving an environment in which it's assimilatable, you cannot really ever "know" it (to have its vibration change you). like, in this non-physical world of the chorus, they can't really change their vibration on their own, because they don't have any ideas or beliefs to impact against like we do in physical -- so how can you allow something that you're already a part of change you? we have to incarnate into a world of our own creation of resistance (from our beliefs) to begin to modify the thing.
 
-another way to perceive it is like the set of all can never be anything more than all, so you take two or more subsets of all and have them interact creating a 3rd set. that 3rd set is going to add to the all (Infinity+1).
+another way to perceive it is like the set of all can never be anything more than all, so you take two or more subsets of all and have them interact creating a 3rd set. that 3rd set is going to add to the all (`Infinity + 1`).
+
+#### 2023-01-18 20:35 - uniqueness
+
+katie is really confusing in how she's trying to explain uniqueness. I want to take the concept and try approaching it from another angle. I liked the set analogy.
+
+if I have a set of `all` this is a conceptual/virtual set in that it's not a finite num, but a concept/frequency. it always will be the set of `all`.
+
+so if I want to do any set operation, I have to have a finite set. I can't *really* work with Infinity cause I get undefined results. for example, `all` multiplied by `all` (`Infinity * Infinity`), then I get back the same concept, Infinity. inside of the set of `all`, there are lets say 3 setsm. if two of those sets mate, they finite sets (not all), and produce another finite set. `all` now contains 4 unique finite sets.
