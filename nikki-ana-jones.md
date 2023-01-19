@@ -91,3 +91,11 @@ katie is really confusing in how she's trying to explain uniqueness. I want to t
 if I have a set of `all` this is a conceptual/virtual set in that it's not a finite num, but a concept/frequency. it always will be the set of `all`.
 
 so if I want to do any set operation, I have to have a finite set. I can't *really* work with Infinity cause I get undefined results. for example, `all` multiplied by `all` (`Infinity * Infinity`), then I get back the same concept, Infinity. inside of the set of `all`, there are lets say 3 setsm. if two of those sets mate, they finite sets (not all), and produce another finite set. `all` now contains 4 unique finite sets.
+
+#### 2023-01-18 20:47 - about channels
+
+I apparently don't have much fear about channels, or mediums, and I just wanted to offer a perspective on it. inside of a channel or medium, everything is relative to them, meaning, they entirely take over "reality" and so you're going to get all of your own perspectives of reality in reference to (relative to) the channel or medium. therefore, you kinda get what you expect.
+
+how do you know *who/what* you're channeling? well it's all about tuning. my perspective is that we're all channeling all the time. by being on this planet and observing nature, we're channeling earth. when watching TV or news or something, we suspend reality a moment, and everything becomes relative to that medium (the film or TV production -- that *narrative*).
+
+now, I would like to draw attention to the set of "rules" imposed by the channel/medium (ie. how vibration is transformed in this medium). think everything from galaxy, star, and planetary mediums, but also down to film and social mediums. depending on how powerful the medium is, the more convincing it is to the perceiver what "reality" is. we say, "on earth, I have to pick the rock up before I can throw it" and so in our sequence or narrative, we *believe* that we must in fact, pick the rock up before it can be thrown. these are rules imposed by the medium. in another medium, that may not be necessary. that links to "linear time"
