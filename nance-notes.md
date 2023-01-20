@@ -934,6 +934,36 @@ this is an interesting take on the idea, because powerless against fate means *n
 
 for example, my life I am completely powerless against fate. I can only perceive my circumstances the way I want to because I can't *really* change my fate. my destiny changes with my focus and my conceptualisation/perception of all inputs.
 
+### 2023-01-19 19:53 - with hey, ho, the wind and the rain
+
+a concept arrived to me while listening to the last line of this song. I'll try to describe it.
+
+yeah, the song describes problems, most notably with women. I don't know twelfth night yet (look at it next), but clearly this song is punctuating the ... difficulties of women (from a man's perspective) -- as a friend of mine would often say, "the world is a difficult and dangerous place" (it's not designed to be easy, though for some people it appears so)
+
+anyway, at the end, I had this concept that I've been developing. I used to listen to abraham a lot and they would constantly say, "we'll wedge our message into the crack". also, yesterday, I was watching an interview about "the chorus" (@[youtube](https://youtu.be/ricpAYynp7s)), and in it, katie channels similar to esther hicks -- and she's describing her process. she explains that when she is receiving the idea, she usually gets the whole download in an instant (exactly like I'm describing to you what just happened to me at the end of this song), and it's a group consciousness, and the really non-physical ones are really fun and joyful and stuff, but then there are some other more physically focusud ones in there too that kind of slip their messaged into the cracks. hold that concept.
+
+when I looked into shakespere[^1] and how he did his story process, what I could tell is that it's very similar to what katie experiences. those really joyful beings and ther bouncing balls of light that terence talked about, and a number of my own experiences came to mind (mine don't have visuals though) -- and so when shakespere would begin to write a play, he would just build the character archetypes in his mind, and then then just let them interact with each other. the characters would say lots of silly and meaningful things to each other, and different aspects would be desired and altered. it's like the theatre is in his imagination with these various ultra-sytlised figures interacting (it's kinda surreal).
+
+this state of mind is possible when the brain has extremely high amounts of DMT in it, and I think that most, if not all of them were gay, and that's how they shared this interactive visual space.
+
+the next thing I noticed when watching sara's videos, is that all of the really deep stuff is under a layer of toilet humour. I really do think that "source", "the chorus", or whatever you want to call that non-physical aspect of universal consciousness really does "wedge their message into the crack" (lol).
+
+the reason why I think that shakespere has had such a strong influence on society -- is because it's pretty enlightened and has a lot of hidden messages encoded into it.
+
+the other theory that I have is that a sort of "new hominid", a human with differing capabilities, actually sprang into existence around the time of shakespere -- and these are humans like me and you (and likely the players and their entourage sperad this a lot), which are capable of interpretting and superimposing symbolic and conceptual archetypes and ideas from a narrative over real-life, in the sense that these narrative elements are easily manipulated by the powers that be (the wind and the rain), and so like a cork floating about in the middle of a massive tempest, we're thrown about since the beginning of life and time by these narratives.
+
+narratives tint how we see reality and superimpose the "moral" of the narrative over the top so that we expect that sort of "poetic justice" to happen, when all along, when you look just underneithe, the superficial layers, past the toilet humour and things like that, it's all perceptual.
+
+---
+
+as such, I think this song is inspired, and the line says it all (looking behind the toilet humour), that all of the world and it's difficulties is "one"[^2] and that "we" (source, the chorus, shakespere/terence's mind, non-resistant "all" consciousness) strive to "please" (as in make a wonderful reality for you) every day.
+
+for me, when I read the song at the end, I can see how even through all of the wind and the rain, they still find a way to wedge their message into the crack.
+
+[1]: I liteally made the realisation yesterday that I spell *shakespeare* incorrectly. I just noticed it just now as well, but for the same reason why I'm probably not going to go and try to fix all the missspellings, is that my concept (shakespere) is different than the reality instantitation of "shakespeare".
+
+[2]: the word "one" here gives me two concepts: first of unity -- as in togetherness, oneness, or completeness and second of "won" -- as in awarded, received, rewarded.
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
