@@ -964,6 +964,61 @@ for me, when I read the song at the end, I can see how even through all of the w
 
 [2]: the word "one" here gives me two concepts: first of unity -- as in togetherness, oneness, or completeness and second of "won" -- as in awarded, received, rewarded.
 
+### 2023-01-19 20:47 - 12th night notes
+
+- 12th night is the movement between christmas (birth), and epiphany.
+  - I doubt the play *actually* spans a 288hr timeframe.
+  - it's likely referring to the birth of something, following a narrative up to its baptism/epiphany
+    - like the "bath" sonnets at the very end, a stark contrast to the belaboured convincing of the fair youth to procreate)
+    - cupid may even have a similar appearance as "valentine"
+- duke orsino (who was probably with queen elizabeth on opening night) is in love with olivia, but she does not requite his love for her.
+  - it's quite possible that olivia is similar conceptually to queen elizabeth, and so this would be a pretty good joke to play on elizabeth from shakespere's perspective.
+- viola and the captain come from a shipwreck (disaster of some kind) and are "washed up" on shore (not doing so well from the disaster)
+  - voila has a brother (sebas) that she believes has drowned in the previous disaster
+  - viola (the name), for me has the concept (voilar - love forcefully in spanish) associated with it.
+    - the idea appears to me that she is forcefully doing something to get what she wants (like helena), but also she is the victim of the same force (reflective) on herself, as she feels like she's being guided or steered by some outside force.
+  - I'm also reminded of the "voilator" album, which has my faviourite song in it, "world in my eyes").
+  - finally, I'm reminded of the idea that 7th rays are the colour voilet, and the colour magenta is a lot more brilliant.
+- voila is orphaned and alone, so she decides to dress as a man and go work for the duke.
+- the man viola is pretending to be is "cesario"
+  - a name that has a strong resemblace to me of caesar (of rome, like coriolanus)
+  - a name that also reminds me of cesarian section, a birth complication where the mother needs to be forcefully opened to get the child out.
+
+---
+
+other random things that I'm noticing is that the play is happening in illyria, which sounds and looks a lot like "iberia" to me (I'm going to have to remember to turn "ll" into "b" in some of shakespere's other works). the other thing that I notied is that olivia is mourning her brother's "death" (he's really alive, but she doesn't know that).
+
+the image that flashed into my mind was the story of pyramus and thisbe. they too are lovers separated and cannot be together. in that play within a play, I felt very strongly that this was simmilar (symbolically) to the two parts of my brain. for lack of better ways to say it, queen elizabeth (diana), who is also the "dark lady" (dark goddess), diana/genxicat/ishtar/etc is olivia.
+
+- I drew a picture of how I saw my brain and on one side there's a stressed out dude and antoher a girl. I use this symbol a lot to figure out polarities.
+  - for me, the girl (right-brain) is thisbe/viola
+  - the boy (left-brain) is kenny/sebastian/pyramus
+    - cannot access voila/thisbe, as they're separated and messages aren't getting through.
+  - the duke I'll just say fits quite well the description of nosebook.
+    - in this context, I find the idea of kenny/pyramus to be hilarious in the sense of "pyrric victory" (a common theme in shakespere's plays, like "all's well that ends well")
+- later on while trying to listen to the video I keep getting distracted by the 7y that olivia will mourn the death of sebas.
+  - I was thinking about when this 7y period would start, and I guess it would start with my exit from "puerta de hierro" (iron door).
+  - I guess that's probably around late 2017, so ending in 2024 (I guess) if this is symbolically accurate.
+    - in reply to that, I don't find these plays or my predicament to be all that big of a problem, actually. I really am quite content in my situation (ref: prospero?).
+  - the major problem with this symbolically is that the roles are reversed. kenny (left-brain) seems more similar conceptually to helena and voila and stuff than I do to sebas.
+- duke orsino refers to his love for olivia/diana like the hounds that hunt the stag -- which acteon, seeing diana naked was punished to become a stag (single male?) and then is killed and consumed by his own desire.
+- sebas, however, the captain assures olivia has been seen (like arion), swimming was saved by the dolphins.
+  - I found out last night that in the night sky "antares" (opposite aries) is the scorpion goddess and she's supposed a really big deal (not totally sure).
+  - the four "royal stars" of the sky are:
+    - aldebaran, watcher of the east (tarus, bull)
+    - regulus, watcher of the north (leo, heart of lion)
+      - regulus means "little prince" (probably also a reference in hamlet)
+    - antares, watcher of the west (scorpio, heart/braest of scorpion)
+      - probably the star referred to in hamlet (west of the sun)
+    - fomalhaut, watcher of the south (picsis, fish)
+      - feels like this is referenced in hamlet as well with the smelling of the fish
+  - in my mind, this makes sebas a sort of proto-aries (war-god) and olivia antares (dark/scorpion goddess, diana)
+  - they're opposites to each other, and mythologies have ninurta and ishtar as having similar qualities.
+  - I find it quite likely that the constant references to the "red cross" (antares is also red and dark), and the placements of different things around the year are astrological references.
+    - over the years there is this sort of battle that is being played out
+    - on one side there is the bull (he's the pivot), and then there's mithras/mars that slays the bull.
+      - this is referenced in the "babalon working" where jack noted that aries power is on the rise, and so to balance this, he did the "babalon working" to summon the apparition of the "whore of babylon" (antares).
+
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
