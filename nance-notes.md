@@ -946,9 +946,9 @@ when I looked into shakespere[^1] and how he did his story process, what I could
 
 this state of mind is possible when the brain has extremely high amounts of DMT in it, and I think that most, if not all of them were gay, and that's how they shared this interactive visual space.
 
-the next thing I noticed when watching sara's videos, is that all of the really deep stuff is under a layer of toilet humour. I really do think that "source", "the chorus", or whatever you want to call that non-physical aspect of universal consciousness really does "wedge their message into the crack" (lol).
+the next thing I noticed when watching sara's videos, is that all of the really deep stuff is under a layer of toilet humour. I really do think that "source", "the chorus", or whatever you want to call that non-physical aspect of universal consciousness really does "wedge their message into the crack" (lol). I think the toilet humour was hilarious to shakespere and that was probably the easiest way to keep his players interested and having fun while delivering these deep ideas.
 
-the reason why I think that shakespere has had such a strong influence on society -- is because it's pretty enlightened and has a lot of hidden messages encoded into it.
+the reason why I think that shakespere has had such a strong influence on society -- is because it's pretty enlightened and has a lot of hidden messages encoded into it. I myself employ a lot of humour as a surface feature, often times making fun and joking about less (or significantly more) resistant ways to look at the same situation.
 
 the other theory that I have is that a sort of "new hominid", a human with differing capabilities, actually sprang into existence around the time of shakespere -- and these are humans like me and you (and likely the players and their entourage sperad this a lot), which are capable of interpretting and superimposing symbolic and conceptual archetypes and ideas from a narrative over real-life, in the sense that these narrative elements are easily manipulated by the powers that be (the wind and the rain), and so like a cork floating about in the middle of a massive tempest, we're thrown about since the beginning of life and time by these narratives.
 
