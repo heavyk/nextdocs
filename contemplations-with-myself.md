@@ -157,3 +157,66 @@ so yeah, I still have a ways to go. let me fight my windmill dragons. I have my 
 probably what it is, is that peole wanted entertainment, not to have to actually think. thinking is hard, I know -- which is why I feel and then know instead. wayyyyyy easier. the process, though extremely effective does have a bit of trial and error (ie conflict) to it, though.
 
 [1]: the general conceptual "field" they emit -- which is quite a lot. obviously I'm only capable of understanding the things that I'm vibrationally similar to, which is why I mostly get concepts in relation to the subject of the video and similar to my own vibration (ie. concepts familiar or understandable to me)
+
+### 2023-01-23 18:36 - what do I/we *do*...
+
+for a few days, I didn't play coi. then, I think the last two days I played (so it's not like I'm really going hard on it), and one of the reactions that I was getting was how serious I take the game. I mean, I take all optimisation problems seriously, but I think that's not the real issue here.
+
+when I was younger, one of the things that I really struggled with understanding is the case of solomon. it says he had 1000 wives and concubines. most of the other guys in the bible had 2-3 wives, but not hundreds. I pondered the logistics of it for quite a while, and found that he probably didn't really have a personal relationship with any of them, so he was likely a collector, because 1000 would take over 3 years to get through all of them before returning back to the first (assuming round-robin priority system). prioritising one over another, I noted with my interaction with the women of the 90's could have dire consequences. I just didn't think it could possibly be anything that would work out well. he must have had a super power that managed to keep them all from causing trouble.
+
+I also had sisters and they had friends, so I knew that when there are a lot of girls in one place and they have nothing to do, there's a general feeling of "I want to do something but I/we don't know what I/we want to do". it seemed to me that it would be very very difficult to keep 10+ girls occupied, 1000 would be basically impossible, so I ended up highly doubting the reported number in the bible there.
+
+I mainly figured it had to be figurative/symbolic, or some kind of patriarchical measuring contest. nowadays, my opinion has shifted. I find it quite possible that there were a lot of women (not sure if 1000 is accurate, but let's say it was), and in reality they're being used to distract solomon while his viziers run things.
+
+---
+
+so, here I am playing coi and the reactions are wondering if I'll be like the typical man who is so invested in his work that he ignores the women around him, leading to the bored women/girls situation... I mean, I don't really know...
+
+I will say this: ever since I was young, my dad would always tell me I didn't want to work construction all my life. he then took some MCSE classes to try and get away from construction, and so I thought -- OH OK, I'll do the same thing that I wanted to do physically, but instead with the software industry. I figured I could climb up the ranks really quickly and become a captain of software development. I had some ideas on some games I wanted to make, and when myspace came out, I felt like my "calling" was to instead focus on social platforms, because I felt like getting like-minded people together was something that I wanted to do.
+
+up until then, I wasn't very successful with girls. they seemed to like me and stuff, but the minute I would open my mouth and start talking about things, I'd lose them. I never did figure out "what women want", because I couldn't figure out anything at all that was interesting to them. in fact, the *only* girl I can think of which I can positively identify something that's interesting to her is nikki and her obsession with megalithic architecture -- and, she actually thinks critically about it, too. I figured that a social platform was a way for me to meet girls that liked things that I do. I had a personal and a technical interest in making a social network.
+
+when I got to spain, I worked really hard to make it happen, and this was apparently looked down upon. zaryn and friends were out drinking, partying, and having sex with anyone and everyone meanwhile I stayed back at the office doing what I found important to me. when they left and went off to do their thing, those were some of my most productive times.
+
+I gget the feeling that zaryn and felix felt bad for me or something and wanted me to join them in their debauchery, so they had me go with the prostitute. the prostitute asked me if I really wanted to do it cause I think she could tell that my frineds were making me go, and I agreed thinking OK, well maybe this is just another step in getting to the top or something. nothing felt to me like I shouldn't go, so I agreed. I don't really regret it at all because it allowed me to see a whole different side of things I would have never been exposed to.
+
+anyway, I didn't find it all that impressive at all, and it was definitely not something super amazing like they were making it sound. I didn't return back to it for quite some time, and in the interim, I was thinking, "OK, well it was probably just cause she was a prostitute and if I find a real girl, *then* it'll be awesome" -- so the desire in me to find a girlfriend grew, but I was heavily conflicted because I really wanted to make it easier to find people that are *ideologically* similar to me (essembly idea), because I'm noticing that I simply have nothing that I can relate with any girl on in spain. they're all used to a bunch of guys making a big show for them, and all I have is incomprehensible conversation.
+
+in fact, the whole subject of conversation was such a difficult one, because I didn't have the show to rely on like felix and friends, or the mega douchebag attitude like zaryn to carry me to the end goal of sex at the end of the night in the disco. I wanted to actually be around someone that I find interesting. I did find patricia, and I really liked talking with her, which was nice, but there was always this looming problem of mixing work and sex. in short, patricia was the only girl I talked with where she could talk about technical subjects and I could feel intimidated by her (I liked this), and she even seemed to have some ambition to her as well. in all cases, it was pretty common during a conversation, and mom said that I have a condescending tone about me, for a girl to feel intimidated or inferior to me.
+
+instead of trying to teach girls technical ideas, and trying to get them interested in what interests me, it's obviously a lot easier to just find one that's already interested in the things that I'm interested in (again essembly idea).
+
+I'd also kinda figured since pretty young that I'd have a lot of money, so I figured I'd have to find a suitable wife *before* I make any amount of money, because otherwise she'll just want to sit around, do nothing and complain that I'm working all the time because she's not interested in anything I'm interested in. unfortunately, I met patricia after I was already a millionaire, so she assumed me to already be her concept of a man with money. that didn't work out, obviously. money is a real problem for relationships, I think.
+
+when I met raquel, it was really nice because she didn't mind so much that I had a lot of money and was willing to spend it with me, *but* we basically had nothing in common. she had no clue (and had no desire to learn either) of what I thought to be important. I figured that she could eventually learn it and stuff, but no -- she insisted on staying a bored girl (my nemesis).
+
+---
+
+if I were stuck in a situation like soloman with 1000 women around me, I would immediately put them all to work. there's *no way* I'm hanging around 1000 bored girls. no thank you.
+
+---
+
+the next thing is that I play coi right now because I like the challenge of it. I don't really know of anything better that I can possibly be doing with my time than that. coi for me is just a game, and I haven't really seen any girls playing it, so I don't really know how to adjust that concept. when JD mentioned his "chastity beavers" (timberborn), it felt to me like there was antoher aspect to management style games, which is a bit more personal. each of the beavers have a name, walk around and do actual tasks -- which is very different from coi where people are kindof a vague concept and everything is machines. I wanted to try out timberborn, but the keys are annoying[^1] so I never got around to it.
+
+however, the concept of using a game as a way of preparing the girls to work on bigger and bigger ideas is itself an interesting idea. even the idea of trying to create a management game that the girls would like is a challenge in itself. timberborn has a lot of gears and mechanical stuff (gravity batteries) and things like that, which is sorta cool, but I don't find it to be very interesting because it's sorta like playing coi with only trucks (each beaver being a truck), which is the most uninteresting aspect of coi, and the automation and layout of the factory to produce a system that works well together is a bit more interesting (belts and pipes).
+
+for example, the belts system can be thought of like any major production or digital system with inputs and outputs (or, a microprocessor), and so while coi is still pretty one-dimensional in what I *do* with all of the resources that I'm moving around, it's pretty easy to make a jump from a coi factory to an arduino or something like that where something spectral gets converted into units and then back into a spectrum (all interfaces to the physical world are like this). for me, all of these things are connected.
+
+---
+
+in summary, if I'm going to be stuck with a whole bunch of girls, they absolutely have to be doing things[:2]. I can't really force anyone to do anything though, so all I can do is go the way that I want to go, and others have the option to:
+
+1. do nothing.
+2. go their own way.
+3. fight against me or try to get me to do something else
+4. join me.
+
+those are the only four options available. I only want to interact with the 4th ones there. girls that want to get me to do something else are nothing more than extensions of nosebook in my opinion and they'll be perceived about like how I perceive mom. she's fine, and I talk to her, but she feels intimidated and inferior to me just like all the others. eventually, one day, I'll find that fourth category. the world isn't composed of girls that are *only* the first three.
+
+---
+
+as I've been thinking about soloman here -- more and more, I'm kinda starting to wonder if soloman was a very ambitious guy and they fought against, trying to keep his ambition from taking over too much. we live in a world of possession and ownership and the current owners want to keep their positions of power, authority, and ownership -- so solomon, like me, is probably a bit threateneing to the current establishment. they probably just kept him busy with girls and invented a really big story and about how great he is with women (1000 does seem like a lot) and turned him into a legend to hide his ambition -- sorta like how nosebook is doing with me. I would even go so far to say that soloman, like me, after such an experience may have also had his heart in another place, making him: solo-man.
+
+[1]: I could remap the keys on my keyboard to play it -- but I figured I'd probably wait until the new keyboard comes before beginning such a difficult task with the keyboard I have now, only to stop using the keyboard in a month or so (gonna look later to see how long, but my spider senses say that it may have been delayed on purpose)
+
+[2]: sorry raquel, my experience with girls sitting around was traumatic enough to know that I never want to do that again.
