@@ -838,19 +838,26 @@ so anyway, the part about paris, even if he is a 5th ray, can also reflect in a 
 
 when I was outside just now, I had this funny vision happen aftter smoking, and in it, I was just this raging beast, that just won't stop or slow down -- like this tidal wave that can't really be stopped. it was really cool.
 
-maybe I am the beast's first form, but that definitely doesn't stop anyone from joining in on that. I offer many ways to see this concept.
-I've touched on universal consciousness, seeing thruough the perspective of the universe.
-I've talked about it from a resistance and attraction way of seeing it, because if you get to where expansion is happening faster than resistance, and preferrably (cause it adds up),
-to be linear or static resistance.
-my resistaance, for example is reducing faster than I can add resistance.
-I *purposefully* am so ridiculous to create interactions with you guys *to add resistance* because I'm already going pretty fast. I've definitely lost attachment to ground in that sense.
-I don't meditate because if I do, I go too fast.
-I'm a conscious person, meaning that my resistance is reducing so fast that there's not a whole lot of need to be meditating or trying to slow my thought down.
-I do enjoy my own thoughts a lot more than I enjoy no thoughts.
-I usually think of things like improvements, things I like, things I'm getting to understand better, understanding another dimension to perception.
-abraham said,
-  "we'd rather have you in a state of appreciation, than in a state of meditation;
-  it's so good to think your thoughts while in a state of appreciation." (paraphrase)
+maybe I am the beast's first form, but that definitely doesn't stop anyone from joining in on that. I offer many ways to see this concept:
+  - I've touched on universal consciousness, seeing thruough the perspective of the universe.
+  - I've talked about it from a resistance and attraction way of seeing it: when expansion is happening faster than resistance (like a child), you become unstoppable.
+    - my resistaance, for example is reducing faster than I can add resistance.
+    - I'm *purposefully* ridiculous to create interactions with you guys *to add resistance* because I'm already going pretty fast. if I don't, I'd lose track of physical reality. nosebook keeps me grounded.
+      - I don't meditate because if I do, I go too fast.
+      - I'm reducing resistance consciously, meaning that activities like meditating are making me go faster than I feel like I can control, which means I would need to add resistance to feel comfortable.
+      - I prefer to coast effortlessly than to constantly be putting the gas (meditatiting) and then pressing the brakes when going too fast (adding my own negative "safety" resistance)
+      - I do enjoy my own thoughts a lot more than I enjoy no thoughts.
+      - I usually think of things like improvements, things I like, things I'm getting to understand better, understanding another dimension to perception.
+      - abraham said,
+        "we'd rather have you in a state of appreciation, than in a state of meditation;
+        it's so good to think your thoughts while in a state of appreciation." (paraphrase)
+  - I've touched on the idea of seeing things "through the eyes of source" or perceiving lower resistance versions of the same thing.
+  - voracious desire, going infinite, etc.
+  - all of these things, are all talking about increasing the speed at which I attract things, not by pressing the gas, but by *lowering resistance* or changing my perception/perspective.
+
+I could see myself as gaining speed, and no matter how many things hanging on to me, or how many parasites or whatever are happening, I'm still continuing to accelerate. it's that unstoppable feeling: the feeling that unless I sabotage myself with my own perception, I'm going to just keep getting more and more wanted.
+
+at that moment, I see that the only person that can stop me is me. nobody else can stop me. I'll just keep growing and continuing to have a greater and greater influence on those around me (like a star). I'm like this unstoppable beast.
 
 wow, what a detailed and weird vision.
 
