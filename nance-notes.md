@@ -983,6 +983,15 @@ for me, when I read the song at the end, I can see how even through all of the w
 - the man viola is pretending to be is "cesario"
   - a name that has a strong resemblace to me of caesar (of rome, like coriolanus)
   - a name that also reminds me of cesarian section, a birth complication where the mother needs to be forcefully opened to get the child out.
+- lots of vulgar comments and interactions in scene 3, but there are some interesting things to note:
+  - maria is a shrew (and wench)
+  - maria responds "I he" to the question, "who, sir andrew aguecheek?" signifies probably that maria and sir andrew are similar.
+  - sir toby describes sir andrew^
+    - a fool, a prodigal
+    - a quarreler and coward (saving him from the grave)
+    - a coward and coistrel (shy?) and will not "drink" to olivia until "su cabeza gira sobre el dedo como un trompo parroquial" (lol)
+
+
 
 ---
 
@@ -1007,7 +1016,7 @@ the image that flashed into my mind was the story of pyramus and thisbe. they to
   - the four "royal stars" of the sky are:
     - aldebaran, watcher of the east (tarus, bull)
     - regulus, watcher of the north (leo, heart of lion)
-      - regulus means "little prince" (probably also a reference in hamlet)
+      - regulus means "little king" (probably also a reference in hamlet)
     - antares, watcher of the west (scorpio, heart/braest of scorpion)
       - probably the star referred to in hamlet (west of the sun)
     - fomalhaut, watcher of the south (picsis, fish)
@@ -1018,6 +1027,10 @@ the image that flashed into my mind was the story of pyramus and thisbe. they to
     - over the years there is this sort of battle that is being played out
     - on one side there is the bull (he's the pivot), and then there's mithras/mars that slays the bull.
       - this is referenced in the "babalon working" where jack noted that aries power is on the rise, and so to balance this, he did the "babalon working" to summon the apparition of the "whore of babylon" (antares).
+
+---
+
+"she doth call me husband" (comedie of errors), a reference to helena?
 
 ### bert and gilgamesh
 ### I'm already feeling bert setting in

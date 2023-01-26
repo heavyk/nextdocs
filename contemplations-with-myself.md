@@ -220,3 +220,124 @@ as I've been thinking about soloman here -- more and more, I'm kinda starting to
 [1]: I could remap the keys on my keyboard to play it -- but I figured I'd probably wait until the new keyboard comes before beginning such a difficult task with the keyboard I have now, only to stop using the keyboard in a month or so (gonna look later to see how long, but my spider senses say that it may have been delayed on purpose)
 
 [2]: sorry raquel, my experience with girls sitting around was traumatic enough to know that I never want to do that again.
+
+### 2023-01-25 18:55 - the beast
+
+yesterday (2023-01-24), I had intended to write an entry in response to the previous one. there were a lot of reactions to it, and in the end, I decided that I wanted to just keep going with the idea of being single. I decided I wanted to keep it going for as long as possible. I personally think it's a great idea to let them get as far of a start ahead as possible. I've been contemplating the tortoise and hare story, and I'm clearly the tortoise[^1] here, and I don't mind letting them get as much of a head-start as they can get. my reason is two-fold; the second I'll mention later, but the reason for me was the same reason why I didn't want to take on the 4th ray form of perception and see myself as outside of time. I *want* to be in 3d, because I want the experience. if I were to go outside of time, I'm forfeiting the expansion that this 3d physical experience gives.
+
+that experience of realising that I *want* to be in 3d is one of the reasons/inspirations for the captain-of-3d concept. in short, when I fully accept the idea that I'm eternal, I recognise that I'll get bored pretty quickly and stagnate pretty quickly as a person if I always just have good conditions and such. the 3d experience is only as bad/good as it's perceived to be, meaning that everything experienced is a reflection of my concept of it, meaning it's all attraction, meaning it's everything that I desire. from my perspective now, 3d is pure desire -- and even a bout of depression like I experienced a bit yesterday of, is also desire[^2].
+
+---
+
+as yesterday continued on, I had this song "eve's song" stuck in my head. it's a UK band that seriah played in my last time playing coi, and I found it completely captivating. there are some aspects to the song which I find interesting (doing this from memory -- later I'll do a followup analysis because "the beast" has come up a number of times in the last days).
+
+@[youtube](https://www.youtube.com/watch?v=PnrvL152D3o)
+
+    bring me women, bring me wine,
+    it's sight is sweeter than the vine
+
+    you're twisted around the bark,
+    our futures intertwine
+
+    can I choose because I'm free?
+    are you the beast inside of me?
+
+    is this the truth that nothing ever comes for free?
+    eve, she wants to know things
+    eve, she wants to try to taste your offering
+
+    women with a broken rip(?)
+    I lay you down in empty crypts
+    an adam's apple is the only gift to give, O
+
+    when you swallow, will you choke?
+    there is no promise that forespoke(?)
+
+    O, O, O, O
+
+    eve, she wants to know things
+    eve, she wants to know things
+    eve, she wants to try to taste your offering
+
+    bite, think, fight, sing, sex-see,
+    simp-ly, live(?), loose(?),
+    live(?), choose(?), sin(?)
+    eve, she wants to know things
+
+    won't you stay, a while to rest?
+    get in close; lay with me
+    won't you lay, your mind to rest?
+    a while to cure(close/curse?) inner truths
+
+    ignorance is bliss
+    ignorance is bliss
+    ignorance is bliss
+
+    ignorance is bliss
+    ignorance is bliss
+    ignorance is bliss
+
+
+    (fight, live, love, live, give, choose)
+    (eve, she wants to know things)
+    if she (?)
+    please don't give me rotten fruits to drink
+    (fight, lick, love, live, give, choose)
+    (eve, she wants to know things)
+    lay me down
+    you're not supposed to think
+
+    throw your face against the floor
+    hidden sun forevermore
+    but get those lighted(?),
+    those dreams, you think you saw
+
+    do you love me like a sun
+    spurned and burning, am I shunned?
+    I've sent them churning(turning?),
+    but my backlash has just begun
+
+    eve, she wants to know things,
+    eve, she wants to know things,
+    eve, she wonders why we're bedding(?) down
+    you're not supposed to think
+
+    [...]
+
+    ignorance is bliss
+    ignorance is bliss
+    ignorance is bliss
+
+the part, "are you the beast inside of me" stuck in my head. it's an interesting concept, because ... this might take a bit of unraveling to explain. helen is considered to be symbolically simlar to eve (see end of fisher kings video below), and aphrodite and helen have, in the aeneid puts her in with the garden of eden; same with the illiad. the aeneid takes a more conceptual approach to things, but I'm convinced (like velikovski) that the illiad is talking about astronomical events. I believe menelaus and agamemnon are the two masculine counterparts of the planet we know as venus. I didn't read the book yet so I don't fully know, but it seems like agamemnon, mennelaus and athena form kind of a triad of that personality. I also noticed another triad of personality split into hector, paris, and mars. it seems like there's another with zeus and hera and an unidentified third, as well -- but I haven't figured that one out yet.
+
+at an rate, aphrodite is earth, mars is mars (with the personification of the moons as terror...), and paris seems to be mercury. the point is that earth, has a star inside of her. this, I believe is the 1st ray anatau, and then the 7th ray female surface is genxicat/aphrodite. you'll notice that song makes definite reference to a "beast inside of *me*" well, who's singing? it's eve's song -- so, aphrodite/helen. that makes the beast inside of her anatau, the 1st ray -- which is weird because the song even says, "hidden sun forevermore".
+
+[on another ocassion](/nance-notes.md#2023-01-14-2359---a-funny-vision) I had a strange occurance where, I perceived myself from the perspective/concept of those observing me, and I'm just this completely unstoppable force -- this beast rising up and out, and they're trying to do their best to contain it. I don't mind them trying to contain me, becasuse it's uncontainable. like I mentioned in the first part, I'm fully willing to give them as much of a head-start that they need to try and keep me contained. I don't need to rush it at all.
+
+I might also mention that previous to this experience, my perspective of the beast was that it's a communication platform built on top of the whore of bablylon. [I wrote about this](/correspondance.md#2021-12-09-1347---to-be-or-not-to-be), I think to a guy on youtube fascinated with the "twice eleven brethren" and de vere (I should probably go have a look at his latest videos). I identify myself with the whore of babylon in my present predicament, and so if rev 17 is what it says it is, then some sort of communications network should be able to be built on top of me. this formed some of the inspiration for the party-LAN idea.
+
+well, this eve-ning when I woke up I woke up suddenly because I became conscious in the dream, trying to explain to whomever I was talking to, what the beast is. besides eve's song (mentioned above), I was also fascinated by a bit in a strange document about a prophesie for the fisher kings (@[youtube](https://youtu.be/0_9TyxAmwDQ?list=PLIe_MWXIGGHRsJo2tsg2nIGD31OudT1q1)) there is a maxim:
+
+    If I should labor (right Honourably honourable and you glorious Branches of these goodly Cedars which I would preferue/preserve to Eternitie) to giue a generall contentment to all whith shall vouchsafe to looke vpon thtmis little Treatise: my work would be infinite, and the ende like a shadow ever farthest off when I did couet to be most neere it; for it is a maxime: *That he which did well, offended some, yet an Apostle ; Hee that did worst, pleased many, and yet was but a Beast ; and He that did best of all could not please all, and was God*; So various are the mindes of men and so curious, the dyet of those which feede on varietie:
+
+I pondered that maxim there before going to sleep because it's strange to me. there are three characters: an Apostle, a Beast, and God.
+
+the apostle is probably referring to paul, because in Richard III play, there are references to Prince which is also in this treastise as well. it's almost certainly a machiavelian reference, for which the Richard III character is painted in contrast to Richard II. it's also references Heb 10 and Rom 11, so I'm guessing Apostle is paul, which shakespere has Richard III appearing pius by saying "O, by saint paul" (@[youtube](https://youtu.be/GWMPdjwQ7wM?t=137)).
+
+Richard III is a contrast to Richard II, which also has a lot of christ symbolism associated with him. there's also this idea of a politic (eternal) body (the political system that remains even after the physical body has deteriorated), and the physical body. my first impression on the play was that sheakspere was saying (from Richard II's perspective), "OK, fine you don't want a idealistic king, how about we try the machiavelian type" and so the politic body of richard went from being the God to the Beast. don't know if that's what the author of this treastise is referring to, and I don't know if that was shakespere's intention either -- it's just the impression I had. it also fits quite well in with my idea of self-sabotage, because good conditions don't solve emotional problems, strife, and discord.
+
+Apostle: did well, and offended some.
+Beast: did worst and pleased many.
+God: did best of all, but could not please all.
+
+there's another part that caught my attention there. first of all, the "living branches" is likely a reference to zech 4, which is the "two olive trees" where he was given a reed like a measuring rod, and also to rom 11:17. that's important because heb 10 has the giving of offerings of bulls and goats (ie. the holy roman empire upon which this beast runs, and lord chronos) -- the two pillars, which frame the age of mars, of picsis (shakespere references in king hamlet a ranke woman smelling of fish) and aquaman/epimetheus.
+
+in addition to the impression of Richard II turning into Richard III, I had this strange feeling of familiarity with myself and my present predicament. I mentiond that I was going to title the followup entry, "I don't know what I want" because while I do really desire to create good conditions for others (the party-LAN beast), I know that it doesn't really solve the problem. the author of this treastise is saying that the beast did the worst, but pleased many.
+
+I've been going for "the worst manifestation" for a long time now (it's been in my heart) for a long time, so that's no problem for me, but then the part about pleasing many is troublesome to me, because whom am I pleasing? am I pleasing many in the sense of eve's song? or am I pleasing many in the sense of those running the show, but I there aren't many of them so they're the few on the straight and narrow ("homo correctus") -- not the many.
+
+anyway, that's good for now. I'll talk about the dream after a break, because the dream was a completely different and very unexpected take on the idea of the beast.
+
+[1]: I also noticed a similarity to this story in shakespere's poem "turtle and the phoenix" -- which I'll probably talk about again in the future, because I noticed a similarity between the words turtle and tudor.
+
+[2]: I was going to title the followup entry to the last one "I don't know what I want"
