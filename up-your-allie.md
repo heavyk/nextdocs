@@ -68,7 +68,7 @@ fast forward to today and I don't really thing that's what my goal
 
 
 coi, windows start
-no need for homo correctus (I want to teach how I see logic and programming. it's probably different than the "right" way)
+no need for homo-correctus (I want to teach how I see logic and programming. it's probably different than the "right" way)
 - just noticed there (nance-notes) that programming is the new "warzone" where people are battling for the "right" way to do/program something, is.
 
 ### 2023-01-15 17:05 - follow the white rabbit
