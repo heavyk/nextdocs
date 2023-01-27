@@ -303,3 +303,15 @@ I am that (external perspective - recognising oneself externally)
 that I am (internal perspective - recognising oneself internally)
 
 I'll keep thinking more..
+
+### 2023-01-26 22:50 - ganancias
+
+it'd be cool if you could still vote after the game started, but if you vote the opposite of the winning vote, you get a bonus reward proportional to the odds, inversely proportional to how many previous voters there were (ex. I'm votes 15000-17000/55500, so kinda early on) -- lemme explain.
+
+for example on the "don't count me out game" the 63 - 37, only 37% of the people voted NOP, but anyone in the last 5m there would have probably thought the game was an L, so would have quick voted NOP to gain like a return or bonus calibrated to how far into the vote it is ... meaning like if I vote right before it ends and it's the winning vote, I get back basically the leaves I put in + a tiny tiny bonus -- so no sweat.
+
+this system, if implemented will increaase the number of voters voting because they can always bet safe right before the end.
+
+it's the unexpected results that make a game fun, and rewarding players for unexpected results attracts more unexpected results. more hype, more action.
+
+for, example I voted NOP on that game, I'd be thinking: that tiny bonus is pretty good to keep expanding my leaves. IF I lose my leaves only during a really unexpected turn of events, the emotion of the moment and the clearly justifiedly "lucky" but justified outcome, it feels OK losing my leaves (it's not an unpleasant experience) --  HOWEVER, if I voted YEP -- wow, I get a huge bonus from all of the leaves the quick NOPers jumped in on lost. I believed in thijs!
