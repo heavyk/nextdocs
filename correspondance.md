@@ -315,3 +315,35 @@ this system, if implemented will increaase the number of voters voting because t
 it's the unexpected results that make a game fun, and rewarding players for unexpected results attracts more unexpected results. more hype, more action.
 
 for, example I voted NOP on that game, I'd be thinking: that tiny bonus is pretty good to keep expanding my leaves. IF I lose my leaves only during a really unexpected turn of events, the emotion of the moment and the clearly justifiedly "lucky" but justified outcome, it feels OK losing my leaves (it's not an unpleasant experience) --  HOWEVER, if I voted YEP -- wow, I get a huge bonus from all of the leaves the quick NOPers jumped in on lost. I believed in thijs!
+
+### 2023-01-27 09:17 - from the spectrum where we are (consciousness)
+
+hi russ,
+
+I just got done listening to the last show with marty and seriah. I feel inspired to try and "simplify" the show (and this message) into a single word: novel. now, allow me a moment to oversimplify...
+
+imagine a narrative: a sequence of symbols that progress in clumps of symbolic apparance (eras/acts). the sequence of symbols in these periods/eras is what appears to push us forward in our perception of the past. (we drive forward into the future looking into the rear-view mirror of our concept of how we got here: history). this is the "forward" force.
+
+there is also a "backward" force too but first notice that the forward/backward duality manifests in government/religion, as progress/congress, ahriman/angriman, etc.
+
+the "backward" force is our own conceptual reflection of the narrative. we perceive the reflection of this narrative through our concept of what is "real" and then manifest our concept of this narrative into the spiritual/conceptual world (of ideas/form), which passes into our perception/imagination of it (we can only see things in our imagination that we believe, so this is why the same spiritual entity can look the same to different people) -- and then sometimes, if the emotional/conceptual charge (ie how "real" it feels) is enough to believe it (this is real), we then   manifest it into the physical as a nuts and bolts tangible, physical thing. sometimes it doesn't make it all the way into physical only manifesting as our best interpreation/perception of the conecept/idea/symbol/archetype (depending which angle you look at the concept), which are just higher frequency, meaning invisible to us, vibrations.
+
+now, let's look at the impact/result of the forward/ahriman, backward/angriman, and our own concepts/beliefs (conceptualisation) triad (what makes a plane/dimension): see it? the energy/vibration produced from this intersection cascades down like a fractal resonaance through what we call "time" -- and then *we* (consciousness) manifest that vibration by giving energy/focus/attention to it. that energy from the triad of conecpts interacts with other (existing) slower and slower vibrations all the way down through the spiritual/conceptual, sometimes making it down to the imagination/perceptual (if our brain didn't filter it out), and even further sometimes down into the physical (when it's belivable enough).
+
+let's contemlate now how the most "static" stuff, is actually the most dynamic: existing vibrations, like the stable isotopes composing large rocks and megalithic structures, are the least affected by this narrative playing out over time because harmonics affect higher frequency ones more, so they stay pretty stable, only occasionally losing alignment/harmony (perpetuation) with the high frequency galactic signal/concept that sustains them and decay. however, also note that the big rocks and megaliths are a manifestation of the reflection of our concept of that narrative, so they were/are created in an instant every instant by our collective concept of why those static structures need to be there for the era's symbols to be understandable (make sense). everything outside is an externalisation of ourselves.
+
+for example, let's say the narrative has a sharp decline from high society/technology/society/perception, and then a rapid and much more exciting return back to remembering who "I am" is (you are a reflection of your perception/narrative/concept of yourself). therefore, we find evidence of a destruction of atlantis, sea level rise, destroyed megaliths, gods, angels, demons, etc. we create everything we see each moment as a reflection of how we conceptualise the symbols in the narrative. this is "reality" and it's the way we expect it to be.
+
+---
+
+we manifest the narrative into being. the narrative each individual experiences presently, is *always* going to be the individual's concept of the most exciting/novel reality for theirself (relative to their frame of reference). so, for example -- if I'm a banker, I'm a banker because that's the most I can imagine myself to be "good enough" to experience anything greater, and so I'm living the most exciting/novel life/narrative I can allow myself to experience within the context of my character/soul's concept of itself.
+
+we live in a self-narrated and self-rewriting narrative reality of self-similar self-referential (harmonics) of symbol sequences. each era, has its repeating set of symbols in its sequence, which is the symbolic (non-physical) opposite of our conceptualisation of what happened physically in the previous era. we create the new era when we've finally understood (able to understand/perceive) who/when/what/where "I am" is -- which is who the individual *really* is and what makes the *individual* decidedly different from other self-referencing clumps of consciousness.
+
+I believe that about sums up the last show. please give me your corrections so I can confirm that I'm right about my wrongness.
+
+final thought: ignorance is bliss, right? well, so is understanding: from an emotional perspective they feel the same, but viewed from complete opposite viewports. as a simile to opposite ends of the spectrum being the same concept from opposite perspectives -- allow me to consider the possibility that my being wrong about being wrong all the time is the same as my being right about being right all the time.
+
+another final thought: we consider vibration to have a forward/back, left/right, and up/down motion to it. do you suppose there are other dimensions than just those three, or do you think they are only apparent?
+
+this simplification is a bit novel at this point (few pages on my screen), so I'd like to reserve a time in the future to talk about my theories (which I'm inevitably somewhat wrong about) on how triads and the symbols that we create for this narrative structure appears to us as consciousness.
