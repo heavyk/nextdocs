@@ -207,3 +207,25 @@ hmmmm songs playing while I was writing this was: "zarathustra - embrace your in
 
 OK, cya later, cheers
 kenny
+
+---
+
+the specifics of the scenario don't really need to be super fleshed out, just it needs to give a really good concept idea meanwhile all of the data is being worked out.
+
+personally, I really like the idea of being on the inside of a giant planet. though I have my sights set on galaxy sized, I think it's probably best to start with one maybe solar sytstem in size, figure out all of the things, then put that planet on the inside of the new galaxy-sized planet.. just imagine being able to look out from earth and see mountain ranges across a huge expanse. then, also imagine that perhaps even our eyesight gets so good that we could essentially look out and see trees on the mountains hovering at a distance of about jupiter. talk about a panoramic view that would be incredibly impressive :)
+
+you know, when the vision/concept came to me, I was on earth, and I could look out and my perception wasn't fully locked into my body, so when I looked toward a big mountain range, I kinda flew or floated above them, then could see a race of primitive humans way way down, and then I could zoom/fly in to look at them a little closer. if we're not able to do that perceptually (I'm working on it, btw), we can definitely produce technology that could assist such a perceptive capability.
+
+the thing that kinda gets me the most about this idea is I kinda want to make my own race of humanoids and then figure out another form of perception (working on this one too, btw) where "I" become the species/concept of the new race of hominids. when we think of "I" we think of a single being, composed of many atoms and molecules (of course), but not like millions of individual bodies all interacting with their environment and others. I could imagine creating all sorts of "controls" (not physical ones, but conceptual ones) that sort of implant ideas into their minds in the form of symbols. I would also tie them to cycles (actual and artificial) of mine, so that it would feel like I'm in a constantly ever-more exhilerating dance with them. sure there would be ups and downs, but as a whole, I imagine the experience would be of greater and greater states of ecstasy.
+
+none of that is required to ease the micronova experience, though. I don't really operate on problems; I just find ways to make the things I want to build, possible. and, I like to think about those kinds of things... :)
+
+---
+
+so, in resume, building up the image of what it would be like to live on an earth that is in the centre of a massive structure that is starting to form mountains and a solid structure over the coming decades (and if they could even see that because it'll be daylight 24/7 here), and what it will be like living on earth with one side of the planet always protected from the sun, while the other is very energetic.
+
+I know I personally am pretty good with the sun. if the weather weren't controlled so much, I'd live in a very green and lush temperate environment no matter how much sunlight is hitting us, because I too have weather super powers (you mentioned that was one of yours as well, and I think that stuff is cool) therefore, I'll definitely be living on the "day side" of the planet, and it's going to be pretty much a paradise.
+
+the next thing I noticed is I should probably get rid of the "I'm making a galaxy and sucks to be you if you don't want to join me" attitude. I'll ditch that, repaint the picture of just the earth experience and like with all tech startups, I just know the final product is feasible and awesome, so we'll just figure it out along the way. like, for example, I just don't have enough data to be able to comment to much on the spherical resonator stuff, so we'll have to build instrumentation to figure that stuff out... OK, reaction says, they have the data, it's just not publically available. so yeah, I mean, I know it's possible, it just needs a marketing touch to become a mainstream idea.
+
+as for the earth experience, I mean -- if you're living in austrailia, new zealand or south america and the sun is bothering you -- you'll end up moving -- but I imagine it'll be pretty green an luscious, so the weather will probably be fine. what will happen though is that law of attraction will be going so fast, nearly instant manifestation of thoughts and emotions may be the factor that encourages them to relocate. I don't forsee any problems with climate or weather being a problem though.
