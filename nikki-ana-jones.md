@@ -132,3 +132,78 @@ I stopped listening to the voice because I prefer to work it out and get a few a
 ---
 
 as an example, let's take the negative version of desire. desire is something that you *do not* be/do/have yet (ie vibrational similarity), so the "opposite" of that is something that *do* be/do/have, which is a feeling of sameness, boredom, or accomplishment. easy, right?
+
+### 2023-01-28 10:25 - micronovas and stuff
+
+@[youtube](https://www.youtube.com/watch?v=UFwzt6m6EqE)
+
+just watched the video. I don't disagree at all with ben. in fact, I *do* agree with him. I've actually been following him since 2011. I'm a bit of a catastrophist hipster: I was on the catastrophe bandwagon before it was cool.
+
+my opinions have changed a bit in the last few years though. I've lived through a few catastrophes of my own and found that they're all perceptual. as a result, my perspective on catastrophe has pretty much gone away completely. I no longer see it happening.
+
+what I want to do is different: I want to turn the south pole of the sun toward the sun. that sounds absurd that I would have such an idea, but I'm sorta like that.
+
+as usual, when I desire something, immediately things begin to fall into place for it to become a reality. to illustrate, for some really strange reason I've been fascinated with shakespere, and the more I study it, the more I've noticed that the stories and events are sort of like symbolic simplations (plays) that we sort of play forward in time.
+
+I have [a whole thing on how to describe them](/correspondance.md#2023-01-27-0917---from-the-spectrum-where-we-are-consciousness), but it would take far too long to try and do it in such a short space here, so I'll summarise by saying they're sort of like prophecies -- kinda like the narratives found in cave art and ancient civilisations. for example, if you read the illiad, and when it says menelaus, lover of the war god, this is a reference to venus -- so when he's trying to thrust a spear through paris (mercury), these are astronomical symbols and interactions. the immortal gods are planets and moons personified into a narrative. well, shakespere is no different, IMO.
+
+I'm skipping a lot of details here, but like I said, I attract solutions. one of the things that's always caught my eye is hamlet which is filled with all sorts of strange astronomy (stuff that doesn't make any sense). the other thing is that fotenbras decides to atack a small worthless village in poland for no reason whatsoever. well if you look at the map, for the prince of norway to get to poland, there's a whole lot of germany to go through -- it's not like he only needs to skip denmark. this "mistake" is telling me that something else is going on...
+
+I'll give the summary for it here (look for "john anthony" on youtube if you want to know more), but the figure "four-ten-brasse" is a reference to de vere, which -- long story short, is apollo. due to sonnet encodings, it seems to me very likely that "poland" is actually "pole land" and the tiny insignificant village he's referring to is "[pilce](https://pl.wikipedia.org/wiki/Pilce)". connecting a bunch of things together, I propose that will become the new "south" pole. the north pole is the domain of zarathustra/santa/vulcan, and the south pole is the domain of satan/saturn (the "night side").
+
+the idea here is to point the antipode of that city toward the sun (it's somewhere right off of new zealand: 50° 31' 28" S, 163° 10' 11" W). from that point on, our new "north" pole will now directly point at the sun while we orbit around thte sun, exactly like our moon always points directly at us. (obviously the pole's location is subject to change)
+
+OK, now we know from agnes' interview that the earth is definitely not solid, and certainly is hollow. if you connect that with katie (the choir)'s description of the earth in its infantile stages (formless and void, but then grew mountains), we can combine those bits there and see that the earth is a spherical resonator and the shell/layer we call the surface of the earth (others are the troposphere, LVZ, ionosphere, etc.) the frequency/density of the the sphere is slowed down to such a speed that it produces silicates (rocks and mountains). the irregular conditions of the solar wind hitting earth causes irregular shaped land masses and mountains with tons of energy coming out of them.. (the solar wind flexes those spheres, sometimes raising or lowering the ionosphere, and causing those major earthquakes cause the crust sphere is getting flexed in either expansion or contraction -- like breathing).
+
+my goal is to keep those spheres regular in both size and density for a time (maintaining the physical layer of rocks, and not becoming less dense (etheric) like a "gas giant"). we would keeping the spheres stable for an undetermined period of time (at least a few decades).
+
+then, while the sun is bombarding our new north pole, this will cause the magnetics to align to that as the new pole and all the energy will go directly in instead of the solar wind brushing over the top and bottom of the planet (creating auroras like they do now). because all of the energy from the sun would be entering directly at the pole and passing down into the planet, and it'll get distributed along the crust and then come bursting out the equator..
+
+for a human, this would be the equivalent of getting a massive inrush of energy into the south (sexual) pole or the north (crown) pole. the human aura espands and increases in frequency. well, same thing for the planet: the whole planet will become more energiesed and we will no longer have nighttime anymore because the air itself will have a luminous quality to it -- even on the "night" side of the planet. it'd basically be daytime all the time.
+
+now, when I've looked at this concept, one of two things happened (and I don't know until we've started). I'll describe them both.
+
+#### situation 1: earth on the inside
+
+the first scenario I've seen is that we kept the spheres of the planet constant, but the pressure from the incoming solar energy on the spheres will continue to grow. at some point so much pressure will grow (ben said 2030-2040) to such a point where we'll need to do somethting. I propose that once enough pressure has built up, we release it and it expands so rapidly that it would go well beyond our solar system.
+
+instead of all of that energy blasting us to bits in a micronova, the planet now, like a microwave transformer, is just transforming the solar input energy, and the micronova shell would extend out of earth in those spheres. let's say that we decide to halt the expansion of that energy somehow (I don't know how) and limit its size and density like it is now, I wonder if we could make cause mountains to form like katie's description of earth in her early stages... tha'd be pretty dope right? imagine living on the inside of a planet that's larger than a solar system. it'd require a lot of pyramids and stone structures to stablise that energy -- a project for future megalithic archiectes to consider, cause I'm just relating the general concept as it came to me.
+
+I think it's cool to, like my life catastrophes, repurpose the energy that I was previously a victim of, to instead make a REALLY BIG planet. how big, I don't know, but I'm thinking really really big ([greater than the sun?](https://youtu.be/YfYeD9Bb0Mg)).
+
+since earth is now on the inside of this expanding shell, we can think of ourselves now as being at the centre of one of those lenticular(?) galaxies -- and whether we can slow that outer shell down to mountains, I don't know, but it would be a shell. the other bodies in the solar system (and even potentially in this galaxy) would be joining us on the inside of this.
+
+each stellar body has a resonant frequency, and if the earth becomes sympathetic with the body or them with us, we will maintain distance from it (neither attracting or repelling it), and so we can essentially control using devices like the great pyramid to affect the vibration of the earth, to control the "destinies" of the objects orbiting in relation to us. we'll have full control over how close all bodies are from us and their orbital period.
+
+also, I imagine at some point, earth's inner star (which should be very dark or black because of it's high frequency vibration) will have to be ejected from the planet (pops out the pole that's opposite to the sun at it's other pole like a woman giving birth), and I figure for a normal spiral galaxy, the the previous sun becomes the input to the opposite pole. so if we're gonna push this one out the north, we'll maintain distance to it like the moon to us and then when the next star is ready, we'll pop that one out the north. alternating between the two, we eventually end up with a string of stars, and their vibrational interactions will eventually create macro rotation of the galaxy.
+
+#### situation 2: flat earth
+
+the other way that I saw it working is quite a bit more interesting: same setup with the earth orbiting the sun with one pole facing the sun. however, instead of letting the energy cause the spheres to expand, instead, we let all of those silicates start to ooze out of the equator. it would be a GIANT volcano that goes all the way around the planet. the magma would ooze out and eventually solidify into rock. obviously it would keep expanding for as long as our sun and inner planet continues to make more energy. this time, instead of micronovaing, we'll allow the sun's output to produce essentially a massive equatorial disk with a mountain in the middle (which is earth).
+
+one side of earth will face the sun, and the other side will face away from the sun. the thing that I like about this idea is that it'll allow the earth to expand indefinitely. for example, I don't know if the sun is expanding or if we're getting further from the sun, so I can't say much about this from that point of view. however, if we wanted to do the flat earth idea, we could keep ourselves at a distance from the sun allowing it to continue to increase its size and output indefinitely: if the output is too high, we just move further away from the sun. we could essentially control the rate at which the equatorial stone platform would expand.
+
+I thought that idea was super cool because that could provide the neo-phonecians (ie denmark) to have a whole bunch of things they can keep secret, like for example new humans on the disk wouldn't ever see a sun. it could be pretty fanciful, but hey, I love to dream :)
+
+#### situation 3: giant hollow planet orbiting around our sun
+
+this situation is again the same setup as situation 1, but the difference is the sun stays on the outside of the planet. we orbit the sun as it's 3rd moon (after mercury and venus). I have no idea what to do with the p-orbitals (saturn, jupiter, uranus, neptune, pluto, etc.), -- and I haven't really thought it through very well yet, cause the idea was inspired by a tatoo on my beautician's arm. it was a *galaxy* that would have orbited a pretty large sun to be able to have, (from the outside looking in, so say from pluto's perspective), the disk of the galaxy depending on its orientation to the sun would either be fully or partially illumiated.
+
+the reason why I haven't thought about this idea more is because I can't even visualise the moon's orbit around earth in relation to the sun, so even less am I able to visualise how a large disk would sorta orbit, and as it rotated, its own disk cast a shadow on itself.
+
+so imagine a coke bottle cap and you shine a flashlight at the top of it, then as I rotate it so that the back is facing the light source, I can see it casting a shadow on itself... OK, now applying that to earth, imagine that we orbited around the sun like usual, but because we're now oriented like uranus, every period (84y for uranus), one side of our planet/galaxy gets illuminated.
+
+I dunno about this idea... I can't really see it, but the idea resonated with me when I first saw it. maybe this is a strawman idea. I dunno.
+
+---
+
+anyway, the whole reason why I wrote all of that is to say that I'm fairly certain that we can repurpose the solar energy and we don't need to be a victim. as I've changed my perception of past catastrophes in my own life, it's easy for me to come up with ideas to repurpose the solar energy to create something bigger. this is *literally* the story of my life -- and I know that this universe is fractal in nature, so if I can find a way to repurpose my past catastrophes by attracting what I want, I see no reason the the planet couldn't do the same thing.
+
+I'm done yammering for now. I know it sounds funny to say I want to make a galaxy instead of getting blown to bits -- and it really is up to anyone who wants to join me.
+
+I also know that this next statement I'm about to say will sound weird too, but I'm pretty certain that *I* will be able to find a solution to the situation and I will be creating that reality. those that want to create for theirselves a different reality, in my perspective can live out their disaster fantasies on a planet inside my galaxy :)
+
+hmmmm songs playing while I was writing this was: "zarathustra - embrace your insanity" and "we are the chosen ones" -- interesting song synchronicities... who would have thought there could be more than one "chosen one"
+
+OK, cya later, cheers
+kenny
