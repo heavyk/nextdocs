@@ -347,3 +347,28 @@ final thought: ignorance is bliss, right? well, so is understanding: from an emo
 another final thought: we consider vibration to have a forward/back, left/right, and up/down motion to it. do you suppose there are other dimensions than just those three, or do you think they are only apparent?
 
 this simplification is a bit novel at this point (few pages on my screen), so I'd like to reserve a time in the future to talk about my theories (which I'm inevitably somewhat wrong about) on how triads and the symbols that we create for this narrative structure appears to us as consciousness.
+
+### 2023-01-27 23:00 - ro ki
+
+6:18 - when you're reading ro ki, an image appears in my brain of helen/diana/eve as explained by alan in the conclusion of the fisher kings act 2: https://youtu.be/0_9TyxAmwDQ?list=PLIe_MWXIGGHRsJo2tsg2nIGD31OudT1q1&t=1034
+
+the idea here is that the siege of troy by the trojan horse is what forced a change in many power structures (kicked out of eden/troy), and that started a new era. this is obviously pointing to what happened with bacon's "new atlantis". well, ki is the earth as in en-ki (lord of the earth), right, so when you're saying "ro ki", I can clearly see the rose as hellen and ki as troy. in addition to that tau/cross is also a symbol of the earth, so ki being a reference to earth also works there too. my intinct says that this is the south pole (rose) of earth, the domain of lord chronos (Time).
+
+---
+
+also, I'd like to mention that in hamlet one of the characters is four-ten-brasse. the word brasse has references to de vere, and so does brasse. looking there might strengthen your "fortis" argument. I know there's something to the "brasse" thing, but I haven't figured it out yet. well, what comes to mind right now is the dream where daniel sees a statue made of material, one being brass. dunno if it's anything.
+
+pilce (eclip backwards) is apparently a place in poland (probably where for-ten-brasse is going to conquer).
+
+https://pl.wikipedia.org/wiki/Pilce
+https://en.wikipedia.org/wiki/Fortinbras
+
+### 2023-01-28 00:29 - another TT
+
+6:18 - there is another TT I think you may have missed. 121 has T, and so does 122. 121 is 11x11, so this shows me that 121 is also a TT code.
+
+in addition to this 121 reads "T IS". so, if we have the other 3 T's and put them together, it reads "TT" and "T IS" which clearly spells FORTIS (which, of course is located on top of 'W'). however, that's only 3 Ts. I know because of the 11x11 there's a 4th in there somewhere -- so, where is the 4th T? (I don't actually know. I'm just saying it looks like a clue to me)
+
+18:58 - also notice the "Or" looks pretty much like a "CT" to me. C+T is 22, and 9+1+0=1 so you can see the sequence in reverse now: 122. 18. 122. -- seems significant to me.
+
+now, after thinking about it, my intuition tells me that the 4th T is probably "taurus mountain", ie the great pyramid, which is also the cross of the earth. (which is in cai-ro)
