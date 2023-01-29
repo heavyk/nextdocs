@@ -283,4 +283,119 @@ so anyway, when I look it it, I actually see myself from the conceptual-I standp
 
 the whole entire thing of the 3rd ray perspective (which I now understand), stands in stark contrast to the 5th ray perspective. the 5th ray, because it's occulted by the 3rd ray and viceversa (like the earth will be soon as well), it's impossible to see the 5th ray from the 3rd ray perspective. between these two and in the centre is the realm of saturn, the 4th ray (which I also understand) -- so I'm commenting from an even more outside perspective that the conflict of perspective is such a massive creator of contrast. the 5th ray seems to defy all of the rules, because the 5th ray (and 7th) is all about tuning. you get the signal you tune to, so a 5th ray, when able to tune really well, is like a god and doesn't need to obey the rules because rules can't hold tuning back. it's the "internet" of the universe and all layers of reality. we'll learn to interface with this universal internet too, because that's what this technology I'm looking to create sets out to do. forget about electricity, we're going the material-I route and communicating with simple vibrations -- if only we could find a zero....
 
+### 2023-01-29 03:07 - hee vs he
 
+I went to look up how I noticed that hee/shee/mee is a different body than the physical she/he/me, and I started reading john 11 in the 1611 KJV ([where I first noticed it](/correspondance.md#2021-12-09-1347---to-be-or-not-to-be)):
+
+    11:25 Iesus said vnto her, I am the resurrection, and the life: hee that beleeueth in me, though he were dead, yet shall he liue.
+
+I notice that jerusalem is called Hierusalem, and it appears obvious to me that this is talking about hi-ram's temple in jerusalem. I also notice the title on the page reads: "Lazarus dieth,and Solomon is raised to life."
+
+OK, so I'm reading along and the "Iesus wept." verse is really bothering me because it's evident that jesus is making a big show out of raising lazarus from the dead. I find it completely impossible that jesus would go from having complete confidence that lazarus is asleep, to weeping and groaning in the spirit from grief.
+
+the narrative appears to me like this...
+
+    And I am glad for your sakes, that I was not there (to the intent yee may beleeue:) Neuerthelesse, let vs goe vnto him.
+
+I know that you guys don't believe unless you see a giant ceremonial show, so for the intention that you'll belive, let's go and make a show. (notice the smilie face)
+
+    (Now Bethanie was nigh vn-
+    to Hierusalem , || about fifteene fur-
+    longs off:)
+
+there are three characters here: Bethanie, Mary, and Martha. bethanie is something nearby to hi-ram's temple, but not quite it -- about 15 furlongs (some 3km) off of the mark. (which is probably where the temple mount is presently)
+
+next, we need to split beth-anie and notice that there is a really werid problem where "vnto" (only 4 letters) is split, cause supposedly there isn't enough space, but there's a huge space there for the page note:
+
+    That is,
+    about two
+    mile.
+
+the thing is, it's saying "two thousand" (mile is thousand, cause the author would have put "miles" if it were the measurement). so, we put that back into the verse:
+
+    (Now Bethanie was nigh vn-
+    to Hierusalem , about two thousand fur-
+    longs off:)
+
+I do a search for things about 400km away from jerusalem, and there's giza. interesting, I thought. back to the girls...
+
+    4 When Iesus heard that, hee said, This sicknesse is not vnto death, but for the glory of God, that the Sonne of God might be glorified thereby.
+    5 Now Iesus loued Martha, and her sister, and Lazarus.)
+
+the picture in my mind here is loved as in sex... now remember my other theory of how jesus self-sabotaged his crucifixion in the celebration before? well, same thing happens again here. he loves a girl (in this case two of them) that are emotionally charged and don't actually understand the concept of "I AM". I'll go over it really quickly.
+
+when you know your identity (who you *really* are), that is hee you're looking at. however, when you're looking at your physical self, that's he you're talking about. the eternal you (shee/hee) continues beyond death and so doesn't perceive anything going wrong in the present moment. verse 5 is the pivotal moment there when something happens and jesus has a sudden and dramatic change in his emotional reactions to things. after that verse, he loses connection to his hee, and it shows.
+
+they go down to the grave and marta is like:
+
+jesus, if you would have just stayed here with us (instead of galavanting aruond with your "disciples" out there), he wouldn't have died.
+
+jesus is like: don't worry. I got this: whatever you ask for *is* given. he *will* rise again.
+
+so then marta is like: yeah, of course he'll rise again on resurrection day -- everyone knows that.
+
+and so jesus responds: knowing who you really are is the resurrection and life. you cannot be killed. anyone who belives in who "I AM" is, even if the physical body is dead, will still live.
+
+marta is totally lost, so jesus continues: and so then imagine someone who is *alive* and believes in who "I AM" is, (that you still live on eternally), knows they cannot actually ever die. do you believe in your "I AM"?
+
+so marta is like, yeah totally jesus -- you're the *CHRIST*.
+
+marta runs off all excited and I imagine jesus sighing and shaking his head here thinking ... man, she totally doesn't get it.
+
+marta tells mary that "the master has come and he beckons you". mary gets real excited and runs to go meet him.
+
+---
+
+after this there's an interesting wordplay with the word "towne". it appears to me as vagina. in the first part of this chapter, the characters are introduced as beth-anie, the "towne" of mary, and her sister marta. later on, it defines beth-anie as the great pyramid (as above, so below), and now we're going to see its reflection:
+
+    Now Iesus was not yet come into the towne, but was in that place where Martha met him.
+
+I don't know how to read this properly, but basically there are two things going on here. first there is a rose, and second a town.
+
+    Assoone as she heard that, she arose quickely, and came vnto him.
+
+    Now Iesus was not yet come into the towne, but was in that place where Martha met him.
+
+    The Iewes then which were with her in the house, and comforted her, when they saw Mary that she rose vp hastily, and went out, followed her, saying, Shee goeth vnto the graue, to weepe there.
+
+I can't fully tell what's happening, so I'll just say what I see, which is that the grave is something to do with the subterrenean chamber, and the groaning is also a part of it. something about a rose as well (I'm sure someone can figure it out). there's also a lot of "comforting" of mary and marta by the jews as well...
+
+anyway, what I want to point out is that it looks like one set of them hee/shee are performing a ritual, probably in the great pyramid, and the other ones are putting on a show for the jews.
+
+so then mary finally gets to jesus now and says basically the same thing: jesus, if you would have only stayed with us instead of going out whorring -- I mean dicipiling so many, lazarus, who you really love, wouldn't have died. she gets really emotional and starts weeping.
+
+remember that jesus has had some loving connection with marta saying those same words, and so now he's sympathetic to her weeping, and it suddenly causes him to start weeping now too with her. the groaning at the tombe is mirrored in beth-anie as well by shee and hee "troubling himself".
+
+after all of the groaning and weeping, jesus jumps into action -- Where is he?
+
+they respond: he's dead dude, come and look ...
+
+and just then a powerful vision came over jesus in which he could see lazarus as the vision showed him to him, and seeing the vision that was being conjured by those in beth-anie, he could feel all of their groaning, and weeping as well.
+
+jesus was completely overcome by the experience, and action man crumbles to the ground weeping. he had completely lost his "I AM" perspective of the situation.
+
+the jews, looking up can see all of the weeping and groaning going on, and say, "wow, look at that... huh" "so that's how jesus 'loved' lazarus ... interesting"
+
+the ones that didn't see the vision and only saw action man jesus crumpled on the floor in a puddle of tears says: yeah right, this is the guy that made the blind man to see by rubbing spit into his eyes... right...
+
+this was all part of the show. pump up the doubters so that the next part is even more dramatic:
+
+Take away the stone from the grave! jesus shouts
+
+marta is like dude, it's gonna smell real bad... let's just leave it closed.
+
+jesus responds assertively: NO! I came here to make a big show so that you all would *believe* (in the things you see) get ready for some GLORY (of God)
+
+Didn't I tell you that [in michael jackson voice], if you would only *believe* -- you'd see the GLORY? (of God)
+
+so while the poor workers are hauling off the massive stone on top of the tomb, jesus is prostrate in front of the tomb with his eyes closed. he appears to be praying or something really hard.
+
+he lifts up his eyes, puts his hands in a prayerful pose and looks up toward heaven: Father, I know you've heard me. You're always there for me bro. I owe ya one big guy.
+
+jesus, feeling confidence again, peers into the grave and says, "lazarus, you can come out now"
+
+just then, jesus' long lost friend levitates out of the tomb and floats toward jesus resting finally on the ground in front of him.
+
+zararus is completely bound in mortuary linen, so jesus undresses lazarus and sets him free.
+
+the end.
