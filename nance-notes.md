@@ -1071,6 +1071,21 @@ I'm unstoppable, not like shylock. you'll see. it'll happen eventually. now, tim
 
 ### is "she doth call me husband" (comedie of errors), a reference to helena?
 
+### 2023-01-31 00:42 - two gentlemen of verona
+
+in this play, I was thinking about the symbols, and I can see a pretty clear application. imagine I'm valentine, zaryn is proteus, sylvia would be a project that I want to do, and julia would be whatever zaryn was working on.
+
+in a lot of ways, my own projects (sylvia) have forced me to figure out how to love myself. I've explained over and over that technologies, especially communication networks, are reflections of our own perception of the world.
+
+for example, the other day I was talking with jaron about rondevu (I website I was going to work on with zaryn back in 2006) -- a project I quite liked, as it fit in quite well with my idea of finding other people that I would be interested in hanging out with.
+
+well, here's the thing: I couldn'g find other people to hang about with, not because there weren't other people out there that I couldn't get along with (lol, triple negative) -- but because I didn't yet know and love myself. I was unrelatable to other people because I was unrelatable to other people. I wanted to build a technology that could fill the void of my own inability to understand myself.
+
+as I began to understand myself and how emotions and my concept of reality is central to how I perceive myself and others, I began to realise that the common denominator in the whole equation is myself. that was what I was really looking for -- not the technology.
+
+as a result, if zaryn were to come to me and say, I want sylvia, I'd totally let him have her because I already found myself and I don't need sylvia anymore. I totally understand the ending. it makes perfect sense to me.
+
+### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
 
