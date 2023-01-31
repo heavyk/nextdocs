@@ -31,3 +31,5 @@ in this study, I wish to outiline different aspects of a new perspective on play
 - attempts to perform the absurd
 - naivate of one's own miserable condition
 - games and simulation (play within a play) where the games theirselves illustrate the elements in more amplified way
+- brief moments of introspection where the character realises they're making their own problems
+- silly/ridiculous solutions to self-created problems and lots of bad advice
