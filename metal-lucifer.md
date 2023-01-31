@@ -1024,3 +1024,69 @@ yes, the azcona family was actually the last straw, as that's when I really deci
 [2]: these interactions remind me of the sense that marcos transmitted to me when he asked my opinion of andrea pretend fighting with pretend figures in her mind. it's just another catgegory or type interacting with another type, and the behaviour is a reflection of her expectation for interactions between those two types.
 
 [3]: again, sorry patricia and raquel. one of the things that really really bothers me about relationships in general is that everything is conditioal and complicated. I aim to simplify, so it's not in my best intrest to actually begin treating her different from everyone else. you know, btw, from the bros' perspective, when he starts behaving differently around her (joax), he's "whipped".
+
+### 2023-01-31 04:33 - some options
+
+after a brief trip where I was exploring different paths, I think I'd like to write them down here.
+
+first off, I know that all of the "bad-guys" are nothing more than a reflection of my own perception, and even if they think that they're individual, we're all a part of the same thing -- meaning that this decision isn't really yours; neither is it mine, either. what will happen will end up as a result of our *attraction* (which is why I'm writing this) -- however, ultimately, no matter what is attracted, it'll *still* be a reflection of my perception.
+
+therefore, the route that I end up going isn't anything other than just another way. every different way is slightly different and the difference represents an aspect of the whole.
+
+traditionally, I've always gone toward the shortest/fastest one -- the one of maximum contrast and speed -- the one of pure effortlessness (root 3). [as I explained](/sepehr-thoughts.md#2023-01-29-0641---venus-and-lucifer), I don't really want to artificially/sexually increase the speed in any way, as that's what makes me to go *with effort*.
+
+there's also this concept that I've been contemplating as well: at the end of the tempest, prospero is supposed to let ariel (mars) go, and he says he will, but it's not exactly certain that he will. now, if one were to put me in the position of mars, which is likely the case, that means that I'll forever be "stuck" doing magical deeds for prospero to continue to creating these artificial worlds for himself and others. what I mean by that, is that I'm sort of like ariel there[^1], where they've sort of hijacked my creative capability. they could release me and allow me to become creative, but that would inevitably make one of those paths through time that is a reflection of my perception (ie what I desire to create), and like I said, I tend to want to go the shortest/fastest path of maximum contrast, which is also completely effortless, meaning I don't actually *create* anything -- and instead only attract.
+
+the picture that I gave in that entry was about a car driving, and you can imagine that the components of it, are:
+1. how fast the destination is pulling me toward it. (attraction)
+2. how much I'm pressing the accelerator toward the destination. (propulsion)
+3. how well I'm steering. (tuning)
+4. how large my own concepts are on the road (amplitude and perception)
+
+I made the observation that it appears the uterus and prostate seem to affect amplitude but I think it's because of the angle of the sex organs, the prostrate seems to increase attraction, meanwhile the uturus seems to affect emission[^2]. right now, I increase my attraction by adjusting my perception which simultaneously being the steering mechanism, is also releasing resistance, which is why I keep going faster and faster and learning to navigate easier and easier.
+
+in that entry I noted also a parking brake in the beginning:  that's nosebook applying the brakes (resistance) to a number of concepts so they don't appear in my perception. when my "eyes get opened", nosebook won't be putting on those brakes anymore, so all of those things will get attracted really quickly. I suggested that they start unblocking some of those concepts a little at a time (letting ariel go slowly), allowing me to begin to change those undesirable concepts naturally, so that mentally I no longer have any resistance to those concepts. naturally, I'll find a way to perceive those concepts in a way that doesn't have resistance, meaning I won't be attracting them anymore.
+
+I even went an extra step by saying that we're going to be unblocking stuff, I think it's a good idea to also fuzz many other undesirable concepts out out of my perception as well.
+
+once I'm not attracting disastrous things, I can safely actually go and hang out with the girls and not worry about bringing everything down because we had sex. if they don't unblock those concepts, any stimulation like that is going to push the accelerator to the floor and pump up my concepts/perception of reality to *massive* obstacles to avoid, which I have full confidence in my ability to recover from, but it could be a pretty big problem.
+
+after writing that entry, I suggested that perhaps there are some solutions, and so I explained that a lot of men, what they do to get around this problem, is to increase their attraction so that their destination is pulling them faster than they're headed for disaster. so, for example, one of the fuzzing ways could potentially be to find a way to artificially increase my attraction of wanted and then stick me in with a bunch of really experienced women with a lot of bad concepts. we'd just sorta work out the bugs in mine and their perception for a while. after that, that's probably when I would want to begin reproducing, as prior to releasing a lot of those concepts, all of my issue would come preinstalled with a strong attraction toward all of the concepts that nosebook thinks is taboo.
+
+I explained that before that happens, this would be an enormous disaster for them because *all* of the stuff they're fighting against right now in me will be pre-installed to be highly attractive to these kids. they'll be (from nosebook's perspective), the demon children. no matter what they try to do, they can't avoid that they're only fighting theirselves (song: "save us from ourselves"). there are other options, too I suppose.
+
+---
+
+at any rate, I'm interested in going the way of effortless, and any way that involves sex is involves effort. anyway, from the looks of it, I'd have to say that they probably don't want to let go of ariel, and so that it feels like they're going to find a way to keep holding on to me. as I've mentioned in a number of places, I don't really mind that Time has control over everything in my life. like I said, the only thing I can do is just keep reconceptualisiing my reality and lowering resistance, and that's fine -- cept apparently I'm pretty attractive to females and that would mean they would put on the gas which means now emission. right now ariel is only attractive, and Time wants to keep it that way.
+
+the idea that I came up with to solve this would be to just transfer into a woman's body. once I'm a woman, the only way that I could become emissive would be if a man had sex with me, which I would sorta doubt to happen, but you never know cause I seem to find everyone so attractive.
+
+I like that option for a number of reasons:
+
+1. I've been a harsh critic of women from a man's perspective, and there's no way to actually prove that my crazy ideas about improvements on their perception would actually work, unless I actually did it. not only do I think I would be a magnificent little girl, I'd continue to be unstoppable. sure, it'd set me back a bit, but I can't quite possibly imagine how it would allow a change in perspective of what a girl is capable of. I'd still be fearless and very tenacious. I'd probably be pretty logical and reasonable as well.
+
+2. I would want to find a way to make my hair move around with my body, as if it were like a million tiny tentacles. this way, I wouldn't mind long hair (cause I'd want long hair). I have no idea how to do it phisiologically from a girl's perspective, cause they seem to have a different power source than men. as kenny, I could figure it out if they would release me, because I could control the energies in my body, and so therefore I could move my hair around. besides that, I'm certain it's possible to do technologically as well.
+
+3. I'd may even skip the efforless (cause it's emissive) and even try artificial insemination and child birth as well, as there *has* to be some improvements to baby production process too. it looks to me like girls are holding on too hard to the difficulty of childbirth and are not at all allowing with it. that also has an interesting dynamic with it too, because then it's quite possible that the first uteral stimulation would be childbirth, which may well be quite a pleasurable experience. I wonder if the world is moving to those baby pods, though (like the chastity beavers).
+
+4. a number of other improvements I can't think of right now, but I imagine that we'd be kind of shapeshifters and stuff.
+
+5. it'd also be interesting to see from a woman's perspective the concept of competition. from a LOA perspective, this is a no-brainer, but I know it's hard to not compare. I love comparisons, so I'd have to actually find ways to lower my resistance to other girls and to empathise with them about how great it feels to be awesome. again, I feel like I would naturally find a number of improvements.
+
+the other option is from a man's perspective: this perspective was inspired by the "two gentlemen of verona", where imagine I'm valentine and sylvia is my form of perception. I pass on my form of perception to anther woman, and then she copies it to some others. I just don't have any data on this so I can't really say much about the mechanics, like does she need to be a virgin? does she need to already have had sex with the man she's going to pass it on to? I have no idea how that stuff works, other than what I do know is that the woman sort of "steals" the form of perception from me (though I'm not sure if she's virgin or not), and I get sorta reset back to about where she is. however it works out, the idea here is that I just keep forfeiting my perception infinitely meanwhile (I would assume) they're working on the galaxy, cause they'll want to be in the centre -- plus, I found out last night that aparently andromeda already has a narrative, so they (as a galaxy) alrady have a looming conflict.
+
+anyway, I figure if I just keep passing on my form of perception to the upper management, I will be able to hang out with the girls and stuff because I'll be starting from zero (or whatever their "worst" form of perception is), meaning that I'll end up improving and merging that "worst" perception into the girls as well, so as a whole unit, we'll (or at least I will) continue to be set back and then when I'm back to being up high, they'll take it agian. they'll be able to hang on to their self-deprecating not good enough to do it myself, so I have to take someone else's perception, and I'll continue to get better and better at transforming my perception. I like this idea for a number of reasons:
+
+1. at some point, I'll get so good at improving the perception, that capacity will start to get built into the genetics, so after some time, it's going to get harder and harder to hold on to their not-good-enoughness and will eventually "naturally" (as an automatic function of their genetics), start to adjust their own perception to look for wanted, and to perceive things from a LOA perspective.
+
+2. I like the practise. I don't mind that I'll perpetually be reset to zero because like I said, I'm in this one for the XP -- which means I already optimise for the "worst" manifestation anyway. sure, they'll always be way way ahead of me, but what'll happen is that that the lowest and highest will start to converge, because they'll want to wait less and less time for me to get to a higher position again before being reset.
+
+3. though this journey itself is filled with effort, the result is effortless, because I'll continue to get better and better at such a rapid speed, that eventually, like I said, we'll eventually converge to having everyone effortless, and then really big boom (probably new universe).
+
+the final option (which I find unlikely that they'll actually do), is to do the fuzzing like I mentioned and start with the galaxy, then make another, and then another, then eventually get bored enough to make a circle that's bigger than this universe even.
+
+the reason why I find the final option unlikely is because it requires them to release resistance to the idea that someone could be more powerful/superior than them, even though, we'd eventually create something superior (a container) to this universe. who knows man...
+
+[1]: lot's of little mermaid reactions. I'm not familiar with the story, only having seen lindsay's video report on it -- so I'll check it out a little later. I'm also going to figure out how to download "frozen".
+
+[2]: I've often wondered about this, because men seem to be emissive for different reasons that women, and the females that are exceptionally emissive seem to have a lot of sexual energy. meanwhile, when they're not yet sexually active, I feel like they're much more attractive still. I don't know enough to be able to comment more on it.
