@@ -384,9 +384,9 @@ Take away the stone from the grave! jesus shouts
 
 marta is like dude, it's gonna smell real bad... let's just leave it closed.
 
-jesus responds assertively: NO! I came here to make a big show so that you all would *believe* (in the things you see) get ready for some GLORY (of God)
+jesus responds assertively: NO! I came here to make a big show so that you all would *believe* (in the things you see); so, get ready for some GLORY! (of Geld)
 
-Didn't I tell you that [in michael jackson voice], if you would only *believe* -- you'd see the GLORY? (of God)
+Didn't I tell you that [in michael jackson voice], if you would only *believe* -- you'd see the GLORY? (of Geld)
 
 so while the poor workers are hauling off the massive stone on top of the tomb, jesus is prostrate in front of the tomb with his eyes closed. he appears to be praying or something really hard.
 
