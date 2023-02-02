@@ -797,7 +797,7 @@
 
 #### sonnet-23 - modern
 
-    As an unperfect actoron the stage,
+    As an unperfect actor on the stage,
     Who with his fear is put beside his part,
     Or some fierce thing replete with too much rage,
     Whose strength's abundance weakens his own heart;
@@ -1229,7 +1229,7 @@
 
 #### sonnet-35 - modern
 
-    No more be grieved atthat which thou hast done:
+    No more be grieved at that which thou hast done:
     Roses have thorns, and silver fountains mud:
     Clouds and eclipses stain both moon and sun,
     And loathsome canker lives in sweetest bud.
@@ -1265,7 +1265,7 @@
 
 #### sonnet-36 - modern
 
-    Let me confess that wetwo must be twain,
+    Let me confess that we two must be twain,
     Although our undivided loves are one:
     So shall those blots that do with me remain,
     Without thy help, by me be borne alone.
@@ -1301,7 +1301,7 @@
 
 #### sonnet-37 - modern
 
-    As a decrepit father takesdelight
+    As a decrepit father takes delight
     To see his active child do deeds of youth,
     So I, made lame by Fortune's dearest spite,
     Take all my comfort of thy worth and truth;
@@ -1337,7 +1337,7 @@
 
 #### sonnet-38 - modern
 
-    How can my muse want subjectto invent,
+    How can my muse want subject to invent,
     While thou dost breathe, that pour'st into my verse
     Thine own sweet argument, too excellent
     For every vulgar paper to rehearse?
@@ -5555,18 +5555,16 @@
 
 #### sonnet-155 - modern
 
-      
+
 
 #### sonnet-155 - 1609 quarto
 
-      
+
 
 ### sonnet-156
 
 #### sonnet-156 - modern
 
-      
+
 
 #### sonnet-156 - 1609 quarto
-
-      

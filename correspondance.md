@@ -372,3 +372,25 @@ in addition to this 121 reads "T IS". so, if we have the other 3 T's and put the
 18:58 - also notice the "Or" looks pretty much like a "CT" to me. C+T is 22, and 9+1+0=1 so you can see the sequence in reverse now: 122. 18. 122. -- seems significant to me.
 
 now, after thinking about it, my intuition tells me that the 4th T is probably "taurus mountain", ie the great pyramid, which is also the cross of the earth. (which is in cai-ro)
+
+### 2023-02-02 08:42 - vere and bacon
+
+@[youtube](https://youtu.be/ye5JCbg1h00)
+
+I notied another one: 8:48
+- in the last paragraph, count 11 words before "rose" is the word "crosses".
+- in the middle paragraph the word "reproose" (it looks to me like rose), and count 11 words before it is "VVitch". notice how both words are partial: "VV" on one and "roose" (rose) on the other.
+
+---
+
+in addition to that, the colours red and white are mentioned numerous times. in rape of lucrece, it is lilly pale (white) and red rose. in venus and adonis, it's "More white, and red, than doues, or roses are". I know that white and red also shows up in turtle and phoenix and a number of other places. considering the english flag at the time (a red cross on white), this is another reference to red/rose cross.
+
+6:56 - also notice the that you're talking about the ark of the covenant and solomon's (who is said to have had 1000 loves) "temple" and the "ark" (which we all know is the Rose). anyway, the line right below (17th line), it says, "A thousand honie secrets shalt thou know:". the 18th line has serpent (S) in it and H -- but I don't see a "T" on line 19.
+
+finally I'd like to note that my theory of why the initials of francis bacon are on the rape of lucrece is because it reads like vere being woo'd by francis. when I read it, it's like readying a testimony of something that he thought would be awful, but it turned out to be not what was expected. vere was probably the "golden ass" (nick bottom), and francis was let's say the "motor".
+
+I can really feel it when bacon says: "VVhere thou with patience, must my will abide" ("will" = "pen") followed by the lines where bacon says: "My will that marks thee for my earth's delight" (notice how he writes it like he (saturn/bacon) owns the world), then "VVitch I to conquer sought with all my might". now, the instructions to maintain secrecy and not to listen/heed friends: "But, VVill is deaf and hears no heedful friends" -- however, to me this concept comes through with two voices: on bacon's voice sounds like instructions, but in vere's voice, this is him accepting of the shameful situation and disregarding of scorn and advice from "friends".
+
+there's another thing that I'd like to mention in regards to this: there is a common triad appearing of venus, vulcan/zarathustra/ganymede and mars/aries/ariel that shows up over and over. the other triad that shows up is venus, adonis/saturn/Time, and mercury/Speed. when I look at the concepts for them, I consider that vere is eqating himself with venus and, bacon with adonis/saturn/Time.
+
+24:57 - notice FB is on top in the first sonnet and VV is on bottom... just sayin...
