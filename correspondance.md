@@ -394,3 +394,27 @@ I can really feel it when bacon says: "VVhere thou with patience, must my will a
 there's another thing that I'd like to mention in regards to this: there is a common triad appearing of venus, vulcan/zarathustra/ganymede and mars/aries/ariel that shows up over and over. the other triad that shows up is venus, adonis/saturn/Time, and mercury/Speed. when I look at the concepts for them, I consider that vere is eqating himself with venus and, bacon with adonis/saturn/Time.
 
 24:57 - notice FB is on top in the first sonnet and VV is on bottom... just sayin...
+
+### 2023-02-02 14:22 - video 42
+
+@[youtube](https://youtu.be/goW0-zrXoK0)
+
+8:40 - for me this jumps out as: "TH e ver" -- same result, just he' s identifying himself with TH on the 4th T.
+
+24:11 - I know this is well after de vere's death, but it's worth pointing out that the first grand lodge was established on 6/24/1717: https://en.wikipedia.org/wiki/History_of_Freemasonry#First_Grand_Lodge
+
+24:54 - "The Cloud cupt Towers": probably the towers of babel(yn), "The Gorgeous Palaces" (of babylon) "The Solemn Temples" (of solomon), and now (where we are now, in the 4th T), "The Great Globe itself". the idea of "all which it Inherit, Shall Disolve; and like the baseles Fabrick of a Vision Leae not a wreck behind" -- this scroll (which john ate) is the progression of the visual narrative that we're immersed into. notice that it's notably "aryan" (babylon and jewish) -- and that the ending there is notably similar to the end of "as you like it".
+
+in another comment I talked about the two triads where the name venus is used in common. the first (aryan) triad is vulcan/ganymede/zarathustra, mars/aries, and venus/ishtar/astarte.
+
+the second triad being played out in the shakespere narrative is is venus (queen hera/elizabeth, diana, de vere, lucrece, solomon), saturn/adonis/Time (bacon), and thoth/hermes/mercury/Speed (ion dee).
+
+what appears obvious to me now is that there is a reversal of roles playing out here. the saturnian triad starts out with the venus and adonis and rape of lucres, and ends with the tempest and "as you like it". the tempest tells the narrative of de vere being visited by the fairy ariel (mars/aries), and his magickal powers gave de vere the gift of words. at the end of the tempest which is the new imperial age (coming soon -- notice the pirates in gentlemen of verona), prospero/vere lets ariel go. note here that the "occidental star" is "behind aries" -- meaning that vere switched roles with aries. this is then transfered outward to "silvius" (sylvia in gentlemen of verona), through rosalind/ganymede (lind is nice or beautiful in spanish -- so, "nice rose")
+
+what I believe the T is standing for is "taurus", as in the taurus that mithra/mars slays in the secret society narrative (like moses in the exodus with the golden calf), each time associated with a lamb or ram (aries). 1740 makes the next slaying of the taurus possible with the dramatic changes that shakespere's works had on social and cultural perspective of minority groups like females and homosexuals. he's like the transformer of energies through narrative from the saturnian to aryan triad, by playing the double role.
+
+31:06 - ki is the symbol for earth. it's also worth noting that aphrodite/venus/helen is associated with eve and the earth. the idea here is that the enlighenment of the world is a time when "the book is opened" and no longer do things need to continue to be kept a secret. that time is rapidly approaching. it's associated with the garden of eden when adam and eve's eyes were opened. the renaissance was a time that such a time of enlightening too, but for reasons far too lengthy to explain here, we took a different (narrative) path, and the ambitions of 1740 ("The Great Globe itself") got delayed a bit. they'll probably get delayed again, as I would expect a 5th T as well.
+
+on that note, I would like to say that your videos and alan green's (found you through him), I'm convinced that vere is the 4th T, but obviously his plans got foiled, and so instead of being upset about it, he turned it into a narrative. I believe that even the name "IAM-bic pentameter" is a reference to the idea that he believes there is a coming 5th T, which is the state of G where we are all equal in our self-identity: "I AM". I've been looking for other clues as to what he thinks the 5th T will be, but if the others are the legs and arms, the 5th is the head/crown.
+
+(btw dude you're videos are super awesome!! I'm still working my way through video 45 now, as you suggested I look at this one halfway through, so sorry of I'm mixing the ark/solomon concepts into this comment. super excellent sleuthing man. you're wildly fascinating)
