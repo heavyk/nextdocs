@@ -5299,7 +5299,7 @@
 
 #### sonnet-148 - modern
 
-    O me! what eyes hath Love put in my head,
+    OM ! what eyes hath Love put in my head,
     Which have no correspondence with true sight;
     Or, if they have, where is my judgment fled,
     That censures falsely what they see aright?

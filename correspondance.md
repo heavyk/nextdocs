@@ -419,6 +419,18 @@ on that note, I would like to say that your videos and alan green's (found you t
 
 (btw dude you're videos are super awesome!! I'm still working my way through video 45 now, as you suggested I look at this one halfway through, so sorry of I'm mixing the ark/solomon concepts into this comment. super excellent sleuthing man. you're wildly fascinating)
 
+#### 2023-02-03 00:58 - followup: slaying the taurus
+
+I woke up thinking about this topic heavily, and since then I've let all those thoughts die down, and now I'm gonna start from the top, explaining what I think the shakespere narrative is. I believe the narrative is all explained in "hamlet" but you have to not see it as a tragedy (lol, it is quite the bloodbath).
+
+I figure old king hamlet is the 3T, and his wife gertrude is the female bloodline of jesus (of which queen elizabeth was the last). claudius represents the holy roman empire (HRE) and so quickly after 3T's death, gertrude (which I'll call 3F) quickly joins the HRE and young hamlet (4T) is left to try and pick up the pieces. 3T haunts 4T and tries to get 4T to avenge 3T's death by destroying the HRE. I'd also like to note that there is a lot of equating the HRE with taurus/bull symbolism. destroying the HRE would be the objective of mithras, for the HRE having scuffed the last opportunity for FIAT LVX. (I'd like to point out papal bulls, and the number of roman's featured as the villians in shakespere's plays + the uprise in prodestantism).
+
+I'd also like to interject another strange coincidence: which is that the roman goddess "venus" is used to both describe ishtar/astarte/aphrodite/diana (notice the progression of her publicity campaign over the years, btw), and also the venus we now typically equate with athena/minerva (the one that came out of the eye of jupiter/ra fully grown and armed). as I mentioned, this venus conflation by the romans made for quite an interesting link between the aryan and saturian triads. aphrodite is earth and athena is the planet we call venus. I'm noticing that the greeks did not have such a conflation, looking at homer's illiad. the roman poet virgil even equates diana, eve, and helen together.
+
+anyway, 4T keeps delaying and can't seem to bring himself to murder the HRE in revenge for his father, and that brings about a tragedy. as a parallel to the old/young hamlet, there is old/young norway. the name four-ten-brasse is clearly also referring to vere, so to avoid confusion I'll call 3X and 4X (cause they mirror the 3T/4T hamlets), but they should be seen as one. notice that 3X peaces out but there's a new 4X that is emerging on to the scene, and he passes through the tribe of dan on his way to pole-land. I have a lot more to say about that, but but I'll keep this brief.
+
+now, I'd like to give my perspective on this, which is that I don't believe there is need to slay another taurus. the HRE and the many transformations the roman empire has gone though since, isn't really necessary to destroy from my perspective. interesting, OK. talk later.
+
 ### 2023-02-02 14:58 - video 45
 
 the world as it was sung to be
