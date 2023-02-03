@@ -418,3 +418,48 @@ what I believe the T is standing for is "taurus", as in the taurus that mithra/m
 on that note, I would like to say that your videos and alan green's (found you through him), I'm convinced that vere is the 4th T, but obviously his plans got foiled, and so instead of being upset about it, he turned it into a narrative. I believe that even the name "IAM-bic pentameter" is a reference to the idea that he believes there is a coming 5th T, which is the state of G where we are all equal in our self-identity: "I AM". I've been looking for other clues as to what he thinks the 5th T will be, but if the others are the legs and arms, the 5th is the head/crown.
 
 (btw dude you're videos are super awesome!! I'm still working my way through video 45 now, as you suggested I look at this one halfway through, so sorry of I'm mixing the ark/solomon concepts into this comment. super excellent sleuthing man. you're wildly fascinating)
+
+### 2023-02-02 14:58 - video 45
+
+the world as it was sung to be
+https://www.youtube.com/watch?v=zMyJIrDK3dQ
+
+
+15:36 - I think these may even be sonnet references...
+
+sonnet 17 has "B 4" in it, and is clearly this is talking about the great pyramid.
+
+VVHo will beleeue my verſe in time to come,
+If it were fild with your moſt high deſerts?
+                 B 4                 Though
+(next page)
+Though yet heauen knowes it is but as a tombe
+Which hides your life , and ſhewes not halfe your parts:
+
+---
+
+sonnet 23 has reference to "book" (and also gold/ore):
+
+Ore-charg'd with burthen of mine owne loues might:
+O let my books be then the eloquence,
+
+"book" is probably where the rose is found...
+ref: your bit on "To the Reader." in video 42 (https://youtu.be/goW0-zrXoK0?t=42)
+tells you to look in his "Booke" (also notice there, that brasse is referring to, four-ten-brasse of hamlet).
+ben jonson also praises shakespere's "Booke", also seen in video 42: https://youtu.be/goW0-zrXoK0?t=369
+
+---
+
+finally, sonnet 31 has a "C 3" in the middle of it and is talking about hidden things in graves (also notice the catchword doesn't actually match the next page):
+
+As intereſt of the dead,which now appeare,
+But things remou'd that hidden in there lie.
+                  C 3             To
+(next page)
+Thou art the graue where buried loue doth liue,
+
+---
+
+I'd also like to add that in the dedication in KJV, it's talking about the "occidental stare" of queen elizabeth. I'd like to point out that "reign" is like "reina", which means "queen", and the occidenttal star. the royal star of the west is "antares" (behind aries) -- and apparently stars (points) are dudes and circles are women. he's making a point here (more dots) so it's referring to *queen* elizabeth, not queen elizabeth I.
+
+(additionally, notice in that dedication he's calling him "Prince IAM-ES" -- the Prince is referenced numerous times by shakespere and is a reference to machiavelli's Prince (see Richard III))
