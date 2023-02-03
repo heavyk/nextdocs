@@ -433,10 +433,6 @@ now, I'd like to give my perspective on this, which is that I don't believe ther
 
 ### 2023-02-02 14:58 - video 45
 
-the world as it was sung to be
-https://www.youtube.com/watch?v=zMyJIrDK3dQ
-
-
 15:36 - I think these may even be sonnet references...
 
 sonnet 17 has "B 4" in it, and is clearly this is talking about the great pyramid.
@@ -475,3 +471,15 @@ Thou art the graue where buried loue doth liue,
 I'd also like to add that in the dedication in KJV, it's talking about the "occidental stare" of queen elizabeth. I'd like to point out that "reign" is like "reina", which means "queen", and the occidenttal star. the royal star of the west is "antares" (behind aries) -- and apparently stars (points) are dudes and circles are women. he's making a point here (more dots) so it's referring to *queen* elizabeth, not queen elizabeth I.
 
 (additionally, notice in that dedication he's calling him "Prince IAM-ES" -- the Prince is referenced numerous times by shakespere and is a reference to machiavelli's Prince (see Richard III))
+
+---
+
+32:40 - in the honourable trastise (see fisher kings act 2), it mentions vere has being one of the fisher kings (pisces). in this way, vere is identifying himself with the piscean 3 parts of time, being one of the fisher kings, which is between offerings of bulls (taurus) and goats (capricorn). notice the offering of bulls there, which can be pretty safely equated with the bull and the HRE, then, the other pillar on the opposite of the triparte time is saturn. now, what do you have between the two pillars? aries, fish (see hamlet; this is the female), and aquaman.
+
+OK, so it's pretty strange because the first two (aries and fish) line up just fine with mars and venus, but vulcan/zarathustra is a fire symbol, not a water symbol. to understand the conflation of fire and water, let's look at the final two sonnets, the gemini capstone of the 17 pyramid sonnets (even the name sonnet is small sun). you'll notice the duality of fire and water there. this I beleve is the key to understanding how 4T and 4X are different, but also the same. these are the two gentlemen of verona. one is cupid and the other is proteus. look for a "soverign cure" soon :)
+
+36:37 - the great pyramid is an ever fixed marke (planet's cross) that looks on tempests and is never shaken (has survived cataclysms)
+
+I think both graves and monuments are valid and likely dupilcate or compliment the information found in the other (redundancy). the great pyramid seems to be pointed to in a number of locations, and is also said to be a "tomb" (which it clearly is not).
+
+if the alter is referring to the pink granite "sarcophagus" in in the great pyramid, is an interesting idea to try and remove because it doesn't fit through any opening. neither do we know what the other "half of its parts" look like inside the great pyramid, and neither do we know if there is an altar in there. when I look at the concept though (cause I can't see anything), the concept associated with alter looks to me to be of alter (of alteration), not altar because whatever is there in the middle fire (the alter) flexes and adjusts to pressures from the earth.

@@ -5544,27 +5544,22 @@
     Which from loues fire tooke heat perpetuall,
     Growing a bath and healthfull remedy,
     For men diſeaſd,but I my Miſtriſſe thrall,
-    Came there for cure and this by that I proue,
-    Loues fire heates water,water cooles not loue.
-    <br>
-    <br>
-      <br>
-      <br>                                       F I N I S.
-
-### sonnet-155
-
-#### sonnet-155 - modern
+      Came there for cure and this by that I proue,
+      Loues fire heates water,water cooles not loue.
 
 
 
-#### sonnet-155 - 1609 quarto
+
+                        F I N I S.
 
 
 
-### sonnet-156
-
-#### sonnet-156 - modern
 
 
 
-#### sonnet-156 - 1609 quarto
+
+
+
+
+
+                                K         A
