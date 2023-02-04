@@ -468,17 +468,21 @@ Thou art the graue where buried loue doth liue,
 
 ---
 
-I'd also like to add that in the dedication in KJV, it's talking about the "occidental stare" of queen elizabeth. I'd like to point out that "reign" is like "reina", which means "queen", and the occidenttal star. the royal star of the west is "antares" (behind aries) -- and apparently stars (points) are dudes and circles are women. he's making a point here (more dots) so it's referring to *queen* elizabeth, not queen elizabeth I.
+the last sonnet page has ~4 lines till "FINIS.", followed by ~11 lines until "K A". I don't see what "C 3" is reffering To, but "B 4" is probably "BA" to compliment the "KA" and the "KI".
+
+---
+
+I'd also like to add that in the dedication in KJV, it's talking about the "occidental stare" of queen elizabeth. I'd like to point out that "reign" is like "reina", which means "queen", and the occidenttal star. the royal star of the west is "antares" (behind aries) -- and apparently stars (points) are dudes and circles are women. he's making a point here (more dots) so it's referring to *queen* elizabeth (vere), not queen elizabeth I.
 
 (additionally, notice in that dedication he's calling him "Prince IAM-ES" -- the Prince is referenced numerous times by shakespere and is a reference to machiavelli's Prince (see Richard III))
 
 ---
 
-32:40 - in the honourable trastise (see fisher kings act 2), it mentions vere has being one of the fisher kings (pisces). in this way, vere is identifying himself with the piscean 3 parts of time, being one of the fisher kings, which is between offerings of bulls (taurus) and goats (capricorn). notice the offering of bulls there, which can be pretty safely equated with the bull and the HRE, then, the other pillar on the opposite of the triparte time is saturn. now, what do you have between the two pillars? aries, fish (see hamlet; this is the female), and aquaman.
+32:40 - in the honourable trastise (see fisher kings act 2), it mentions vere has being one of the fisher kings (pisces). in this way, vere is identifying himself with the piscean (silver bow) part of the 3 parts of time, by being one of the fisher kings, which when looking at Rom X, is between offerings of bulls (taurus) and goats (capricorn). notice the offering of bulls there, which can be pretty safely equated with the bulls offered by the HRE, then, the other pillar on the opposite of the triparte time is saturn (goats). now, what do you have between the two pillars? aries, fish (see hamlet; this is the female), and aquaman. this is the progression from lead (actor, prince), silver (reflector, queen) and finally transmuted to gold (character, king) (see merchant of venice).
 
-OK, so it's pretty strange because the first two (aries and fish) line up just fine with mars and venus, but vulcan/zarathustra is a fire symbol, not a water symbol. to understand the conflation of fire and water, let's look at the final two sonnets, the gemini capstone of the 17 pyramid sonnets (even the name sonnet is small sun). you'll notice the duality of fire and water there. this I beleve is the key to understanding how 4T and 4X are different, but also the same. these are the two gentlemen of verona. one is cupid and the other is proteus. look for a "soverign cure" soon :)
+next, you'll probably notice that the first two (aries and fish) line up just fine with mars and venus, but vulcan/zarathustra is a fire symbol, not a water symbol. to understand the conflation of fire and water, let's look at the final two sonnets, the gemini capstone of the 17 pyramid sonnets (even the name sonnet is small sun). you'll notice the duality of fire and water there. this I beleve is the key to understanding how 4T and 4X are different, but also the same. these are the two gentlemen of verona. one is cupid and the other is proteus. look for a "soverign cure" soon :)
 
-36:37 - the great pyramid is an ever fixed marke (planet's cross) that looks on tempests and is never shaken (has survived cataclysms)
+36:37 - also, the great pyramid is an ever fixed marke (planet's cross) that looks on tempests and is never shaken (has survived cataclysms)
 
 I think both graves and monuments are valid and likely dupilcate or compliment the information found in the other (redundancy). the great pyramid seems to be pointed to in a number of locations, and is also said to be a "tomb" (which it clearly is not).
 
