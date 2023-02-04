@@ -366,6 +366,67 @@ the macro 2nd ray perspective is pretty difficult for many to see, as we've been
 
 the individual 2nd ray perspective is one of complete ego, knowing that everything is getting easier and easier to recover from and that no matter what manifests/happens. my perception and how I feel is all that matters, so if all I have to do is change my relationship with something (my perception), and/or how I feel, then recovery in no longer any big deal. risks don't appear risky anymore cause recovery is so easy.
 
+### 2023-02-04 08:18 - vega
+
+I was looking up a number of symbols in [this guy's](https://en.wikipedia.org/wiki/Philip_Sidney) [poetry](https://www.gutenberg.org/cache/epub/56375/pg56375-images.html). the poem is called "SIR P.S. HIS
+ASTROPHEN AND
+STELLA.
+
+I immediately noted my similarity to him, as I also really love stars. his poetry is really inspiring and while reading the following the lines, the words "Bordered with Bulles and Swannes" caused me to want to look up the constellations in the southern hemisphere because in that moment I understood the meaning of "sweete swan of avon". it's a constellation that only appears in the sothern hemisphere, and so with shakespere being so much about saturn, and my lack of knowlede of the sothern hemisphere (I've only ever lived in the north), I figured I'd aquaint myself with the key players because I noted that hamlet is extremely stellar in its arrangement of characters -- so, going on the mattison correlary, that all great stories have an appearance in the sky, I wanted to see what some of the key symbols are there, because I imagine only travelers to the south would know (in the form of experience).
+
+on that note, one night while walking home here in colorado, I noticed a giant swan in the sky; I'd never seen the southern hemisphere before, and I remember that seeing it completely changed something in my brain. I think I started to see very differently even. Also, charles dickens sent his son Edward to the sothern hemisphere.
+
+I happened on a site called [constellation-guide](https://www.constellation-guide.com/constellation-list/andromeda-constellation). I noticed the site was very difficult to use, didn't have any popups or easy to look at references and I remembered dave matthison. I was just reading [Lady of May](https://scholarsbank.uoregon.edu/xmlui/bitstream/handle/1794/859/ladymay.pdf) (another work of phillip sidney). let's reflect a moment:
+
+    The astronomer, with his cousin the geometrician, can hardly escape, when they take upon
+    them to measure the height of the stars. How often, think you, do the physicians lie, when
+    they aver things good for sicknesses, which afterwards send Charon a great number of
+    souls drowned in a potion before they come to his ferry? And no less of the rest, which
+    take upon them to affirm. Now, for the poet, he nothing affirms, and therefore never lieth.
+    For as I take it, to lie is to affirm that to be true which is false. So as the other artists, and
+    especially the historian, affirming many things, can, in the cloudy knowledge of mankind,
+    hardly escape from many lies.
+
+I'm on this constellation-guide and I'm having a difficult time on the page cause of first a back-button (on my mouse and in the browser) closing the tab; meanwhile I'm getting confused trying to show as an example [I'm monologuing about how to do things better, so I'm in problem finding mode, hence the browser bugs and my mouse button fumble] how the website can do things better, cause its constellation picture is really hard to read and see. I'm dreaming of a better constellation program, and dave says that I have to select in stellarium settings the other constellation settings, and that program is so unbelievably difficult to use and I just want to see shakespere symbols. I'm getting really energised with this new site idea because I'm simultaneously wanting to see if I can work with dave and get a site/program/app -- something that has the myths, the symbols (with varients), and the stars in the sky. then I'm getting really. confusion is subsiding as I start to look at what I want and begin in my monolougue to tell a story of vega the star of lyra. I decided I should write this down.
+
+    Some Lovers speake, when they their Muses entertaine
+    Of hopes begot, by feare, of wot not what desires,
+    Of force of heavenly beames, infusing hellish paine;
+    Of lyving deathes, deere woundes, faire Stormes, and friesing fyres.
+    Some one his songs in Jove and Joves straunge tales attyres,
+    Bordered with Bulles and Swannes, poudered with golden raine:
+    Another humbler witte to shepheards pipe retyres,
+    Yet hiding royall blood, full oft in Rurall vaine.
+    To some a sweetest plaint a sweetest stile affordes,
+    Whiles teares poure out his inke, and sighes breathe
+    His paper pale despaire, and paine his penne doth move.
+    I can speake what I feele, and feele as much as they,
+    But thinke that all the mappe of my state I display,
+    When trembling voice brings foorth, that I do Stella love.
+
+in shakespere there are two pillars: the bull and the goat. between these two pillars there is a chained up maiden, andromeda. I don't know why she's chained up, cause it looks to me like she's riding on a unicorn. between her and aries, there's aries, a triangle.
+
+I noticed Vulpecula below the swan and I [clicked on it](https://www.constellation-guide.com/constellation-list/vulpecula-constellation/). inside I noticed that there was a whole bunch of science BS, so that inspires me to want to actually include real sciece data on these stars, not from the mainstream perspective of dying white dwarfs and other nonsense. I want to see if I can get dr. robitaille to explain the stars and the spectral information, so that it's got the actual good myths and good actual star data, not star-facts.
+
+    The constellation is a relatively faint one, with no stars brighter than fourth magnitude. It lies in the middle of the Summer Triangle, an asterism formed by the bright stars Vega in the constellation Lyra, Altair in Aquila, and Deneb in Cygnus.
+
+for some reason when reading the names of altair and deneb, I didn't really understand them, but I felt an affinity. vega though is a star that I love to star-watch with. it's one of my favourites. I know that one pretty well. I [click on it](https://www.star-facts.com/vega/).
+
+it's some star-facts, and skipping bast a bunch of mainstream BS, I'm reading about how that star system has an astroid belt just like our star system does. this reminds me of a theory, to which I'm very welcome, of an alternate timeline where instead of humans having gained a massive PFC in such a short period of time *because* of enki and the annunaki, but because of humans (perhaps even having been placed there artificially), have evolved our massive PFC through massive dosages of psylocybin. we're highly symbolic, but because we grew up and evolved in such a euphoric state, we're horribly naive.
+
+on that alternate timeline, I postulated that their star is either conscious (or could even be artificially modulated by a signicantly advanced alien race) and putting out symbols that match our own stars -- basically like a twin or dual where our star and their star have identical states. therefore, the poet-apes of that star system create a reality that is very similar to our own. so similar in fact, that at times, we share the similar points in time -- such that there's bleedover. because we're so stoned all the time, it's pretty easy for us to mistake this earth for our own in our own narrative realities.
+
+anyway, tht all came to me in a moment. I'm looking at the star vega and wondering if this star system is basically that "other timeline" I had postulated previously. was tesla from lyra? I have no idea, but it's a fun thing to think about.
+
+anyway.
+
+I wanted to read about the myths of lyra constellation, so I [click on it](https://www.constellation-guide.com/constellation-list/lyra-constellation/); there weren't any. it's like a musical instrument or something. everything's vibration, so probably not that important to just be a set-piece in the star stage.
+
+it'd be cool if the user could also draw their own constellatons and make up their own mythologies and stories. various storielines could end up becoming the popular ones. created as I'm sure it'll become a group effort. imagine in the future possibilites of somethingg like 10-20 different competing symbols and myths. that'd be cool, right?
+
+I could imagine that it'll turn into a bit of a competition to see what set of symbols and star myths make for a good story. I like shakespere, but his stories are kinda ... not good enough. I feel there could be some improvements at times. I'm going to go back to reading phil the star lover. he's like really inspiring.
+
+
 ### the 2nd ray "glutton for punishment" perspective
 
 ### helena doesn't believe in fairness
