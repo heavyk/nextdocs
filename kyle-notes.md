@@ -426,6 +426,22 @@ it'd be cool if the user could also draw their own constellatons and make up the
 
 I could imagine that it'll turn into a bit of a competition to see what set of symbols and star myths make for a good story. I like shakespere, but his stories are kinda ... not good enough. I feel there could be some improvements at times. I'm going to go back to reading phil the star lover. he's like really inspiring.
 
+### 2023-02-04 09:51 - spectrum of attributes
+
+it'd also be really cool, once we get the spectrum data of all the stars in there, to provide a way to relate the spectrum of the star to different abstract qualities -- like when I was younger we made superheros with pen and paper with my friend ben. there were a number of qualities (with numerical values, but quantified like spectrum graph on a stereo) like strength, stamina, intelligence, etc. what I used to do is to put down random values of each quality, then once I can see the strengths of each attribute, it was easy and also fun to make of the story for how he (cause I don't remember making any females) got certain strenghts.
+
+that reminds me. that poet there transmitted a concept in there, that it's really a shame that girls are how they are, and it's time that they gained an I. in shakespere, there's this thing about the eye versus the I. the main lament for the poet triad (and their central theme) is that with the mistress the gained an eye, but lost their I. the urging to procreate is to create a legacy. in the dedications in the first folio, there's a really interesting thing about this legacy that was left. it's unfortunate that one can be any way that one wants to see theirself symbolically.
+
+you know internally, I have one of these, (we called them) stat-sheets, and I've got my known strengths and weaknesses. I'm always how I see myself to be. this has produced strong character traits in me, like for example I don't compete. if I don't think I'm good enough, I won't even try. therefore, to work around these weaknesses, I've created a symbolic identity for myself. I started with vulcan cause he's the one most symbolically similar to me. as such, it's pretty easy to see that some strengths can lead to arrogance and pomp, and so likewise, some weaknesses can produce strengths. the journey to discover those hidden strengths because of weakness can be part of the story in one's quest for identity -- the I.
+
+another cool idea would be to have sound pronounciations. the other day I was reading about this king and his girlfriend, catherine of aragon. they communicated to each other in latin -- which was unfortunate because the characters in their discourse are associated with sounds in their heads, so when they met, it all went very poorly because her symbols sounded differently and likewise struck different chords with ambos.
+
+accents create conceptual zones, and people of similar sound have similar concepts and also the backward. when I'm in california, the american way sounds to me like a beach boy. I have the california accent, so when I meet other people with a different accent, their concepts are completely incomprehensible to me. if we all use the same pronounciation, we'll all be on the same page. as such, the regional variation will be kind of like a flavour, than a incompaibility.
+
+I also want to intruduce music to the stars. like, there are certain concepts that are embedded inside of a song. I started my way with neurotic fish, mechanicofthesequence started me off -- so I had to figure out how to look at the hate me song. likewise, these form the journey of the star, as it passes through it's musical journey.
+
+as an example, I have a song that I associate with dionysus, which coincidentally is the title band, calld eve's song. I think it'd be dope to have soundtracks for the different symbols, and also for all their coresponding stars, planets, galaxies, etc. zoie-trope.
+
 
 ### the 2nd ray "glutton for punishment" perspective
 
