@@ -1115,6 +1115,12 @@ I find it interesting this idea of a 4th T. ben jonson's play has me thinking a 
 
 in addion, another tantalising way to visualise the above square is to see a 3d right-angle cross where all verticies of the square are now in the same point in the very centre, forming that perfect cross made three-dimensional by the octahedron.
 
+### 2023-02-08 09:29 - the opposite
+
+so, if dee is subtle, then jonson is the opposite: blatant. in the play, the triad scams a number of people, and one of them is the puritans. course, the puritans couldn's say anything because if they claimed to be scammed by them (trying to shut down th plays), it would probably reveal something scandalous about king james -- probably involving [francis](https://en.wikipedia.org/wiki/Frances_Carr,_Countess_of_Somerset) and [robert](https://en.wikipedia.org/wiki/Robert_Carr,_1st_Earl_of_Somerset) carr. seems that there was a scandal to cover up king james' favourite, and francis (face) set the whole thing up. therefore, I conclude that the 4th T (pliant) is actually the "opposite" of the actor (dee).
+
+there's a really interesting thing to note further here is that when it's only a triad, there is chirality. there are too seeming, reflectors yet one is imperfect (lead), and the other is nearly a perfect reflector (silver), therefore, a good reflection happens (its chirality) when light goes in the direction of the reflector (usually the woman). the romance artists exploited the dullness of the lead's reflection to make funny characters like sir andrew aguecheek. this happens when a character tries to send a message/reflection through the actor -- it goes terribly wrong, but when sending the message through the silver (voila), the message is so clear, it can lead to a love "triangle". toby and andrew are the clues for us to see why viola and the duke's messages aren't getting through.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
