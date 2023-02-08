@@ -1101,6 +1101,20 @@ there's another interesting thing to note, in the originall when prospero is tal
 
 that's all for now. just some things to think about, because trying to may the history on to the play doesn't work out entirely, and neither does the apparent word play. I think it's clear, to not mira but to instead listen and heare.
 
+### 2023-02-08 08:51 - the 4th T conceptually
+
+@[youtube](https://youtu.be/ttWbEdSevKI?list=TLPQMDgwMjIwMjP8njxaBhCT2g)
+
+after listening to purba's description of the play "the alchemist" by ben jonson, I noticed that there are 4 characters, not 3 -- also, that ben johnson put things in very easy to see terms. I believe the shakespearean triad is dee (subtle), francis (face), and vere (doll). the addition of the 4th there (pliant) adds an extra dimension to the triad.
+
+to explain, the basic triad is the character, the actor (like a star, a male actor takes in hydrogen, high frequency and outputs all the heavier elements -- a female actor does the opposite) -- then, finally the reflector. the gold is the charactor, the the lead is the actor, and the reflector is the silver. the way it works is, the lead/actor is imitating the charactor, and the reflector will reflect the actor back to himself, and also the charactor back to himself (so the actor can see another "take" on his character). when looking at the orientation of these 3T's, it looks like the X-Y-Z axis at the bottom of a 3d modeling prgrame, where they meet at right-angles to each other.
+
+the addition of pliant is interesting because from face's perspective, pliant is another charactor, making face the actor instead of the character in his perspective. however, fom the reflector's perspective, she sees him as a reflection of herself (kinda -- too hard to explain all of the nuances). anyway, when looking at the 4th T, notice that it looks like a cross from one angle, but if we look at the interesction of these crosses, it has an extra dimension to it, and so it looks like the lines drawn inside sf a tetrahedron -- or an X chromosome (strange coincidence).
+
+I find it interesting this idea of a 4th T. ben jonson's play has me thinking a lot about the skeptic too, because the skeptic is also pliant, but seen from another angle, and skeptic forms another triad with face as well, where skeptic is the reflector, face is the actor, and pliant is the charactor. I'm not sure where this triad is located. when I try to look, it's as if I'm looking at a square, and each side of the square is subtle/face/pliant/doll and all of the verticies can be seen as having two faces in each relationship (actor for one while reflector to another)
+
+in addion, another tantalising way to visualise the above square is to see a 3d right-angle cross where all verticies of the square are now in the same point in the very centre, forming that perfect cross made three-dimensional by the octahedron.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
