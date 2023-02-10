@@ -444,17 +444,17 @@ as an example, I have a song that I associate with dionysus, which coincidentall
 
 ### 2023-02-10 07:07 - concepts as a method to transmit human experience
 
-imagine that every "thing" has a corresponding imagination. each aspect of that imagination is a reference to another thnig (the green like the flower) and a corresponding modification (but a little bit different).
+imagine that every "thing" as a imagination. each aspect of that imagination is a reference to another thnig (the green like the flower) and a corresponding modification (but a little bit different).
 
-the reference and its modification are also concepts, and so the experiencer of that concept through any of the 5 sences, has encoded into it a bit of the original experience which composes each of the references and their modifications.
+the reference and its modification are also concepts (as similarities and differences to the source concept), and so the experiencer of that concept through any of the 5 sences, has encoded into it a bit of the original experience which composes each of the references and their modifications.
 
-the sequence of words, pictures, or however the idea is tranmitted on the media also reference an overall experience lkie words conveying a story with the adjectives describing the experience -- or, as in the case here, I'm describing the experience I just had in a dream.
+the sequence of words, pictures, or however the idea is tranmitted over the medium is also a reference to a macro experience -- like words conveying a story with the adjectives describing the experience -- or, as in the case here, I'm describing the experience I just had in a dream.
 
-each of these minute slivers of experience trasmitted through everyday communication mediums eventually builds to a crechendo in the vibration in public and private discourse.
+each of these minute slivers of experience trasmitted through everyday communication mediums eventually builds to a crechendo in the consciousness of public and private discourse.
 
-as with all concepts (like songs), we tire to hear the same ones repeated ad infinitum, and so therefore new songs, like the concepts that compose them become desirable and novel to experience; naturally, we want more new expriences in our communication mediums cause the old ones are growing stale.
+as with all concepts (like songs), we tire to hear the same ones repeated ad infinitum, and so therefore, new songs, like the concepts that compose them, become desirable and novel to experience; naturally, we want more new expriences in our communication mediums cause the old ones are growing stale.
 
-we tend to cling to the old experineces because it's easier to do them to learn and remember a new one. therefore, if it were possible to make learning a new communication concept as easy as it is to experience a new ride at the theme park, then we could constantly referesh and update our existing communication concepts to new ones and not hit a tremendous creshendo like the one that ended the last ice age.
+we tend to cling to the old experineces because it's easier to do them to learn and remember a new one. therefore, if it were possible to make learning a new communication concept as easy as it is to experience a new ride at the theme park, then we could constantly referesh and update our collective creshendo of experience by updating our existing communication concepts to new ones, preventing a tremendous creshendo like the one that ended the last ice age.
 
 ### the 2nd ray "glutton for punishment" perspective
 
