@@ -1169,6 +1169,20 @@ there's an interesting correlation to this in the characters of the play as well
 
 I don't really know, honestly.
 
+### 2023-02-10 12:12 - the 5th T
+
+I think I figured out the 5th T. it involves following the sequence. first, there is the character (the fool), then the character becomes an actor to other charactors. after that, the character becomes a character himself. he then has other actors that mimic him. from here, one can take some different paths:
+
+1. as soon as he notices he has other actors of him, he realises that he wants to become a better and better charactor for his actors to imitate.
+
+2. after he becomes a character himself, now his only competition is his perception of himself.
+
+3. because he's only comepting aginst himself, he realises a nearly resistance free interaction with his environment and others, so now he realises himself as a reflector. he is what everyone else wants and expects to be. he's on top of his game.
+
+4. he becomes an actor of many other characters, some with the knowledge he can do it better than the charactor can, and does, sometimes doesn't, and sometimes just because he likes the style, the concept, or its principle.
+
+5. he realises that if I am a reflection of everything in my environment, then everything is a reflection of me and how I conceive itt to be.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
