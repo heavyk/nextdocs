@@ -1197,7 +1197,7 @@ there are a lot of different configurations that are possible. each person, at l
 4. foil
 5. centre (of the universe)
 
-each quality is roughly equivalent to maestrie of the corresponding path.
+each quality is roughly equivalent to ones maestrie of the corresponding path.
 
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
