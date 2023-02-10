@@ -1191,7 +1191,7 @@ it's pretty easy to see that each path, though they can be worked on simultaneou
 
 there are a lot of different configurations that are possible. each person, at least in my own experience is att varying stages in each of the path, some with more masetry than others. there are also, I noticed various different qualities of character as well:
 
-1. character/fool
+1. character (fool)
 2. actor
 3. reflector
 4. foil
