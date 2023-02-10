@@ -1171,7 +1171,7 @@ I don't really know, honestly.
 
 ### 2023-02-10 12:12 - the 5th T
 
-I think I figured out the 5th T. it involves following the sequence. first, there is the character (the fool), then the character becomes an actor to other charactors. after that, the character becomes a character himself. he then has other actors that mimic him. from here, one can take some different paths:
+:the 5th T involves following the sequence: first, there is the character (the fool). from here, the fool can begin to take various different paths:
 
 1. as soon as he notices he has other actors of him, he realises that he wants to become a better and better charactor for his actors to imitate.
 
@@ -1182,6 +1182,22 @@ I think I figured out the 5th T. it involves following the sequence. first, ther
 4. he becomes an actor of many other characters, some with the knowledge he can do it better than the charactor can, and does, sometimes doesn't, and sometimes just because he likes the style, the concept, or its principle.
 
 5. he realises that if I am a reflection of everything in my environment, then everything is a reflection of me and how I conceive itt to be.
+
+(new paths to be added as I figure out more)
+
+it's pretty easy to see that each path, though they can be worked on simultaneously, some of them do take quite some practise to become natural at it. the whole goal is to mak as many of the paths feel natural and normal.
+
+---
+
+there are a lot of different configurations that are possible. each person, at least in my own experience is att varying stages in each of the path, some with more masetry than others. there are also, I noticed various different qualities of character as well:
+
+1. character/fool
+2. actor
+3. reflector
+4. foil
+5. centre (of the universe)
+
+each quality is roughly equivalent to maestrie of the corresponding path.
 
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
