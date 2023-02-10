@@ -1163,6 +1163,12 @@ therefore, graphite, if stimulated in just the right way, can give off the spect
 
 there's an interesting correlation to this in the characters of the play as well. I mentioned that my experience in spain is that everyone (or nearly so) behaves like these 7th ray reflectors, perceiving from either of the two extremes: pure desire (1) or pure reflection (7). this is represented by the prince of aragon (spain). the prince of morocco (black) is paired with gold, which I thought was interesting. he reminded me of eddie murphy in the film "coming to america" where in africa, he's got his whole setup there as a prince or whatever; he has the appearance of gold and girls reflect that there. however, when he comes to america, he notices that his gold illusion doesn't quite hold up the same with these american girls. I haven't seen the film in a while, but I do remember he was kinda miffed by the stronger willed women not just refelcting what he wants to show them. I should probably watch it again. I really liked that film, a lot.
 
+### 2023-02-09 22:29 - the lead casket
+
+@[youtube](https://www.youtube.com/watch?v=VL9k2-K9OK4)
+
+I don't really know, honestly.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
