@@ -1173,11 +1173,11 @@ I don't really know, honestly.
 
 :the 5th T involves following the sequence: first, there is the character (the fool). from here, the fool can begin to take various different paths:
 
-1. as soon as she notices he has other actors of him, he realises that she wants to become a better and better charactor for her actors to imitate.
+1. as soon as she notices she has other actors of her, she realises that she wants to become a better and better charactor for her actors to imitate.
 
-2. after he becomes a character himself, now his only competition is his perception of himself.
+2. realising he has imitators, he becomes a character himself. he is sigular, individual and his only competition is his perception of himself.
 
-3. because he's only comepting aginst himself, he realises a nearly resistance free interaction with his environment and others, so now he realises himself as a reflector. she is now what everyone else wants and expects her to be. she's on top of his game.
+3. because he's only comepting aginst himself, he realises a nearly resistance free interaction with his environment and others. now he realises himself as a reflector. she is now what everyone else wants and expects her to be. she's on top of his game.
 
 4. he becomes an actor of many other characters, some with the knowledge that he can do it better than the charactor can, and does, sometimes doesn't -- and sometimes, just because she likes the style, the concept, or its principle.
 
