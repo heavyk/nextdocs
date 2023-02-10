@@ -22,6 +22,14 @@ because the file is available, if someone wants to just play the song, they can 
 
 [1]: so hard to search these days -- when information should be increasing, things should be increasingly easier to find cause more probability that someone has put it on the internet somewhere. I believe this is the result of people moving more and more to platforms with formatted and structured content, instead of putting their own stuff up there in more raw (or published) form.
 
+#### 2023-02-10 12:38 - derivative works
+
+I just love this one mix that I'm listening to called "Andromeda - Amiga 2021". the thing is that I want to change out some parts of the mix like in the beginning of the thing is kinda slow. I don't want to make the song (it's 1:12:17) to be longer or shorter -- just want want to swap out that part for something faster and blends right into the opening song.
+
+therefore, I think it'd be really cool if I could swap out parts of a song. imagine you're a musician and you think you could do that part better. I'd want to, not only listen to the song "my way", but I also want to offer that improved bit that I did, to others.
+
+it's also really important to, when making a remix, make it possible to *easily* find derivative works for a section based on a sort of "quality" -- like I'd want to be able to search for a derivative work of that section that is, say "more punchy" (or less). the creators of the derivative works will be able to self-describe their work with these qualities as well as users suggesting/voting for the qualities that describe the section/work.
+
 ### 2022-11-07 18:07 - cell calculator
 
 this is a spreadsheet app written in your favourite language for your favourite OS that talks to elixir. the elixir backend just has concept of other cells. the address space is infinite (hashes), and cells are found at a predictable pattern, like A1 will always refer to (0,1) or whatever (as the designer for the spreadsheet or whatever you're making) you define the cells and their dimensions.
