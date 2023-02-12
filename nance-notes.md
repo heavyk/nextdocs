@@ -1189,7 +1189,7 @@ it's pretty easy to see that each path, though they can be worked on simultaneou
 
 ---
 
-there are a lot of different configurations that are possible. each person, at least in my own experience is att varying stages in each of the path, some with more masetry than others. there are also, I noticed various different qualities of character as well:
+there are a lot of different configurations that are possible. each person, at least in my own experience is att varying stages in each of the path, some with more masetry than others. there are also, I noticed various different qualities of personality as well:
 
 1. character (fool)
 2. actor
@@ -1198,6 +1198,20 @@ there are a lot of different configurations that are possible. each person, at l
 5. centre (of the universe)
 
 each quality is roughly equivalent to ones maestrie of the corresponding path.
+
+### 2023-02-12 04:29 - 6-7-8 orientations and individuality
+
+one of the things that I was contemplating yesterday was the concept of how many permutations to the two genders we have. I came up with a number between 6 and 8 (perhaps a 9th, but I don't see it yet). the idea here is that any one of the 5 qualities of personality are easier in some orientations and less easy in others but none imply a certain orientation. so let's go over them. for hetero, there are two orientations (m-h & f-h), and homo there are four orientations (m-t, m-b & f-t, f-b). 6 in total are all of the sexually related orientations. therefore any gender can enjoy between 1 and all three of those.
+
+finally, there is the "asexual" orientation which is exclusive to the sexual orientations -- which I consider to be the same "one" experience, but I suppose could be slightly different between genders (especially in different social systems), but I don't really know what to do with it, so for now I'll let them be separate (m-a & f-a).
+
+there are obvious problems with this system with trans-gender and other "queer" orientations, which are further permutations on the above, I would suppose. nature itself does not work in such discrete units either, so it's not worth trying to figure that out. in addition, it's my belief that the end-game setup is to contain *both/all* genders (circle and dot), and so any of these permutations (and derivatives), I'll consider to just be alternate paths on the way to completeness or allness...
+
+with that out of the way, I'd like to talk about the idea of orientations... which is that we start from a point (the individual), and then begin to go outward (or inward) toward the periphere, and that's where we lose our individuality. the orientation of the vector extending itself outward from the point/source is just the direction that we take on our away extending out from the oneness, undivided whole. as we continue along the path that we take, we interact with others and depend on other things than ourselves for our well-being. we don't truly become an individual again until we return back to a point.
+
+we can look at the circle as the expansion/growth phase, because, all of the smaller points that extend themselves out of the origin point are wanting to find their own individuality. in expansion phase, the extended point feels dissatisfaction with its circumstances and others around, so it keeps moving further away from others it doesn't like, keeping those in which it has a an affinity closeby. this extended point continues on all the way out to the periphery until it can't go any further, where it "dies" and begins its "return back to its source". it has been unable to become a self-sustaining point of its own.
+
+a point is attraction phase, as a point always wants to become more and more tightly together with those its attracting (has affinity with), and so its desire to constantly get closer and closer, tighter and tighter is the force that keeps this unit of smaller points together.
 
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
