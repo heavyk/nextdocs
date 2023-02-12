@@ -456,7 +456,33 @@ as with all concepts (like songs), we tire to hear the same ones repeated ad inf
 
 we tend to cling to the old experineces because it's easier to do them to learn and remember a new one. therefore, if it were possible to make learning a new communication concept as easy as it is to experience a new ride at the theme park, then we could constantly referesh and update our collective creshendo of experience by updating our existing communication concepts to new ones, preventing a tremendous creshendo like the one that ended the last ice age.
 
-### the 2nd ray "glutton for punishment" perspective
+### 2023-02-12 03:42 - the 2nd ray "glutton for punishment" perspective
+
+this perspective assumes a bit of mastry of the 5th ray perspective. I'll invoke the "bound for freedom" concept here to illustrate: I define "freedom" as the capacity to feel the way one wants to no matter the conditions. therefore, even in a situation where one is "bound", one can *still* feel the way that they want to. this is the first aspect of the 2-5 (solar angel) connection.
+
+the second aspect of the solar angel is one of advantage: I know that all attempts to hold me back or keep me away from the abundance that flows to me is impossible, so long as I can feel the way I want to feel -- thereby continually tuning myself to future/present where I'm continually receiving more than I had previously. it's often the case that this attracts parasites, but there are no quantity of parasites that can ever demand more than I can offer.
+
+in addition to this, notice that we are all essentially "parasites" to both the sun and the earth. we could live without the other planets (potentially even the moon), but we sorta need the sun and the earth to continue living. we depend on them, because we are not yet creating reality by ourselves and do not have a sustaining power source like the sun that keeps gaining in intensity. until one becomes "individual", we're all parasites in one way or another
+
+---
+
+now, I'll use myself as an example here because I speak from experience -- which is that parasites are not actually all that large of a problem, and that they actually *increase* the amount of energy that one summons from non-physical (desire). therefore, no matter how many parasites there are, they will only *increase* my output, not diminish it. like the sun and earth, I'll gladly take on more and more parasites because it only increases my output, not diminishes it.
+
+usually, what happens is that at some point the 2nd ray's output/abundance will become so great that the parasites can no longer use all of it and its actually the over-abundance of the thing they're relying on which destroys the very setup that they have going.
+
+I've considered this situation extensively, and it's the foundation for the idea of "going infinite" and "I want to make a galaxy" -- because I know that my output will continue to increase, and so here is another sign of a 2nd ray: unless they or I do something with all the extra energy, it starts to accumulate until it finally pops. I've recognised this all my life and so I tend to quell this energy by programming. if I don't output it, it tends to cause problems. I have to be creative output for that extra energy.
+
+now, in the case of "going infinite", the idea is that somehow I would be bound indefinitely, essentially by creating bigger and bigger things all the time. at the same time, my increasing capacity for freedom (to feel the way I want to feel) will continue to summon and then make physical more and more energy. someone just has to keep up with it.
+
+therefore, I find no problem, because I'm able to feel the way I want to feel, to continually accept the "worst" manifestation (or none at all), because it's only making me stronger and more energetic.
+
+it really isn't that hard to accept the "worst" manifestation (or none at all) once I figured out that things are always improving anyway, and it's only my perception that isn't allowing them to improve. therefore, no matter what it is, I should be able to find, a less and less resistant way to look at the same thing, allowing for an improvement to come around.
+
+no matter how many parasites or others taking advantage of me, I'm continually growing in power. they may be able to get the instantaneous (material) manifestation from me, but they don't know how to do it theirselves, so while they're busy "taking advantage of me", I'm growing in strength, power, and mental capacity to feel (and therefore attract) more and more of what I want. meanwhile, those taking advantage of me form a sort of dependence on me, and as that dependences grows -- they'll feel more and more inferiority and insecurity.
+
+it is worth knowing that my experience with the 2nd ray perspective is that it creates, most commonly, others around me that feel not-good-enoughness or inferiority because they pale in comparison to me. if only they knew that comparison is what's slowing them down. I go fast, not because I'm holding anyone back, but because I'm releasing my own resistance. all the time, it becomes less and less about them and more and more about me (hyper-individuality). I don't really want to be around inferiors, cause it's not very fun: "hey do you you want to do this?" "no, because we don't think we're good enough" (or) "no because then that could give others an ability to rival us (and potentially make us feel more inferior)".
+
+mostly because it's so unfun to be around others that feel limitation, or perceived vulnerability, I desire so much for others to learn this perspective for theirselves.
 
 ### helena doesn't believe in fairness
 ### was jesus ultimately a sort of upgrade for females, as well?
