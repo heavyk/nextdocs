@@ -263,3 +263,33 @@ you know, I actually want to create a galaxy. I figure it's worth the time to un
 the other major contributing factor here is more for safety. at the moment, I have no idea what I'm capable of. it's a very strange thing having such low resistance because other people's attraction really surprises me. I behave in *very* strange ways sometimes for no immediately apparent reason to me. it just sorta happens, and then we're sorta left to pick up the pieces afterward. those kinds of situations would preferably be avoided. it's honestly kinda embarassing even for me. I can't do much other than shrug my shoulders and reality-kenny my way out of it.
 
 I kinda wanted to talk about those KJV verses... waahh, OK, brb
+
+### 2023-02-13 08:18 - circle and dot
+
+the eye of horus video summoned so much thought, I still have 2-3 more topics I want to write about from that video, including the KJV verses there -- however, this time I will give my thoughts on circle and dot.
+
+I came to the conclusion that planets are males and stars the females because of how they behave. stars are immensely attractive, though having solar wind coming out, I feel them as very attractive (for high frequecies). the origin of this sentiment is coming from dr-robat's presentations on the subject -- where a star is composed of extremely dense hydrogon -- and I mean very extremely. like, the densities are so unfathomable.
+
+the second thing that composes this theory of mine is that I beleive things are attracted (gravity) because of a similarity of the each atom to the "carrier frequency" coming out of the galaxy. what that means, is that atoms that *don't* attract each other are actually actively producing a vibration different (for identity) and discordant enough that it *repells* other atoms, even the ones similar to itself. these individual vibbrations work to mitigate and cancel out the attcractiveness inherent of each similar atom of each other. I think this best descrbies the effect we know of when two materials get really close together (like jonson blocks), that they essentially fuse. I think it also explains the magnetticc field being different close as it is to far.
+
+at any rate -- because hydrogen is so high frequency and because "main sequence" stars are so dense, this must mean a *tremendous* attraction (affinity) to hydrogen -- so the stars are like sucking up hydrogen from all over the place.
+
+planets are also attractive, and we receive solar wind -- and one thing that I've noticed is that geomagnetic storms (the effects of the solar wind received by earth) don't have 100% correlation (in fact lately, not even close) to the solar wind at the L4(?) a bit of distance in front of the earth between us and sun. this and other times of seeing the geomagnetic storms that don't correlate at all with solar wind (like during a quiet or solar minimum) -- therefore, I have to conclude that the earth itself is also attracting the solar wind, probably with its magnetic field.
+
+in short, I thmink the earth attracts magnetically, meanwhile the sun attracts vibrationally (at the speed of hydrogen, which I think probably shares a lot in common with the galactic "carrier signal"). the two kinds of attraction are different. the solar wind is a plasma and so therefore it's spinning based on the spin that the sun gave it when it left the surface. we receive this plasma from the sun and it cools down into the elements -- we do stuff with those elements, making trees, plants, animals, iPhones, etc. and that produces more hydrogen which, being lighter than the other elements, escapes freely out to space, where it gets recollected by the sun (its source).
+
+this cyclical birth into plasma, getting attracted into a dense environment, getting trapped into matter, and then finally being released back as the dust/hydrogen from where you came, is the process of life. you're star dust, you know. this, in my mind is a very feminine sort of attribute. now, you can see why I thought of stars as being feminine.
+
+I can see the argument of why men are points and women are circles as the obvious sexual symbol, but also from his "esoteric explanation" (which I'll watch again after this) -- so I see it from that way where men make points and women dance around the subject.
+
+however, I tend to look at things from an attraction standpoint, and I don't see it that way either. a point is always wanting to be its smallest size. it's continually pulling inwardly, constricting and attracting everything toward its centre. meanwhile, a circle is wanting to expand. a circle also sets a boundary. it sets a metric as well in terms of distance, meanwhile a point cannot do that; a single point has no distance or metric.
+
+---
+
+I'm going to think on this a bit more, however, I wanted to note a few things: when tim is reading the illiad to me, there are obvious planet gods in the story. meneleaus/athena is venus, and paris/mercury is mercury, and helen/aphrodite is earth. mars is aries, etc. -- so that's weird that I can clearly see that aphrodite/helen is earth, the garden of E-DEN (mark).
+
+in my own studies I came to the same conclusion of aphrodite being earth (the panther, owl, woman/eve). I believe however she is a reflection though of her tuning, and it's because mars is/was similar enough to our planet that we got our planet tuned to the tune of mars with the megalithic structures. our planets share a frequency, which Is why we look masculine. our planet being a star, but looking like a planet explains OAHSPE's red star, and sitchin's "Bond-Heaven-Earth", which if you look at it, every time it says "Heaven" -- it's talking about mars/nibiru (the planet).
+
+in the enki narrative (there are, I believe two earths), kingship was brought down from *heaven* (mars), and the "fallen angels" came/fell out of *heaven*.
+
+I'll return with more later. hopefully we can look at those KJV verses next :)
