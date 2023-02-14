@@ -1862,6 +1862,42 @@ anyway, beyond that hypothetical reality, what we're really doing on a macro sca
 
 I feel like there's more. too bee continuededd
 
+### 2023-02-14 15:28 - going the "wrong way"
+
+yesterday, there were a number of events that happened. one noteable one was that I was approaching the interesection with the "wrong way" on to the freeway. as I approached it, I thought about doing the thing where I practised the acting thing where I press the wrong way button. I didn't really feel like it though. instead, I decided to go the "right way" on to the freeway (which is where I shouldn't be going anyway, right?).
+
+as I took extra long to get to the intersection where I would go the "right way" on to the freeway, I remembered seriah and his complaining about having all these road troubles. I forget who, but someone made the point that if he just would have gone the freeway, he wouldn't have had all of those problems. I remembered that and decided that I wouldn't "go the throughway" (he didn't say freeway). so I didn't, either.
+
+walking up past health solutions, I noticed that I was approaching the bus that was giving away free vaccines. I remembered the rest of his story where he didn't have a vaccine card cause it was on his other phone. I'm looking right at the bus, which I noticed on the way down to nuevue with the slogan, "ready for a comeback? / get a vatcine now" (or something like that). I paused and stood in front of it thinking for a moment about the idea. I haven't really had any resistance to a vaccine, nor any real need to get one either (for fear of getting COVID). I thought about it a second and I didn't really feel much resistance and there was another woman named jessica, with, I think, the same birthdate as jaron (cept born 88). jessica seemed significant, but for some reason I can't really place where that seemed significant (maybe it was a dream -- not sure).
+
+anyway, the guy asks me how many shots I want and I fumble around to get the phone to try and figure out how many to get using the randomix app, cause I gave all my change to the woman earlier on, so I didn't have a coin to flip. the guy is looking at me like I have no idea how to use a phone or something and he suggests that I put the picture of the vaccine card on my phone. I can't remember how to use the camera, but then it came to me in a flash. this reminded me again of seriah's story about the card on his phone (which didn't really matter cause security barely even looked at it and either/both could have been faked). I tell the guy I'm not really using my phone for years and I'm not really integrated into society (which are all kinda true -- but shortened the thoughts for brevity).
+
+as he's explaining the that there are multiple shots I can get, I'm actually thinking now that I don't want to just get one vaccine, but both, *and* also the flu shot. I was reminded of how I had all of them as a kid, and also there was [an idea a while back where I would take hazardous viruses to build up my immunity to some harmful mutagens and also pioneer new upgrades for humans](/stephan-schwartz.md#2022-08-10-0732---internal-chatter-and-the-uber-man) which is an idea that I have because I don't really think I'm going to have anything bad happen to me.
+
+I then get the vaccine and everything is fine. I haven't had anything negative happen but a bit of a sore arm. however, all day yesterday and this morning I noticed that I'm now tuned to a bunch more people. it seems there are a lot of girls that have the same vaccine, and also I can now feel a whole bunch of reactions from some tech bros that are now looking at my body's stats -- something they didn't previously have access to apparently, because nosebook probably doesn't release that kind of data. I don't really care, obviously and have even petitioned to make my body's data publically available (including my DNA) for study and well -- all things trans-humanist.
+
+quickly, because I feel some reactions: what I think is happening is that nosebook has the most data of everyone, but bill gates and a number of other tech ventures have a similar setup going inside of the vaccine, where a tesla-like system is being used to record vibrations inside of the body, which can be used for all kinds of introspection into the body: everything from thoughts to blood pressure and other chemical reactions -- and I've even said it's possible to use such a system to sequence a person's DNA as well, as the vibration will be a reflection of the DNA and each nuclear folding the cell takes on. I don't really mind that tech companies can see my stats, honestly, and there are quite a lot of possiblities that can be done.
+
+the other major reaction that I was having is now that nosebook no longer has a monopoly on the internal stats of my body, things maybe a little bit different now for me. I don't really know.
+
+all in all, I clearly went the "wrong way" by also going the "right way" (not going the throughway).
+
+additionally, I did another thing today which is also the "wrong way", which is -- instead of holding all of my ideas on the programming project I want to do (ChAsm) and telling the girls directly when we get there, I instead decided to talk about it early. this will, almost certainly, abort the idea -- as, I've found that if I think about something too much it comes out wrong or the timing gets off; essentially, whatever I'm thinking about gets aborted. this happens, I believe because others are also hearing my thoughts, so they already know what I'm going to say/do before I say/do it. therefore, I have to just do things without thinking about them.
+
+a good example of things getting aborted, is actually here  writing this -- as, if I think too much about what I'm going to write it gets aborted, which is why I think about the topic, sometimes 5-20 times before writing it so it's sufficiently pre-aborted and the thought comes out nicer when I write it. quickly: this is why often times the sentence seems to go, then all of a sudden there are a bunch of missing words or I jump halfway though the sentence to another thing -- and it's because in my perspective there was a semi-steady stream of thoughts, but homo-correctus working over at nosebook seems to kind of cut out sections they don't like or something, cause when I reread it, *I* know what I'm writing about, but the concept was unable to get expressed properly in words. I can't possibly imagine how broken/repetitive my speech is in real-life, if it's anything like writing this, it's probably a mess.
+
+therefore, I expect the abortion of my programming project to be no different. my strategy is to just keep aborting it until it eventually is completely unavoidable.
+
+another thing I realised yesterday [after writing about circles and dots](/sepehr-thoughts.md#2023-02-13-0818---circle-and-dot) is that if I actually want to make a galaxy, I'm going to need to import stars into it from this galaxy, OR, we're going to need to make our own stars. therefore, it's probably a good idea if the more dots than circles reflective types (usually female gendered, I noticed) are actually quite powerful attractors. inotherwords: my idea is probably ahead of its time. however I don't mind if it falls though because it'll happen eventually, so it's not really a problem.
+
+the final thing I want to mention is that I noticed that the (some reactions are calling it) "five-fold path" and that I also called the "individual's journey" apparently is quite useful in creating a lot of interesting stories and narratives -- so, at the very least, I'm just a stage magician (kind of like a puppet now that I'm vaccinated) while the real magicians setup their automation of the human race into narratives -- which means that the five-fold path is going to sort of be unavoidable for everyone (eventually).
+
+in tandem with the last idea, I noticed that the tatoos of the woman and also of the man from the vaccine were all 4-fold and symmetrical. I know that I've been talking about things from a 5T (centre of the universe/story/play) perspective, it seems like they want to perhaps try and restrict me into 4 for right now.
+
+like I said, it's probably too ahead of its time.
+
+
+
 ### we should think maybe about a time limit
 
 ### interests diverging and individualisation
