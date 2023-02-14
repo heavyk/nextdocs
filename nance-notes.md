@@ -1213,6 +1213,14 @@ we can look at the circle as the expansion/growth phase, because, all of the sma
 
 a point is attraction phase, as a point always wants to become more and more tightly together with those its attracting (has affinity with), and so its desire to constantly get closer and closer, tighter and tighter is the force that keeps this unit of smaller points together.
 
+### 2023-02-14 04:15 - the gods of the illiad
+
+as you're giving the summary to book 5, I'm noticing that the story feels a bit like a kid's story -- like apollo defending aneas about having the audacitcy to challenge the gods because they're all immortal and stuff (my dad is bigger than your dad) -- and then when gaps in the story are found, like "so, what happened to aneas" -- "oh, yeah aneas didn't die; that was just a decoy aneas that I left there when I snatched the *real* one away". don't know how to explain, this concept, but when I was younger we used to make up stories and tell them to each other -- and part of the way through, I'd realise a hole in my story, so I'd patch it up real quick with an explanation like "oh, that was just a *fake* thing cause the *real* one is totally fine cause of this barely believable explanation".
+
+in addition to this, all of the gods sound like extreme posers. they have the super chariots and all the best gear, good eyesight, and magical capabilites (which sounds strangely technological to me) but they apparently sit around all day telling everyone how awesome they are, because the gods don't seem to have much actual skill -- just an enormous "trans-human" advantage (probably technological, genetics, etc.)
+
+it really sounds to me like the gods aren't actually all that great, and actually probably not a lot has changed since then, in that they only have a pretty big advantage over the "mortals" and like to lorde it over us. btw, I think I figured out the frozen story (even though I still haven't seen it yet). it feels strangely related to the athena aphrodite conflict, but I don't know enough yet to say more.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
