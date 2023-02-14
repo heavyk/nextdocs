@@ -1221,6 +1221,28 @@ in addition to this, all of the gods sound like extreme posers. they have the su
 
 it really sounds to me like the gods aren't actually all that great, and actually probably not a lot has changed since then, in that they only have a pretty big advantage over the "mortals" and like to lorde it over us. btw, I think I figured out the frozen story (even though I still haven't seen it yet). it feels strangely related to the athena aphrodite conflict, but I don't know enough yet to say more.
 
+### 2023-02-14 06:35 - diomedes and fate
+
+in book 8, there's this one part where diomedes is one to fight against the petty wills of the gods (namely zeus), but because zeus has such a tremendous advantage, he's forced to route from battle.
+
+in this scene, the will of zeus is seen as fate, and so therefore cannot be changed (because he has such a tremendous advantage). this symbolism has many parallels in today's society, and I've been getting the idea that this is actually one of humankind's central themes.
+
+in a lot of ways, I sympathise a lot with diomedes, where like me, he's willing to fight, but there are just some situations where their advantage is so much that I have to just sort of accept it. it is *sooo infuriating* though because diomedes seems to know that all of the gods are a bunch of posers, not *actually* the powerful and strong words they use to describe theirselves ("aries, destroyer of men, reeking blood, stomer of ramparts") and so it's just sooo infuriating when someone relies on technology or some other condition to hold an advantage over you and exert their will.
+
+my personal experience has been that it's not really that good of an idea to try and fight them, as they're only empowered more by my attempts to fight them and to just sort of "accept my fate" -- which sounds like a funny way of saying "being OK with their having an advantage." in reality, they don't need to be fought, as they're only going to attract destruction for theirselves.
+
+a long time ago, I read this "sirian guide" and kuthumi's "et view of creation" (can't remember which one), but in it, it said that the INFECTED ONES were magnetically set to be attracted into incarnating into human bodies on mars, whith the implication that they (the martians) would try to hold power over the earthlings and rule them on high. meanwhile, the sirians setup a base on jupiter with the implication that they would be like the petty (my power is bigger than your power) strongman of zeus, deciding (because he's so powerful) whatever he feels most inclined to do, based on who can make him the most generous offer (mutual-back-scratching).
+
+in the book, there is this idea of "weighing the souls". now, in egyptian mythology, this is done by anubis, the black canine (sirius, the dog star), but then is later done in the illiad by zeus, and then later in the bible during the "end of days" as archangel michael (who is strangely very similar in feeling to zeus).
+
+I see a lot of similarities between zeus and him exerting his will over humankind based on some petty desire or whomever can sway his will with ample supplications and offerings, to the present day power structures. most of the power structures in power today are not actually all that powerful. for example, the "globalist elite" are all just a bunch of posers just the same relying on their money to to get everyone else to do their work for them (at least this was the impression that I got hanging around in those circles with zaryn, who is also very zeus-like).
+
+in a sort of way, we're all diomedes in that we're taught that we need to fear these globalist elites and they have so much power and all of that, when in reality, they're not actually more powerful, but have been systematically (through the years) been gifted the means that they need to maintain a conditional advantage. we still believe that having a conditional advantage (magical bows, chariots, or impressive eyesight) *actually* gives someone an advantage, so I'm not going to jump up too quickly to say that the taurens are all bad (think of dethroning jupiter/anubis as the "slaying of the bull"), but actually, they're actually there as a reflection of our own perception -- which is that conditions, can grant one a godlike advantage, and it's those conditions that we want, *not* the ability to perceive things the way we want.
+
+I see these bullish "bad-guys" as a sort of round-about way to accomplishing this perception -- because, it seems that they'll always have such a significant advantage, they'll never be able to be defeated with physical conditions, that the only way to actually "slay the bull" is to let them fall away into irrelevancy.
+
+fate isn't changeable, but the way you feel about it and perceive the fate, is.
+
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
