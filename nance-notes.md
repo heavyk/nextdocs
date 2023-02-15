@@ -1167,7 +1167,7 @@ there's an interesting correlation to this in the characters of the play as well
 
 @[youtube](https://www.youtube.com/watch?v=VL9k2-K9OK4)
 
-I don't really know, honestly.
+I don't gno figure it out.
 
 ### 2023-02-10 12:12 - the 5th T
 
