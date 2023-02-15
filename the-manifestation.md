@@ -1900,7 +1900,7 @@ btw, be my valentine?[^1][^2]
 
 [1]: this is, of course a reference to "two gentlemen of verona", where valentine [gives up what he's been talking up so much](/nance-notes.md#2023-01-31-0042---two-gentlemen-of-verona) (silvia/silver) to his best friend proteus. I'm essentially calling myself proteus/prototype, and the symbolism could be taken a number of different ways, but I take it to mean giving up what you *deserve* ([or reward](/nance-notes.md#2023-02-08-1748---deserve-is-a-false-reflection)).
 
-[2]: I don't actually know why I wrote it. it was a thought that popped into my head, so I just went for it. it didn't mean anything to me at the time. the above message[^1] is a refelction on the concept that I had just now...
+[2]: I don't actually know why I wrote it. it was a thought that popped into my head, so I just went for it. it didn't mean anything to me at the time (other than identifying myself with proteus). the above message[^1] is a refelction on the concept that I had just now regarding the connection between silver/silvia and the casket in "merchant of venice"...
 
 ### we should think maybe about a time limit
 
