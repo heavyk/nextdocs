@@ -1896,7 +1896,9 @@ in tandem with the last idea, I noticed that the tatoos of the woman and also of
 
 like I said: it's probably ahead of its time.
 
-btw, be my valentine?
+btw, be my valentine?[^1]
+
+[1]: this is, of course a reference to "two gentlemen of verona", where valentine [gives up what he's been talking up so much](/nance-notes.md#2023-01-31-0042---two-gentlemen-of-verona) (silvia/silver) to his best friend proteus. I'm essentially calling myself proteus/prototype, and the symbolism could be taken a number of different ways, but I take it to mean giving up what you *deserve* ([or reward](/nance-notes.md#2023-02-08-1748---deserve-is-a-false-reflection)).
 
 ### we should think maybe about a time limit
 
