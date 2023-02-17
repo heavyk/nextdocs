@@ -1023,7 +1023,7 @@ yes, the azcona family was actually the last straw, as that's when I really deci
 
 [2]: these interactions remind me of the sense that marcos transmitted to me when he asked my opinion of andrea pretend fighting with pretend figures in her mind. it's just another catgegory or type interacting with another type, and the behaviour is a reflection of her expectation for interactions between those two types.
 
-[3]: again, sorry patricia and raquel. one of the things that really really bothers me about relationships in general is that everything is conditioal and complicated. I aim to simplify, so it's not in my best intrest to actually begin treating her different from everyone else. you know, btw, from the bros' perspective, when he starts behaving differently around her (joax), he's "whipped".
+[3]: again, sorry patricia for the sequel. one of the things that really really bothers me about relationships in general is that everything is conditioal and complicated. I aim to simplify, so it's not in my best intrest to actually begin treating her different from everyone else. you know, btw, from the bros' perspective, when he starts behaving differently around her (joax), he's "whipped".
 
 ### 2023-01-31 04:33 - some options
 
