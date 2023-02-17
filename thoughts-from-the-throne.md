@@ -28,6 +28,6 @@ in saturnian form of thinking that's called I think "zero-sum", where the balanc
 
 the      end
 
-### 2023-02-17 12:08 - followup: chris is the number 57
+#### 2023-02-17 12:08 - followup: chris is the number 57
 
 I was looking at the timestamp up there, and 11:57 reminds me of a foothill transit that passed all the time often taking me home, and often times with chris. I also remember in one of my programs, I calculated him to be 57 and me 69 -- and I don't remember why, but I always associated 1157 with him. strange memory.
