@@ -1244,6 +1244,7 @@ I see these bullish "bad-guys" as a sort of round-about way to accomplishing thi
 fate isn't changeable, but the way you feel about it and perceive the fate, is.
 
 ### apollo, lord of the silver bow (diana counterpart?)
+ - also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
