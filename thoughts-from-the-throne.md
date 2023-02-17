@@ -27,3 +27,7 @@ I want to say something about this though which is that the heart is the destina
 in saturnian form of thinking that's called I think "zero-sum", where the balance of all equations must equal to zero. I find this really really irritating, because the result of all such equations don't *need* to result in zero; sino in constast they could result in *any* equation. zero is just as good as one; or, any other number. any number is just as good as any liear, quadratic, or any number of terms in real, imaginary, or otherwise numbers. it really doesn't matter. zero is defined by everyone individually -- including things that we do not think of as conscious havve their constant set to whatever. saying that all must equal to zero is as undefined as saying the sum of +Infinity and -Infinity should sum to zero. not so, in fact I say that it could be any number, number, funcion or even a concept itself, like Infinity, a hero, an inspiration, a muse, or an abtract idea or in spiration.
 
 the      end
+
+### 2023-02-17 12:08 - followup: chris is the number 57
+
+I was looking at the timestamp up there, and 11:57 reminds me of a foothill transit that passed all the time often taking me home, and often times with chris. I also remember in one of my programs, I calculated him to be 57 and me 69 -- and I don't remember why, but I always associated 1157 with him. strange memory.
