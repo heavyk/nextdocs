@@ -31,3 +31,19 @@ the      end
 #### 2023-02-17 12:08 - followup: chris is the number 57
 
 I was looking at the timestamp up there, and 11:57 reminds me of a foothill transit that passed all the time often taking me home, and often times with chris. I also remember in one of my programs, I calculated him to be 57 and me 69 -- and I don't remember why, but I always associated 1157 with him. strange memory.
+
+### 2023-02-17 12:12 - I associate chris with saturn as well
+
+there are a number of people in my life that are strangely saturnian. the saturnian energy also feels like tibetan energy, and I think it comes out of the earth and there are particular places where that energy is strong and it dramatically increases people's attraction power.
+
+the uninitiated, because attraction is so fast, they tend to see the same life and history repeated over and over in Time because they don't have any new inputs. they have a culurally constructed reality, which keeps the different villages separated from each other. it's a lot of micro groups, and these groups try to get smaller all the time, all the way down to one person. however, the culture, keeping them repeating the repetetive let's say frequency, hum, or buzz of a culture group from experiencing anything new, sort of exist in a sort of stasis.
+
+anyway, these saturnian people have a very distinct set of qualities: they often times have tremendous imaginary capacities, but they don't use them. they're complete automatons, living in a reality of their own creations. whatever it is, it's got to have really high graphics.
+
+why, they don't use their impressive imaginations to actually create what they want, I don't know, however my guess is that their fears and inadequacy, self-deprecation, and I -- I don't really know. you know, this one just totally doesn't understand to me. like, you know I would say man, with those graphics do something awesome? it seems that most of these especially imaginative types also don't like tesla, and have even gone so far as to make an electric car to kind of re authorize the name a bit. I detected it also in dr. adams as well as jason (and obviously chris).
+
+what I think it is, is a sort of jealousy that they can't use their imagination to do anything really significantly positive with it, because then there's always a falldown later. speaking from their perspective:
+
+    I can only think of really gross, awful, pleasurable, (desirable things that I would *only* to happen to me), or mundane, fearful, lacking engineering application, (not to be taken seriously), or nothing signficant, not worth it, too hard, (something for someone else to do because it's so obvious), or something I'm jealous someone else is doing, or something I'm envious to have, etc. -- and so, I cannot possibly allow myself to experience that *really* great thing. there's *no way*, it could never, *e-ver* be manifest as something *that* good -- you know, not for me.
+
+prepare to die :) you ready for your wildest imaginations to come to life? ready to experience your imagination? let's keep mine blank, shall we?
