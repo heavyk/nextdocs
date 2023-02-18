@@ -1918,6 +1918,32 @@ therefore, you have to see me as the titanic that will inevitably sink, because 
 
 life is a bit like falling down an endless flight of stairs (for me anyway), and so one's perspective of that journey that determines how we see the stairs. my stairs are a reflection of me, and I like that there's always something new to be desired, instead of regret that my "best" manifestation is falling down from its pedestal.
 
+#### 2023-02-18 11:25 - followup: what role do I play?
+
+so, as I'm reading the "whore of bablylon" play, I'm combining ideas from the "lost in translation" idea of sophia having 2 days with a person in tokyo, and what sort of things that she would want me to do if that were to happen, and I'm putting the pieces together here and this idea kinda comes to me where what if I were a sort of prostitute in the sense that people gave me something in exchange to spend some time with me. they can do whatever they want, right, so then it becomes a question of what then would they do. there are a lot of nuances to this idea that I probably won't express all in one go here, but -- imagine that there are many people offering to spend time with me...
+
+first of all, how would I pick? for me, it's an intuitive thing. some people feel more attractive to me than others do, and I can't really quantify it, however I've been wanting to produce a website that organises and helps to get like-minded people together, so to me it sounds like the-problem-is-the-solution, where I can imagine finding a number of different ways to find commonality and difference with another person -- and then upon seeing a person's ideology enumerated, I rapidly get a "sense" of a person, and then intuition kicks right in and I know exactly whom I would want to spend time with -- so that's kind of like a good starting point for me there.
+
+that is only one idea of quite a few others that I have, and I'm fairly certain that some people are interested in making other ideas that I've had (and will have) a reality -- and so one of the things that I've wanted to do for a while is a sort "co-op" (in the basque sense -- acquired from anaje) where we would all do stuff together, the structure is very flat, and those actually doing work receive more benefits than traditional top-down company/corporate hierarchy. I have many more ideas on how to do a number of other things from a bottom-up (receptive) perspective, btw.
+
+so the idea that came to me on how I could implement that. I'll tell it from multiple different perspectives: I talked about the idea of "being my valentine" and so if one were to look at this from the parent's perspective, this would be giving up the reflection of them (their daughter), and so imagine for a moment that some amount of money (or something valuable) like fenton offers anne (a sort of dowry) and that whatever has a sort of arrangement or agreement associated with it (like a marriage), so that goes into my bottom-up system as an investment. in a sense, that dowry is paying so that I can purchase/own her -- and then whenever she's ready (like the lobsters) to get thrown back out to sea, I'll disown her, give her inheritance, and she's off on her own -- and, like the prodigal sonne, she's always welcome to return.
+
+---
+
+this morning I woke up to a series of dreams which got me thinking now about my "role" in all of this... if I'm perceived as a sort of king, I'm placing myself into bertram's role -- which is going to happen because, like bert's marriage to helena, he doesn't want to be in that position anymore. now, he wants to go to war and be a man and stuff. bert is the next evolution to paris, who woo'd menelaus' wife, helen -- however [compared to hector (who's doing all the real work), paris is shining his really shiny armour and avoiding battle](https://youtu.be/ITWj2BN9REs?list=PLIlatssdqY5Ny9xspJqRg9jthBzafAf_l&t=708). bertram is now looking really good in comparison to paris cause he wants go out and do real work, instead of staying at him with helena doting on him.
+
+@[youtube](https://youtu.be/DNYi27BH54A)
+
+for me, the idea of being perceived like a king would be like returning back to my position as paris. I don't want to be a super cool CTO and sit in on meetings and just be the pretty (CTO) [figurehead on a ship of fools](https://youtu.be/DNYi27BH54A?t=64) -- instead, I'd prefer hector's position risking my life out on the battlefield covered with filth and gore, doing actual work, than to be sitting around polishing my really shiny armour.
+
+you see, paris is a character that doesn't want to be an actor. he's set in his ways (at lesst up to book 10, anyway) and doesn't really want to be an actor. bert is an actor: he's repeating all the stuff that parolles is putting out, so he's a sort of actor... now, when I was thinking about prostituting myself out, before I got to the idea of looking at the lobsters like the prodigal sun receiving his inheritance before the father's death, I was was thinking about the idea of meeting sofia herself in tokyo and, so then she would essentially put me through a number of situations (dunno if it would be filmed or not), where like bill's character, it's just to sort of see how I react in strange situations. well -- what if we were to extend that all the way to maverick and ice-man "top gun" type situations as well, where tom cruise comes in shouts at me for a bit and then I just reflect his emotion back to him from my "now" point of understanding/perception. the saturnian ideas there are tremendous, because once my kundalini has risen, people all over the planet will feel my perception of tom's emotion, and also strongly feel my reflection back to him as well. in situations like "thrill seeking" and other macho comeptitive stuff, this would be like a roller-coaster for humankind. *lots* of interesting experiments to be made there.
+
+@[youtube](https://youtu.be/sPqnxFgCrhg)
+
+OK, but what if, instead of looking at myself as a king (gold) or an actor (lead), I see myself as a pure reflector (silver), and instead I'm basically a little girl's robot for a while. I'm a "trooper" and will just go around and do whatever work she wants done. I'm a reflection of her desire.
+
+I'm still working out how I could see the 4T (foil), and 5T (centre of the universe/play/story) roles still..
+
 ### we should think maybe about a time limit
 
 ### interests diverging and individualisation
