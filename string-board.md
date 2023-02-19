@@ -533,7 +533,7 @@ the other major source of inspiration on this project comes from andreas: he jus
 
 in conclusion, I feel like it's probably best for me to stick to the letter of the law for a while. meanwhile I continue to exist in the social sttructure that I'm in (I'm an american citizen), I should continue to live by those rules. I suppose it's possible to join another social system: I tried to do that already in spain, considering myself to be basically spanish (notice the prince of aragon and silver), but that didn't work out. because of hyper-individuality, I feel myself to be more "sovereign" than anything. the idea for them, is that out in the ocean, there aren't any rules or laws, so anyone can do whatever they want. on land, you have to obey the rules of the land -- and I've demonstrated over and over that it's not a good idea to say, "you need to change what you're doing (or your rules) so that I can feel good." -- and neither do I recommend anyone else try and affect behaviour or change, either.
 
-### 2023-02-16 17:00 - if thine eye causes you to sin...
+### 2023-02-16 17:00 - if thine eie causes you to sin...
 
 PLUCK IT OUT
 
@@ -630,6 +630,83 @@ the other option that I've been saying more and more recently is, because as a m
 I just find it extremely *unlikely* that any female would ever have the audacity to stand up to their mother's nurturing instinct (her code, originally from ninhursag/anatau), and decide to do something a different way. I am, as far as I know, the only person with the aduacity to recode genetically installed family values. I do find it notable that jesus was also not fond of his mother telling him to put his family first. therefore, instead of me pointing the finger at all of them and blaming them for constantly being the foil to my great ambitions, instead -- I'll be the foil to their own programming.
 
 something of this is more likely to happen (in my perception) than any of the romantic stuff. after all, if I really am the centre of the universe, well then, that means that *all* things, including females, are a reflection of my perception, and so therefore, I'm not really fixing their programming, but I'm actually recoding my own extremely negative perception of women -- kindof from the inside out.
+
+#### 2023-02-18 17:18 - followup: saturnian gilt trip
+
+as I'm reading this play, "[hero and leander](https://www.perseus.tufts.edu/hopper/text?doc=Perseus%3Atext%3A1999.03.0012%3Apart%3D1%3Asubpart%3Dsestyad+1)", it's a bit like a confessional. let me explain: this guy leander really likes hero. it describes him as being very very nice and nearly as if a maid in man's body, which is interesting to note, because I experience the same thing myself, and I believe this is the effect of the turtle/rose, dark goddess anatau, that vile despised beast that she is. I think she's activated with the rose, and came down through the tudor dynasty (through king arthur) -- and basically the idea is that when she overshadows your body, your attraction speed dramatically increases, and it seems to be associated with the left-hand as well. what it is, is she's a SUPER amplifier of your emotion and stuff, so if you have dark, evil, gross or negative thoughts those get amplifed just as much as the other "positive" thoughts.
+
+so what is happening here is that she's the crown -- a chakra that is not inside of your body, and the root/earth is also not in our body. these are completely out of our control just above the root is the sexual organs, which are amplifiers, and also just below the crown is the pineal (also an amplifier). this is why she's described as being completely impossible to control. it's possible (I gather) to control the output of the earth a bit, but the crown is mostly affected by the sun which connects with the pineal and the solar plexus. there's no way to physically control the sun (it's pretty big and unwieldy), so the only thing we can do is to control what is shows up in our imagination (the eie), and also how we feel about it (the solar plexus). betwixt these two extremities is the heart (this is important).
+
+leander is giving her a bunch of arguments why her virginity isn't to be kept, trying to convince her with his words (wit), but this doesn't seem to be working...
+
+    These arguments he us'de, and many more,
+    Wherewith she yeelded, that was woon before.
+    Heroes lookes yeelded, but her words made warre,
+    Women are woon when they begin to jarre.
+    Thus having swallow'd Cupids golden hooke,
+    The more she striv'd, the deeper was she strooke.
+    Yet evilly faining anger, strove she still,
+    And would be thought to graunt against her will.
+    So having paus'd a while, at last shee said:
+    Who taught thee Rhethoricke to deceive a maid?
+    Aye me, such words as these should I abhor,
+    And yet I like them for the Orator.
+
+his arguments are causing her to feel anger because he's trying to get her to do something she doesn't want to do, even though she admits that she still likes him even though his words (because of his intention) are causing her extreme discomfort. so, leander has to find a new tactic...
+
+    With that Leander stoopt, to have imbrac'd her,
+    But from his spreading armes away she cast her,
+    And thus bespake him: Gentle youth forbeare
+    To touch the sacred garments which I weare.
+
+she's not diging the touching game either, so now he's going to give a bit of a confession about his deviant sexual behaviour.
+
+    My turret stands, and there God knowes I play
+    With Venus swannes and sparrowes all the day.
+    A dwarfish beldame beares me companie,
+    That hops about the chamber where I lie,
+    And spends the night (that might be better spent)
+    In vaine discourse, and apish merriment.
+
+he really likes her still, and he wants to get his way now (will) so now he's going to begin to compell her by playing with her heart-strings:
+
+    Come thither; As she spake this, her toong tript,
+    For unawares “(Come thither)” from her slipt,
+    And sodainly her former colour chang'd,
+    And here and there her eies through anger rang'd.
+    And like a planet, mooving severall wales,
+    At one selfe instant, she poore soule assaies,
+    Loving, not to love at all, and everie part
+    Strove to resist the motions of her hart.
+
+in this moment, all of a sudden her *heart* feels really different, and suddenly she simply cannot resist how her heart feels. she's compelled to tell him to "come thither" -- which is something that has happened to me on a number of occassions. I'm fairly low resistance myself, so when I get around these saturnian types, they tug on my heart-strings a lot. a really good example of this is an [argument that I had with greg](/metal-lucifer.md#2023-01-03-1855---weird-interaction) after listening to "balls to the wall and neptune's eye". in the event, first joe (through seriah) was tugging on my heart-strings, and so when I went upstairs, that (physical 3rd ray) feeling that my heart was feeling compelled greg to say a bunch of things that were not evidentially true at all, but because his heart was being activated by my heart, it caused him to completely invent a whole set of emotional traumas that didn't even happen. the reason is because his heart (physically) felt that way.
+
+fortunately, I know the 4th ray saturnian perspective, not from the 3rd ray perspective, but from the 5th ray (they occult each other, just like in the imagination, one cannot "see" the emotion when you're seeing the physical: 7th occults 5th in the imagination, just like 3rd occults the 5th in the spectral). it's unfortunate here in this poem that hero does not know the difference between how she *really* feels (5th), and how she *physically* feels (3rd), so unfortunately she feels compelled to capitulate to the way her heart feels.
+
+you know, the entire genre of romance is all about the heart and the emotions in the heart -- but here's a good tip for people that are around saturnian types: when you feel something in your heart, don't go up and think about it in your head (reason, logic), because those thoughts will always be a match to the way the heart (physically) feels -- and that's the mechanism that compells her in the first place. sino, instead go down to the gut; feel how it feels in the solar plexus, and if you have kind of a gut feeling of "this is a bad idea", don't do it -- and also, it's worth noting as well that this is the mechanism that caused her to feel anger to what he's saying.
+
+btw, my default emotional response to saturnian heart-string plucking also usually anger and hatred, so don't get down on yourself if you're suddenly feeling unnecessary anger and hatred toward someone. the other common one is depression, giving up, capitulation, and "OK, well whatever".
+
+    And hands so pure, so innocent, nay such,
+    As might have made heaven stoope to have a touch,
+    Did she uphold to Venus, and againe,
+    Vow'd spotlesse chastitie, but all in vaine.
+    Cupid beats downe her praiers with his wings,
+    Her vowes above the emptie aire he flings:
+    All deepe enrag'd, his sinowie bow he bent,
+    And shot a shaft that burning from him went,
+    Wherewith she strooken, look'd so dolefully,
+    As made Love sigh, to see his tirannie.
+
+---
+
+so here's the thing: I just realised the *real* reason why so many of these saturnian types [have such a low opinion of theirselves](/thoughts-from-the-throne.md#2023-02-17-1212---i-associate-chris-with-saturn-as-well): and that's because the words that they use cannot, at times disguise their intentions as *felt* (but not seen) in their imagination (because it's occulted by the 7th ray), and so therefore they have to go a step higher with the heart and manipulate the way others feel that way.
+
+so here's the connection: in the titanic, rose's suitor is one of these saturnian types, and so he's connected to her in her heart. she's the tudor rose, the anatau perception genetics (that I also have), and so when jack starts to woo her, he feels (like marcos with andrea), his heart also going in a direction toward jack and no longer toward him. the speed at which we manifest things causes these *unlikely* situations to happen.
+
+though I haven't read the rest, I know that leander begins to rely on hero's light to find his way to her tower -- but, one night it's too stormy that he can't see it, so he drowns. this is precisely what happened with the titanic -- however, rose's suitor was on a boat with a lot more people so it caused a pretty big tragedy.
+
+this saturnian 4th ray interminging of heart-strings *is*, I belive the reason for the collapse of the atlantian empire and the onset of the YD climate catastrophe. the mechanism is the same: people were projecting images into 3d space and also engaging in psi warfare that, because it affected how people felt, it would turn the tides of battle. marshall arts resulted as a mechanism for blocking/shielding/protecting oneself from other people tugging on my heart-strings, by being able to effectively deflect and return the energy. this capacity I believe was taken to the extreme and became the ultra-reflective "aryan root-race".
 
 #### 5T of pages + fords + fallstaff
 #### august wilson, africans, slavery, and the god of the jews which brought them out of slavery is identifable to them
