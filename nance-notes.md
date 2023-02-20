@@ -1243,6 +1243,26 @@ I see these bullish "bad-guys" as a sort of round-about way to accomplishing thi
 
 fate isn't changeable, but the way you feel about it and perceive the fate, is.
 
+### 2023-02-19 16:40 - achilles and the lyre
+
+I don't really know what to do about this, so I'm just writing it here. in book 9, the part where achilles is waiting by the myrmidon playing his lyre seemed significant to me, so [I looked it up in the text](https://home.ubalt.edu/ntygfit/ai_01_pursuing_fame/ai_01_tell/iliad09.htm), (cause I noticed reading is a different experience from listening to summary on it) -- and the notable things that jumped out to me are:
+
+- he's playing a beautiful lyre with a silver bridge.
+- the lyre was taken as plunder from a previous battle/war.
+- he's singing about battle/war.
+- he's *startled* to see them (sounding to me like he'd *finally* given up on anyone coming to grovel to him, and so their arrival was actually surprising, because diomedes is doing so much damage, prolly last he heard).
+- the *first* thing he says is, "I must be sorely needed now" (he's still looking for them to *need* him -- which is a sort of form of desire)
+
+---
+
+when reading those things, I had a sudden realisation that I'm sort of being seen here like achilles is -- cept, the symbols are only sorta: I'm definitely not sulking and sitting out waiting for the attrition of the enemy army so that my friends will come groveling to me. that just makes no sense.
+
+however, because it was a strong sensation that I'm being connected/equated with achilles, I'm trying to figure out the ... OH, I get it -- like someone took my "honorable gift" away from me or whatever? I just don't see it really still.
+
+at any rate, when hearing the summary for book 1 a few weeks ago, I actually identified more with agamemnon more, because I'm a lot more about the "take no prisoners" sort of way of going about things. I definitely am not one to sit out and hope people come to me needing me. just the opposite, actually: I've been wanting to be programming a project for a while, not sitting here doing nothing the whole time -- however, I'm sort of giving myself an excellent literature education by reading all of these plays and poems and stuff; I also figured out how the saturnian influence works, and a whole lot of other things.. later on, I actually identified a lot more with diomedes and hector more than anyone (plus hector's wife is andromeda, which I think is cool[^1])
+
+[1]: they say that andromeda is going to slam into the milky way in some future time, but we've only been looking into the sky for a short while and we could be in binary arragement with andromeda -- and so if you imagine that our star is a binary with antoher, a number of few decades only trajectories looking at the other star might make it look like they're going to slam into us, too. so, who knows...
+
 ### apollo, lord of the silver bow (diana counterpart?)
  - also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
