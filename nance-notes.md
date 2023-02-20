@@ -1283,7 +1283,7 @@ so many scientists are so busy out there trying to get their names put on stuff 
 
 in the end, I'm actually quite the opposite to achilles, than anything -- which is (kinda like) what the foil is. some people don't really have a preference to get the glory or to be needed, and some people do; I'm neither, and [I see myself more like a technology, actively trying to obsolete myself](/the-manifestation.md#2023-02-18-1025---what-role-do-i-play--resume-of-yesterday). like a parent or educator teaching a child, my goal is to teach them how to discover and become self-sufficient. I want to become obsolete to everyone I encounter.
 
-a bit more on that: I write these notes in a very incomplete and hand-wavy way, *on purpose* -- mainly because I aim to show it as my personal journey and discovery process, than a definitive guide, howto, or anything like that. I really do write these mostly to hear myself talk :)
+a bit more on that: I write these notes in a very incomplete and hand-wavy way, *on purpose* -- mainly because I aim to show it as my personal journey and discovery process, than a definitive guide, howto, or anything like that. I really do write these mostly just to hear myself talk :)
 
 [1]: btw, I suspect "chatGPT" -- though I know nothing about it -- is a sort of early implementation interface to the conceptual. my spidy sense says that the AI technology that it's based on is actually an array of RLC circuits produced from memristor technology -- an idea I had a long time ago -- so if it is, here proves my point -- and is kind of cool. btw, I should look into seeing if there's an api :) maybe start programming again...
 
