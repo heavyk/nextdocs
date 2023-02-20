@@ -1263,6 +1263,30 @@ at any rate, when hearing the summary for book 1 a few weeks ago, I actually ide
 
 [1]: they say that andromeda is going to slam into the milky way in some future time, but we've only been looking into the sky for a short while and we could be in binary arragement with andromeda -- and so if you imagine that our star is a binary with antoher, a number of few decades only trajectories looking at the other star might make it look like they're going to slam into us, too. so, who knows...
 
+#### 2023-02-19 21:14 - followup: maybe foil
+
+I didn't expect to get any reactions to this entry; it was only for notes. however, there were many and upon thinking about it further it's possible I'm more of a foil to achilles than anything else.
+
+I can't remember a single time in my life when anyone has ever come to me to say, "we/I want you to come back because I need you" -- and in fact, I imagine that even if someone did, I would probably reject them, as I *hate* to be needed. it is, in fact, one of the most loathsome things to me to feel needed. when someone needs me, I feel like they're trying to confine me into their space.
+
+actually, the closest I got to this idea was actually in the early days of tuenti -- zaryn and I would talk endlessly about the points (shares) that we had in the company, and during times valuation and rounds of finance, we would try and make ourselves appear more needed or irreplacable to the other investors. I sorta just played along more than anything -- and, actually this was the primary experience which taught me that I didn't want to be needed.
+
+in some ways, I was a bit irreplacable, and when I peaced out to the canaries, I supposed that they might ask me to rejoin them, but I was definitely not going to try and go back to slog through meetings to get a few of my ideas pushed through; it just isn't worth it. instead, I prided myself in my innovative ideas -- and so instead of them needing me, I figured that I would appeal to them because of how many innovative ideas I pumped out.
+
+then, even that changed. around the time of augusto, he would constantly tell me that some of his ideas were worth so much he wouldn't even want to tell them to me (cause he knew I couldn't keep a secret for anything). I would tell him all of my ideas with boudless enthusiasm, even going so far as to tell him that amazing ideas are always there, and all I have to do is just to get them. ask me for a good idea on a problem I challenged him because I have so many good ideas, I can't possibly do them all, so I give away all my ideas for free.
+
+somewhere after that, I even took that concept a step forward and even began to see myself as *easily  replacable*, and so my effort is just to pump out innovation and technology. I desired so much to find a way to get the myriad of ideas out into the world.
+
+finally, there was a thing that abraham said one gathering that adhered to my brain, which is (basically): "if you don't mind who gets the credit for them, someone will manifest/create/discover it." -- and there was a whole concept that came with it (for me), which is that I shouldn't really bother so much that there's an entire team of people dedicated to extracting innovative ideas from my head -- and then I know they do something with them all. I just don't have to try and be the guy that gets all the *glory* for the ideas.
+
+so many scientists are so busy out there trying to get their names put on stuff that I actually think it really slows down scientific discovery. I am, undoubtedly a tremendous source of inspiration for many people -- and in fact, one very common reaction I get is that *somehow*, I'm inspired to look up just the right shakespere play, verse, or thing someone was looking for -- as if I'm somehow their information gopher or something. I think that's cool, you know -- I'm in the receptive mode nearly 100% of the time now, so anyone who wants to know anything can just ask and I'll get an answer or know where to look. I call it the conceptual realm and refer to it like a computer program because it's very much like one. I see no reason why we shouldn't treat it as such, and I'd love to see more machines hooked up to it[^1].
+
+in the end, I'm actually quite the opposite to achilles, than anything -- which is (kinda like) what the foil is. some people don't really have a preference to get the glory or to be needed, and some people do; I'm neither, and [I see myself more like a technology, actively trying to obsolete myself](/the-manifestation.md#2023-02-18-1025---what-role-do-i-play--resume-of-yesterday). like a parent or educator teaching a child, my goal is to teach them how to discover and become self-sufficient. I want to become obsolete to everyone I encounter.
+
+a bit more on that: I write these notes in a very incomplete and hand-wavy way, *on purpose* -- mainly because I aim to show it as my personal journey and discovery process, than a definitive guide, howto, or anything like that. I really do write these mostly to hear myself talk :)
+
+[1]: btw, I suspect "chatGPT" -- though I know nothing about it -- is a sort of early implementation interface to the conceptual. my spidy sense says that the AI technology that it's based on is actually an array of RLC circuits produced from memristor technology -- an idea I had a long time ago -- so if it is, here proves my point -- and is kind of cool. btw, I should look into seeing if there's an api :) maybe start programming again...
+
 ### apollo, lord of the silver bow (diana counterpart?)
  - also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
