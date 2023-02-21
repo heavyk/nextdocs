@@ -1,6 +1,10 @@
 
 // next up, parse the commentary and turn it into markdown
 
+// for downloading the first folio:
+// https://iiif.library.ubc.ca/viewer/download.php?handle1=cdm.shakespe.1-0421801.0032&handle2=cdm.shakespe.1-0421801.0033&region=full&rotation=0&d=d
+// https://iiif.library.ubc.ca/viewer/download.php?handle1=cdm.shakespe.1-0421801.0034&handle2=cdm.shakespe.1-0421801.0035&region=full&rotation=0&d=d
+
 // import transform from '../txt-xform.js'
 
 import 'hard-rejection/register.js'
@@ -99,7 +103,7 @@ function clean_sonnet (sonnet) {
 
     sonnet.modern = modern
     sonnet.quarto = quarto
-    return sonnet 
+    return sonnet
 }
 
 
@@ -160,7 +164,7 @@ const dl_img2 = async (i, img) => {
         console.log('downloading:', img)
         get(options, async (res) => {
             // console.log('get', res.headers['content-length'], stats.size)
-            
+
             if (res.headers['content-length'] == stats.size) {
                 console.log('already downloaded!', img)
                 res.destroy()
