@@ -1287,6 +1287,35 @@ a bit more on that: I write these notes in a very incomplete and hand-wavy way, 
 
 [1]: btw, I suspect "chatGPT" -- though I know nothing about it -- is a sort of early implementation interface to the conceptual. my spidy sense says that the AI technology that it's based on is actually an array of RLC circuits produced from memristor technology -- an idea I had a long time ago -- so if it is, here proves my point -- and is kind of cool. btw, I should look into seeing if there's an api :) maybe start programming again...
 
+### 2023-02-20 21:56 - elaborate on foil
+
+when talking to mom tonight, I mentioned a few concepts that I haven't written down yet. I got reactions on them, so I'm going to try and see if I can figure it out.
+
+what I explained to her is that the foil actually behaves like gold does -- in that it's diamagnetic. the example I used would be, two characters are both seemingly very self-centred, and the first is more charactor like in that he looks like gold, but is actually serving his own self-interests; meanwhile, the second will display the same amount of self-centredness as the first, but his result/effect will be different -- and the reason why is because of perception.
+
+mom, trying to figure out what I was saying, asked about the example of two people making charitable gifts, but one is doing them with ulterior motives (like maybe bill gates with his vaccines), and the other is genuinely trying to help. thinking about it, I've concluded that both of these are actors/charactors. the charactor is the one that is giving alms and it looks really good, and is getting a positive result in the perception of others (which is perfectly fine), and the actor is seeing the results and trying to emulate the charactor for the *results* (ie the appearance), not for whatever original reasons the charactor is doing it.
+
+charactors and actors do things mostly for appearance/results, so to explain a foil, we need to use a reflector: imagine two guys and they're both going to perform the same actions and say the same things to a girl (which in this case is a good reflector). one comes off to her as just trying to affect physical conditions to get what he wants and so she reflects that back to him by manipulating him back. if he actually likes his own physical conditions himself, it'll produce physical attraction, and if not, it'll produce rejection.
+
+a reflector can only reflect as good as their input is. I like to think of this like a diving board. when the diver jumps, the amount of resistance in the absorption (downward stroke) phase will reduce the amount of energy output in the emission (upward stroke) phase. a perfect diving board will return exactly the same amount of downward force as in the upward force, so the reflected energy is the same. a dull reflector reflects less light. this is easy to see in a mirror, where (because the mirror is not a perfect reflector) the person standing next to you will look brighter in real-life, than in the mirror's reflection. I suppose it's possible to have a negative resistance reflector, but that I know of this doesn't happen naturally with a passive material. with an external power source (a harmonically similar frequency), can be used to amplify things, which is how transistors work, and is the basic setup of the triad, where the female/reflector is often used to amplify the charactor/actor's reflection back to them so they can see theirselves better.
+
+with that out of the way, a foil is like a combination of a reflector and an actor. the actor takes in the input of the charactor and then puts their own spin/appearance on it, and then outputs it. the foil absorbs something from someone else, then outputs that same thing back to them (like a reflector), but it's not a perfect reflection of the original, and instead the output is based on the perception of the *foil*.
+
+as an example: if someone emits anger at me, if I reflect all of the anger I perceive from them back, I'm a perfect reflector. if I reflect the anger back but some parts are less strong, I'm a diminished reflection like unpolished or impure silver. if I decide: I'm going to just shut my mouth and not say anything (or, say make fun of them or whatever) -- I'm a charactor. if I decide to emulate someone else's response to anger or take someone else's advice to how to respond to anger, I'm an actor.
+
+however, as a foil I'll absorb their anger, and then because of my own perception, for example:
+- I don't *really* feel this angry
+- they're having a bad day
+- they're just an emotional person
+- they're weak and can't handle the pressure
+- they're getting back at me -- or whatever
+
+... then, that anger transforms based on my perception and is then reemitted as a reflection of my perception. that's all normal actor-type stuff, so it only becomes a foil when the result is the opposite: so their anger actually causes me to feel pleasure or some other opposite feeling to what they're putting out (because of my perception).
+
+I'll have to try and explain it again when I understand it better, but the centre is kind of like the foil, but instead of feeling, it's based on appearance, so it's combining reflector and charactor. a good example of this would be someone that's called him names made fun of. his appearance is low because the description of him (his appearance) is really awful, but that's not actually reflected by their actions; or viceversa: like, they're appearance is really really good, but in the end they're actually quite awful in their deeds. the parable of the one that says yes, yes, yes, then no -- vs. no, no, no, then yes is about that quality.
+
+the centre seems to cause the most change, because, for example, on one side, they'll look like an old witch (like anatau), but it's the appearance that's deceiving. if one were to see fallstaff, for example, no longer as greasy and gross, he'd be a lovable and likeable character, but because his appearance is one way (fat and greasy), the behaviour that everyone is expecting from them turns out to be awful. the effect behind the missing-411, the antarctica base, and much of the UFO pheonomenon is a manifestation of this centre; because they have the appearance of being bad, then that's the behaviour that is experienced. like a 1st ray shapeshifter, they are a reflection of the perceiver's perception of the appearance (if that makes sense).
+
 ### apollo, lord of the silver bow (diana counterpart?)
  - also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
