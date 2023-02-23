@@ -1382,8 +1382,44 @@ getting something or someone to obey is amplifying the command (and how it feels
 
 I could be wrong, but the creation of venus may have been a very unwanted reflection of jupiter's ideas/desire into reality by interacting a very large amplifier in the form of a reflector (and notorious for tricking women to do what they want ([like leander](/string-board.md#2023-02-18-1718---followup-saturnian-gilt-trip)), this could have happened more than once). good drama elements though.
 
+### 2023-02-23 02:59 - fate of achilles
+
+@[youtube](https://youtu.be/-WGnsZwQRSI?t=611)
+
+when talking about the two fates that achilles' mother sees for his future:
+1. he stays and fights, gaining a whole lot of glory, but will ultimately end in his death OR
+2. he peaces out and lives out a long but rather forgettable life.
+
+as I was hearing this, once again, I felt a strong presence as if this were somehow talking to me. in some sense of it, I have a similar sort of circumstances, I suppose.
+
+on one side of it, I had the strange apparition of "former white hat" that tells me at the end of a few months of placing a lot of really key memories and ideas into my head through some rather bizarre stories on an old wordpress forum[^1]. originally, I thought that fwh was an alternate version of myself -- but, as the name suggests, this version of me didn't maintain my "white hat" status, and ultimately succumbed to the premonition that my father gave me, which is "fair in the sight of God" (ie lord chronos), or "fair in the sight of man" -- and he said this would be my struggle.
+
+I took that to heart as a child, growing up christian -- and so to some degree or another it also implanted the idea in my head that I would do great works for "God"[^2] and that pre-disposed me to the idea of being (one/both of) the "two witnesses" (twice-eleven bretheren). then, further contact with various time travelers and a number of dreams just sorta got me ready for the idea that I'd have a great impact on the earth -- you know, so it was all sorta natural, just like LOA is, but the thing about serving "God" vs. serving man, always stuck with me.
+
+as we left the church and my own discoveries (mostly drug related), I grew to consider myself to be the ultimate authority on what exactly "God" is, and so I rejected the idea of serving the dialectic of God or Man, and instead went for serving myself. I already had a massive ego as it is, so I thought it only appropriate that I fully embrace selfishness, and not really worry too much about what God wants or what Man wants, either.
+
+stopping to heed the direction of what God wants was rather easy for me to do -- and upon hearing the teachings of abraham, I started to realise that *all* reality (including God, my friends, family, and drug experiences) are all attracted by me based on how I feel. I started to see reality as a sort of living stage with props on it that I would interact with based on how I felt. different feelings brought different props into my perspective -- so, everything is a sort of reflection of my perception.
+
+unfortunately, because people are so convincing because they're so real and I can talk and interact with them, it took a bit longer to get rid of the idea of pleasing Man. thankfully though, my experience with nosebook has made it really easy for me to not really put so much importance into pleasing others, as they're all just stage props anyway (some more broken/coherent than others).
+
+---
+
+so let's just go with what I believe now, which is that saturn and his millions of minions (stage props) in my life are like agent smith and they're all there to kind of try and steer me through whatever weird path that saturn wants to me to take -- well, I don't really have much that I can do or say about any of it anyway, as you're all stage props anyway (I really do only write this to hear myself talk), so it doesn't really matter what ends up happening because I don't really get a choice anyway. it's sort of like trying to alter fate, right? I could be like diomedes and try to fight the gods -- or, I could just ignore fate, and the saturnian steering committee and just worry about my concepts/perception of reality, so that all aspects of reality appear to me to be wanted.
+
+so here's the crux (not sure if it's the 4th or 5th) of the matter which is that I don't look at what colour my hat is -- whether it's blue, white, red, black, green or purple, doesn't matter to me anymore. the only thing that matters to me is how I feel and how I conceptualise my reality. as long as I can continue to see things like how I can now, I'm fine. for most, that colour will look like the white one, because in it is contained all of the colours, and I'm sorta hell bent on not ever going to the "dark side" of keeping secrets or constructing or encouraging asymmetrical power systems between people. I enjoy the *american dream* in that everyone is created and exists as an equal and that *only you* are limiting yourself from manifesting what you want.
+
+so, if by refusing to remove my "white" hat there, lord chronos has to end my life, that's perfectly fine by me. I don't see any problem with whatever he thinks he needs to do, because he, like everyone else, is only fighting himself, and all things (including my precarious situation) are a reflection of his perception. saturn is notorious for his zero-sum perception of reality -- which, is obviously an extremely innacurate version of reality, because then how could anything other than nothing exist? the vastness of the universe lends itself to suggest that at some point more than zero exists -- and while it may return to zero in magnitude, it can never return to zero in quantity or quality, for even destructive interference, still produces twice as much. it's only inactivity that produces nothing extra (like the talents given to the various servants). one needs to look no further than physics to see that energy can never die out, only transform into something else or become more (those really are the only two options, else we wouldn't exist).
+
+therfore, I'm left with the potential future of believing the 2038 sort of deadline that I can't really even be sure is really even a deadline for me life, but instead could just be the "point of no return" where after that, the sun's output is too great to accomplish what I want to accomplish. after that, I figure I'll have until the next great solar cycle, which I estimate to be about ~1040y away), which I'm pretty sure I can get around. finally, transhumanism will certainly make it possible for one to move their consciousness to another body -- and my lack of fear of death and incredible agaility in psychdellic situations seems to indicate to me that I must be consciously moving around between bodies by now -- and who knows -- there could even be more than just this one body from where I originate. I could even represent (have tuned myself to) the consciousess of the planet, entire human race, or who knows what at this point.
+
+I find achilles perspective a bit too fate-al-realistic for me, so I thought I'd share my foil perspective on that aspect of him :)
+
+[1]: I don't know if any of it exists now, cause last I looked, everything had been deleted.
+
+[2]: I put quotes around it, because as I've come to learn through life, that my father seems to have blurred a lot of the lines between what I would call ordinary kundalini-rising experience and a religous experience, and so the best way that I can sort of fit all of his descriptions of "God" in with what I've experienced personally with an entity that I identified as "jesus" and that entered into my body during the brain haemorrhage, are very different. dad's "God" has a lot of hard work, never enough money, very ordered and disciplined, feels pretty pleasure-based, and no abundance, meanwhile the "God" that I experienced was chaotic but very joyful (lots of fun), and evreything was effortless. I just desired and it came to me, meanwhile he's always working so hard all the time. clearly we're experiencing different things.
+
 ### apollo, lord of the silver bow (diana counterpart?)
- - also, "archer of the sky" -- saggitarius?
+- also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
 ### bert and gilgamesh
 ### I'm already feeling bert setting in
