@@ -1,6 +1,6 @@
-# druidic-deconstruction
+# a-druidic-dee-construction
 
-...
+I believe that john dee (hermes/subtle/speed) encoded a lot of natural and alchemical transformations into the works of shakespere. as I've been studying, I'm noticing them more and more (they are subtle). then, after seeing the play "cymbelline", I understood how shakespere provided essentially a bridge for the druids and celts to kind of move their magick over to the "new atlantis" and cast their spells from hollywood. I'm not much for movies or storytelling myself, so I'd like to illuminate some of the transformations that (I believe) dee imarted into a number of playwrites of that time. I'm basically channeling here, so because of dee's nature, these entries will appear as very round-about discussions on seemingly disperate ideas; they're connected though.
 
 ### 2023-02-21 15:06 - strong female characters
 
