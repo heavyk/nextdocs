@@ -229,3 +229,11 @@ I know I personally am pretty good with the sun. if the weather weren't controll
 the next thing I noticed is I should probably get rid of the "I'm making a galaxy and sucks to be you if you don't want to join me" attitude. I'll ditch that, repaint the picture of just the earth experience and like with all tech startups, I just know the final product is feasible and awesome, so we'll just figure it out along the way. like, for example, I just don't have enough data to be able to comment to much on the spherical resonator stuff, so we'll have to build instrumentation to figure that stuff out... OK, reaction says, they have the data, it's just not publically available. so yeah, I mean, I know it's possible, it just needs a marketing touch to become a mainstream idea.
 
 as for the earth experience, I mean -- if you're living in austrailia, new zealand or south america and the sun is bothering you -- you'll end up moving -- but I imagine it'll be pretty green an luscious, so the weather will probably be fine. what will happen though is that law of attraction will be going so fast, nearly instant manifestation of thoughts and emotions may be the factor that encourages them to relocate. I don't forsee any problems with climate or weather being a problem though.
+
+### 2023-02-24 14:13 - miyara rose episode
+
+@[youtube](https://youtu.be/U4N9kgjbDz4)
+
+I know I'm going to ramble a bit with this video, cause I can feel a tsunami of ideas. first, I explained why the numbers 10 and 12 are important -- because it's the balance of the 5 and 6. one can look at this from the promethian perspective of the difference between the "gods" (6) and "man" (5). the gods had six fingers, meanwhile man only has five. we have two hands, so 12 and 10 are the max options each race has.
+
+you don't have to look at this from the promethian perspective though. I only learned of the promethian perspective recently, so first I want to say the other perspective.
