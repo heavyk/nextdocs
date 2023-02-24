@@ -236,4 +236,26 @@ as for the earth experience, I mean -- if you're living in austrailia, new zeala
 
 I know I'm going to ramble a bit with this video, cause I can feel a tsunami of ideas. first, I explained why the numbers 10 and 12 are important -- because it's the balance of the 5 and 6. one can look at this from the promethian perspective of the difference between the "gods" (6) and "man" (5). the gods had six fingers, meanwhile man only has five. we have two hands, so 12 and 10 are the max options each race has.
 
-you don't have to look at this from the promethian perspective though. I only learned of the promethian perspective recently, so first I want to say the other perspective.
+you don't have to look at this from the promethian perspective though. I only learned of the promethian perspective recently, so first I want to say the other perspective. 5 is a really interesting number that I've always been interested in. my birthdate is 5, 7 x 4. and so I've given a lot of thought about what each of those numbers.
+
+tesla said to look at the 3, 6, 9 -- which (tesla's) perspective is, like the procmethian less perceived by me. I prefer 5, and the day that I figured out so-called "penrose" tilinng I've been hooked on the idea of tiling, not in 3 (triangles), 4 (squares), or 6 (hexagons), but tiling in 5 (penrose). I just noticed "pen" and "rose". shakespere likes his pens and roses :)
+
+anyway, for me 4 is the earth, and 3 is something to do with frequency that I haven't really understood fully. you know symbolene is marked with the page number of 369, which is a mistake, so it's important.
+
+the next thing that I noticed is that she's trolling (so it's importnt) because she made the joke that 10 is used for binary and computer software... there are 10 types of people in this world, right so 10 dimensions is important.
+
+I'll tell you why it's important -- because it's how many fingers man has. it's the number of "options" that our brain perceives. when you look at this like a board game, if the cells are squares, there are 4T options. however, when you look at it as a hexagon, there are 6T options. that sounds like a really rad thing to have an extra dimension and tiling is infinite just like 5T is,
+
+but therefore... a 6T perspective is that everything is a "octave" of the next thing -- that is, double or half of what it is previous; the bigger the better. 5T extends out toward infinity in an infinitely no-self-similiar expression of itself. a bigger thing is always bigger smaller thing, and each thing -- no matter where you draw the line -- is different from every other thing, each part composed of a few different "genders" -- if you want to look at shapes as sort of the smallest self-similar outline.
+
+that's an interesting idea. I'd never thought about that before. I really want to know more about them now. I remember I got really interested in them once after watching a video on it. I didn't like the shapes that penrose had for his tiles, so I redivided the pentagram a different way. I'm sure it'll tile, so all variations of a pentagon with that amount (2/5?) will tile, I would imagine. I'm not certain though -- which is weird. I do know that I'm on the right track to figuring that out.
+
+anyway, so 10 is really awesome for us humans (like me). I really identify with the 5, and it's really one of my most favourite things. I remember I was really fascinated by vi hart's father's incredible work with forms with five, everywhere. funny coincidence her last name is hart (heart?).
+
+the gods really like that constant, bigger is better tiling of six, with an option pack of 12 -- wich I think is fine, however I like 11 even more.
+
+for me, the ultimate number is 11.  I never really knew why, but I just really always really liked the numbers 5 and 11. my password is 1155 cause I just really like it, you know.
+
+anyway, the idea of having 11 options is tantalising to me becauxe I just found out sometime recently that the result (*in base 10*) is a number that's triangular (*in base 10*) shape -- which means predictable; it's the best of both worlds. just saying. there's obviously room for expansion as well, and anyone can go as high that they want to go, but I really like 11 and 5 cause its relation to Infinity. so keep me here.
+
+on the other hand, you have the "gods" way of looking at it with the 6 -- the number between the 3 and the 9. each of these dimensions are symmetrical and circular, as all circular things are. let's keep watching...
