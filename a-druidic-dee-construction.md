@@ -40,3 +40,7 @@ not needing
 to channel;
 already AM.
 (past tense)
+
+### 2023-02-24 18:19 - a figure with 5 faces
+
+I don't know how to draw this because it uses negative space -- but a shape that has alwas interesed me is a 5-sided form. a tetrahedron is 4-sided -- but where is the 5? I can see it now though. imagine a pentagon, with a binary point that extends out of it along its normal. the distances are determined by one's toward, right on centre, and away, as in a normal of: 0, +Infinity, and -Infinity. these two/three distances each make up the "inner" space of a shape that does not extend outward into 3d, but *inward*. so, from the bottom direction (not from the top), it is perceived, but not from the other. the height of this 5 sided pyramid (like the one on mars), is the "inner" depth (but perceived as height), is the shape. it has 5 inner sides and there are a whole plethora of shapes that extrude inwardly, the chestahedron and its dual, the decatria, extrude inwardly and outwardly from this 5-sided shape. out of this, all of the assymetrical shapes can be calculated easily by following the progression of finding the dual of the shape before it and then reversing directions. I wonder what... interesting, the dodecahedron is its dual. that's probably important.
