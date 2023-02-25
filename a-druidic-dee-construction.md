@@ -27,7 +27,7 @@ but -- I see that I EM,
 all from my perspective...
 
 I AM after-all,
-a character, of
+a character; of
 a different
 type:the hidden
 6T.I AM all
