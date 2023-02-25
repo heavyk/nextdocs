@@ -299,4 +299,18 @@ instead of making it three distinct orientations, we could perceive the thing fr
 
 OK, one more try on the 1 + 2 + 2 arrangesent. three is a prime Number, but it's not the same as two. three is one in the centre and two on each side, just like 5 is four on each side and one in the centre, to make a square. so, just like the dual of the four is the five; so therefore, the dual of three is the two. the way that the three becomes two is it has to ends of equal length from itself. three is, from it's anticedent, two distances from itself. this is how spectrums are made, methinks?
 
+### 2023-02-24 17:46 - why genders?
+
+I thought it was weird myself, but one can see the alignment of one to one kind of pene-rose or another must have to do with their "gender" -- and in this, I'm saying more closer to sexual preference. each preference has two things that it's kinda but always not. notice the symmetry from the top to the bottom of how even the top still has two sides to it? it's actually kinda 7, and so fourth. what looks to me like is a set of values that go off toward infinity in relation to the top. you see the top is convex, but the bottom in concave, and so we can imagine the top rose has two arrangements on each side of outward expression, yet on the bottom, there are two arragements on each side of inward expression. if we imagine now that the two sides are also roses, then these each have two ... the picture can be looked at like this:
+
+on the bottom: we can imagine: that,  between the two feet, the point on the star betwixt the two feet attracts inwardly from the bottom feet. now, imagine the two feet now's relation to the arms:
+
+each arm is a rose that connects in an outward direttion to the head and also to the feet. this means that both rose types connect in different directions to the top, with an input or an output direction to the two arm roses. the two arm roses also connect in an outward direction to the feet. the feet are also roses.
+
+OK, now, besides the head/top, the arms and feet are each a pair of roses that can connect in an input/output fashion to the opposite ones. the top has an outward expression, the arm roses are separated by the heart, and the feet roses are sparated by an inward expression. the head expresses its will in an outward fashion, and the bottom ones manifest it in an inward expression. the star grid eventually stablilises.
+
+I can also see that the four directions as having obviously more shapes coming off of it, most obviously, if we look a dimension higher, the "square" is actually an octahedron, which when switching from three to two again, is a cube.
+
+viola :)
+
 ### planetary gridworker romance:
