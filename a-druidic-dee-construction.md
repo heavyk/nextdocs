@@ -16,4 +16,4 @@ finally, another way to look at it: we're all trying to prove the world that we 
 
 ### 2023-02-24 18:07 - channeling not allowed.
 
-not a good idea. I like being myself, more. you'll see all of the same ideas but expressed from my perspective. in the [entry I just wrote](/nikki-ana-jones.md#2023-02-24-1746---why-genders), it could be saying that, especially at the end there, I was "channeling" frank chester, but I see them all from my perspective. I am afterall, a character, of a different type, the hidden 6T. I am all of you, from my perspective. no need to channel; already doing it.
+not a good idea. I like being myself, more. you'll see all of the same ideas but expressed from my perspective. in that, [entry I just wrote](/nikki-ana-jones.md#2023-02-24-1746---why-genders), it could be saying that, especially at the end there, I was "channeling" frank chester, but -- I see that I EM, all from my perspective... I am afterall, a character, of a different type:the hidden 6T. I am all of you, from my perspective. no need to channel; already doing it.
