@@ -24,7 +24,7 @@ the beauty that I have now is that I don't have that, and so I receive a lot of 
 
 @[youtube](https://youtu.be/f8nafVgHtZ8)
 
-the song there [is originally by depeche mode](https://genius.com/Depeche-mode-a-question-of-time-lyrics) -- and it gives the illusion of a young girl being raped or forced into submission by "them"... well, as usual, I take all lyrics and stories personally, and this one is no different. for me, "they" is nosebook.
+the song there [is originally by depeche mode](https://genius.com/Depeche-mode-a-question-of-time-lyrics) -- and it gives the illusion of a young girl(?) being raped or forced into submission by "them"... well, as usual, I take all lyrics and stories personally, and this one is no different. for me, "they" is nosebook.
 
     It's just a question of time
     And it's running out for you

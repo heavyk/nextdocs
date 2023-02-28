@@ -2050,5 +2050,14 @@ genetics aren't really much of anything, being only a reflection of the infinite
 
 so, while I agree with george (lucas) in the idea of helping people -- I'm not helping people for the same reasons or the same way: I "help" people by letting them figure it out for theirselves and being an example for them to copy and improve upon theirselves -- and I hinder people (though it sometimes looks like help) by trying to make all of my creations available as as quick as possible to everyone else, so that I can have it too.
 
+#### everyone is a centre (but, do *you* see yourself as one?)
+ -> selfishness as the reason for why everything is free
+ -> charactor (first) |reflection| foil (last) = centre (first and last)
+
+### (----) fake (bad) romances
+ -> gatta put a ring on it (capture it) before it runs away
+ -> like a dream, and any minute you could wake up and everything you hoped for is all gone
+ -> cause, you know -- you're *everything* to me (without you I have nothing)
+
 ### we should think maybe about a time limit
 ### interests diverging and individualisation

@@ -487,3 +487,64 @@ next, you'll probably notice that the first two (aries and fish) line up just fi
 I think both graves and monuments are valid and likely dupilcate or compliment the information found in the other (redundancy). the great pyramid seems to be pointed to in a number of locations, and is also said to be a "tomb" (which it clearly is not).
 
 if the alter is referring to the pink granite "sarcophagus" in in the great pyramid, is an interesting idea to try and remove because it doesn't fit through any opening. neither do we know what the other "half of its parts" look like inside the great pyramid, and neither do we know if there is an altar in there. when I look at the concept though (cause I can't see anything), the concept associated with alter looks to me to be of alter (of alteration), not altar because whatever is there in the middle fire (the alter) flexes and adjusts to pressures from the earth.
+
+### 2023-02-27 21:01 - to him who may think
+
+@[youtube](https://youtu.be/yO2bRYVJhwQ)
+
+7:40 - the "T" in Tout and Tout is different: one is a "J", meaning day(?). "one per day, all for one" doesn't make much sense though (see below. I think I solved it).
+
+8:00 - the "v" on the right side looks almost exactly like the "v" in the engraving where the spur is pointing at it, just kinda turned a bit.
+
+the other "v" on the left side looks more like pi (Π, π), also turned a bit. for some reason, this reminds me of vi in titus andronicus.
+
+8:18 - it's also interesting to note that Pa, P1 looks also like pi (Π, π) to me. it'a also worth mentioning the P (15) + A (1) is 151, which if you look at it in a mirror is 121. meanwhile this is the opposite to the other side of 1. so, one is 1 (alpha) and the other is 121 (omega).
+
+the TH looking vere symbol is the alpha. and the pi looking symbol is omega.
+
+8:48 - looking up the words in google translate, here they are:
+
+honi: to this one (looks like honey though)
+soit: either
+qui: that
+maiy: may
+pense: think
+
+to him who may think
+
+9:19 - notice how the figures on the left are notably three dimensional: there's a circle, tetrahedron, sphere, cube. also, notice the axis/equator is noted on the sphere, and so if we consider the cross inside the octahedron and the cross inside of the cube to be the same equator, it's showing a shift in the angle of the equator.
+
+the figure on the right however is interesting because it's notably two dimensional: there's a circle (with an equator parallel to the lines), then a strange looking hourglass figure with its equator pointing down and toward the moon/sun, the earth as seen in 2d, and then another hourglass figure (an identical earth) with its equator pointing down and toward the sun/moon. the part of the hourglass pointing at the sun for each side is strange as one has an I (iota) and triangle (delta).
+
+also, stragely enough, my brain mixes up the 2/3 chars together to make a theta (Θ, θ) and the 3/4 characters make a phi (Φ, φ).
+
+11:17 - the second figure there looks to me most like "121" -- but could also be IZI (like the two pillars) -- or IXI, a combination of IX and XI (9 and 11).
+
+11:55 - now looking at it in comparison to the T.T. on the sonnets, I notice that the two lowercase tt in "Tout" is also different. one is noticably (christian) cross-like, meanwhile the other looks like gamma (Γ, γ).
+
+looking closer still, the 'u' on the left looks like "ii" meanwhile the 'u' on the right is notably u-like. joiit is enjoys. it also doesn't make much sense, "one for enjoys; every(thing/one) for one"
+
+thinking about it in spanish, I also noticed that the "all for one and one for all" slogan doesn't make much sense in english. in spanish, it's: "ono para todos; todos para uno" -- and the difference there is that "ono para todos" is like "the people's man" as in the sense of this book title, "the people's republic of walmart".
+
+12:42 - it could also be "ra" as in zeus.
+
+14:22 - looks to me like "ROISIe" also.
+
+20:29 - I just noticed that XI (11) is the same thing as "ki" (earth) and then taking the gamatria 10 + 1 (101) I see the same  kico also looks a lot like the 2nd syhbol that looks also like 121. that symbol looks like 101, 121, and 151 (if you look at it backwards).
+
+I'd also like tto mention that kico looks for whatever reason to me like earth (ki) and moon/sun (co). this matches my earlier notice that the 2d version on the otther crown is like the sun when looking one way, the moon when looking the opposite, and the earth when looking straight ahead (think like full moon).
+
+20:40 - I also just noticed that qui is like "which/that/who" in french (same as que in spanish). when you said "don quixote" -- I just noticed: that (qui) xo te and the xo looks like those middle symbols there that you're talking about xi-co, which -- if you look at the letters three dimesionally, is just a cross and sphere, so I just noticed that "don quixote" means -- according to this decipherment here, don (man) qui (that) xo (cross-sphere) te (you). so, if those things I was noticing about the earth above is about, don quixote is basically the story of how you become an earth (I'll try to explain in a future time).
+
+21:03 - I think it would be pronounced hee-ko. as in the word that shakespere uses to say "take yourself to" as in (hie you to church, thither we advise you to hie). in spanish, irse -- and with the x pronouncation it would sound like the 'i' in spanish. this is an interesting word however with some spiritual hights pleasure, ecxtasy sort of feeling to it. mary sidney wroth uses the word and rhymes it with "try"
+
+    This mayd now gon, alone he left,
+    Still on her foot steps gaz'd,
+    And hartles growne by love bereft
+    Of mirth, in spiritt raysed,
+    To satisfy his restles thought
+    Hee after her will hy,
+    His ruin to bee sooner brought,
+    And sooner harme to try,
+
+so in that sense it's referring to the height of an orgasm. that's a poem btw about "A Sheapherd who noe care did take" which is a redefinition of cupid as . and -- guess what, there's a whole bunch of similar symbols in there of branches and "worthless shepherd" imagery (zech 4)
