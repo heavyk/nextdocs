@@ -742,4 +742,53 @@ the next thing that I noticed is that saturninus (the roman emperor).
 
 (incomplete -- got lost researching)
 
+### 2023-03-01 12:31 - two worlds
+
+@[youtube](TODO)
+
+when I listened to that song, I immediately felt discomfort to this idea: "we *were* close to the wonders still awaiting us" (as if we've somehow missed the opportunity -- which we definitely have not). secondly the line, "we can *only* live in one of two worlds" -- because the thing that I noticed in the planetary gridworker romance saga, I noticed that it's now possible to artificially switch one's world from one to another (they would simultaneously exist all in the same "space"). I also think it'll be possible for people to "graduate" from one world to another. in addition to that, I don't actually see one world being superior to the other two -- because over time they'll all diverge. when things are binary, they tend to make better/worse superior/inferior comparisons because of only one dimension to work with. that setup, not only has infinite expandability, but by nature, you're looking at the three default "worlds" in 3-5 different dimensions (depending how you look).
+
+- I've noticed with a number of metal bands and jason's work is that they have a theme of atlantis (neptune) where that whole thing is founded on the idea, "we're gonna do things a bit differently"
+  - according to dtp, the three main factions were necropan (osiris, then later ra), suern (jehova), and poseidi/atlantis (incal, the sun).
+- atlantis was different because it didn't rely on any magic or religion to accomplish its harnessing of nature's forces. instead, they took a purely tecnological approach (one that I'm definitely a fan of, obviously).
+- what appears to me is that there seems to be desire for a "breakaway civilisation" -- we want to do things differently.
+- going back to the xandria song there, the define the new world as the one where they dream, a journey of wonders, jules verne and tomorrowland -- and that's pretty much it (not a very good sales job).
+  - instead, the song posits that this is a fragile and lost hope to try and dream so lofty becasuse we're doomed to live in orville's next dystopia.
+    - so, probably more of a fallstaff than a sales pitch.
+- the idea of having two worlds also showed up when I was [looking at the latest vere/tudor codes](/correspondance.md#2023-02-27-2101---to-him-who-may-think)
+  - first of all I liked it because the message is written inside of a banner that says "to him who may think" -- which, I guess nobody *actually* looked up what it meant (or typed it into google translate like me... lol), so this message is for people not just taking the well-accepted translation of a heraldic slogan
+  - the next thing that I could see is that there are in fact two worlds -- seemingly on opposite sides of the sun.
+  - the other message there is that one of the sides there is identified by A/V/TH so I'll call them the alphas.
+  - the other side is a bit different in that it's identified by -- well, I see pi, anyway. these are the omegas
+    - the interesting there here is that tau (alphas) represents a whole circle in relation to the radius, meanwhile pi (omegas) is only half a circle relating to the radius. the age old discussion of tau vs pi, I guess.
+    - pi reminds me a lot of titus andronicus, where rape and murder are alchemically trasforemed into two pies (ie female), which then tamora eats.
+      - tamora is a composite character (because lucius ) I believe where she represents to saturn, what ganymede is like to jupiter (the moon titan), which I think is saturn's "golden ass".
+      - when she eats the pie, she produces a mixed race baby -- which is about how far I got yesterday
+      - it's also important to note that aaron (as in counterpart to moses) hides 1000 pieces of gold below the elder/world tree so that something good will come out of the evil (forgot the quote).
+        - aaron, is a bit of a reversal of roles here because aaron is associated with the golden bull, which bull is what rome should be associated with but in this case rome is being run by saturn, so it's a reference to a time (like present day) when rome is run by saturn. aaron is also black, like saturn.
+    - in any case, the symbols are showing the destruction of the roman (red). I agree with the play in that this is likely what the reds are attracting, but the conflict is not necessary.
+      - I also call the neo-phonecians the reds, and I think it's also interesting to note that they're the ones most interested in the imperial age, atlantis sort of ideas; another reversal of roles.
+- the idea of a "new earth" is certainly not anything new as, the last chapter of the bible is entirely dedicated to it.
+  - the text (if I remember )
+
+#### the golden ass
+
+it's also worth mentioning that if one combines the different symbols in the "[the golden ass](https://en.wikipedia.org/wiki/The_Golden_Ass)", it's pretty easy to see that the tale of the wife's tub is talking about vulcan's wife having an affair with mars. the problem with that is that in some accounts, vulcan's wife is aphrodite (earth) and in other accounts. at any rate, because of the affair mars sorta combines the abilities of vulcan (-5+) with the abilities of himself (+7) and also aphrodite (-7). so then later when he hooks up with venus (-3) which came out of the heart/forhead of jupiter, this produces cupid -- which, according to the descriptions sounds like pure desire.
+
+it's interesting to note as well the story of cupid and pshche (as in, he's in love with a manifestation of his own mind). she's to be wed to a beast, and looks like there are two indirect references to saturn there: venus was the consort of saturn (and thoth), so the temple of venus may be a reference to that. next she's told to go to the underworld to get some beauty from prosperina/persephone/ereshkigal (the consort of saturn/nergal).
+
+book 11 even tells us that prosperine, diana, ceres, venus are all the "queen of heaven". in order for lucious to get returned back to human form, he has to eat a crown of roses and be initiated into isis' priesthood; isis being the true name of the "queen of heaven".
+
+isis being associated with the sun and the ruler of heaven (ie the symbols in the sky) is significant because "heaven" was always referring to where the "gods" live -- so then one of my theories is that venus is inhabited on the astral plane and that they're the sort of symbolic system where earth and the other (vega?) earth are getting their symbols from. because she's -3, she outputs symbols (3), and saturn (+-4) ensures that they manifest here on earth. remember, 4th ray perception is a combination of 3 and 5 so, he's literally captivated by the physical/sensational part of her symbols, mostly unaware of the conceptual/emotional part of them. she's the link I believe between this earth and the other (vega?) earth.
+
+isis being the queen of heaven is also interesting to me because I've long held that isis is the sun... so, in the idea that I was [looking at the latest vere/tudor codes](/correspondance.md#2023-02-27-2101---to-him-who-may-think), I noticed that the sun was in the middle of the two earths there -- and so if that's the setup, it looks like the sun will have returned back to being the queen (centre) of heaven. in the time when I want to make the galaxy, I see the earth (+-1/7) as being the centre of that -- and that's because I made the progression from planet (more circle) -> star (more dot) -> galaxy (more circle) -- but you know, if we're going back to dot again, that's cool by me. it's an interesting idea to say the least, and I really like the idea of there being a second earth here as well -- especially if can house their desired breakaway civilisation.
+
+#### the other (vega?) earth
+
+this concept was originally put out by terence (mckenna), and I picked it up and ran with it. terence (afri) also seems to be an interesting guy, as it seems that he sorta came out of nowhere wrote a bunch of plays which became the foundation of shakespere and nicomaco plays, and then just sorta disappeared. it makes me wonder if he can consciously move around in time.
+
+anyway, in order for such a concept of another star (-2) to be putting out similar output to our own, there needs to be an interface to work. 2nd ray is a mix of symbol (3) and desire (1). if venus is essentially copying the symbolic perception of our planet (as connected through saturn and the underworld) and then transmitting it out to our sun and vega, the sun will be putting out the same symbolic interpretation of those things -- however, what's missing is the desire/will component. I believe that this planet has a 1st ray star in its centre (-1), and so it's receiving desire and also outputting it, so the sun is taking earth's human desire, mixing it with the symbols of venus, and then outputting them. this is then controlled into a manifestation by saturn in the underworld.
+
+that's probably why cupid has some of those strange tasks. anyway, I think the other world is a great idea, and we should figure out how to get them a new earth :)
+
 ### the-tick: both good and bad guys
