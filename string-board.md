@@ -712,4 +712,34 @@ this saturnian 4th ray interminging of heart-strings *is*, I belive the reason f
 #### august wilson, africans, slavery, and the god of the jews which brought them out of slavery is identifable to them
 #### mwow and the desire part + lost in translation, sophia's desire to put bill murray in situations that would cause him to have an erection (like fallstaff)
 
+### 2023-02-28 12:46 - ganymede and the golden ass
+
+ganymede was a trojan that zeus really loved. notice how this is the contrary to zeus' daughter athena that burst out of his forehead, fully armed, a beacon of wisdom and understanding for the greeks. ganymede is portrayed all over the place as queen hera.
+
+I realised the other day when I woke up that the creation of venus likely happened when ganymede/vulcan/hera had sex with a highly reflective/attractive girl. the way it appeared to me corresponds a bit further with my explanation of "[will and the witch](/the-manifestation.md#2023-02-26-1454---will-and-the-witch)", where if you were to think about the X now instead of from the female's perspective, think about it from bottom's perspective: which is that all of the 5th ray stuff that gets amplified/transformed/diminished continually gets amplified, because bottom starts out as an actor (and I think this follows the story of the golden ass by metamorphosis), and so instead of swapping the X, what happens, is he (the actor) is copying the same sort of just, right, and honourable, big-picture (2nd ray) values of his charactor, and so bottom will (mostly, with a slight twist) resist, amplify, and sometimes transform the same the input signals the same way that the charactor does. obviously this continues to amplify both the good at the bad.
+
+so, when bottom has sex with a reflective girl, it'll create essentially a reflection of all of those things. so, as an example let's consider the case of vulcan (-5+) having sex with helen (-7). this causes jupiter/zeus/ra (+3) to release all of that stored up vibration and passing through the reflection of helen/genxicat, this produces reality: athena (-3) -- the antithesis of zeus. athena causes all kinds of problems because she's pro-greek (white), meanwhile ganymede/hera is notably pro-trojan (red). that's the basic idea there -- and notice as well, that ganymede is also the opposite to zeus as well (-5+ vs +3). notice also the -7 and -3 reflection chamber much like earth's -1 and -7. they form a sort of triad/quad with ganymede (-1, -3, -5+, -7).
+
+---
+
+OK, so now today I'm waking up and I decide to watch some metal. yesterday I watched the first half of "[titus andronicus](https://youtu.be/6ruTPx6YknY)" -- and I noticed a few things. first of all: aaron (opposite to moses) the moor (not white) hides 1000 pieces of gold below the elder/world tree. the 1000 pieces I believe represents 1000 new charactors, which will actually turn into gold (centres).. they appear to me as stars.
+
+the play has a *lot* of notable characters: titus is ares -- who, in the parable of the tub, is the the lover that was hidden in a tub. the smith is ganymede/vulcan and his wife is helen/genxicat. it tells the story of the triad of mars, venus, and vulcan. this encounter of mars (+7) with venus/athena (-3) caused a lot of problems and essentially is what produced the golden ass (cupid). in addition to that triad, there is the relation of saturn and venus (venus is saturn's wife and why the 54 perspective is occulted for saturn, only seeing 34 perspective).
+
+titus (mars) does have a son (lucius) and a daughter (lavinia). they're two aspects to the same person I suspect, as lavinia, represented by lucius and the golden ass (respectively).
+
+anyway, as the story unfolds, aaron (the moor) gives birth to a mixed race baby (like andromeda). demitrius and chiron are grown down to their essence, and lavinia/lucius helps him while titus "plays the cook" (reference to the golden ass) and bakes them into two pies (ie female, cause males only have one pie) which then tamora eats (which seems coincident that she also produces the mixed race baby). saturn then advises titus (mars) to kills his own daughter lavina (the receptive side of cupid), and the masculine side of cupid (lucius) is declared emperor.
+
+however, saturn *does* seem to have a hera-like companion though and that's tamora, who has a (notably homosexual) engagement with tamora as well.
+
+ninlil/sud (ham), the mother of ninurta (mars).
+
+susana and the two elders (jupiter and saturn).
+
+the next thing that I noticed is that saturninus (the roman emperor).
+
+@[youtube](https://youtu.be/jaSlR30rlCs)
+
+(incomplete -- got lost researching)
+
 ### the-tick: both good and bad guys
