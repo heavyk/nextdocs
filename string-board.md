@@ -743,8 +743,8 @@ the next thing that I noticed is that saturninus (the roman emperor).
 (incomplete -- got lost researching)
 
 ### 2023-03-01 12:31 - two worlds
-
-@[youtube](TODO)
+ 
+@[youtube](https://youtu.be/olqr_2p8j0g)
 
 when I listened to that song, I immediately felt discomfort to this idea: "we *were* close to the wonders still awaiting us" (as if we've somehow missed the opportunity -- which we definitely have not). secondly the line, "we can *only* live in one of two worlds" -- because the thing that I noticed in the planetary gridworker romance saga, I noticed that it's now possible to artificially switch one's world from one to another (they would simultaneously exist all in the same "space"). I also think it'll be possible for people to "graduate" from one world to another. in addition to that, I don't actually see one world being superior to the other two -- because over time they'll all diverge. when things are binary, they tend to make better/worse superior/inferior comparisons because of only one dimension to work with. that setup, not only has infinite expandability, but by nature, you're looking at the three default "worlds" in 3-5 different dimensions (depending how you look).
 
@@ -790,5 +790,7 @@ this concept was originally put out by terence (mckenna), and I picked it up and
 anyway, in order for such a concept of another star (-2) to be putting out similar output to our own, there needs to be an interface to work. 2nd ray is a mix of symbol (3) and desire (1). if venus is essentially copying the symbolic perception of our planet (as connected through saturn and the underworld) and then transmitting it out to our sun and vega, the sun will be putting out the same symbolic interpretation of those things -- however, what's missing is the desire/will component. I believe that this planet has a 1st ray star in its centre (-1), and so it's receiving desire and also outputting it, so the sun is taking earth's human desire, mixing it with the symbols of venus, and then outputting them. this is then controlled into a manifestation by saturn in the underworld.
 
 that's probably why cupid has some of those strange tasks. anyway, I think the other world is a great idea, and we should figure out how to get them a new earth :)
+
+the venus aphrodite mixup
 
 ### the-tick: both good and bad guys
