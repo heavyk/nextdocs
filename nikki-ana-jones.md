@@ -323,5 +323,10 @@ so anyway, what I was saying is that yesterday it dawned on me that perhaps a "h
 
 [1]: I just looked up the rider waite card and the card has the left leg (attraction) turned, but the hanged man in the sky (and my mirrored visual memory) has the right leg (perception) turned
 
+### outside-in narration vs inside-out narration
+ -> narrative vs priciple
+### how does ganymede produce -3 venus
+### the venus-aphrodite mixup
+
 ### the hanged man
 ### planetary gridworker romance:
