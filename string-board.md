@@ -791,5 +791,8 @@ anyway, in order for such a concept of another star (-2) to be putting out simil
 
 that's probably why cupid has some of those strange tasks. anyway, I think the other world is a great idea, and we should figure out how to get them a new earth :)
 
+#### 2023-03-02 16:43 - john keats
+
+I think I solved the problem of how to get a new earth. drawing on inspiratons from the golden ass, my research into venus, and the real-life experience of john keats, I began [to understand poetic summoning](/poeticc-observvrence.md#2023-03-02-1457---on-poetic-summoning).
 
 ### the-tick: both good and bad guys
