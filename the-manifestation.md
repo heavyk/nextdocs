@@ -2054,10 +2054,47 @@ so, while I agree with george (lucas) in the idea of helping people -- I'm not h
  -> selfishness as the reason for why everything is free
  -> charactor (first) |reflection| foil (last) = centre (first and last)
 
+### 2023-03-02 20:21 - marriage contracts
+
+of book 11 in the "the golden ass" (which I want to begin reading), wikipedia says:
+
+    The story concludes with the goddess, Isis, appearing to Lucius and declaring that Lucius shall rise to a prominent position in the legal profession and that he shall be appointed to the College of Pastophori ("shrine-bearer", from Ancient Greek: παστοφόρος) that he might serve the mysteries of Osiris and Isis. Lucius is so happy that he goes about freely exposing his bald head.
+
+I want to start to avoid narrative realities, so I may not want to read this -- however the damage has already been done so I'd like to elaborate on the "prominent position in the legal profession" bit. it's not the first thing time that it came up, as there's a book mom got me called "last days of night" which also has paul in it, as a sort of lawyer for tesla. so suppose that my grandiose plans need a sort of tesla that can produce the machinery to ensure such an opposite earth can exist, and that it'll be what we want it to be (ie, the part of the spectrum that we're not). the concept of paul is an interesting one because I don't hear a lot about paul in spiritual circles -- in the airy-fairy sense, anyway -- and instead I hear most him referenced in condemnaton and a steering capacity for various ideologies. shakespere himself is notably pauline, but also a bit of a foil to paul as well. it's funny that paul is the name of the lawyer that represents tesla. anyway.
+
+therefore, when I read shakespere, there are essentially four types of plays: ones that end in marriage/tragedy (and ones that don't). other plays, end in marriage but the marriage doesn't seem to feell like it was a desired outcome.
+
+I don't mind going for tragedy, meaning that there's no marriage, and everything falls apart tragically. there are so many great train wrecks that if I were to match the symbols of my present situation on to those tragedies would be a pretty hilarious train wreck, I gotta tell you.
+
+however, if we're not going for tragedy, then that means marriage. marriage is a word with a considerable amount of baggage to it. we often times perceive the ideal, yet because our reality concepts of the ideal symbols (what we really believe/expect), then every time, it creates a manifestation which will produce (after some quantity of tragedy), the perceived reality of those symbols. obviously, this is a disaster waiting to happen. our perceptions of what marriage is, and what it means is not at all realistic; even the vows themselves are not even realistic.
+
+so, in order to begin to manifest the terrestrial reality, instead of the "ideal" reality, I'd like to consider the whole arrangement like a contract -- a contract with logic to it. I'll treat it therefore, like a computer program.
+
+my perspective is one of infinite expansion. I don't really see it stopping. to understand this type of perception, consider emotion: when in the middle of strong emotion, the pain, pleasure, or whatever feels like forever. it's near impossible, the stronger the emotion is, the harder it is to think that it'll be anything other than forever. we know that it can be different, but when it's captivating, it's so real -- that, like a dream, it feels like forever is happening.
+
+forever does happen, and it's unavoidable, because a reflection of those concepts will continue to manifest over and over again. consider that the vibration of things that we create today will forver bounce around inside of earth, gathering other like vibrations, resulting in a manifestation -- meaning that everyone and everything is, forever. that's an infinite loop.
+
+in computer programming, unless there's a reason to put an iteration limit, the lopp will *always* jump back to where it started and start again. imagine this as a DAC, where the amplitude of each sample is its value, which is the result of a function with some logic in it. the sequence can be of any length -- and, within it are jumps based on various conditions. this is the exact structure of DNA, I believe.
+
+therefore to the base marriage contract will be "while forever:" -- and so since this is an infinite loop, I'll render this into english as "we're going to be together forever, so:" -- and then there are the conditions.
+
+though a loop is infinite, it doesn't mean that the processor will continue its vantage point inside of the loop, and can go elsewhere which either returns at a later time, or not; we'll call this, divorce.
+
+my marriage contract with each of the reflectors will only be the "we're going to be together forever" part. that really is the only stipulation that I have, and so what that means is they get to fill in as many conditions as they want (from zero to Infinity) all the things that they want to put in and what they want to get out, as well... I guess -- or, just "for see what happens". I really don't want to complicate anything at all.
+
+if you look at the essence of this contract, all it says, essentially is "I agree that I'm an infinite creator of my reality". obviously we all are, but I think it's good to recognise this, because now you see myself as an eternal being or infinite loop; and only I can destroy myself. I'm 100% responsible for *all* things that are happening in my experience. that's all I'm really wanting to express myself, as I can see that from out of there, I have the freedom to feel how I want to feel about whatever's manifesting in reality.
+
+the other thing to comprehend here is that I kinda don't really want to go to reality-earth with a bunch of technology either. we'll come to find ways to get the technology that we want by finding ways to get to it (naturally). I do hope that nosebook is going to try and keep us in the stone age for as long as possible, and we'll naturally also create our own nemeses as a reflection of our own perception. I have no comprehension of what that sort of technology we'll end up with, and that's kinda the fun part is the discovery process anyway, and it'll also inevitably be whatever our nemeses are unable to block (ie whatever is attracted). so when I think of what will become of whatever it is, I don't really know how many of the traditional machines we're used to here on earth that we'll have.
+
+whatever technology we develop will depend largely on whatever our containers feel most comfortable with trying to control -- and I don't know if that'll be mental, mechanical, or organic (or some combination of the three). it's really difficult for me to tell -- and, going by the pen-rose idea, it could be that they fashion 3 different worlds and then use us essentially to figure out those aspects for theirselves -- cause they are afterall, only able to learn and come to what they want, apparently by steering us from a superior top-down position.
+
+in conclusion:
+- I don't know what "bald head" means, but it could mean either nakedness and/or hairlessness.
+- a contract (marriage or otherwise), though traditionally recognised by the state, is ultimately an agreement amongst the participants.
+
 ### (----) fake (bad) romances
  -> gatta put a ring on it (capture it) before it runs away
  -> like a dream, and any minute you could wake up and everything you hoped for is all gone
  -> cause, you know -- you're *everything* to me (without you I have nothing)
-
 ### we should think maybe about a time limit
 ### interests diverging and individualisation
