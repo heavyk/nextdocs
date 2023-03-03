@@ -374,11 +374,71 @@ that new reality version is going to again produce a manifestational replacement
   - though I'm sure there will be a solo rock-star out there that wants to go by theirself
   - and other such (char)actors will will group up into a world, and then symbolically manifest it for theirselves with a sort of artwork
   - and I'm glad that saturn isn't displaced and all that good stuff...
-- however, if I'm going to reality earth, I'm narrating from the inside out, so I/we'll need other centres out there that see from the inside-out perspective.
+- however, if I'm going to reality earth, I'm narrating from the inside-out
+  - on reality-earth me and an initial s we'll become a group of centres that all hang out on reality-earth.  out there that see from the inside-out perspective.
 
 you can understand now that this topic totally fascinates me. I love making reality. I'm sure there are some others, too (interpret that however you will).
 
+### 2023-03-02 17:52 - reality-earth
 
+- the way I see this happening is somehow
+  - (and I'm not the one with incentive to get centres off of this planet)
+- as people start to live in separate pen-rose realities
+- there will be groups of us that retain a centre perspective, and so we'll become really attractive to each other.
+  - the sun responds to this a lot, and I think the combined output of our planet's inner star, along with the angle that it has with the sun
+  - the 1st ray star inside of earth output is a reflection of our desire_
+  - so if we get moved over to reality-earth
+    - it has an effect of reversing the signal
+    - (like the male rose -- see pen-rose stuff)
+  - the desire that we create on our planet will be strong on our planet and also reach the sun, so it's sort of lik a high frequency manifestational boost (see pen-rose)
+  - this lets the star on the inside of earth (and the sun on their side) seemingly settle down over night.
+  - meanwhile, on reality-earth, the star inside there becomes a reflection of our desires -- meaning that the conflict of the reality of our desires no longer needs to produce intense heat over there.
+  - the same solar signal on reality-earth will create for us the high energy environment as a manifestation of our perception.
+    - our desire output won't interfere with theirs.
+    - inclusively, they'll receive (like the male rose), a boost to their manifestations in attraction power.
+    - essentially, they'll be pulled toward their manifestations quickly rathar than the stuff on the road being really big.
+    - just by putting us on the other side of the sun, our size/intensity of desire won't make the stuff on the road too big anymore -- but instead, feel small and manageable.
+  - you can then imagine that we'll have solar reflections of ourselves out there as well (2nd rays).
+  - various different types of perception will we be, and all of these a different angle on that desire.
+  - because I see all rays pretty equally now, I'm fairly certain that will be the destiny of everone with me.
+  - seeing so strongly from the 7th ray perspective, the planet, and all of the machine (physical) realities that we create to manage our systems will be an extension of our planet. what the other earth does on the other side of the sun, is a reality that's literally behind us.
+- to understand the backwards manifested reality
+  - let's take the five-fold-path as an example:
+    - each person has a level of awareness to each of the aspects
+    - each level of awareness is a reflectction of their ability in that area, and so each successive reaality that they manifest in their dream like reality will be a reflection of the reality that they want.
+    - different manifestational realities are a reflection of the sybols produced by the narrator and his/her perspective.
+    - when she is repeptive, she produces one reality
+    - when he is reecptive, he produces another reality altogethr.
+  - somehow, me and and pretty much anyone who becomes a manifestational problem
+    - (a strong emitter of desire that's not compatible with their reality)
+    - this perspective seems to be mostly the inside-out centre perspective -- cause it causes collisions.
+    - this, I realise could potentially be a lot of people.
+    - what I'm not sure, is how many reflectors will find it difficult for them
+      - (cause I don't see from a pure reflector, not centre perspective)
+    - anyway, those of us that find ourselves over there will create a reality really quickly.
+    - we're the "real" reality creators
+    - this earth is for those still figuring out how they want to create their realities yet, trying out a narrative with the narrator having different amounts of the five-fold-path
+  - since we're a group of centres that all hang out on reality-earth, I can see us sort of starting out as a solar system (the one in the clear blue sky) that simply just keeps expanding.
+  - I don't know what other stars will do in this galaxy, and/or if we'll absorb them, cause I don't have anything to worry about with that.
+  - the galaxy around us, may still retain their capacity as a narrative backdrop for us as we traverse the year.
+  - the planets as well, will either be moons of the sun (like mercury and venus) or the'll become p-orbitals, like the rock-stars.
+- we've essentially each got our own side, so we'll become our own spiral galaxy in the long term
+- I don't think it's at all impossible for either of us to swich sides if we were to want to.
+  - I do imagine it would be quite uncomfortable for anyone that doesn't have a LOA (realistic) 7th ray perspective to make it very far on reality-earth. they'll meet their reality really really quickly.
+  - the way to switch over into our world is simply to attract it -- that is a reality that's realistic enough to be compatible with our desires and form of pertception.
+    - it's important to think of reality-earth as a reflection of me. it's got the 1st and the 7th ray, just like earth, so it's got the whole spectrum of inhabitants.
+    - we'll occupy a purely physical perspective
+      - that means that our perspective is not so much of going deeper into dimensions (we retain only 3), so instead of going deep, we're going wide.
+      - I know that my brain will continue to expand its capacity of how many things it can see/perceive at a time, so all of those things will be connected up to our physical "self" (see captain-of-3d)
+    - only things that can match my perception (ie things that feel good/interesting to me) are things that manifest into my physical space.
+    - all things become a reflection of the percetion of whomever is on the planet.
+    - you feel good, good things manifest; if not, it's a pretty difficult time.
+    - it's a good idea to practise to create what's wanted before coming over to reality-earth
+      - I wonder if when someone switches sides, because of the inverted manifestation to the sun, they become cirtcles instead of dots (ie planets/galaxies).
+      - I bet that's how it goes, so somewhere on the other side of this universe is another centre LOA attraction type. that's cool.
+    - it's also good to keep your reflection of my perception away from manifestation, until it's ready. seems good.
+  - anyone can be anywhere that they feel theirself able to be.
+- obviously the fractal nature of the setup means that it's infinitely expandable to the reflection of whatever other axis of perception (than (char)actor) anyone can come up with, making it have a dimensional or hourglass shape to it. that's also cool, but a LONG ways away.
 
 ### narrative vs priciple
 ### how does ganymede produce -3 venus

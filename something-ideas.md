@@ -38,6 +38,10 @@ man, there are so many good ideas. next time I'm going to sit down and try and c
 
 quick little bit on that: one of the mistakes that I didn't do so much in tuenti is because we had to show the interfaces to each other and zaryn, so we drew them on the board, even before beginning to program. same (kinda) with gatunes -- but I had this habit of wanting to start programming before I knew what it looked like, because I don't have visuals, so it seems useless to me (which  is why I liked working with designers so much) -- however, it's an extremely import part of the creative process to figure out the shape of the data by figuring out the inputs. that tells me what are the boxes I'm putting things in, so then from there I'm figuring out what ways tto display the content of those boxes *in the technology*. the thing is, that doesn't get me the implementation. that gets me an idea ready to be imlemented -- which isn't useful. furthermore, because ideas are always changing, I can never keep up with the constant flow of iprovements that I can make to the idea. so conceptualising the interface for me (a non-visual person) into a physical medium is *extremely* important for discovering new limitations to overcome, cause those are the new ideas.
 
+#### 2023-03-02 18:26 - ability to set some sectcions of a song to be random harmonically similar sections
+
+sometimes I want to hear the same set, but I'd love very slightly different variations on the section, so I can hear the same thing in a slightly new way.
+
 ### 2022-11-07 18:07 - cell calculator
 
 this is a spreadsheet app written in your favourite language for your favourite OS that talks to elixir. the elixir backend just has concept of other cells. the address space is infinite (hashes), and cells are found at a predictable pattern, like A1 will always refer to (0,1) or whatever (as the designer for the spreadsheet or whatever you're making) you define the cells and their dimensions.
