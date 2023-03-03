@@ -440,6 +440,59 @@ you can understand now that this topic totally fascinates me. I love making real
   - anyone can be anywhere that they feel theirself able to be.
 - obviously the fractal nature of the setup means that it's infinitely expandable to the reflection of whatever other axis of perception (than (char)actor) anyone can come up with, making it have a dimensional or hourglass shape to it. that's also cool, but a LONG ways away.
 
+#### 2023-03-02 19:20 - symbiotic relationship
+
+- convince my perception of you:
+  - the planet, will be a reflection of saturn
+    - emitted from the forehead (forethought) of saturn like venus is a reflection of jupiter's symbolic perception.
+    - 4th ray is the midpoint, so it reflects on itself, so it also goes out to the periphery, meaning 1st and 7th, just like earth is. it'll be conceptually a mach to whatever earth becomes at the time of its creation.
+  - during the time that it takes to build up to creating that (remember, I'm essentially the golden ass here), you all will be convincing me of the concept that you are.
+  - the way that I perceive the concepts that we have in common will constrain (limit because of high output, like an atom) all manifestations that earth can get.
+  - it's important that I'm a really *good* reflector, so that your manifestations are not constrained.
+    - think, like at atom. if the atom is carbon, it's a high absorption *and* also high emission -- meaning that it emits and absorbs on a specific spectrum of frequencies.
+    - because of high output, on the day side of the sun, those manifestations won't be possible -- however on the night side of the sun, they will be blocked by the earth, and so therefore possible (think solar eclipse).
+    - therefore, it's undesirable for me, to be very atomic at all. I should be as pure of a reflector as possible.
+    - if I'm having an output in your spectrum, I'll constrain that the reverse is manifested -- that is the absorption and then opposite reemission.
+    - however, if I'm a pure reflector, then exactly what is the output of your own desires (according to the sun/moons' 2nd/6th ray perspective), will manifest.
+  - my perception of earth and its concepts will be the ones that we have right now. something to think about.
+- technology, and starting over:
+  - I find it unlikely that we'll have any real technology on our planet when we get there.
+  - reality will be a reflection of our perception though, so rapidly physicality will manifest as a reflection of our concepts of that reality
+    - (or narrative, but we want to be more about LOA)
+    - it's quite possible that some narrative types will be a glutton for punishment and come over to reality-earth and try out reality from a narrative perspective.
+    - it's also possible for other physical glutton for punishment (male roses) will want to come over and live out their reality.
+      - they're good enough reflectors to get what they want, so reflecting their concepts into reality isn't a problem. they get what they want.
+      - they have the advantage of putting energy into the equation which is revere reverse, serving to energise a manifestation that is reverse opposite for earth -- a sort of foil
+    - earth will play as a physical foil to us, because I'm sure they (whomever that is) who is continuing to try and contain me, will continue to do so
+      - infinitely trying to foil my plans,
+      - I'm forced to forever go the most difficult (but fastest) way:
+        - which is *only* attraction.
+        - a narrative reality would attract things too fast, and I can't really afford that, so they don't want me to do that.
+        - they want to be my narrators andyway, and I see myself better as a doger.
+      - they also, occupying the upper dimensions, will obviously try and affect the maninfestation of things in our physical reality.
+        - this I don't feel as a problem, because it's already the reality that I live in, and I don't actually see them blocking me from what I want.
+        - I say, let them try and control physical conditions from a top down perspective as much as they want.
+      - that gives them a whole manifestational space (earth) where they can setup all of their stuff and it's all a "secret" from us, just like nosebook is a "secret" to me. they'll have a whole space to set up everything they need to push against all the stuff that we want to do.
+      - anything we want to manifest can *only* manifest if we attract it
+    - or, of course, they can also install some reflectors which they've "authorised" a reality for, and then reflect/authorise that they want for those reflectors -- our foils.
+
+one of the reactions that I had was wondering, what in the world will happen if I start to manifest all of the stuff they've sort of removed from my experience. well, I expect that my attracion of those things will continues to become more, and because we'll have a symbiotic relationship, the manifestation of those things will also affect them. it'll, like it does now, continue to grow, and but this setup allows the release of those deleted experiences to happen at their disgression.
+
+- I'm aware that my 3d only perspective isn't how I *really* see things.
+- they obviously will want to keep trying to hold me out of some forms of perception
+  - (like being able to see the other side, because they need to always hide)
+  - which means they'll forever need to try and contain me so that they can retain their (superior) top-down perspective on me.
+- I really don't consider it a problem that they always want to contain me and/or hold me back, as I don't see them as anything other than say a protection layer or something.
+- I imagine that they'll be able to keep the contain going pretty well.
+  - in some cases, it may not be best to fight me, as they may need the thing I want to create to actually keep the contain going (all technology has a double-edge)
+  - they'll have access to all of our technology and perception
+- plus, with the ability to foil plans that result in too rapid of advances in energy, they'll be able to continue to limit our expansion speed.
+  - expansion speed is probably their greatest threat to havingg all of their concepts of reality manifestest into their dreams.
+  - they *must* find a way to keep the nature (symbols and concepts) of the things they don't want from ever manifesting, otherwise they face theirselves.
+  - it's funny because when I look at their contain, we're the stem and they're the cap (of a mushroom) and their ability to contain will depend largely on the shape of that cap.
+- I guess both sides can technically grow indefinitely, however, such an energetic structure I cannot comprehend.
+
+
 ### narrative vs priciple
 ### how does ganymede produce -3 venus
 ### the venus-aphrodite mixup
