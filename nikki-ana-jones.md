@@ -323,8 +323,64 @@ so anyway, what I was saying is that yesterday it dawned on me that perhaps a "h
 
 [1]: I just looked up the rider waite card and the card has the left leg (attraction) turned, but the hanged man in the sky (and my mirrored visual memory) has the right leg (perception) turned
 
-### outside-in narration vs inside-out narration
- -> narrative vs priciple
+### 2023-03-02 16:49 - outside-in narration vs inside-out narration
+
+hi again, :)
+
+after thinking a bit about the idea of narrating.. I mentioned that I already am narrating by writing this, and that thought had a few interesting reactions to it because nobody thinks I'm narrating.
+
+when talking about sophia, I explained that I'm a good doger. it was a silly thing to try and explain at the time, but the essential idea is that I see from the inside-out perspective, meaning that I have stuff coming at me all the time, and so my narration is to fit them into spot inside of my brain so they don't cause a significant impact.
+
+you'll notice that here (and in voice), I go off onto sort of tirades about things -- and, except for the stuff I'm truly annoyed at, these are all symbolic manifestations that I see, in a sense, coming at me. I can "see" (feel) them coming a mile off, and because there's still something that I don't like about how it feels, I end up thinking deeply or writing about, such that I can make (logical, not abstract) sense of what the thing is. this helps me to kind of put it into a box, categorise and conceptualise it in a way that no longer bothers me. you could say that I'm "aborting the idea" or even "forcing an evolution-of-desire" by continuing to write about the things that I see on the distance.
+
+for example: I'm obviously limited by the english language. I can't write quickly at all, and the language itself is adequate, in a number of ways (probabilities for example), so this comes as part of my desire to start programming again, because I want to make a system of symbols that can be traversed at rapid speed, not only to express programming concepts (they have inputs, then depending on the inputs output another thing -- and so then the inputs drive the implementation, and the same transformations can be used in a number of diffeernt places -- for example). the other reason for this is that I see on the distance a tsunmi of symbols and perceptions and I'm sure that some not insignificant amount will not feel good to me -- and I'll need a way to process them effectively. obviously writing in text, like I'm doing now simply won't work.
+
+the difference for an outside-in person, is that they also seeing things coming towards them, but they feel they need to steer them in using narrative. [as I mentiond talking about keats](/poeticc-observvrence.md#2023-03-02-1457---on-poetic-summoning), what ends up happening with poetic-summoning is that you bring in the ideal version, *not* the reality version. if you can perceive the reality version (ie, what you really believe), then manifestaion will be what I believe... look at it like this:
+
+if I give my attention to something for a long time, like in a thought experiment, or by reciting or meditationg poetry, this activates in a strong way a feeling. that feeling is a concept -- and I always "see" the ideal in my imagination. the imagination them gives it's best physical picture representation of that concept in the imagination. the feeling attracts the manifestation, not the picture, so what ends up happening is the "ideal" one manifests because the reality version isn't parity with the imaginary version, and then the "ideal" manifestation then helps you to manifest the reality version. this was the difference between ideal isabella and clear isabella (claribel), and so she sorta transformed or swaps out pretty quickly for the reality version.
+
+that new reality version is going to again produce a manifestational replacement for itself based on the new version of reality that I have for her. if it's the same person, she stays for as long as my concept of her retains parity with her reality version; and, if it's not, she manifests the next reality version. rinse and repeat until she is growing, shrinking, or remaining constant -- parity with my concept of her (ie how she feels).
+
+#### centre's narrative perspective
+
+- [poetry and writing are not the same](/poeticc-observvrence.md#2023-03-02-1359---poetry-vs-writing)
+  - narrative (poetry, song, etc) is using the function/implementation of LOA to accomplish what it does because you're focused on something for a long time. that focus attracts the concept/feeling into manifestation.
+- that narrative is only a crutch.
+- as much as I like narrative, I like much better to think of the world as frequencies and stuff like that.
+- I'm a reality guy, so I prefer the nitty gritty reality stuff.
+- I'm a centre, so as a result, I see everything from an attraction perspective (see above section)
+  - I'd like to explain the centre's perspective someday.
+- I'd like to point out that because I like the reality perspective, there are many that enjoy the dream perspective, and that I believe, will be ultimately divides us.
+- that division is not a bad thing, as it's actually quite a good thing.
+- the other day, I [watched a masque by ben jonson](https://www.youtube.com/watch?v=Fkyt8-G0DEk).
+- right there, on the thumbnail, you'll see the king there. the function of the masque was to summon things.
+  - he has no idea what all the stuff means to the creator.
+  - he sees dancing, rituals, and things.
+  - he probably can hear the words, but for example I cannot because it's such low quality.
+  - the song and dance, are just symbols
+    - but, because the king always has such strong perception, he sees at a depth which will manifest those symbols rapidly
+  -  so just like, poetic-summoning, those things becoming, manifest as a reflection of his perception
+    - (and the more obsure the details of those symbols, the loftier ideal the manifestation will appear in his imagination)
+    - (and also the reality of his perception of those concepts)
+  - the manifestation produced, will fall apart or stay together as a reflection of the perception of involved in the manifestation
+    - if my symbols manifest for other people and I don't ever see their manifestation
+      - (like undoubtedly these manifestations were for the writers of the masque)
+      - the manifestation is carried only by those that know about it, the manifesation is a sort of "secret" that only the creators of that reality know about.
+      - this creates a number of situations where people can use me to live out some of their sickest fantasies... - others, can use it to *actually* get the reality of that they really want (as a reflection of the (char)actor)
+  - I'm sure that this is already being abused, and it'll probably be the world of dreams that others (mostly adults, I would imagine) are so inclined toward.
+
+- where that is all going isn't really my concern.
+- it's really cool that this earth will transform into a multi-reality, where anyone
+  - though I'm sure there will be a solo rock-star out there that wants to go by theirself
+  - and other such (char)actors will will group up into a world, and then symbolically manifest it for theirselves with a sort of artwork
+  - and I'm glad that saturn isn't displaced and all that good stuff...
+- however, if I'm going to reality earth, I'm narrating from the inside out, so I/we'll need other centres out there that see from the inside-out perspective.
+
+you can understand now that this topic totally fascinates me. I love making reality. I'm sure there are some others, too (interpret that however you will).
+
+
+
+### narrative vs priciple
 ### how does ganymede produce -3 venus
 ### the venus-aphrodite mixup
 
