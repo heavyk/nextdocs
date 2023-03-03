@@ -2093,8 +2093,8 @@ in conclusion:
 - a contract (marriage or otherwise), though traditionally recognised by the state, is ultimately an agreement amongst the participants.
 
 ### (----) fake (bad) romances
- -> gatta put a ring on it (capture it) before it runs away
- -> like a dream, and any minute you could wake up and everything you hoped for is all gone
- -> cause, you know -- you're *everything* to me (without you I have nothing)
+-> gatta put a ring on it (capture it) before it runs away
+-> like a dream, and any minute you could wake up and everything you hoped for is all gone
+-> cause, you know -- you're *everything* to me (without you I have nothing)
 ### we should think maybe about a time limit
 ### interests diverging and individualisation

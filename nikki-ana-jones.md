@@ -494,6 +494,12 @@ one of the reactions that I had was wondering, what in the world will happen if 
 
 
 ### narrative vs priciple
+-> if I make the most ridiculous, ourrageous, or unbelievable narrative what manfests?
+-> who's principle interpretation manifests?
+  - my parent's?
+  - my viewer's?
+  - my culture's?
+-> what is a principle (or thrust) of an idea if manifests based on the way it feels and our interpretation of that feeling (ie, is it believeable?)
 ### how does ganymede produce -3 venus
 ### the venus-aphrodite mixup
 
