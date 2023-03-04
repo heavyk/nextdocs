@@ -2116,6 +2116,16 @@ finally, I'd like to mention that I'm much more like calihan and fallstaff than 
 
 because I'm also a bit of a centre, I do tend to show up in your minds as a reflection of my appearance which is governed by prospero (nosebook). so I'm constantly fighting (is not the best word) their portrayal of me, cause you guys come to expect whatever image they display me as. I know that it's not even close to how I am, so I'm kind of like a reverse charactor and foil mixed together -- meaning that they portray me as much *better* than I really am, and then I turn your overly optimistic perception of me (venusian ideals) into 3d reality. it obviously doesn't match a lot of times and most of the time, what you all want from me is not what I'm wanting. I then have to find a way to sideline those ideals apparitions (like I'm doing here) so that the ideal (patricia) can evolve into reality (raquel). I'm *not* the guy you see when I'm asleep. that's prospero's "art", not me.
 
+#### 2023-03-04 14:24 - if symbolically, I'm caliban...
+
+I mentioned that symbolically I'm more similar to caliban, and then I just woke up and I have some further insight on the idea. I just [looked up sycorax](https://en.wikipedia.org/wiki/Sycorax), and my suspitions were right. with connetion to the raven and crow, she's the "dark goddess" -- which, is a reflection of your perception of her. in one way looking, she's 7th ray genxicat (manifest earth) in the form of miranda here, and the other angle of reflection, she's anatau/eve (desired earth), the base instinct from which enki fashioned all females.
+
+the essential idea here is that, sycorax/anatau is the foundation upon which all of prospero's entire setup is working: the island that he inhabits, he only inhabits because caliban is his slave. ariel is was in love with her, but because of her unrequieted love, he was pined to such an extent that prospero had to let him out (obviously homosexual), and so ariel/mars continues to serve prospero for as long as he remains enamoured with her and unable to satisfy his desire for her.
+
+this looks to me like a continuation of the story of vulcan produces aphrodite/pandora/sycorax (-7). she hooks up with mars (+7) and that produces venus/athena (-3) which then becomes the consort of saturn. however, my brain is very confused now because miranda would then appear to be venus. anyway, in other mythologies, mars does hook up with venus (leaving the giant gash on the side?) and that produces cupid (I believe). the thory behind that is that -3 venus is the opposite of vulcan (-5+), and so if mars (+7), were also receptive (as he appears to be in the form of ariel) were to interact with venus, that would produce his opposite: (+1) cupid.
+
+it sounds like if ariel goes away, a lot of prospero's magical capability goes away with it. the play also ends with a bit of uncertainty on whether prospero is actually going to let ariel go. I'm not sure why, but that seems important...
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
