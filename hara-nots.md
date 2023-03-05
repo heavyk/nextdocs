@@ -277,3 +277,9 @@ I used to tell people what they wanted to hear, so I've paid a lot of attention 
 likewise, if ferdinand continues to say that everything is difficult, I don't think it'll actually increase his pleasure, but actually decrease it. I've noticed when doing drugs (notably alcohol), that when I try and pretend like it's doing nothing, that's when I lose sensitivity to it, and I no longer experience the pleasure of the drug in the same way that I did when I first experienced it. in order to continue to have that amazing first experience, I have to notice how the same quantity of amazing each time I do it; I can't just be like, "yeah pfftt, that's just nothin but hard work".
 
 I recommend to ferdinand that he be honest about his experience, so he actually enjoys it. justifying plasure and delight to others with descriptions of hard work just isn't worth it. enjoy your work, so it's not work anymore.
+
+#### some kinds of baseness are nobly undergone; and most poor matters point to rich ends
+
+> for menial tasks, it's still noble if there's a reward that justifies it
+
+same thing as above about justification -- however, there's a bit of an aire of superiority in there, where he has to stoop down to some lower position to perform such a thankless task (of moving logs? lol). I really dislike his attitude.
