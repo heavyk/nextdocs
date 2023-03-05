@@ -283,3 +283,19 @@ I recommend to ferdinand that he be honest about his experience, so he actually 
 > for menial tasks, it's still noble if there's a reward that justifies it
 
 same thing as above about justification -- however, there's a bit of an aire of superiority in there, where he has to stoop down to some lower position to perform such a thankless task (of moving logs? lol). I really dislike his attitude.
+
+#### complaing about miranda's father putting him to work
+
+> she's sooo worth it, that I'll indirectly complain about the awfulness of her father by saying how much she's worth it
+
+I mean, I guess, if he thinks she's that worth it -- but, as I explained in the first section, it's not a good idea to justify her or anything. in a relationship, this is the most common pitfall that I've seen guys run into: they build a girl up to immeasurable heights, creating this fantasy about how great she is and how she's soo worth all of the effort -- only to find that she *doesn't* live up to his expectations of her. that's when things fall apart.
+
+the reason why I think she does not live up to his expectations for her is because she *usually* doesn't actually believe in herself. this happens to me routinely with all sorts of people. I routinely have an optimistic idea of what other people can do -- mostly because, for most of my life, I thought other people were like me. turns out, they're not. the stuff that I think is "easy to see" or "obvious" isn't at all to others. I don't see what others see, and they most certainly don't see what I see. so, as long as miranda can maintain as lofty of a perception of herself as I have for her, everything will go fine -- however, if I see her for more than she sees herself for, often times it only causes her to see her own shortcoming. that leads to more comparison of herself to others, until she finally concludes that she's not good enough.
+
+the comparison of her to her father will directly reflect into her own future analysis of her shortcoming, and it'll also start me on a journey of noticing more and more the awfulness of her father. it's not a good idea to compare or notice unwanted (though admittedly I do it, not infrequently).
+
+besides that, the other difficulty I have with this part is the parallel to "no pain no gain" -- because I've found that from everything from the most menial house chores to whatever that I'm doing, I *want* to enjoy them! -- not because of some reward at the end, but because I want to have a good time doing whatever it is; and then, the more things I'm enjoying, the more things I'm attracting that are enjoyable (and noticing about my present cIrcumstances).
+
+you can't go from an awful situation to a good one without dragging some awful in along with it, so if I want to have a good-feeling situation, I have to start feeling good now, so the next situation will start off already feeling good.
+
+however, because I've developed the skill, I can, *now* feel the way I want to feel in any situation now with relative ease -- and, that agility makes my noticing the awfulness of something less of an issue. I don't think this is the case for ferdinand though, so he's setting himself up for a whole lot of difficulty, in my estimation.
