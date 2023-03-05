@@ -243,3 +243,7 @@ every time that someone reacts to a concept, the concept changes ever so slightl
 what that means that all of this stuff that I talk about is *automatically* guaranteed *not* to happen... "outdated" is the mantra I repeat in my inner monologue. it's so cool to outdate a concept, and the *main reason* why I write about a lot of stuff; I know that when I write it, it won't happen.
 
 isn't it funny to think about whatever happens, probably won't be written down. looking back from the future, it could be anything. almost certainly it'll have a couple revisions anyway.
+
+### 2023-03-04 23:36 - gonna try criques...
+
+not of you -- you're lovely -- instead, on the content of shakespere's dialogue. I find a lot of the things that his characters say to be rather unsettling, and because your videos sort of draw out the emotion of some of those things, I'll just try it. if it's not working, I'll switch up to another idea or whatever -- no pressure :)
