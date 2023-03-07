@@ -55,3 +55,25 @@ this allows for complex programs to update each other's cells. this was the orig
 ---
 
 the idea then is that any web app or any language can interface with these different cells. they'll become the databases for future forms of web data I think... think about writing a web app like this, where the tables are all dynamicly calculated cells, then anyone could write their own catalogues of data and make them available for other people. I suppose using them to organise social things could be possible, but I want to make it easy to write something like this program I'm using here, but have it able to retrieve and save data about the documents. making notes, blogs, spreadsheets, logs, etc. will all be very easy. later building a blockchain system to make it permanent is a future task.
+
+### 2023-03-07 14:33 - chrome extension: highlighter
+
+I read a lot of stories and things on wikipedia the browser. often times I get really confused when there are a lot of references to the same person or thing with different names. for example, in the plot description of this movie, https://en.wikipedia.org/wiki/Ready_Player_One_(film)
+you can see that it refers to the same character by their name and avatar:
+Art3mis, Samantha
+Parzival, Wade
+etc.
+
+I'd like to be able to highlight those names and assign each of them a different color. that way, when I'm reading it, I can identify them (ex. Art3mis and Samantha)  visually with the same color (even though the article is switching between the avatar's name and the character's name)..
+
+another (more difficult) example of this, which is really what I'm going for, would be to do the same with more complicated searches (like regex), for example reading the illiad: https://home.ubalt.edu/ntygfit/ai_01_pursuing_fame/ai_01_tell/iliad03.htm
+
+Atrides, Menelaus, etc
+Atreus' son, Agamemnon, son of'Atreus, etc.
+Laertes' son, the great tactician, Odysseus, etc.
+(land of the) Achaean[s], (land of the) Argive[s], Greek[s], etc.
+
+it gets really complicated for me to remember all of these things, and so to make it easier on myself when I return to read it, or to show/teach it to others, it'd be pretty great to automatically highlight all of these characters and their epithets visually.
+
+other examples are Shakespeare plays and stuff like that. for example today (and the reason I'm writing this), I set out to study Pericles, and has 3 derivative works with different names for some of the characters, so not only would I love to have each of the many characters highlighted in the original play, it'd be great to see their same name highlighted in alternate versions also.
+https://internetshakespeare.uvic.ca/Library/Texts/Per/index.html
