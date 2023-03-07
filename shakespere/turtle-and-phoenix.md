@@ -185,3 +185,83 @@ you have to see that the 2nd ray in descending down into the physical, is a "sav
 I hope I explained the seeming contradiction between truth and beauty being dead, but at the same time thteir death has now made it possible for everyone to be true (grown honest) and fair. the connecting idea is the rarity. if what you want/desire is no longer rare and what you wanted is truth, then, "truth" is now "every one" but because truth requires a opposite falsehood to exist, "truth" no longer exists "no one" has truth anymore.
 
 another try: if everyone has $100 and everything costs more than $100, nobody has enough (rarity/scarcity exists). however if everything now costs, $1, then with $100 everybody now has enough (abundance exists). nothing really changed, other than the market is flooded with desirable (good enough) things. reason doesn't explain this very well. it seems paradoxical, but it's basic economics.
+
+### 2023-03-06 18:35 - antoher look at the death of beauty and truth
+
+in the video, tim mentions that this poem has feelings of john keats' "ode to a grecian urn". when I made these notes a while back, I hadn't read keats before. now, [after having figured him out](/poeticc-observvrence.md#2023-03-02-1359---poetry-vs-writing), tim's comment makes A LOT more sense :) I totally see the connection now, and there's another aspect I hadn't put into the framework of the planet's vibrational range moving beyond physical (7th) frequcies and into esoteric/conceptual (5th ray) frequencies -- something the sirian guide mentioned, but I hadn't really considered it [until this morning](/the-manifestation.md#2023-03-06-0937---the-two-worldsearths), where I talked about how this planet wants to move up to 5th ray, meaning all of the physical stuff we know and love will dissolve and instead become a more vapour-like substance of dreams. I don't really want to live in a world of dreams, so I suggested that we find a way to make a second world (at first), then another earth, where 7th ray people (like myself) can exist and thrive.
+
+upon watching tim's video again today and reading "ode to a grecian urn" (copied below), I'd like to take another look at the death of beauty and truth:
+
+                  ODE ON A GRECIAN URN
+
+                            I
+    Thou still unravish'd bride of quietness,
+      Thou foster-child of Silence and slow Time,
+    Sylvan historian, who canst thus express
+      A flowery tale more sweetly than our rhyme :
+    What leaf-fringed legend haunts about thy shape
+      Of deities or mortals, 'or of both,
+        In Tempe or the dales of Arcady ?
+      What men or gods are these ? what maidens loth ?
+    What mad pursuit ?  What struggle to escape ?
+        What pipes and timbrels ?  What wild ecstacy ?
+
+                          II
+    Heard melodies are sweet, but those unheard
+      Are sweeter ; therefore, ye soft pipes, play on ;
+    Not to the sensual ear, but, more endear'd
+      Pipe to the spirit ditties of no tone :
+    Fair youth, beneath the trees, thou canst not leave
+      Thy song, nor ever can those trees be bare ;
+        Bold Lover, never, never canst thou kiss,
+    Though winning near the goal — yet, do not grieve ;
+        She cannot fade, though thou hast not thy bliss,
+      For ever wilt thou love, and she be fair !
+
+                         III
+    Ah, happy, happy boughs ! that cannot shed
+      Your leaves, nor ever bid the Spring adieu ;
+    And, happy melodist, unwearied,
+      For ever piping songs for ever new ;
+    More happy love ! more happy, happy love !
+      For ever warm and still to be enjoy'd.
+        For ever panting, and for ever young ;
+    All breathing human passion far above,
+      That leaves a heart high-sorrowful and cloy'd,
+        A burning forehead, and a parching tongue.
+
+                            IV
+    Who are these coming to the sacrifice ?
+      To what green altar, O mysterious priest,
+    Lead'st thou that heifer lowing at the skies.
+      And all her silken flanks with garlands drest ?
+    What little town by river or sea shore.
+      Or mountain-built with peaceful citadel.
+        Is emptied of this folk, this pious morn ?
+    And, little town, thy streets for evermore
+      Will silent be ; and not a soul to tell
+        Why thou art desolate, can e'er return.
+
+                              V
+    O Attic shade !  Fair attitude !  with brede
+      Of marble men and maidens overwrought,
+    With forest branches and the trodden weed ;
+      Thou, silent form, dost tease us out of thought
+    As doth eternity : Cold Pastoral !
+      When old age shall this generation waste,
+        Thou shalt remain, in midst of other woe
+      Than ours, a friend to man, to whom thou say'st,
+    'Beauty is truth, truth beauty,' — that is all
+        Ye know on earth, and all ye need to know.
+
+the mental image tmat this poem evokes for me is the time between the creation of the second earth and the time we're in now (especially with the Attic shade, and "marble men and maidens overwrought"), is that the side of the earth that is facing the sun, has essentially eternal spring and is a very magnificent place to be, and all that great stuff, but the problem with it is this: it's a dream world.
+
+to understand why this is the death of beauty and truth (the grecian urn/sacrifice) is because the astral is entirely imaginary. I like the physical plane because beauty is a reflection of the way that you conceptualise your reality. people with a voracious appetite for reality (and concepts which make them feel unstoppable) tend to be very attractive people. the 7th ray physical reality is entirely a reflection of the conceptual. however, like with dreams and the imagination -- anything can look good. now, beauty (which is q reflection of a concept into physical) no longer has to be a reflection -- but can be covered over with a pretty image.
+
+truth is the same problem: if I have a concept, the concept itself *is*, so therefore it's "true" or "truth" -- and it can be felt plainly. so, when a person feels (for example) old, their physical body will start to look old; however, in the astral I can feel old, but disguise that feeling by making a pretty shape for myself. I no longer must be a reflection, and so therefore, the "truth" of something no longer catches up with it over time (like it does in the physical).
+
+I personally don't want to be a part of such an imaginary world, and have no interest in taking part in it. I don't mind that others love the idea of narrating their way through their dream realityies, but I like real reflections of concepts, so I'll be finding a way to continue to live and exist in a physical format.
+
+I did also find it interesting that the poem is all about going from 2 to 3 -- which is exactly what the whole pen-rose idea is all about, and what I believe is the catalyst of such a brave new world.
+
+it's also very interesting to me how these poet-apes are kind of like mind viruses to those that want to learn how to tell good stories. like a masque is to the king, shakespere is to the storytellers of the modern age: the depth/power of perception that the king has, in conjunction with his ability to see symbols, motions and colours, tells a symbolic story that is not immediately apparent, but yet is also still attractive -- kind of like an ugly or grotesque tragedy that is compelling and sexy.
