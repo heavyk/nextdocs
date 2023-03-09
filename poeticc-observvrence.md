@@ -71,7 +71,7 @@ one way to look at the idea is to notice the spectrum of youthful perception. it
 [I want to edit the poem so it shows up nicer and add in a lot more interpretations to the different ones. another idea is to add in their -7 -> -0|0+ -> 7 numbers. unfortunately though, I don't feel like editing it now as it feels like too much work to do it.]
 
 
-##s## 1
+#### 1
 ##### Lo dì che han detto a' dolci amici addio. (Dante)
 ##### Amor, con quanto sforzo oggi mi vinci! (Petrarca)
 
