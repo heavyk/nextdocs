@@ -184,7 +184,16 @@ I'm actually not all that worried
 
 ---
 
-there are too many cool things about it which I do really like, so it's worth the risk. one of those is that we're going to have a much more multidimensional reality that's gonna feel real natural. it'll be quite the sensational experience, as everything is going to be notably more appetising-feeling (and also less) than before. like things will just feel disinteresting, and no longer wrong. that's the main advantage to this 2-axis system.
+there are just too many cool things
+about it which I do really like, so
+it really is worth the risk.
+
+one nice thing is, we're going toward
+a much more multidimensional reality
+that's gonna feel real natural.
+
+it'll be quite the sensational experience,
+as everything is going to be notably more appetising-feeling (and also less) than before. like things will just feel disinteresting, and no longer wrong. that's the main advantage to this 2-axis system.
 
 you know, I think this 2-axis system is kinda like DNA, becaue now there are two (and programatically more) spectrums in which to perceive the world. each person, I think will uniquely create their own. the reason why it's like DNA is because it has more than one axis: 0, 1, > 1. you see that the last term there (moaning multiplicity), I mean multiplicity of person, or of perception. in 3d, multiplicity of perception is easy. I'm quite aware of a lot of other things happening in my environment, and I realise therwe is as lot of nosebook edits to my environment already, it's still pretty reflective of my perception. I know that as nosebook continues to get control over it, they become my reality; they become a reflection of me. so in one way, I can put a bunch of doubts into your head, like I did above, is my kind of joke. I know that the final product is that they're going to become a 100% reflection of my perception, evntually. so whatever happens is is *always* going to be perfectly fine :)
 
