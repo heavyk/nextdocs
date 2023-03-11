@@ -2228,6 +2228,24 @@ I figure this leaves only those that have good enough conditions in buy good-fee
 
 I realise that this is the ultra-slow turtle's pace of going, but I can only go as fast as I can go. we've got a long way to go though, and we're starting off as slow as possible, but I imagine that after sufficient weight has been dropped, we'll have a wider spectrum of speed in which we can go around in -- though I don't ever expect to ever become king or ruler of any kind. instead, I suppose that will always be occupied by an ever more power hungry and overbearing npcs. I don't ever need to have power in order to feel good, and you shouldn't either. our good-feeling and porception of life in an ever-growing solar situation will carry them all the way till the "end of time". at which time, I figure, all remaining conscious people will have either figured out how to work with the sun (and earth), instead of trying to control it, or we'll go out with a pretty tremendous blast.
 
+### 2023-03-11 15:24 - all night long
+
+@[youtube](https://youtu.be/K2WZGid9Pmo?list=PLnwUc2pAlFcfE8yTdGSQIvDwicFDfakwv)
+
+after listening to a number of songs in that list, most notably by "walk in darkness", I've been thinking a lot about many of those songs lyrics. one theme that I noticed was one of the sun, the idea of doom, and that it's our destiny to have the world go through a major solar regime change. I'm in full agreement on that idea, but I'd like to share my perspective on it.
+
+it's said that "a day is like a thousand years" for the sun, and I think that's fairly accurate[^2]. the sun doesn't really sleep like we do, but more goes into a less focused state (kinda like tesla claimed to have done year the end of his life). the idea is that when you're conscious 100% of the time (like the sun), you need to take a rest from time to time, so when I say "all night long", that's relative to being conscious 24/7.
+
+imagine then that you wake up and something is very enticing to you, like a budding excitement. that's low solar activity -- and then as the day continues on (1024y for us), things get more and more exciting until things really heat up there at the end. it could just be one bang, or it could continue on...
+
+therefore, I understand the idea that we want to just get it over with as quickly as possible. let's say that we're going to the "end of time" here by ~2043-53 or so -- that's 20-30y divided by 1024 -- a little less than one half of an hour from initial budding excitement to pop (if you know what I mean).
+
+so then, I think we can do a little better than that... just saying. one of the songs suggested that we go for 500y buildup and then return after that. sure :) I don't really know why not -- but then again, what if she didn't actually need to pop? what if, instead it was just a continual buildup to higher and higher states of extasy? something to think about...
+
+[1]: I realise that some of those songs were written 5+ years ago, and our perception has changed quite a bit since then... I could probably go through and note some of the things that I see differently.
+
+[2]: cept that I think it's actually 1024y, and we're aligned so that the years are the solar years, minus 1000, so for example today is actally 1023-03-11, and this solar year actually starts/ends prolly around next year. 1024y later, we're at 2048 and that's the *actual* end of the year.
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
