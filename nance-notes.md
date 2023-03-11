@@ -1418,6 +1418,18 @@ I find achilles perspective a bit too fate-al-realistic for me, so I thought I'd
 
 [2]: I put quotes around it, because as I've come to learn through life, that my father seems to have blurred a lot of the lines between what I would call ordinary kundalini-rising experience and a religous experience, and so the best way that I can sort of fit all of his descriptions of "God" in with what I've experienced personally with an entity that I identified as "jesus" and that entered into my body during the brain haemorrhage, are very different. dad's "God" has a lot of hard work, never enough money, very ordered and disciplined, feels pretty pleasure-based, and no abundance, meanwhile the "God" that I experienced was chaotic but very joyful (lots of fun), and evreything was effortless. I just desired and it came to me, meanwhile he's always working so hard all the time. clearly we're experiencing different things.
 
+### 2023-03-10 20:54 - zeus' failed sign
+
+in book 12, zeus gives a sign of an eagle having caught a serpent, but in mid flight, the serpent bites the eagle and drops the serpent into the middle of the trojan army. I'm assuming that eagle = trojan, and serpent = greek, because the trojans freak out about the sign and automatically start to believe that the battle will be somewhat of a failure, with the eagle unable to return the serpent home to feed its hatchlings.
+
+I'd just like to point out that this is a common problem with a narrative reality -- in that if you believe "your side" to be associated with a single symbol, then a single visual sign (caused by anyone with the capability to conjure an image in 3d space), can seemingly alter the beliefs of those in battle. we see time and again, a single dream inspiring belief in victory or defeat in the many factions.
+
+so, not only is the belief of each of the factions tied to the most powerful conjurer of images (zeus regularly dupes people by shapeshifting or presenting himself as an illusion), but it also completely destroys the individuality of the people involved. they, believing theirselves to be tied tto a single symbol believe in the binary (good vs evil) form of perception, believing theirselves to be a part of one of the sides. like a person rooting for their favourite sports team, the ability to feel good or bad about the events is entirely based, not on the individual's perception, but by the symbols conjured by the most powerful magician (like hollywood).
+
+because of the fragility of believing in a symbolic "sign" to cause one to feel good about their conditions, I recommend, if one is going to engage in symbolic or narrative reality, to perceive oneself in *all* all of the symbols, including even in the sorcerers. that way, you can't lose -- and, it's good practise to be able to see oneself as a micro experience of the whole, by being able to see both symbols as their own.
+
+so, for example, if I were to see zeus' failed symbol there, I always like to break things down to their most abstract components. an eagle has very good eyesight, and flys high above the earth (like zeus), and so both sides (can't remember which side zeus is on right now), can perceive this as the top-down leadership thinking that they got the snake, but in reality the snake comes back to bite the top-down eyes in the sky. therefore, one should not rely only on the perception of the powerful eyes in the sky, but should simply make one's own decisions for theirself, depending on how they see it (and not the symbols as how they're presented).
+
 ### apollo, lord of the silver bow (diana counterpart?)
 - also, "archer of the sky" -- saggitarius?
 ### honourable treastise & "julias caesar" play
