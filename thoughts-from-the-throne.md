@@ -47,3 +47,13 @@ what I think it is, is a sort of jealousy that they can't use their imagination 
     I can only think of really gross, awful, pleasurable, (desirable things that I would *only* to happen to me), or mundane, fearful, lacking engineering application, (not to be taken seriously), or nothing signficant, not worth it, too hard, (something for someone else to do because it's so obvious), or something I'm jealous someone else is doing, or something I'm envious to have, etc. -- and so, I cannot *possibly* allow myself to experience that *really* great thing. there's *no way*, it could never, *e-ver* be manifest as something *that* good -- you know, not for me.
 
 prepare to die :) you ready for your wildest imaginations to come to life? ready to experience your imagination? let's keep mine blank, shall we?
+
+### 2023-03-11 16:01 - why not art versions
+
+one thing that really grinds my gears about things like movies and songs is that they can only "remaster" or (whatever it's called for film) -- when, it feels like pieces of art should be treated more like software. like, what movies and songs were treated more like plays. each production increases from the previous one. different things are kept and different things are slightly altered, see what the audience's response is, story holes filled and audio/dialoge tweaked, etc.
+
+so, then imagine for a moment a great movie that you've seen, where you think they did a great job, but it'd be nice to have another exactly the same (dialogue and everything) but in HD and better audio. nowadays, with CG and everything, it's not inconceivable to have the original actors looking the same as in the original version. for example, imagine "star wars" with actors that looks like leah and hamil (sounds like a play, even) as they did back 50ya -- you know, I'm sure it's even possible to use the original voiceovers and everything so that the actors can be overdubbed with the "proper" voice (and all sorts of other hollywood magic) to make the original experience better by recreating it in a slightly different (but improved way)?
+
+this rant extends far beyond art and all the way into law and politics, so I'll spare you the rant -- but I'm sure you couldr imagine it. it just really annoys me that so many things in our everyday experience *could* be better, but we consider them "set in stone" (ie. not rebuilt until quite a disaster occurs)
+
+@[youtube](https://youtu.be/reGlno9aUpw)
