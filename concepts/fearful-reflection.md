@@ -13,3 +13,7 @@ in attempts to understand.
 
 look into your future, what do you see?
 look at your problems; why do you see me?
+
+I can't take away your fear; only you can do that
+I can't take away your pain; I already tried that
+I can't take away your past; you're the one bringing it back
