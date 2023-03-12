@@ -1155,3 +1155,33 @@ the other (dis)advantage, depending on how you look at it, is that if I keep rai
 today I decided to watch some nita strauss videos. in the first one, she was paired with another girl and playing guitar while the other was singing. behind her was a drummer guy. this reminded me of D_Drive. the next video she's playing by herself and she's really awesome by herself. the poses she made reminded me of the guitarist that is beside yuki, again from D_Drive. the video after that she's between two guys playing guitar and the drumer is in back. the feeling that I get is so different. I've started to pay attention to different positions and lineups for groups, and in the last video there, I'm noticing that different configurations feel very diffrerent from each other -- especially visually. while writing this, I'm not watching, only listening -- and that too is a different experience. positioning matters, I guess.
 
 I dunno what else to say -- I thought I something insightful was going to come to me, but when I started writing, I totally lost my memory of even what songs and stuff. I skipped. I lost whatever it was. probably wasn't supposed to be. oh, well.
+
+### 2023-03-12 16:56 - and with this kiss I die (sleepwalking my way to the gallows)
+
+imagine for a moment that I wanted to overthrow the current establishment like an alpha-omega does, then, like every other king, ruler, and alpha-omega out there does, he has to secure his position and power structure. the end of any of these alpha-omega power structures is always signaled by a dramatic death scene, followed often times by a rebirth into something new. this is the phoenix.
+
+the turtle is a little bitt
+different than the phoenix.
+the phoenix rises fast
+and falls fast two -- but
+the turtle stays its course.
+
+the phoenix, having two heads,
+two forces seemingly at odds
+with each other. however,
+the turtle is not shaken,
+pluging along at a pace
+comfortable for her.
+
+therefore, if we were to look at the phoenix, it has 1 the phoenix and 0, the ashes. it looks to me like there are two dualing phoenixes, switching off as the alpha and omega position, however upon careful inspection, the two phoenixes, are the same bird: two sides to the same coin.
+
+the turtle also appears as one because it appears constant, but it retains its constancy by self-transforming itself to appear like the phoenix, taking on the 1 or the 0 aspeect. therefore that virtual aspect of itself is a -1, so it's really a 0 (-1+1) or a -1 (-1+0). four aspects in total between the two of them.
+
+---
+
+anyway, what this translates into in practical terms is that I don't need to worry about the "death" of any such phoenix (or its rebirth), because from the turtle's perspective it's all perceptual death. I'm either static (0), or attractive (-1) and I control which polarity I show. the only thing left to be done is to finally fully turn into a turtle, leaving the phoenix behind completely. however, let's say that I were able to be both the turtle and the phoenix...
+
+so that made me think of something: if the phoenix is 1 (there always is one phoenix, unless virgin), then that means that if the turtle is a 0, then the phoenix is in power, but if the turtle is a -1, then tho whole thing is dead. there's a message in there somewhere...
+
+(0,-1 -- 0,1,undefined)
+(0,-1,0,1,undefined,undefined,undefined,undefined,undefined)
