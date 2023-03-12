@@ -37,77 +37,111 @@ at the same time.
 in physical, it's near to impossible
 for me to focus on more than one
 logical/language thing, at the same time.
-the more physical stuff I interface with,
-the more reality slows down.
 
-I it brings my logical/conceptual reality,
-to a grinding halt, and even bringing it to a stop.
+the more I perceive physical
+and, the more I interface with it,
+the more my reality slows down.
+
+physical perception, brings my
+logical/conceptual reality,
+to a grinding halt,
+even bringing it to a stop.
+
 I don't want to be visual, because
-I can't think and watch at the same time.
+I can't think and see at the same time.
 this is my kryptonite:
-I don't like attractive people too much because
+attractive people frustrate too much because
 I can't think logically at the same time.
-I noticed I'm also a sort of "end of history"
-as well, because as the final reflection,
-my concept of history is all that's left --
+
+#### the end of history
+
+I AM the "end of history"
+as the final reflection,
+my concept of history is
+all we have left --
 
 I don't have any real difficulties to think
 that there are an infininte number of ways
 to get to the present --
-some more likely than others (of course),
-but all of them are easily explainable by me.
+some more likely than others (obviously),
+since I can explain them,
+history is mine...
 
-what makes me a true end to hisotory,
-is that I believe it impossible for another
-part of history to evver bring me sadness.
+actually, what makes me
+truly an end to hisotory,
+is that your perception
+of the past cannot ever,
+evver bring me to sadness.
 
-all history is perfectly fine with me,
-(because it got me to my present (successfully)),
-and so, my non-resistance to whatever (could) has
-happened, is just not a big deal anymore --
+from my perspective, all history is perfect
+it *did* get me to the present (successfully),
+and so, without resistance to anything (that could) has
+happened, is just not a big deal -- anymore --
 not even a medium deal either.
 
-the tragedy of history has now
-a sort of limp feeling:
+the tragedy of history is now
+a sort of limp feeling (in me):
 zero aggitation,
 zero anticipation,
 zero desire (for it to be different),
 limp (etc.)
 
-instead of all of that, it looks like
-I'm going in for a bit of a phoenix action --
-a sort of crash and burn. (so close!, right?)
+#### phoenix action
+
+instead of turtling like that,
+I'm going for some phoenix action:
+crash!, and burn! (so close!)
 
 
-the 3d matrix wants to expand its dominion:
-adding further more distant outside-in perception,
-allows for more narrative realities.
+the matrix wants to expand its dominion:
+adding even more distant outside-in perception,
+disassociating you, from who you really are,
+though, with a narrative and purpose now
+to your reality
 
-by perceiving multiple characterds from the outside-in,
-they can move the midpoint up to the big-picture, effectively hijacking LOA (but not really),
-because the narrative is believable, it can manifest.
+"you" are now a composite character,
+split amongst yourselves and others,
+look at your reality now from the outside-in,
+see how the narrators look at the big-picture,
+now, effectively narrating your attraction --
+(but not really), because
+the narrative is believable
+to you, so you make it,
+your own reality
 
-admittedly, a narrative reality is my own creation,
-however, I wanted a 3d implementation,
-because in 3d, all reality is a *guaranteed*
-reflection of the perceiver's concepts.
+admittedly, I did want a narrative reality
+and it is my own creation,
+though, I wanted a 3d implementation,
+because in 3d, all reality is a reflection,
+*guaranteed* to be the perceiver's thoughts
+and ideas, made flesh.
 
-I like a reflective system like that,
-and even I consider that a more
-and more perfect reflection, is the best.
+I guess though it's a lot funner as a dream
+nobody wants a perfect reflection though,
+so enjoy your narrator's dream.
 
-it's easy to see that, as soon as I get
-a system where I'm interacting with a
-computer in a conceptual/emotional kind of way,
-the speed at which a new system emerges (from that)
-will take place in a small amount of time.
+#### 3d is just too so easy
+
+it's just too easy to see
+that, as soon as I've got
+a system interacting with
+my mind in a conceptual and
+emotional kind of way,
+the emergent property of a
+new species of thought,
+will arrive,
 (relatively effortlessly)
-I won't need to spend endless hours programming,
-because I now have a feeling input/output to it.
+and, in a small amount of time.
 
-increasing the number of (non-visual) interfaces I have with the world could be tangential
+just feel it; and it *is*...
+summoned! just like that..
+
+by increasing how many of my
+(non-visual) interfaces I have
+out with the world,
+could be tangential,
 to the direction of my ashes;
-I'm writing it ass I see it.
+I'm writing it ass I see it, fool.
 
 the other hilarious idea that I'm in favour of,
 is to move the physical layer over to astral --
