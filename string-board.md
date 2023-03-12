@@ -795,4 +795,28 @@ that's probably why cupid has some of those strange tasks. anyway, I think the o
 
 I think I solved the problem of how to get a new earth. drawing on inspiratons from the golden ass, my research into venus, and the real-life experience of john keats, I began [to understand poetic summoning](/poeticc-observvrence.md#2023-03-02-1457---on-poetic-summoning).
 
+### 2023-03-12 14:21 - meaning of 1000
+
+in various places, there is often times associated a number (1000) in conjunction with a tragedy (titus), labour (tempest), or battle (all's well). I've been meaning to write about this for a while now because I, at first, thought this was a reference to solomon and his supposed 1000 wives and concubines -- however, since it's pretty clear that the "ark of the covenant" is related to the rose, right? it got me thinking that the 1000 (points of light) may be relating to something different entirely.
+
+one thing that I've thought a lot about is the growing problem of the x-ray output from (I believe) the star inside of the earth, which is (in my estimation), a reflection of the 7th ray (physical) vibrations of the planet, so therefore a 1st ray, meaning it glisters like actual gold. I don't know how to explain it why I think that but the gold pieces that aaron deposits below the tree represent to me 1000 stars, meaning that they're looking from the centre perspective, the reflection of the actor, so they're like real gold.
+
+well, if by some metric we were to release that star out into space every some period, and again I'm not sure how this connects in my head, but it seems like this is going to be happening with increasing regularity as we go into the future.
+
+I've often thought about what that could possibly be like (from my perspective) if the world lost (isn't the right word) that massive x-ray output; cause, it would feel like a tremendous loss in visceral "real" feeling reality for me. I know it'd probably be quite a relief for others, but for me it would feel like all of life becomes flat again. it'd feel like tremendous loss and like I'm starting over -- sorta like as if this planet is no longer quite as much of a reflection of my perception.
+
+so, if there could be a way to periodically, every time that energy gets too high, release the star out into space and let it start to settle into an orbit reflective of its vibration in relation to the other planets. the way that I see them, they'd be almost completely transparent, having only a slightly reddish hue to them. they'd be floating around in our solar system as semi-strong x-ray emitters, but not quite as strong as they would be inside of the planet.
+
+so then, as I'm reading illiad book 16 just now, again there's a whole lot of homoerotic imagery going on in the interactions between patroclus and achilles. anyway, I haven't put it all together yet, because apparently achilles also has a flashing helmet (something which hector is also described as having), and it means something planetary (or solar), but I haven't figured it out yet, so I still have more to think about there, because the iliad is a book that is personifying planetary bodies like venus as menelaus (and others), mars and fear and strife (phobos and deimos), paris as mercury, helena/aphrodite as earth, zeus as jupiter, hera as ganymede, etc. the whole solar system is in there.
+
+the other strange thing is that one planetary body often times has personifications on both sides of the war, and the constant back and fourth between the two sides seems to be unsettled orbits.
+
+I don't know how the book ends, other than the trojan city falls -- but I'm kinda wondering if the story is actually talking about achilles/hector (and whatever planetary body they represent), journey to its present location. the idea that I'm thinking about is that this could be a story about something like that.
+
+another thing, is I don't actually know if there are other strong x-ray emitters in this solar system. with astral/UV (and higher) vision, these bodies would be visible, and they would show up as the concept that our brain interprets the vibration as (just like some people saw jesus differently than others did) -- a manifestation of individual perception -- a sort of shape-shifter. so when these guys describe dragons and serpents in the sky, that's the image that they're seeing (you'll need to try strong psychedellics to understand what I mean here).
+
+so, what I mean is, the defeat of troy and the trojans may have been simply just letting the star inside of the earth go out into the solar system. this very well could have lead to the "bronze age collapse" -- because think in spherical resonator terms here -- the star in the centre is a reflection of the earth, and that holds all of the rocks and mountains in place where they are, but if that star gets moved out, there's no longer any push-back (internal pressure) keeping everything in it's place, and so lots of unheaval could happen pretty quickly as soon as the star gets "birthed" out into the solar system.
+
+if there were a powerful x-ray emitter floating around in our solar system (but barely or not in visible), that could be interesting, anyway.
+
 ### the-tick: both good and bad guys
