@@ -62,3 +62,19 @@ all concepts produced by the systems are the concepts those systems define -- ki
   - don't give her the power over your perception, and even though she wants it...
   - don't let her take responsibility for what you see, ("I'll take care of that for you.."), because then you lose your ability to manifest what you want.
 - lust is a physical feeling of motivation (we interpret as desire) to attain a feeling/emotion one does not have or feel they can have; she doesn't inspire that either.
+
+### 2023-03-15 04:27 - lilith desire
+
+@[youtube](https://youtu.be/wevmsl75_Sw)
+
+- another example of lilith thinking.
+- "all I ever craved/desired/relished/yearned" -- is the idea that one single thing can satifsfy you. only you can feel good, and desire is an externalisation of the I AM realisation of that feeling.
+- "you're my addiction" -- is the first evolution of desire: "need" -- until it's realised that I just *want* it, and no longer *need* it.
+  - you can't live without her once you've had her.
+  - she's necessary -- or, one might say "irreplacable", or even "instrumental" for the big-picture.
+- "fire for all eternity" -- this is an illusion. all emotions feel like they're forever -- and they are, but the ones that feel the most "forever" are actually the most shallow ones (notice the similarity of forever, guarantee, and pleasure) -- when in fact the most profoud emotions are a steadily growing interest or passion. it's an alive movement, not a flat "forever" or "eternity" that pleasure/pain offers.
+  - notice how "fire for all eternity" is also the description of hell.
+- "elixinate/destroy the pain" -- the problem is that physical desire only masks it. desire and pain are the same, sorta like maybe C2 would be pain but physical desire is more like C5 or something (some octaves up), and so even though you feel the high frequency C5, it's still (to a small extent) amplifying the C2 if the C2 is present in the vibration...
+  - physical pleasure/desire (or any other higher frequency) can't really destroy a lower frequency; it's actually more likely to amplify pain.
+
+see how her frequency is interpretted into so many (though, I would say all) aspects of physical experience? it's crazy how we're stuck with the "old witch"; you're only fighting yourself, you know...
