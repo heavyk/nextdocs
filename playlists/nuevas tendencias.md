@@ -103,3 +103,19 @@ the frequency of the universe is so impossibly high, it's essentially impossible
 those consciousness units get converted into rocks, plants, bugs, and humans and all kinds of physical matter. along the way the division of this consciousness gets divided into smaller units based on a symbolic system of perception, just like we do to divide all of the input signals we receive into smaller (more comprehendable) forms. these forms are divided by perception and turn into perception, so you can see the infinitely expanding feedback loop.
 
 it's like when you put the mic in front of the amp -- but instead of letting the volume go off toward infinity so it screeches, instead you transform and divide the escallating amplitude into smaller and smaller (higher and higher frequency) signals, when then you gradually come to make symbolic sense of, so that at first it sounds like a screech if you leave it for 10s -- but with a system of perception, one could perceive the previous 10s all at the same time by only hearing the "now" screech and dividing it into comprehensible units. those units become what we call "reality".
+
+### 2023-03-15 03:13 - HammerFall - Always Will Be
+
+@[youtube](https://youtu.be/VlISKnb-LfY)
+
+as you were singing in that song, I had a strange realisation -- cause I just talked about the venusian system of creating reality, which is much more narrative in nature.. so then, when I'm listening to the song, it sounds to me like that -- like this narrative form of attraction where one narrates how the things arrive to you. I discovered this form of perception when I starting thinking about the outside-in perception talking to nikki.
+
+so I guess I have a few questions -- but I don't know yet how to form them into words, so it might take me a bit...
+
+how do you perceive desire? is it a set of attributes that are determined that are functionally superior?
+
+what do you do about the unknown? is it exciting? or is high value something that resonates with something else? like for me, the idea of discovering something new is so intoxicating that I just have a firehose of ideas flowing through my head all the time because the more I make sense of them, the more pleasure I feel. I get that too. I write so much because it's so pleasureable to me to figure things out.
+
+what do you do when you're wrong or perceived something incorrectly? is it the end of the world? does reality feel like it's unstable and ready to crumble and so I have to find a way to feel right about my reality? that's kinda what happens to me.
+
+concepts are forever; even the bad/dysfunctional/not-optimal ones. so just cause it's been around for a while (and therefore resonates with a lot of things), I've come to dislike with time actually. I've fully embraced the "world of change", knowing that my system is always outdated, as fast as I manifest that idea into reality, there's always a newer more improved version. I now really enjoy the constant discovery of the new interpretation of the symbol or concept to be more what I want it to be. this has fulfilled the insatiable desire inside of me to figure things out. it's fun seeing something new all the time. life is like that short inhale right before a huge moment of discovery, pleasure, trepidation or fear; so, it feels like, without a system of understanding, what that brief pause of rapture really feels like, life could instantly turn to dread and dispair -- but it doesn't -- so it's fun :)
