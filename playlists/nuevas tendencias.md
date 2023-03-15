@@ -80,3 +80,18 @@ lol
     There's no more oxygen in the West
 
 get gud lungs, bro...
+
+### 2023-03-15 02:12 - Nicoletta Rosellini - Turn Loose The Mermaids (Nightwish cover)
+
+@[youtube](https://youtu.be/AdOUgaTMBPs)
+@[youtube](https://youtu.be/KUf959U6lrg)
+
+as I was listening to this song, I was thinking about the last song, "walk like heros", at the end of the song, I was lamenting that it says "if I walk among the stars", yet the description of the stars' perception is not at all star-like.
+
+I mentioned the "time zones" idea before and I wanted to expand on it from a star's perspective, which is that the creation exists in let's say 1000 time zones, and then those time zones create new zones, but each of those zones exist at the same time. there are many more than 1000. inside of the star, there are super concepts, which is like the "soul" or the thing whos desire is a frequency of a time zone -- but the soul or super concept isn't yet at that frequency.
+
+each of the souls' interaction inside of each zone produces a spherical vibration, and so when more souls are interacting in zones of compatible/harmonious frequencies, then they amplify each other (excitement). so, the more souls there are in similar time zones vibrating at a similar frequency, the more excitement she feels.
+
+therefore, because all of the "loneliness" and "misery" states that she sees, *do* exist, but they exist simultaneous to the pleasure, joy, and extasy states as well. all the zones exist, and its only the souls which are deciding where to tune into.
+
+nothing is going wrong :) creation takes time...
