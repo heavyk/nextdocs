@@ -548,3 +548,41 @@ I'd also like tto mention that kico looks for whatever reason to me like earth (
     And sooner harme to try,
 
 so in that sense it's referring to the height of an orgasm. that's a poem btw about "A Sheapherd who noe care did take" which is a redefinition of cupid as . and -- guess what, there's a whole bunch of similar symbols in there of branches and "worthless shepherd" imagery (zech 4)
+
+### 2023-03-14 16:42 - video 57
+
+7:36 - well, I noticed the words "breve red" (soon network / brief network, depending if the network exists already or not), and then google translates "eve reo" as "yes, I'm guilty" (lol, not sure if that's it though) -- so move the space and "ever eo" translates to "ever there", which contradicts the "brief network" translation... so I'd say it's either "brief network, yes I'm guilty" or "soon network, ecer there" -- take your pick :)
+
+1:06 - the names here are very interesting. I noticed they're all justified to the right, as if drawn by a left-handed person. next there are some permutations on the ending "el" (which is the origin/genetive of the person). assuming all these angels came from "el" (reasonable assumption), it's interesting to note the permutations:
+
+- michaiel (ai, ie, line going from end of a to beginning of e)
+- gabriel (ie)
+- camael (ae)
+- raphael (ae, line going from a to e)
+- sachiel (ie)
+- ana''el (ae, opposite of a line from a to e)
+- cassiel (ie) (the 'l' looks more like a frame or backwards gamma, and reads to me like cassie)
+
+- a-i-e (unsparated)
+- ie (beginning)
+- ae
+- a-e
+- ie (second beginning)
+- ae
+- ie (end)
+
+you can see that michaiel is the top dude. his sigil has curves, crossing curves, straight lines and crossing straight lines. the origin is the templar cross, starts curved, reverses directions, and then goes straight before becoming a compund symbol of X and V (XXV, 5^2?).
+
+gabriel's sigil is mostly a line going right to left with some symbols on it. the B, has a double square on the top and bottom of the line (ancient metrology tool), then a superscript b (as in raised to power), upside-down vv/w, then a peak to peak sign (pi is from one peak to opposite peak) where it reaches the "end" of space.
+
+camael's sigil is a vibration that is horizontal (going from one of the templar cosses to the other and back), though notice that the left templar cross only has 3 legs, while the right one has 1.5 legs (half). so while gabriel's sigil is a vertical vibration moving from left to right, camael's is a horizontal vibration of various detours and turns.
+
+raphael's sigil looks kinda like a gun. it's definitely the transition out of "godhead" of the first three and down into the lower three. it has a notable left-to-right feel to it and it terminates in a K that breaks over the line into the next one; clearly a transitional symbol, and notice that trying to going from right-to-left, one hits a sort of "wall" between the earth (circle-cross) (I) and moon (phi) symbols.
+
+now, the following three symbols starting with sachiel's are all very different: sachiel has three symbols, (three T's) with extra shape to them. the first is an A (alpha) made out of two S symbols (half pi). the second is an phi symbol (matching the one in raphael's), and the third is a symbol that I recognise from [queen elizabeth's signature](https://www.elizabethi.org/contents/profile/signature.html) ([alternate](https://upload.wikimedia.org/wikipedia/commons/5/54/Autograph_of_Elizabeth_I_of_England.svg)). if you notice the apple's "cmd" logo (⌘) in her signature, that is traced going all one direction, however, the third symbol is a reversal of directions (again, seen in her signature). this is the division of the 4th symbol into 3 symbols (which make the lower trinity).
+
+following this separation of camael (vibration) into sachiel (concepts), we see the sigil of ana''el: her symbol has a feminine triangle (pointing down) with a tear/water coming out of the bottom. this sigil again shows a transition from sachiel to cassie, as the symbols/concepts now become a line again.. notice the line is like camael's and michaiel's but *not* gabriel's (which makes sense because the triangle of the "godhead" is now inverted). the line bleeds over into the final sigil:
+
+cassie's sigil is clearly a reflection/reversal, as all the symbols can now be seen to be moving right-to-left. there are some 'F', 'J', '4', and 'T' to be seen there...
+
+the final thing to note about this is that the final 3 sigils: sachiel, ana''el, and cassie's -- are the three symbols in the vere/apollo symbol there: you can see the 4, H, F, and gamma in caſſie, the OR in ana''el, and the X (reversal/cross) and Aſſ (alpha, and 2 half-pi) symbol in the VW logo on the bottom. --- inotherwords, the apollo/vere symbol is a combination of the last three sigils (sachiel, ana''el, and cassie) + the first (michaiel).
