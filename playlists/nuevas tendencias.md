@@ -95,3 +95,11 @@ each of the souls' interaction inside of each zone produces a spherical vibratio
 therefore, because all of the "loneliness" and "misery" states that she sees, *do* exist, but they exist simultaneous to the pleasure, joy, and extasy states as well. all the zones exist, and its only the souls which are deciding where to tune into.
 
 nothing is going wrong :) creation takes time...
+
+#### 2023-03-15 02:32 - consciousness units
+
+the frequency of the universe is so impossibly high, it's essentially impossible for us to perceive it. think about how dense the sun is, and what kind of frequency hydrogen compressed to that density would be resonant with, and that's a much lower octave of the universe's frequency -- therefore, for that to become useful, the frequency needs to be slowed down by dividing it into smaller parts -- these become let's say "consciousness units" the stuff that the universe is actively engaged in perceiving itself, which itself is also like a star.
+
+those consciousness units get converted into rocks, plants, bugs, and humans and all kinds of physical matter. along the way the division of this consciousness gets divided into smaller units based on a symbolic system of perception, just like we do to divide all of the input signals we receive into smaller (more comprehendable) forms. these forms are divided by perception and turn into perception, so you can see the infinitely expanding feedback loop.
+
+it's like when you put the mic in front of the amp -- but instead of letting the volume go off toward infinity so it screeches, instead you transform and divide the escallating amplitude into smaller and smaller (higher and higher frequency) signals, when then you gradually come to make symbolic sense of, so that at first it sounds like a screech if you leave it for 10s -- but with a system of perception, one could perceive the previous 10s all at the same time by only hearing the "now" screech and dividing it into comprehensible units. those units become what we call "reality".
