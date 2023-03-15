@@ -51,3 +51,14 @@ enki's system (which is obsolete) is a system of vibration, where everything at 
 so when desire comes in, the 2nd ray (solar) input goes out hitting earth and all of its inhabitants (as well as venus and jupiter and other astrology planets). when we receive the signal, prolly our DNA interprets that as heat, light, etc, and that produces a lot of vibrations, but also so does the pineal gland, which is operating at the frequency limited by the brain (and its presently vibrating concepts), meaning that we interpet this solar signal in a lot of different ways. there are lots of the-manuals competing for priority system of manifestation, so competition is fierce. those systems then produce concepts on the other side of the midpoint (determined by the spherical resonator of earth's core and saturn)
 
 all concepts produced by the systems are the concepts those systems define -- kind of like "default rendering code", but you also have your own definition (that I think encodes also into DNA) and that becomes your system of reality that overrides the planetary ones. so while astrology is good, many people (like me) have systems that supercede the planets' systems. *you create your own reality* with the concepts that you have present in the spherical resonator of your brain and heart (to which the bottom responds to sympathetically).
+
+### 2023-03-15 03:49 - lilith thinkng
+
+@[youtube](https://youtu.be/dcNCIewWhBs)
+
+- it's not like that, at all -- she's taking the blame and saying she's the reason why I perceive things the way I do.
+  - ex: infertility comes from a feeling in incompetence and inability -- which is the same frequency (but looked at the opposite direction) of competence and ability.
+  - she's projecting competence and ability, but it's *I* that sees the *absence* of that, and therefore experiences infertility.
+  - don't give her the power over your perception, and even though she wants it...
+  - don't let her take responsibility for what you see, ("I'll take care of that for you.."), because then you lose your ability to manifest what you want.
+- lust is a physical feeling of motivation (we interpret as desire) to attain a feeling/emotion one does not have or feel they can have; she doesn't inspire that either.
