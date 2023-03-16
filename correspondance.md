@@ -496,7 +496,7 @@ if the alter is referring to the pink granite "sarcophagus" in in the great pyra
 
 8:00 - the "v" on the right side looks almost exactly like the "v" in the engraving where the spur is pointing at it, just kinda turned a bit.
 
-the other "v" on the left side looks more like pi (Π, π), also turned a bit. for some reason, this reminds me of vi in titus andronicus.
+the other "v" on the left side looks more like pi (Π, π), also turned a bit. for some reason, this reminds me of two pie (from one tau) in titus andronicus.
 
 8:18 - it's also interesting to note that Pa, P1 looks also like pi (Π, π) to me. it'a also worth mentioning the P (15) + A (1) is 151, which if you look at it in a mirror is 121. meanwhile this is the opposite to the other side of 1. so, one is 1 (alpha) and the other is 121 (omega).
 
@@ -604,3 +604,19 @@ following this separation of camael (vibration) into sachiel (concepts), we see 
 cassie's sigil is clearly a reflection/reversal, as all the symbols can now be seen to be moving right-to-left. there are some 'F', 'J', '4', and 'T' to be seen there...
 
 the final thing to note about this is that the final 3 sigils: sachiel, ana''el, and cassie's -- are the three symbols in the vere/apollo symbol there: you can see the 4, H, F, and gamma in caſſie, the OR in ana''el, and the X (reversal/cross) and Aſſ (alpha, and 2 half-pi) symbol in the VW logo on the bottom. --- inotherwords, the apollo/vere symbol is a combination of the last three sigils (sachiel, ana''el, and cassie) + the first (michaiel).
+
+### 2023-03-16 16:19 - mithras sigil similarity
+
+you're right, it's probably not a magical sigil, but an encoding of a transformation. after looking at shakespere's characters, I can (just give me time to research it a bit) describe his characters in the form of that magical sigil there. I initially tried to just tell you that vere's sigil is a condensed version of the upper sigil there, but then I had so much fun writing out the names, that I just included the whole thing :)
+
+then, (ask and you shall receive, right?) I was watching a thing today on a mithras liturgy, and I noticed that sigil in the invocation: https://youtu.be/kHq9SxgCvF0?t=484
+
+the sigil there is called "AEEIOYO" and you can see the same sequence there... A is the first godhead ("A") separated into horizontal and vertical vibrations ("EE"), then that passess down into the spectral ("I") which turns the vibration into symbol (K in the above sigil), then on vere's sigil you can see the two opposing set of symbols VYV, which in the mithras sigil is "OYO".
+
+so, while it's not specifically a magical symbol, I thing it's a principal alchemical transformation. vere almost certainly knew of this (and given alan green's insistance of dee encodings), so it very likely has some alchemical significance to it.
+
+---
+
+I also noticed that the apollyon (Ἀπολλύων -- notice the 5,8 symmetry) symbol has alpha on the middle (I would think it should go on left, right, or top, not in the middle), then 'ω' on the left, and 'z' on right (the two ends of the aphabet). on the top is pi and the bottom is and upside-down lambda (11). because pi is half of the circle (like 'c') from peak-to-peak, the top is pi and the bottom is 11. now, flip it: when looking at pi upside down, it looks like 11 and lambda now looks like 'A' (11 is also half of hebrew alphabet (mu), so if we consider that A connects to Z, pi is the midpoint between M and N, mu and nu, or kaf and lamed)
+
+I noticed in the previous video (56) the symbol "IXI" which in my comment I'm posting now (it's a long one, sorry), I said that I see it as 9 and 11 combined -- which is the identity of apollyon in rev 9:11 - "And they had a king ouer them, which is the Angel of the bottomlesse pit, whose name in the Hebrew tongue is Abaddon, but in the Greeke tongue hath his name Apollyon." -- so the IXI on the "king for dee" crown might be referring to apollo(yon).
