@@ -552,6 +552,7 @@ so in that sense it's referring to the height of an orgasm. that's a poem btw ab
 26:32 - noticed some other things:
 - 't' in "two" can also be read as an 'I'.
 - the 'i' in "Portraicture" separates two words: "portra" and "cture" -- but if you look at the "ct" in the second word, the way the 'c' connects to the 't' makes it look like a 'D', making the following letter look like a 'v' spelling "Dvre"
+- another thing I noticed just now is "de furturivis literarum notis" by giovanni *portia* della battista. I noticed that "portra i Dvre" looks a lot like portia (from merchant of venice) to me.
 - the 'o' in "honorable" has an opening in the top -- and isn't like any other 'o' seen in the whole piece.
 - the fourth "the" (the one in the middle), the 't' looks like a 't' and 'v' combined.
 - the first and fourth "the", have different 'h': looking as an 'ſ' and a backwards 's' or 'z'
@@ -560,7 +561,7 @@ so in that sense it's referring to the height of an orgasm. that's a poem btw ab
 - the 'P' in also looks like a '1' to me (same as the P in "Par Tout") and also like an hanging/inverted phi ('φ'), with the swoop coming down.
 - notice also that the 'v' 'T' and 'P' in "vnδ par tout - tout par vnσ" are different for both sides (there are two), and these are mirrored in the message here.
 - I also just noticed the 'g' in "vng" is a mix of upside-down sigma (σ) and delta (δ) + backwards xi (ξ).'
-- the 'T' and 'P' are also the same shape on the cover of hamlet's second quarto in "THE" and "Prince"` (but not the first quarto)` 
+- the 'T' and 'P' are also the same shape on the cover of hamlet's second quarto in "THE" and "Prince"` (but not the first quarto)`
 
 29:09 - this reads "rex for d" (king 4d) to me
 
