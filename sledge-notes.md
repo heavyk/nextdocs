@@ -108,4 +108,18 @@ that manifestation of enoch/cupid could be anyone that finally figures out how t
 
 [1]: an angle on an idea is different than the angle of an object -- separate things. you can think of, if you're looking at a face, the angle of the idea beign the emotion of the face -- or, if you're looking at a solid and abstract object like a cube, the angle of the idea are all of the different aspects of the cube -- and those aspects relate to other concepts, like a 90(degrees) cube corner angle (looking from the inside) has different aspects than the same one looking from the outside. meanwhile, they look visually different too, if I move the angle along the edge, again, this is a propery that a lot of ideas have where two flat ideas come to a point -- etc, but visually it just looks like two planes joining. the concept of what it feels like for two perfectly flat things to meet perfectly in a line is a whole different (quite a opening or revelating feeling), compared to *just* an edge :)
 
-### cupid and iron maiden
+### 2023-03-16 14:31 - conjuring and timelines
+
+@[youtube](https://youtu.be/QQt5DQP_UqQ?t=391)
+
+in the episode on sabbatai zevi (which I haven't completed yet), I noticed nathan has conjured zevi. this happens to me all the time, myself. I mentioned it [talking with my father](/metal-lucifer.md#2023-03-14-1236---contemplating-gambling-shoot-that-ship-down-fighting-just-to-win), because what happens is, these people seemingly appear out of nowhere. I've often wondered if there was a way to track all people, did they seemingly appear out of nowhere, or did I simply move my consciousness to another timeline where this person I conjured is right where I can meet them (like zaryn for tuenti).
+
+I'll explain this from the perspective of cupid, but since fear is negative desire (desire for something unwanted/bad-feeling instead of wanted/good-feeling), we can see that desire in the shape of fear summons just the same (mainstream news and the "illuminati" know this), and so we're constantly living in a world reflective of our desire, but we're usually not feeling like we're good enough or unworthy (not-good-enoughness), so we instead hold ourselves in the power structure which prevents us from manifesting that desire as reality. therefore, when we use art, music, and literature to express our inner desires, we actually create these realities.
+
+the reason why I think so many literary works are simply missing or non-existant is because we're present in a timeline that those literary/artistic works are incompatible with. as such, because all time is experienced at the same time (it's a very complex vibration),
+
+> "when all the moreso when the content of these volumes contain secrets, esoteric speculations, or *occult rituals* meant to reach well beyond beyond human perception; their authors long mouldering in the earth before they even reach our hands"
+
+we can tune to these works (and the past lives, memories, desires, aspirations, and ambitions) of these authors and ttheir volumes, both fictional, non-existant, extent, and present.
+
+### cupid the iron maiden
