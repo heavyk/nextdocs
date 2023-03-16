@@ -123,3 +123,4 @@ the reason why I think so many literary works are simply missing or non-existant
 we can tune to these works (and the past lives, memories, desires, aspirations, and ambitions) of these authors and ttheir volumes, both fictional, non-existant, extent, and present.
 
 ### cupid the iron maiden
+### thoth, god of magic :: accomplished through writing and narrative summoning
