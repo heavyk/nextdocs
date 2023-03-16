@@ -116,11 +116,11 @@ in the episode on sabbatai zevi (which I haven't completed yet), I noticed natha
 
 I'll explain this from the perspective of cupid, but since fear is negative desire (desire for something unwanted/bad-feeling instead of wanted/good-feeling), we can see that desire in the shape of fear summons just the same (mainstream news and the "illuminati" know this), and so we're constantly living in a world reflective of our desire, but we're usually not feeling like we're good enough or unworthy (not-good-enoughness), so we instead hold ourselves in the power structure which prevents us from manifesting that desire as reality. therefore, when we use art, music, and literature to express our inner desires, we actually create these realities.
 
-the reason why I think so many literary works are simply missing or non-existant is because we're present in a timeline that those literary/artistic works are incompatible with. as such, because all time is experienced at the same time (it's a very complex vibration),
+the reason why I think so many literary works are simply missing or non-existant is because we're present in a timeline that those literary/artistic works are incompatible with. as such, because all time is experienced at the same time ("the Old Ones were, the Old Ones are, the Old ones shall be; not in the spaces we know, but between them."),
 
 > "when all the moreso when the content of these volumes contain secrets, esoteric speculations, or *occult rituals* meant to reach well beyond beyond human perception; their authors long mouldering in the earth before they even reach our hands"
 
-we can tune to these works (and the past lives, memories, desires, aspirations, and ambitions) of these authors and ttheir volumes, both fictional, non-existant, extent, and present.
+therefore then, we can tune to these works (and the past lives, memories, desires, aspirations, and ambitions) of these authors and ttheir volumes, both fictional, non-existant, extent, and present.
 
 ### cupid the iron maiden
 ### thoth, god of magic :: accomplished through writing and narrative summoning
