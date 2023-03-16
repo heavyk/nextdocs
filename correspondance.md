@@ -552,7 +552,7 @@ so in that sense it's referring to the height of an orgasm. that's a poem btw ab
 26:32 - noticed some other things:
 - 't' in "two" can also be read as an 'I'.
 - the 'i' in "Portraicture" separates two words: "portra" and "cture" -- but if you look at the "ct" in the second word, the way the 'c' connects to the 't' makes it look like a 'D', making the following letter look like a 'v' spelling "Dvre"
-- another thing I noticed just now is "de furturivis literarum notis" by giovanni *portia* della battista. I noticed that "portra i Dvre" looks a lot like portia (from merchant of venice) to me.
+- another thing I noticed just now is "de furturivis literarum notis" by giovanni battista della *portia*. I noticed that "portra i Dvre" looks a lot like portia (from merchant of venice) to me.
 - the 'o' in "honorable" has an opening in the top -- and isn't like any other 'o' seen in the whole piece.
 - the fourth "the" (the one in the middle), the 't' looks like a 't' and 'v' combined.
 - the first and fourth "the", have different 'h': looking as an 'ſ' and a backwards 's' or 'z'
