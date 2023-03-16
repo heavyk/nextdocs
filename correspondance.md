@@ -549,9 +549,26 @@ I'd also like tto mention that kico looks for whatever reason to me like earth (
 
 so in that sense it's referring to the height of an orgasm. that's a poem btw about "A Sheapherd who noe care did take" which is a redefinition of cupid as . and -- guess what, there's a whole bunch of similar symbols in there of branches and "worthless shepherd" imagery (zech 4)
 
+26:32 - noticed some other things:
+- 't' in "two" can also be read as an 'I'.
+- the 'i' in "Portraicture" separates two words: "portra" and "cture" -- but if you look at the "ct" in the second word, the way the 'c' connects to the 't' makes it look like a 'D', making the following letter look like a 'v' spelling "Dvre"
+- the 'o' in "honorable" has an opening in the top -- and isn't like any other 'o' seen in the whole piece.
+- the fourth "the" (the one in the middle), the 't' looks like a 't' and 'v' combined.
+- the first and fourth "the", have different 'h': looking as an 'ſ' and a backwards 's' or 'z'
+- the word "Southhampton" also looks like more than one word to me: "Soutſ" and then an upside-down 'e', which makes the really strange looking 'p' look like an upside-down 't' -- reading volzTwoe(?) -- I know something's here, but I can't see it yet.
+- the 'H' in HENRIES (when looking at the curvy letters vs the blocky ones) is a 'J' and 'H' and 'ſ' (or perhaps an 'l' like in "honorable"). it also stands out to me as being connected with the 'L' 'E' and 'S'.
+- the 'P' in also looks like a '1' to me (same as the P in "Par Tout") and also like an hanging/inverted phi ('φ'), with the swoop coming down.
+- notice also that the 'v' 'T' and 'P' in "vnδ par tout - tout par vnσ" are different for both sides (there are two), and these are mirrored in the message here.
+- I also just noticed the 'g' in "vng" is a mix of upside-down sigma (σ) and delta (δ) + backwards xi (ξ).'
+- the 'T' and 'P' are also the same shape on the cover of hamlet's second quarto in "THE" and "Prince"` (but not the first quarto)` 
+
+29:09 - this reads "rex for d" (king 4d) to me
+
+30:44 - clearly the "queen's crown" is the one with the arches (just read the wiki page on st edward's crown and how it was used to crown so many queens). the kings crown (straight lines) is for the 3d world, where as the queen's crown is for the 2d world.
+
 ### 2023-03-14 16:42 - video 57
 
-7:36 - well, I noticed the words "breve red" (soon network / brief network, depending if the network exists already or not), and then google translates "eve reo" as "yes, I'm guilty" (lol, not sure if that's it though) -- so move the space and "ever eo" translates to "ever there", which contradicts the "brief network" translation... so I'd say it's either "brief network, yes I'm guilty" or "soon network, ecer there" -- take your pick :)
+7:36 - well, I noticed the words "breve red" (soon network / brief network, depending if the network exists already or not), and then google translates "eve reo" as "yes, I'm guilty" (lol, not sure if that's it though) -- so move the space and "ever eo" translates to "ever there", which contradicts the "brief network" translation... so I'd say it's either "brief network, yes I'm guilty" or "soon network, ever there" -- take your pick :)
 
 1:06 - the names here are very interesting. I noticed they're all justified to the right, as if drawn by a left-handed person. next there are some permutations on the ending "el" (which is the origin/genetive of the person). assuming all these angels came from "el" (reasonable assumption), it's interesting to note the permutations:
 
