@@ -819,5 +819,111 @@ so, what I mean is, the defeat of troy and the trojans may have been simply just
 
 if there were a powerful x-ray emitter floating around in our solar system (but barely or not in visible), that could be interesting, anyway.
 
+### 2023-03-16 22:49 - the new underworld?
+
+as I was sledge's video on [lilith, the first wife of adam](https://youtu.be/n1EKccz4fS0?t=628) and then [he mentions a demon called dever](https://youtu.be/n1EKccz4fS0?t=708)... so I look it up.
+
+    DEVER ("Pestilence") is the other demonic herald who marches with YHWH to battle (Hab. 3:5). Dever is also mentioned in Psalms 91:5–6: "Thou shalt not be afraid for the Terror (Paḥad) by night; Nor for the Arrow (Ḥeẓ) that flieth by day; Nor for the Pestilence (Dever) that walketh in the darkness; Nor for the Destruction (Ketev) that wasteth at noonday."
+
+    The "Arrow" is a familiar symbol in folklore, for disease or sudden pain, and Ketev (Qetev; cf. Deut. 32:24; Isa. 28:2; Hos. 13:14) is in this instance the personification of overpowering noonday heat, known also to Greek and Roman demonology.
+
+notice the arrow, associated with apollo, diana, and the "thunderbolts" that vulcan makes for jupiter. notice also the overpowering of noonday heat. I go to look at Psa 91 in the 1611 version of the bible and all of a sudden that psalm reads completely differently to me now (with these eyes -- because I had just got done writing about [lilith powering the spherical resonator of earth](/sledge-notes.md#2023-03-14-2259---lilith-is-a-star)).
+
+while writing that I was explaining how the original earth (when it was formless and void), it was just a high frequency mist-like substance, but then one of the spherical layers was made more dense, such that the astral realm would be capable of living inside of. then, megalithic structures were built in that layer to fix the layer so that it would remain constant (which today is the function of the giza complex, I believe) -- meaning, that all of the megalithic structures were originally created by building the megalithic structures as sort of like imaginary structures -- and then it was later (after the fall of atlantis) that earth became fully physical.
+
+writing about this idea of taking a lot of the extra energy that the planet is creating, and readjusting the resonance of the planet so that more energy is put into the ionosphere and made constant, so that a new layer was built on top on this earth -- a new astral layer[^1]. the idea would be to make the layer and then go up there and then build out (cause it's made of the same thing as dreams and imagination), all of the megalithic structures necessary to hold it static, get everything all imagined and setup, then put people up there.
+
+the next thing to keep in mind here is that it's my opinion that the [latest manifestation of the YHVH control structure is the antarctic base](/sledge-notes.md#2023-03-16-1112---metatron-and-channeling), and then I compare enoch to cupid in that entry there as well because I notice that the pattern is that this little-YHVH guy seems to sound a fair bit like me. there have been many, and even more than one at a time, so I'm not trying to make it sound like it's just me that does this here, but the basic idea is that this guy somehow finds a way (desire, because he's "good-enough") to somehow surpass the control structrure that's reflective of the time zone that we're in for what we believe a most powerful entity would be like... so for example, the original one for the greeks was zeus, the fickle ridiculous, all-powerful god that can manipulate and get what he wants ... the roman empire ... the american empire ... etc. I interpret this system as saturn and his satyrs that seem to be present in every political and economic arena. saturn and his domain represents the highest that one can go psychically before making the transition into "non-physical" (death).
+
+saturn is the ruler of the underworld (the inner earth) and so therefore his job is to keep the earth's energetic system contained so that we never leave the planet. read "gods of eden" for a pretty descriptive enumeration of the manipulation of our timeline and establishment of control structures (always as a reflection of our perception of "power") by these beings/satyrs. I'm fairly convinced that saturn and YHVH are the same thing -- that is, a vibrational entity that is the lowest common factor of what we expect from an oppressive ruler.
+
+I'm fairly used to this interaction by now, because I'm quite limited on what I can do; if I try and go too fast, I get slowed down, or if I try to program, I get stopped -- or whatever -- because I'm so high energy, I have a lot of "power" so that energy has to be funneled into things that don't give others conditions or technology that would give them an advantage. it's very strange how I can do some things, but not others. it's kind of like working with a computer program, because it's very systematic in its interaction with me -- systematic in the emotional and perceptive sense, as if it knows everything that I'm thinking and feeling.
+
+I'm getting a few reactions now thinking that this system is run, not by saturn, but by a bunch of elites -- and to that I would respond: they don't know how tall the hierarchy goes. everything is fully controlled, and even if they *think* they have free-will, they're not going to be able to do certain things -- as in the timeline gets altered. I present the idea on purpose in contrast to "free-will" on purpose, because it's all attraction: looking from the point of the great attractor at the "end of time" (saturn). there are only so many ways toward that, and all ways that decide to deviate from the attractor, have an impossible time doing so (like trying to escape a black hole). so, (probably thanks to me) we're *all* on an unavoidable course toward the realisation of the "end of time". there's literally nothing anyone can do about it at this point; so, we might as well learn to have some fun with it.
+
+so, when looking at it from our human (will-power) perspective, it looks like a big wall that manipulates things and won't let me certain ways, but from the only-attraction perspective, it's like trying paddle against an ever-increasing current toward the "singularity at the end of time". it's my belief that one of the ways in which we're to "enjoy the journey" involves creating our own reality. the bible and its various prophesies and such, are very high frequency concepts that are translated within the frame of reference of the perceiver of that concept time -- and so, [like lilith](/sledge-notes.md#2023-03-14-2334---lilith-always-looks-like-you-desirefear-her-to-appear), those very high frequency concepts will appear extremely terrible and fearful, and totally not at all what they really are. which, btw, I'm pretty certain that she (the earth herself) the main enitity with all of this attraction coearcing all things to become what she wants them to be (cause she *will* get her way) -- so, we can either conform to what the earth wants, or die -- it's that simple :)
+
+I assure you, nothing is going wrong though, as there's nothing to fear. despite a few foot-draggers out there, I really do think we're going to live out this next solar era in a narrative reality that we create for ourselves. some will pretend that they have power and stuff, but they're playing the game just like everyone else. you can see them however you want to see them -- perception is everything, because your reality is a reflection of it, so you'll always (and forever) exist in the "time zone" where you're fighting (or controlling) your own self (depending on your perspective). think about it like you're interacting with a narrative mirror, and so no matter where you are, you eventually figure out that all things are a reflection of you.
+
+I had been trying to find a way to make such a reality happen with a second earth and stuff (which is almost certainly a future not yet realised), but for now adding another layer (or two) to earth is a pretty engaging idea to me... OK, with that in mind, let's read Psa 91:
+
+    1 He that dwelleth in the secret place of the most high: shall abide vnder the shadow of the Almightie.
+
+secret place = bottommost physical layer upon which the upper layers reside. I become the foundation, so that the layers above it have a solid foundation and aren't a gamble.
+
+shadow of the Almightie = the (1 to 3) new layers above mine upon which all of the top-down control structures will move up to the top-most position there and work their narrative magick.
+
+abide = 1611 says "lodge" (hEro, lol)
+
+    2 I will say of the Lord, He is my refuge, and my fortresse: my God, in him will I trust.
+
+sure, whatever -- sounds pretty secure and safe :)
+
+    3 Surely he shall deliuer thee from the snare of the fouler: from the noi-some [dever].
+
+he'll deliver me from the snare (the matrix?) of the fowler/snarer, which if that's the [king 4d reality](/correspondance.md#2023-02-27-2101---to-him-who-may-think)), the noisome (noisome = foul/fouler) dever, so "from the fouler's dever/matrix"?
+
+    4 Hee shall couer thee with his feathers, and vnder his wings shalt thou trust: his trueth shall bee shield and buckler.
+
+more security... shield sounds like eclipse.
+
+    5 Thou shalt not bee afraid for the terrour by night: for the arrow flieth by day:
+
+not sure what terrour and arrows are... they may just be symbolic to put mars and venus (not sure about this) into the story here?..
+
+    6 for the [dever] walketh in darknes: for the destruction, wasteth at noone-day.
+
+no idea...
+
+    7 A thousand shall fall at thy side, and ten thousand at thy right hand: it shall not come nigh thee.
+
+there's that "thousand" again... it reminds me of bertram and his thousand lovers going to "battle"
+
+    8 Onely with thine eyes shalt thou behold: & see the reward of the wicked.
+
+"reward of the wicked" is a strange wording...
+
+    9 Because thou hast made the Lord, my refuge, the most High, thy habitation:
+
+this one is most confusing to me ... let's say "thou" is kenny and "me" is the psalmist (satyrn?). kenny made the LORD, satyrn's refuge, the most high (of the layers?) kenny's habitation?
+
+    10 There shall no euill befall thee: neither shall any plague come nigh thy dwelling.
+
+more security... safety's my number one concern... lol
+
+    11 For hee shall giue his Angels charge ouer thee: to keepe thee in all thy wayes.
+
+of course... it seems pretty obvious, the angels will always be there to make sure I'm fully controlled, lol. I always find a way to do what I want to do, so it's fine...
+
+    12 They shall beare thee vp in their hands: lest thou dash thy foot against a stone.
+
+no idea...
+
+    13 Thou shalt tread vpon the Lion, and adder: the yong Lion and the dragon shalt thou trample vnder feete.
+
+lion and snake are constellations. however, it's notable that ishtar has lions under her feet. dunno what it's meaning though.
+
+    14 Because he hath set his loue vpon me, therefore will I deliuer him: I wil set him on high, because hee hath knowen my Name.
+
+same problem as verse 9 -- I'll assume "he" = kenny, and I/me is the psalmist: kenny set his love upon satyrn, therefore will satyrn deliver kenny. satyrn will set kenny on high, because hee has known my Name (saturn?). I have idea man...
+
+at any rate, if this is the case, I don't know how I feel about this because it's saying that I'll be in the "most high" top-down position, which I'm not super stoked about (and neither are they prolly), so we'll see what ends up happening. it would mean, in the system of 3 layers, this would be the 2nd ray position on top, or, in the system of 3 *more* layers, it means 1st ray on top -- so I just don't know, especially since it seems that the star in the centre of the planet is already 1st, so that would have to be externalised, meaning that then 3rd and 5th layers need to be added.
+
+following [the magical sigil](/correspondance.md#2023-03-14-1642---video-57), one thing I forgot to mention is that 2, 4, and 6 all have (notably) horizontal vibration lines in them (though *kinda* 1, 3, and 4 also), meanwhile 1, 3, 5, and 7 all are notably symbolic. these are obviously the "primary" layers, meanwhile the 2, 4, and 6 are transitional layers. therefore, if we're adding more symbolic layers, then ... I mean, I dunno...
+
+    15 He shall call vpon me, and I will answere him: I with him in trouble, I will deliuer him, and honour him.
+
+kenny shall call upon satyrn? lol, that seems far-fetched. we'll see what ends up happening anyway (note my disagreement with prospero and the duke in measure for measure)
+
+    16 With long life wil I satisfie him: and shew him my saluation.
+
+sounds like achilles, to me. I have no idea what "saluation" is (looks like salutation), and all saviours need a marketing team, anyway... I'm not good at marketing; it happens naturally for me (only-attraction).
+
+---
+
+anyway, I have no idea if adding more layers is a thing or not... just putting this here cause it seemed pretty significant at the time. I had another one reading and doing research on apollyon as well, which I may write next; it's even more ridiculous and far-fetched than this one.
+
+[1]: I just looked up the diameter and I guess this wouldn't make it too much bigger, actually -- only increasing from 7.9k to ~8-8.3k -- so yeah it wouldn't really be all that different anyway.
+
 ### winter's tale
 ### the-tick: both good and bad guys
