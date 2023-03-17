@@ -45,3 +45,50 @@ so, if I'm going to put a label on these different secret societies and other su
 this is quite long. next, I want to talk about attracting with symbols a bit more. I see myself as a bit of a shakespere in the sense that it appears that I'm helping to give them their next 1611 bible, from which they can have all of the power to hold the monopoly on the spiritual realm again.
 
 [1]: I'm not saying all masons are good. it's like a spy ring, and there are good ones and bad ones, but it's been infiltrated and compromised many times over. personally, I'm suprised any of them can make heads or tails of anything -- and so I steer pretty clear from it, because like a spy network, you just can't really trust anything. trust is a very difficult thing to establish and maintain. corruption happens all of the time and the sense that I get from crowley (and parsons) is that you have to kinda find your own way in it all because it's not like someone is just going to give you the power for free... another thing I dislike is the idea that an asymetry of knowledge (secret) is able to give a person power. I believe that *all* knowledge is available, so power is actually your ability to tune to what you want and ignore what everyone else is doing.
+
+### 2023-03-16 20:52 - seven acts
+
+- infant
+  - mewing and puking in the nurse's arms
+- shoolboy
+  - with his satchel and shining morning face
+  - creeping like a snail, unwillingly to school
+- lover
+  - sighing like furnace with
+  - a woeful ballad made to his mistress' eyebrow (will)
+- soldier
+  - full of strange oaths
+  - bearded like the pard (leo)
+  - jealous in honour
+  - sudden and quick in quarrel
+  - seeking the bubble reputation
+  - even in the cannon's mouth (hEro, and willing to die for it)
+- justice
+  - fair round belly with good capon lined (hEro)
+  - with eyes severe andr beard of formal cut (serious appearance)
+  - full of wise saws and modern instances (classie)
+  - so he plays his part (actor)
+- shifts (crisis)
+  - into lean and slippered pantaloon
+  - with spectacles on nose (wisdom, depth of perception)
+  - pouch on side (prepared?)
+  - his youthful hose, well saved, a world too wide (???)
+  - turning again toward childish treble (higher voice)
+  - pipes and whistles in his sound (squeaky voice?)
+- last scene/seen
+  - that ends this strange eventful history
+  - second childishness
+  - mere oblivion (loss of physicality?)
+    - sans teeth
+    - sans eyes
+    - sans taste
+    - sans everything
+
+### 2023-03-16 21:11 - duke of milain
+
+- duke of milain is patron to both ventine and proteus, and father of silvias (two gentlemen of verona)
+- prospero and antonio are also dukes of milain (tempest)
+
+### 2023-03-16 21:43 - castor, pollux, and helen
+
+turns out these guys seem to be related. helen always seems to be in a triad with a dual character: castor & pollux, agamemnon & menelaus, or theseus and prithous, or chiron and dioscuri.
