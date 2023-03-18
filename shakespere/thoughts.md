@@ -98,3 +98,5 @@ turns out these guys seem to be related. helen always seems to be in a triad wit
 I just now noticed that in "the golden ass" venus/aphrodite has psyche go to get a dose of beauty from venus/diana/prosperina down in the underworld. she opens the box and falls into sleep, which cupid has to save her from.
 
 anyway, why this is important is because I noticed that "prospero" (tempest) is a masculine version of diana/prosperina/venus -- that's why he's putting cupid/psyche through the trouble: psyche is just the female counterpart to cupid; they're the same -- she's just a manifestation of his mind.
+
+oh right, the masculine version of diana is already apollo... he's probably a manifestation of her mind/symbols (or, the other way around). didn't think about that.
