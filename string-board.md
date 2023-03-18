@@ -961,7 +961,7 @@ I didn't understand why they're grizzly ghosts until I read jupiter's response:
 
 so, I look up turnus (cause I haven't read aenead). turns out that turnus was promised lavinia first (before aeneas got there), like titus gave lavinia to saturn. in fact, the story of titus andronicus is almost a complete mirror of turnus -- where juno/tamora starts some trouble, but then saves him from death. turnus slays prince pallas (male athena?), taking his belt as a spoil (like achilles' took the lyre from andromache's city), this marks the inevitable downfall of turnus. to prevent the death of turnus, hera/juno conjures a ghost of aneas (like patrocles and achilles). aeneas pursues turnus 10 times, finally killing him in a rage. turnus descends to the underworld (like aeneas did before getting lavinia gifted to him).
 
-so here again are this 10 to 1 ratio of 10. that's all I have for now...
+so here again are this 10 to 1 ratio of 1000. also, it's worthy to note that troyus and cressida has 1000 hectors as well. that's all I have for now...
 
 ### winter's tale
 ### the-tick: both good and bad guys

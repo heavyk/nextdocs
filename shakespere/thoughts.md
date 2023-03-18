@@ -112,3 +112,7 @@ the trojans (red) become the future romans in anead. homer has poseidon save aen
 however, in the play "titus andronicus", the ruler of rome is saturninus (connected to the underworld through prosperina). however, due to tamora and aaron's revenge, it's actually lucius that ends up as king of romans/trojans.
 
 so then, if aeneas is the future roman king (something he doesn't accomplish in the aenead), is this shakespere's way of saying that lucius is likened to aeneas?
+
+### 2023-03-18 17:08 - hEro imagery
+
+I've noticed, that most of the coded stuff in shakespere's works (and it looks like marlowe's as well) are hidden underneithe some graphic imagery.
