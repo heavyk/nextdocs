@@ -104,3 +104,11 @@ oh right, the masculine version of diana is already apollo... he's probably a ma
 ### 2023-03-18 03:01 - laertes
 
 I just noticed that laertes is a mix of "[lares](https://en.wikipedia.org/wiki/Lares)", meaning lord -- and "[penates](https://en.wikipedia.org/wiki/Di_Penates)" (houshold deities that guard the inner part of the house); meaning then, that laertes represents the inner court (of denmark?)
+
+### 2023-03-18 03:05 - aeneas future king of trojans/romans
+
+the trojans (red) become the future romans in anead. homer has poseidon save aeneas from achilles, saying that aeneas is destined to become king of trojans. in the aenead I don't think he becomes king though... aeneas decends to the underworld, gets a vision from his father to go found rome. returning from the underworld, lavinia gets offered by latinus to aeneas to become the founder of rome (through his son silvius).
+
+however, in the play "titus andronicus", the ruler of rome is saturninus (connected to the underworld through prosperina). however, due to tamora and aaron's revenge, it's actually lucius that ends up as king of romans/trojans.
+
+so then, if aeneas is the future roman king (something he doesn't accomplish in the aenead), is this shakespere's way of saying that lucius is likened to aeneas?
