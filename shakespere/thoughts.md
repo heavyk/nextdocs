@@ -100,3 +100,7 @@ I just now noticed that in "the golden ass" venus/aphrodite has psyche go to get
 anyway, why this is important is because I noticed that "prospero" (tempest) is a masculine version of diana/prosperina/venus -- that's why he's putting cupid/psyche through the trouble: psyche is just the female counterpart to cupid; they're the same -- she's just a manifestation of his mind.
 
 oh right, the masculine version of diana is already apollo... he's probably a manifestation of her mind/symbols (or, the other way around). didn't think about that.
+
+### 2023-03-18 03:01 - laertes
+
+I just noticed that laertes is a mix of "[lares](https://en.wikipedia.org/wiki/Lares)", meaning lord -- and "[penates](https://en.wikipedia.org/wiki/Di_Penates)" (houshold deities that guard the inner part of the house); meaning then, that laertes represents the inner court (of denmark?)
