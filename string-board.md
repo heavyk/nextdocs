@@ -925,5 +925,43 @@ anyway, I have no idea if adding more layers is a thing or not... just putting t
 
 [1]: I just looked up the diameter and I guess this wouldn't make it too much bigger, actually -- only increasing from 7.9k to ~8-8.3k -- so yeah it wouldn't really be all that different anyway.
 
+### 2023-03-18 15:25 - aeneas and cupid
+
+I'm reading "[dido, queen of carthage](http://www.perseus.tufts.edu/hopper/text?doc=Perseus%3Atext%3A1999.03.0006%3Aact%3D1)" right now because last night I was researching cupid and I noticed this play has a mention of ten thousand cupids -- which connects with the psa 91 thing about there being ten thousand at thy right hand -- which, I can only take to mean 10000 2nd ray saviour/son types -- which makes sense considering that I figured out the layer problem: if the earth is 7th ray, and the atmosphere/sky is 6th, then the ionosphere above that would be 5th ray -- which makes sense, because there are 4 primary (7,5,3,1) layers and 3 atmospheric/transitional ones (2,4,6) where the two layers mix; the top-most being the 2nd ray.
+
+just like the atmosphere is controlled by the moon here, I figure the other two layers will be controlled by pluto (ie, "the new earth") and chiron (ie the wise tamed/centaur) which corresond to us as two new moons of the earth in the future. this is the book of revelation's insight into the matter (which I've sorta figured out) -- and so the more "solid" layers (the primary ones will be layers that will probably grow out of that). the book of revelation describes the inhabitants of pluto and what that's going to be like, so I don't need to repeat myself there -- but it doesn't (that I know of) talk about the inhabitants of chiron.
+
+I'm inclined, at this point, to believe that the inhabitants of chiron will be all the "narrators" and for a visual description of this, see ben jonson's masque, "[hymenaei](http://hollowaypages.com/jonson1692hymenaei.htm)" and the reason why I think they'll all be narrators and the inhabitants of this moon will be narrated is because the 2nd ray perspective is all about narration: it takes desire (lilith), and symbol (saturn/venus), and then turns them into concepts (juno/hera/vulcan/ganymede) which then cascade down into astral by finding a way of finding a story which can narrate the arrival of those desires(asterisk). therefore, I see this as happening no different.
+
+it looks (so far) like 10000 cupids are going to be doing such a thing. I believe this has something to do with the "[the mithras liturgy](https://archive.org/details/mithrasliturgy0000unse/page/26/mode/2up?view=theater)" (more on that in the future), because the description fits and also I noticed the vowels [have similarity to devere's sigil](/correspondance.md#2023-03-16-1619---mithras-sigil-similarity). I'll explain it better in the future, but in the contract that the magician/initiate agrees to, the sequence is one of previous perceptions: 6-3, 6-7-3 -- which are the trek that the "INFECTED ONES" took, coming from the astral (6), they then put theirselves into the ceremony of magick and ritual of ra/zeus (3). then I believe this happenend again but they had to hit all the way down to physical first (thoth's magical narrative) path 6-7, and then this was enabled the return to symbolic (3) through saturn/diana. some may have taken both paths. finally the last transformation that the mithras liturgy offers is 6-2-4, 1-6-4, 2-6-7-4-2. I interpret the first one as the sort of shakespere-style narrative style. the second as the homeric/epic/desire narration, and the third is one thatI think is a bit of a mix of the first two, but invert the first two: 4-2-6, 7-2-4 and then fuse after reversing them (not sure how it it works, but it looks like both goes backwards and then connects together -- not sure, maybe conjugate or something). anyway...
+
+so I'm reading this queen dido play and I noticed in the opening act, there's an interesting thing to note when venus/aphrodite says to jupiter while he's fondling ganymede:
+
+    I, this is it, you can sit toying there,
+    And playing with that female wanton boy,
+    Whiles my Aeneas wanders on the Seas,
+    And rests a pray to every billowes pride.
+    Juno, false Juno in her Chariots pompe,
+    Drawne through the heavens by Steedes of Boreas brood,
+    Made Hebe to direct her ayrie wheeles
+    Into the windie countrie of the clowdes,
+    Where finding Aeolus intrencht with stormes,
+    And guarded with a *thousand grislie ghosts*,
+    She humbly did beseech him for our bane,
+    And charg'd him drowne my sonne with all his traine.
+
+I didn't understand why they're grizzly ghosts until I read jupiter's response:
+
+    Content thee Cytherea in thy care,
+    Since thy Aeneas wandring fate is firme,
+    Whose wearie lims shall shortly make repose,
+    In those faire walles I promist him of yore:
+    But first in bloud must his good fortune bud,
+    Before he be the Lord of Turnus towne,
+
+so, I look up turnus (cause I haven't read aenead). turns out that turnus was promised lavinia first (before aeneas got there), like titus gave lavinia to saturn. in fact, the story of titus andronicus is almost a complete mirror of turnus -- where juno/tamora starts some trouble, but then saves him from death. turnus slays prince pallas (male athena?), taking his belt as a spoil (like achilles' took the lyre from andromache's city), this marks the inevitable downfall of turnus. to prevent the death of turnus, hera/juno conjures a ghost of aneas (like patrocles and achilles). aeneas pursues turnus 10 times, finally killing him in a rage. turnus descends to the underworld (like aeneas did before getting lavinia gifted to him).
+
+so here again are this 10 to 1 ratio of 10. that's all I have for now...
+
 ### winter's tale
 ### the-tick: both good and bad guys
