@@ -92,3 +92,9 @@ this is quite long. next, I want to talk about attracting with symbols a bit mor
 ### 2023-03-16 21:43 - castor, pollux, and helen
 
 turns out these guys seem to be related. helen always seems to be in a triad with a dual character: castor & pollux, agamemnon & menelaus, or theseus and prithous, or chiron and dioscuri.
+
+### 2023-03-18 01:52 - prospero and psyche
+
+I just now noticed that in "the golden ass" venus/aphrodite has psyche go to get a dose of beauty from venus/diana/prosperina down in the underworld. she opens the box and falls into sleep, which cupid has to save her from.
+
+anyway, why this is important is because I noticed that "prospero" (tempest) is a masculine version of diana/prosperina/venus -- that's why he's putting cupid/psyche through the trouble: psyche is just the female counterpart to cupid; they're the same -- she's just a manifestation of his mind.
