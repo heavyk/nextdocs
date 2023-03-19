@@ -2246,6 +2246,10 @@ so then, I think we can do a little better than that... just saying. one of the 
 
 [2]: cept that I think it's actually 1024y, and we're aligned so that the years are the solar years, minus 1000, so for example today is actally 1023-03-11, and this solar year actually starts/ends prolly around next year. 1024y later, we're at 2048 and that's the *actual* end of the year.
 
+### 2023-03-18 23:49 - actor of the millenium
+
+I've got to prove myself to everyone else out there, that *everyone* else has access to all of the cool stuff before I do. I have to prove it to myself and to everyone else, that I can *actually* be the last... am I a poser? or, am I the real deal?
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
