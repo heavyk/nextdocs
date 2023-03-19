@@ -58,3 +58,22 @@ I'm not the only one, everyone's doing it, see?
 I see what I want to see.
 
 that's all I got...
+
+### 2023-03-18 19:12 - teetering on uncertainty...
+
+teetering on uncertainty,
+of something unknown to me
+oif something unknown my hurt me
+I want to know ev'rthings' gon'a be'a-rite
+
+no-- second chances? I'ma keep trying my plight
+don't gonna give up, never ending the fight.
+cause, I'm a right, ah-rite? right.
+I'll trying again, one day I'll be.
+
+### 2023-03-18 19:20 - if you could just have a frozen heart...
+
+if you could just have a frozen heart,
+I'd love to melt it so I have a heart.
+you're a reflection of me, just the same, as me.
+I'd love to see you the way I want you to si.
