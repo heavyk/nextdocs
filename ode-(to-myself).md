@@ -38,3 +38,12 @@ I retire.
 
 I'm only doing the things I want to be doing,
 stopp messing with me. babe can't you see? jiji.
+
+### 2023-03-18 18:47 - carrying his load on his back...
+
+carrying his load on his back,
+from the ninteenth into the twentieth centurie.
+we've got an arduous road to go,
+so heavy and bleak.
+
+we're only in the 10th century, anyway lul
