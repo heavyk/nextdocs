@@ -77,3 +77,17 @@ if you could just have a frozen heart,
 I'd love to melt it so I have a heart.
 you're a reflection of me, just the same, as me.
 I'd love to see you the way I want you to si.
+
+### 2023-03-18 19:24 - you're the reason, I cannot fly...
+
+you're the reason, I cannot fly,
+please let me go, I really want to fly.
+no really, please let me you fly.
+I know you can't see you won't let me fly.
+
+still not flying...
+and it's probably your fault.
+please let me fly, I want you to see.
+I need you to let me fly, let go of me!
+
+you're frozen; dead to me.
