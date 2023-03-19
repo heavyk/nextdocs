@@ -137,3 +137,9 @@ overgrown path, the magic remains
 rain from the heavans, earth and the flames
 oh oh oh, oh oh oh
 oh oh oh, oh oh oh
+
+### 2023-03-19 10:56 - you are where you are
+
+you are where you are
+no matter how much
+you're lying to yourself

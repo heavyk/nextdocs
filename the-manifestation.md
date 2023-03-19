@@ -2250,6 +2250,11 @@ so then, I think we can do a little better than that... just saying. one of the 
 
 though I'm the centre, I've *still* got to prove it to myself, that *everyone* else has success and access to all of the cool stuff before I do. I really *need* to prove to everyone, that I'm right and I can *actually* be the last... am I a poser? or, am I an ass?
 
+### 2023-03-19 10:54 - I'm not good enough...
+
+I'm not good enough
+until you're good enough
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
