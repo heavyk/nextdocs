@@ -116,3 +116,24 @@ but, I've got you. I got you beck.
 you're everything to me.
 I've got tutu tell me,
 to tell me where I am.
+
+### 2023-03-18 20:04 - this night was the best...
+
+this night was the best.
+not unlike any of the rest.
+you really outdid yourself.
+hopefully next time is best.
+good luck, you're gonna need it,
+it you need you alright?
+
+### 2023-03-18 20:06 - ancient rocks
+
+ancient rocks, crest and the mane
+lion roars, and sets the pace
+folk dancing flute, float dancing piper,
+flute dancing piper, ancient rocks
+
+overgrown path, the magic remains
+rain from the heavans, earth and the flames
+oh oh oh, oh oh oh
+oh oh oh, oh oh oh
