@@ -90,4 +90,19 @@ and it's probably your fault.
 please let me fly, I want you to see.
 I need you to let me fly, let go of me!
 
-you're frozen; dead to me.
+you're frozen; and dead to me.
+
+### 2023-03-18 19:35 - so everything is fine...
+
+so everything is fine,
+let's keep it this way.
+it's worked for a thousand years,
+and a thousand years more.
+
+don't you know how lucky,
+we're keepin' it the same
+don't look back,
+straight and narrow,
+the keepin' it the same.
+keepin' it same.
+the it same.
