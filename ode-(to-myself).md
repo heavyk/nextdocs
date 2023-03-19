@@ -15,3 +15,26 @@ I love higher and higher frequencies, all the time.
 life is actually fun.
 
 some might say that I shouldn't give anyone the easy way out. right? wouldn't you want to figure it out for yourselves? personally I like figuring out things, but I have no problems to copy the base design from someone else. I copy everything. please copy! like a virus, and see!
+
+### 2023-03-18 18:35 - you are who you are...
+
+you are who you are,
+no mater wherevr ye be
+this feels so strange,
+I thought you could see
+
+no mater wherevr you are,
+you are who you see
+you and me both,
+we all like to see.
+
+be what you want, be what you be
+don't evr expec't anyone to be,
+not even me.
+
+I don't have to any reason to be,
+any thing you want me to be,
+I retire.
+
+I'm only doing the things I want to be doing,
+stopp messing with me. babe can't you see? jiji.
