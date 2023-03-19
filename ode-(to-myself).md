@@ -106,3 +106,13 @@ straight and narrow,
 the keepin' it the same.
 keepin' it same.
 the it same.
+
+### 2023-03-18 20:00 - I need you, I've got you...
+
+I need you, I've got you
+I can't get you back.
+you're never where I'm at
+but, I've got you. I got you beck.
+you're everything to me.
+I've got tutu tell me,
+to tell me where I am.
