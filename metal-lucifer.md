@@ -1217,3 +1217,115 @@ you see, all of dad's gambling ideas, goals, and aspirations are all located in 
 well, I don't see those pictures, so all of those feelings which would be turned to pictures, turn into real-life people. zaryn was clearly the externalisation of dad's percption that busniness and making money is a gamble. all aspects of my big-picture reality have become real people and things which I've interacted with (like chris, zaryn, luke, ryan, etc.).
 
 the thing is, I'm pretty good at finding my way back to feeling good, so even if I interact with them, I get right back going toward "the great attractor at the end of time", and so I'm literally here (kind of like a speedrun) to optimise that perception by interacting with these feelings made manifest so that I can realise that desire as a reflection of myself.
+
+### 2023-03-18 21:39 - the whole world is watching
+
+a few weeks ago, I ate some weed and because I felt a lot better than usual, I seemed to find this group on youtube called "within temptation" -- and I was super enthralled with their performance, because they had these super great songs like "mother earth" which were very signifiant because I was just (at that time) figuring out how the 1-7 reflection chamber of the planet works (it's kinda like a star) and how that connects to DNA and stuff -- so I was just starting out there. it was easy for me to see that our bodies are like machines, reflective of our desire -- however, I wouldn't be able to actually communicate the [thought into english](/sledge-notes.md#2023-03-14-2312---lilith-venus-mixup) till some days later -- and even then, it's [quite a vague concept](/sledge-notes.md#2023-03-15-0004---explain-more-please) but it seems to make more sense when I explain it as [a force called YHVH](/sledge-notes.md#2023-03-16-1112---metatron-and-channeling), and not literally your cells and body a reflection of your desire; you'll likely hear me talk about it again in many different ways now because the "mother earth" way is no longer available.
+
+anyway, so the night I (essentially moved timelines to a  different one with them on it) my computer stopped playing videos and I was forced to quit youtube for a while -- and I went to sleep as well. so when I look at the same concert again just now, the part I watched is mostly the same, and some of the lyrics are a little different -- but it's funny because they even consider that song as something they didn't really intend to make:
+
+> The sound of Mother Earth was a departure for the band.
+
+so then they have this song at the end of the world (which I swear had different lyrics before my computer stopped working), which has strange lyrics. it used to be singing (seemingly about me), and how all of you are all watching. now, the lyrics tell a very different story:
+
+    You live your life, you go day by day
+    Like nothing can go wrong
+    Then scars are made, they're changing the game
+    You learn to play it hard
+
+    And I know you wish for more
+    And I know you try
+    And I hope you realize
+    You know the time is right
+
+    The whole world is watching when you rise
+    The whole world is beating free right now
+    Your whole life is flashing for your eyes
+    It's all in this moment that changes all
+    What are you waiting for?
+    What are you fighting for?
+    'Cause time's always slipping away
+    The whole world is watching
+    The whole world is watching you when you rise
+
+    You build your walls then break them away
+    'Cause that is what it takes
+    You saved yourself, you found who you are
+    That never goes away
+
+    And I know you wish for more
+    And I know you try
+    And I hope you realize
+    You know the time is right
+
+    The whole world is watching when you rise
+    The whole world is beating free right now
+    Your whole life is flashing for your eyes
+    It's all in this moment that changes all
+    What are you waiting for?
+    What are you fighting for?
+    'Cause time's always slipping away
+    The whole world is watching
+    Yeah, the whole world is watching you when you rise
+
+    Your sacrifice goes through your mind
+    But nothing is wasted, you've made it now
+    You rise again, breaking out
+    Each step that you've taken, you've paid the price
+
+    The whole world is watching
+    The whole world is watching
+    The whole world is watching you when you rise
+
+    What are you waiting for?
+    What are you fighting for?
+    'Cause time's always slipping away
+    The whole world is watching
+    Yeah, the whole world is watching you when you rise
+
+the lyrics now tell a story of "the time is slipping away" (as if there's nothing I can do about it) and "each step you've taken, *you've paid the price*" (as if I have money), "what are you waiting for?" (as if I'm waiting), and "what are you fighting for?" (as if I'm fighting)
+
+so here's the thing: you can manifest your timeline however you want to manifest it and see me however you want to see me. enjoy your manifestation.
+
+anyway, do your worst, because you're not really fighting me. you know that the thing I've been asking for and wanting this whole time has been some real food-draggers.
+
+it doesn't seem logical at first to anyone that thinks in terms of the "first", but from the perspective of one who sees from the "last", it's absolutely *normal* that everyone else is doing all of the cool stuff before me ("And I know you wish for more").
+
+it looks (to you) like you're dragging me down
+by not letting me have all that I wish,
+but every centre has as many ahead, as lost left behind.I'm neither the first or the last,
+but both at the same time.
+
+from my perspective, you're keeping me alive.
+if I were to go any faster I'd sieze my existance;
+not physical no more.
+
+you know, it's only because of your inability
+to feel good about your circumstance,
+that you can still find a way to manipulate
+your timeline so you can still perceive me.
+
+you're still hanging on to me:
+[you're the reason I cannot fly](/ode-to-myself.md#2023-03-18-1924---youre-the-reason-i-cannot-fly).
+
+you know, as soon as I can perceive wanted
+in all of its entirety,
+there will be no more ways to adjust your perception
+to see me anymore.
+
+I exist (for you) as long as you can find fault
+in my perception (which is really yours).
+
+if it takes me
+another thousand years
+[of repeating that](/ode-to-myself.md#2023-03-18-1935---so-everything-is-fine),
+over and over again,
+you're giving me
+another thousand years
+to be alive.
+
+every time I see it
+better and better,
+you're perfecting me the same.
+
+glhf
