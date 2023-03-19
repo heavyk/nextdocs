@@ -28,6 +28,6 @@ looks like in a practical sense. because, when
 I'm looking at it from the centre perspective
 there are always so many ahead of me
 and so many behind. the're not *really* ahead
-it's just my perception, you see.
+it's just my perception, I know you can't see.
 
 so, think about this a moment: have you ever looked back at something you did in the past and said, "gah! I wish I had've known then what I know now"? anyone else that'll ever see with any condition, (great or small,) will inevitably wish they could know what their future self in their future, knows now; so really, you can comfort yourself knowing, that no matter what it is, that anyone else has, they're always going to acknowledge that it could have been better: *nobody* gets the "best" cause everything is relative to me, and there's always something better.
