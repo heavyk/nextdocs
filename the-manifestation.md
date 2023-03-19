@@ -2248,7 +2248,7 @@ so then, I think we can do a little better than that... just saying. one of the 
 
 ### 2023-03-18 23:49 - actor of the millenium
 
-I've got to prove myself to everyone else out there, that *everyone* else has access to all of the cool stuff before I do. I have to prove it to myself and to everyone else, that I can *actually* be the last... am I a poser? or, am I the real deal?
+I've got to prove myself, that *everyone* else has success and access to all of the cool stuff before I do. I have to prove it to myself *and to everyone else*, that I can *actually* be the last... am I a poser? or, am I an ass?
 
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
