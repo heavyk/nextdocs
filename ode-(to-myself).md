@@ -47,6 +47,14 @@ we've got an arduous road to go,
 so heavy and bleak.
 
 we're only in the 10th century, anyway lul
-ode to atlas, woe!
+ode to our atlas, woe!
 such a heavy load on his back,
 so heavy and bleak.
+
+### 2023-03-18 18:58 - I wish I hadn't have smoked...
+
+I wish I hadn't have smoked,
+I'm not the only one, everyone's doing it, see?
+I see what I want to see.
+
+that's all I got...
