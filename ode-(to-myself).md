@@ -47,3 +47,6 @@ we've got an arduous road to go,
 so heavy and bleak.
 
 we're only in the 10th century, anyway lul
+ode to atlas, woe!
+such a heavy load on his back,
+so heavy and bleak.
