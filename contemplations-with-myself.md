@@ -506,6 +506,8 @@ therefore, when I talked in the previous followup about transcending the "normal
 
 imagine that eventually as I become more and more low resistance, people will simply be able to conjure me, and I'll be a reflection of their perception of me, just like this ariel fairy is.
 
+@[youtube](https://youtu.be/9_cP_hCdrI0)
+
 I combined that idea with rainbow's "a light in the black" where this stargazer (in the previous song), seemingly vanishes. he'd been enslaving them for so long to build a tower so that he can fly and all sorts of other stuff -- sorta like how you could imagine that I'm perceived by others that I'm doing where I keep giving nosebook more and more capacity to control people, essentially rising the difficulty up to impossible, mostly because I'm sadistic, and I know that you all are reflections of me, so you'll all find your way eventually (just like I will), -- but then imagine the moment when I just sorta peace out from here, and there's no more slave driver telling people what to do anymore, so everyone has to find their own way in a world that has now gone horribly dark.
 
 as a no longer physical thing, because nosebook's world has become so incompatible to me, I imagine my only way to become physical will be for people to conjure me -- or, you could imagine that prospero's island is not a past narrative, but a future one, and I'm the ariel that is conjured by him to do all of the things that he needs done to keep his world running the way that he wants...
