@@ -299,3 +299,17 @@ besides that, the other difficulty I have with this part is the parallel to "no 
 you can't go from an awful situation to a good one without dragging some awful in along with it, so if I want to have a good-feeling situation, I have to start feeling good now, so the next situation will start off already feeling good.
 
 however, because I've developed the skill, I can, *now* feel the way I want to feel in any situation now with relative ease -- and, that agility makes my noticing the awfulness of something less of an issue. I don't think this is the case for ferdinand though, so he's setting himself up for a whole lot of difficulty, in my estimation.
+
+### 2023-03-21 15:55 - portia and brutus' secrets
+
+in this speech, you're saying that portia will begin to feel bothered a bit that brutus is keeping secrets from her, even though by right and vertue of her place (as wife), she aught tto know what's going on in his mind...
+
+I used to think like that, kinda; like, when the whole nosebook thing started out, I suppose I had a similar disagreement with my mom, beecause as a child, she *always* told me the truth (no exception that I ever figured out, anyway) -- and so then when I get home from spain, it's just like this fully closed door and she simply will not be honest with me about anything. in the same sense as portia here, I laid out all of the logical reasons why it's clear that something *is* in fact going on, she *still*, to this day, maintains that she simply is "not sure" or is "maybe a possiblity" that something *like* nosebook is going on, but clearly is not nosebook -- right?
+
+you have to understand how ridiculous it is to try and get answers out of someone that's intent on deceit; no matter how much logic you present to them, they'll just stone-wall you until you go away. it's really not worth it to try and be upset about any of that.
+
+as such, I've taken the opposite course of getting frustrated with her, to simply explaining over and over that I *know* what's going wrong -- and even making mistakes about it from time to time a bit purposefully, because when I make an accusation about nosebook for example doing something, it gets a stone-wall, but for example I claim that facebook is doing it, there are numerous reactions of disbelief wondering how I could *possibly* believe such a bunch of hot-shot tech noobs could *possibly* run a criminal spy organisation (and get away with it).
+
+therefore, when I'm talking to her now, I don't feel any frustration over her deceit (though I suppose I still have some inside), and instead opt for just joyfully playing around the subject as if I'm fully aware and in complete control. am I *really* in control? I don't know... we'll have to see, I suppose.
+
+I would tell portia not to try and get information out of someone that does not want to reveal that information, but instead know that asymmetry of information always leads to collapse, so just mock them as their world crumbles -- even if you're his wife :) intherwords, I'd probably deliver this speech, not only with diffreent words, but with a different attitude too, if I were portia (though I'm saying this now after years of flailing about trying to get "truth" out those who want nothing to do with it)
