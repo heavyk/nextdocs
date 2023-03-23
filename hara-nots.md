@@ -313,3 +313,5 @@ as such, I've taken the opposite course of getting frustrated with her, to simpl
 therefore, when I'm talking to her now, I don't feel any frustration over her deceit (though I suppose I still have some inside), and instead opt for just joyfully playing around the subject as if I'm fully aware and in complete control. am I *really* in control? I don't know... we'll have to see, I suppose.
 
 I would tell portia not to try and get information out of someone that does not want to reveal that information, but instead know that asymmetry of information always leads to collapse, so just mock them as their world crumbles -- even if you're his wife :) intherwords, I'd probably deliver this speech, not only with diffreent words, but with a different attitude too, if I were portia (though I'm saying this now after years of flailing about trying to get "truth" out those who want nothing to do with it)
+
+mock
