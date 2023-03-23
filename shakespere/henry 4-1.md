@@ -159,6 +159,104 @@ I wonder if others would want to do the same? I want to create "offspring" (if y
 
 this play I think is about changing the past, and looking at itt differently, because it doesn't matter anyway, andyou could have gotten to the present however you believe you needeed too get here to experiece this. lol
 
+#### 2023-03-22 20:18 (minus ~2h) - king's opening speech
+
+- time to make a peace that still feels frightful, but like a dog panting, it comes and goes, in and out.
+- no idea
+- no more will the poles shall she taste her children's blood
+  - gives a picture of the earth conjuring "egregores" or manifested humans to reak havoc on the earth, destroying harmful (to her) thing/people/governments/etc, and ridding herself of those problems
+  - she's the ultimate hitman/iluminati. it appears to be other people, but it's just the planet trying to make things better.
+    - from her perspective she *feels* on her body (just like how we feel physical sensation on our body), she feels on her body, how how we feel.
+    - like a felt but not physical sensationn
+  - (manifestation of desire, on the earth's part)
+  - it works the same, when you're feeling something that doesn't feel goodl,
+    - then you want to try and get rid of it;
+    - is the normal reaction for detfault perception.
+  - we always manifest the thing to destroy the problem, if it's bad enough.
+  - it's owten times easier to just feel better about it, without nneeding to do anything aboutt it.
+  - that's the "secret" that we are learning for ourselves, for which she's a refelction of us; -- means that her "tech" is as good as our perception.
+  - the imagination is the limit for tech.
+- those that don't see things the way the earth sees them
+  - (trying to not be a reflection of her)
+- have sorta peaced out.
+  - something about intestine shock.
+  - sounds terrible, I hope they're OK...
+- now, we all march, not toward each other (for impacct, destructive interference), but now in similar directions to each other (constructive interferences)
+  - inotherwords, we've crossed the midpoint, and have startted to go positive.
+  - we'll go negative again sometime in the future, because such is life: all perceptual.
+- let's go to the burial of jesus
+  - (which, btw would have happened VERY differently in lyra,, btw)
+
+### 2023-03-22 20:19 - beyond all reason
+
+today I've been thinking a lot about a new game called "beyond all reason" as it's starting out as a modern remake of a game called "total annihiliation".
+
+I want to contrast this game with another game I've been talking about instead which is "captain of industry". the premise (I see it), is that all good wars need a good economic support to fuel their efforts. therefore, we could see it tho BAR way, or we could see it as the coi way. we could also see it as both.
+
+I originally saw the idea of a game of coi creshending into a the production of a commander (the unit you start out with in BAR), and then from there a war is being fought.
+
+the thing that I'm noticing is that a lot of the interface for BAR is not at all suitable for buildhing a factory. though, for whatever reason, some people wish to play "sim city" and organise and layout their factory in an organised and structured way, even though the fastest and most efficient way is more the sc2 way, which is just putting down the factory in defencible spots, or close to the opponent, etc...
+
+sc2 is aa very different style of play, because you *want* to have factories that can pump out units near to the opponent's base.
+
+see how it's a different perspective to build your factory out in the middle of the map, when you'd rathar to have all your production in a safe and well-defended spot?
+
+I personally like the idea of factories, and the well-built factory/base, but for me I really like exchangeable pieces (like a printing press), so then components can be put together to build modules, which can then be assembled in a structural way to make a bigger thing. therefore, I'd  want to be able to just "slap down" a high output expendable factory out in the middle of the map, or to be able to extend/modify the design of something by replacing the modules.
+
+so anyway... imagine there were three (potenntially more) versions of the game:
+
+- (captain) one focuses on the creation and components of the units/items necessary to build the components.
+  - this one looks a lot like coi and has all the persspectives necessary to make a good econ, (that's pretty much it).
+  - it doesn't even contain combat even, as all you're doing is building and designing things
+- (commander/soldier) one focuses mostly on the combat aspect of it:
+  - where to put defences
+  - and, (if no production is providing them with resources/modules)
+  - factory, weapons, etc modules that make up the war implements.
+  - focusing on the tactics of the battle and other "commander" related ideas.
+- (tactician) one is all about squad tactics and simulation
+  - I don't see this one personally so well, but it behaves much more like sc2.
+  - I imagine this is where a lot of the lore goes into, because lore doesn't really affect production, but is kinda
+- (soldier,hero,mecharrior) one focuses on the first-person experience
+  - has lore also.
+  - reminds me of WoW
+  - has XP so you're leveling
+  - access to the tech involved in the commander.
+  - better tech means cooler items, vehicles, weapons, etc.
+- (hero, explorer, magician, avatar) one is where you develop the hero/persona
+  - also has lore
+  - reminds me of WoW
+  - I see this one like tomb raider as well
+  - has magic, psi, character interactions
+  - want to implement porsonalities/intelligence response to their environment
+  - these automatically become npc whe nobody is inside of them
+- (home) edition is all about the culture and lore
+  - this focuses on the beliefs and structure of the different "factions" that are a part of the societies.
+  - different factions believe different things, and so this forms a large part of their lore and what symbols they perceive and how they communicate.
+  - in midst of a warring factions, the faction needs an effective way to communicate with itself, from commander/god down to soldier/hero
+  - therefore, these diffreent communication protocols, essentially form the faction identity
+  - I want to allow factions to create their own communication modules which, members of those factions will use those module interfaces to communicate effective. battle. strats.
+  - also integrates smaller groups, clans and the like into a cohesive identity.
+
+anyway, so you can see how this is kinda getting bigger on the game end of things, but the main thing is that each of these games are a perspective into the same "universe" -- and what's important about that, is I was thinking about this lyra thing because I'm realising how much I see things differently. the coi/home edition is more the way that I want to be looking at the game. I enjoy planning out factories and building up production to max... and that's it. sometimes I don't even really want to even know if there's a battle or not, because my little island where I'm building my copper, iron, gold and graphite into stuff is fun for me. in the end, it's just a personal competition that I have with myself to output the most in the shortest amount of time (optimisation).
+
+---
+
+so imagine this: imagine that there are a lot of people that are kinda living the lyra life -- and to me, their world is entirely fantastical. I don't caree. I live on earth. I therefore live in a world of machines and physical stuff.
+
+soo, if I want to turn off my physical perspective, I'm 100% guarateed to see earth/physical perspective, which means that my lyra incarnation is entirely open for grabs (body double), right and I don't care what happens there cause I'm focused here.
+
+so then let's say in some period of time,we *actually* play out these battles. like this is a game I'm wanting to make -- but what if we did it in real-life. like, I'm team earth (rocky) and then there's team lyra (apollo). and so we build up real actual units and battle it out.
+
+it seems to me that lyra (and apollo playing it) will have access to all the stuff that we have, so by default, all the cool weapons and stuff we create for ourselves, they'll have the same tech:
+
+- so, (as an example)
+  - earth will be, (let's say) armada
+  - lyra will be, (let's say) cortex.
+- we'll build worlds (planets planets and other structures) to fight on
+- then we can skirmish in the space between our two stars
+
+that'd be pretty cool, right?
+
 ## CHARACTERS
 
 ### mortimer
