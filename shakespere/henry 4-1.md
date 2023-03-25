@@ -257,29 +257,130 @@ it seems to me that lyra (and apollo playing it) will have access to all the stu
 
 that'd be pretty cool, right?
 
+## important events
+
+### prince talks to falstaffe
+
+- falstaffe: we that take Purses (thieves?), go by the Moone and seuen Starres (pleiades?), and not by Phoebus (apollo)
+  - seems that the theives are associated with the moon and apollo (the king/hal) with the day.
+- falstaffe: when thou art King, let not vs that are Squires of the Nights bodie, bee call'd Theeues of the Dayes beautie.
+  - falstaffe aligns himself with the night side of the earth?
+  - how is he thieves of day's beauty?
+  - this gives me the illusion of the "remooneration" where the earth has one pole pointed toward the sun, and the other side in nighttime.
+  - it could also be something like an eclipse, where we live in the shadow of the moon.
+- falstaffe: Let vs be Dianaes Forre-sters, Gentlemen of the Shade, Minions of the Moone; and let men say, we be men of good Gouernment, being gouerned as the Sea is, by our noble and chast mistris the Moone, vnder whose countenance we steale.
+  - more association of theives are associated with the moon and apollo with the day.
+- falstaffe: Now a Purse of Gold (TA) most reso-lutely snatch'd on Monday night, and most dissolutely spent on Tuesday Morning; got with swearing, Lay by: and spent with crying, Bring in: now, in as low an ebbe as the foot of the Ladder, and by and by in as high a flow as the ridge of the Gallowes.
+  - no idea what this means
+- something about a Buffe-Jerkin, a robe of durance (sounds like everlasting penis to me)
+- falstaffe: Yea, and so vs'd it, that were it heere apparant, that thou art Heire apparant. But I prythee sweet Wag, shall there be Gallowes standing in England when thou art King? and resolution thus fobb'd as it is, with the ru-stie curbe of old Father Anticke the Law? Doe not thou when thou art a King, hang a Theefe.
+  - you appear to have money (previous line), so you are heir apparant (as if falstaffe were supposed to be the heir?).
+  - are you going to hang a thief like me?
+  - remember, even though we came to this agreement, is old father saturn is still laying down twhe law?
+  - don't hang a thief (me) when you're king
+- prince: you'll hang yourself
+- falstaffe: Well Hal, well: and in [for obtaining of suites] it iumpes with my humour, as well as waiting in the Court, I can tell you; whereof the Hang-man hath no leane Wardrobe.
+- falstaffe: I am as Melancholly as a Gyb-Cat, or a lugg'd Beare; an old Lyon, or a Louers Lute; or the Drone of a Lincolnshire Bagpipe.
+- prince: What say'st thou to a Hare, or the Melancholly
+of Moore Ditch?
+  - (my best guess is): he offers falstaffe a vagina or poop-shute
+- falstaffe: Thou hast the most vnsauoury smiles, and art in-deed the most comparatiue rascallest sweet yong Prince. But Hal, I prythee trouble me no more with vanity, I wold thou and I knew, where a Commodity of good names were to be bought: an olde Lord of the Councell rated me the other day in the street about you sir; but I mark'd him not, and yet hee talk'd very wisely, but I regarded him not, and yet he talkt wisely, and in the street too.
+  - not sure. I think the mark'd him not bit is probably something saying by falstaffe "no homo"
+- prince: Thou didst well: for no man regards it.
+  - no man regards sexual favours? I don't get it
+- falstaffe: O, thou hast damnable iteration, and art indeede able to corrupt a Saint. Thou hast done much harme vn-to me Hall, God forgiue thee for it. Before I knew thee Hal, I knew nothing: and now I am (if a man shold speake truly) little better then one of the wicked. I must giue o-uer this life, and I will giue it ouer: and I do not, I am a Villaine. Ile be damn'd for neuer a Kings sonne in Chri-stendome.
+  - falstaffe(?) forgives hal for trying to corrupt him (and others)
+  - falstaffe started out knowing nothing, though (because of his attempts to corrupt him?), now he's a little better than one of the "wicked".
+  - falstaffe needs to give over his life of villany, and he will...
+  - but he does not because he is a villian.
+  - he's going to be damn'd for (don't understand)
+- prince: Where shall we take a purse to morrow, Iacke?
+  - this "purse" is lowercase.
+- falstaffe: Where thou wilt Lad, Ile make one: and I doe
+not, call me Villaine, and baffle me.
+  - wherever you want to take a purse. I'll make a purse: and I do not [have a purse], call me villian and "baffle" me.
+  - sounds like falstaffe doesn't have a "purse", so he's going to make one? and then it sounds sexual.
+  - why would he make a purse that's just going to take?
+- prince: I see a good amendment of life in thee: From
+Praying, to Purse-taking.
+  - Praying = blowjobs, so I guess Purse-taking is something else.
+- falstaffe: Why, Hal, 'tis my Vocation Hal: 'Tis no sin for a
+man to labour in his Vocation.
+  - not sure what is his vocation...
+- pointz: Now shall wee know if Gads hill haue set a
+Watch. O, if men were to be saued by merit, what hole
+in Hell were hot enough for him? This is the most omni-
+potent Villaine, that euer cryed, Stand, to a true man.
+  - I'm inclined to believe that Purse-taking is something homosexual, because I see often times the reference to crying and stuff.. like, there was this one question that seriah asked on the show about a why a guy would have his pants down and crying, and there was awkward silence. I don't know if crying is a common thing or something, but shakespere says tears a lot too... so I dunno. at any rate, I'd like to stay completely away from that stuff, so I dunno.
+  - it's interesting to note that his name here is "pointz", as in "point", and the poines is the goddess of punishment and retribution. I also get the sense of regret as well, cause of the next line...
+- poines: Good morrow sweet Hal. What saies Mon-sieur Remorse? What sayes Sir Iohn Sacke and Sugar: Iacke? How agrees the Diuell and thee about thy Soule, that thou soldest him on Good-Friday last, for a Cup of Madera, and a cold Capons legge?
+  - it sounds to me like poines is chiding hal about his interaction with jack because of the remorse bit and how he says that he sold his soul to the devil (another epithet for falstaffe )
+
+### hotspur battles archibald
+
+- archibald:
+  - scottish
+  - *ever*-valliant
+- 10000 scots
+
+### falstaffe talks to prince
+
+- falstaffe and the other theieves (2GV) are at the door interupting their "
+
 ## CHARACTERS
 
 ### mortimer
 
-- welsh
+- welsh, of wales
 - defeated glendower in battle, slaying 1000
 - rude hands
 
 ### glendower
 
 - earth shakes when he's born
-- fiery metal shapes in tky when he's born
+- fiery metal shapes in sky when he's born
 - irregular and wilde
+- fallstaff: devil
+- fallstaff: hee of Wales, that gaue Amamon the Bastinado, and made Lucifer Cuckold, and swore the Deuill his true Liege-man vpon the Crosse of a Welch-hooke
+
 
 ### hotspurre/hotspur
 
-- king defines hotspur as mars
-
-### harry percy
-
+- king: mars
 - young
+- fallstaff: mad fellow of the north
 
-### archi
+### harry percy/percy
 
-- scottish
-- *ever* valliant
+
+
+### hal/prince/hall
+
+- (prince of wales)
+- self:
+  - king of curtesie
+  - no proud jack (like fallstaff)
+  - a corinthian
+  - a lad of mettle
+- hotspur: nimble-footed Mad-Cap
+- mortimer is his wife
+  - (I'll play percy, and (falstaffe) will play dame mortimer his wife)
+  - percy != prince
+
+### king henry 4/king
+
+- dealing with the aftermath of the death of his father, king richard 2
+
+### sir walter blunt/blunt
+
+- deere and true industrious friend
+  - no comma: not sure what "true industrious friend" means
+
+### jack falstaffe/fallstaff
+
+- we that take Purses, go by the Moone and seuen Starres (pleiades?), and not by Phoebus hee, that wand'ring Knight so faire (apollo)
+- poines: the devil
+
+### poines/pointz/poynes
+
+- (in greek, poine is the spirit of Nemesis, the goddess of divine retribution, punishment)
