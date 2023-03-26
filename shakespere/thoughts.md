@@ -116,3 +116,20 @@ so then, if aeneas is the future roman king (something he doesn't accomplish in 
 ### 2023-03-18 17:08 - hEro imagery
 
 I've noticed, that most of the coded stuff in shakespere's works (and it looks like marlowe's as well) are hidden underneithe some graphic imagery.
+
+### 2023-03-26 02:30 - 4th T
+
+@[youtube](https://www.youtube.com/watch?v=2eAON2pTe9o)
+
+it occurred to me the other day when watching that video that the 4th T, is likely a reference to hermes trimiguistus(?). he was thrice great, but this next time, he'll be 4 times great. remember that hermes/thoth is magic and writing -- ie. narrative, just like a 2nd ray does. it involves ceremony & ritual (sequences), in addition to words and spells to create an illusion. look no further than shakespere for such an example.
+
+what I think is happening is that I repeatedly see two T's popping up. one I believe is mars, and the other is thoth. the difference between the two is that mars uses desire/creativity/destruction/chaos to accomplish the purpose, meanwhile thoth uses magic and illusion to accomplish the same thing through symbolism *in* a narrative.
+
+narrative is 2nd ray which combines symbolism and desire into a bigger picture, so what you're looking at is two manifestations of the same energy -- however mars' is 2-1-7, meanwhile thoth's is 2-3-7. thoth's energy is channeled through venus/apollo (-3) and saturn/adonis (+-4), and then down into astral; meanwhile, mars' effect passes down to vulcan (-5+) and raven (-7). it creates a nice symmetrical effect.
+
+what this looks like in practicality is basically this: mars works on desire, which is the pure form of the energy, but that energy is so high frequency, it's terrifying to most, and so most people instead want a simple story or narrative that gives a clear binary (good vs evil) that they can adhere to guide their life: the good shepherd. the worthless shepherd does not guide though, and so therefore has the symbol of freedom or liberation -- however, that freedom is *not* found in adherance to the narrative or the ceremony/spell required to accomplish the purpose. instead, freedom is found in realisation of the concept or feeling required to *attract* what is wanted.
+
+the narrative approach tells you what is wanted, and the steps you need to take to get there -- which unfortunately usually favours the rich and so therefore, those steps are impossible to the majority. the 2nd ray not-good-enoughness is the inability to accomplish the narrative or spell, and so those fall short of the goal ("sorry, not good enough!). meanwhile for the desire/emotional/conceptal approach, it takes a different path which is found in understanding/grasping the general concept, and not the allegory found in the spell, narrative, or ceremony (which is just a veiled reference to the concept). because the desire/conceptual approach is all attraction, the narrative unfolds in an unpredictable fashion (because it's attracted).
+
+the desire/conceptual one comes first because it forges the path/narrative, when then the symbolism and narrative guys then take and turn into something that one can *do* to accomplish the same thing. the narrative/spell works because of time resonances -- meaning that one sequence of events repeated in history which then gets turned into a narrative (like henry 4, which I'm reading now) which then *attracts* a symbolically similar but very different physical outcome -- which can then be turned into a spell/narrative which then attracts similar results for those following the spell/narrative. back and fourth it goes: symbolism feeding desire, and then desire feeding symbolism (the 2nd ray perspective).
+
