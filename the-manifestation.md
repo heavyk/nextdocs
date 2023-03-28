@@ -2299,6 +2299,16 @@ it's like the story of jove where he lost everything, and then upon (doing somet
 
 in just the same way, we'll eventually (after some amount of time) become a universe all unto to ourselves; it doesn't matter what anyone else in this unverse is doing, they can either join us or not. nosebook will continue to stay in contact with us, I'm sure, and their entire universe will be built up out of necessity, to try and gain enough advantage to keep us away from anything they wouldn't want (put your jacket on; I'm cold). everything's fine :~)
 
+#### 2023-03-28 17:11 - lady of may
+
+I started to read a play called "lady of may" by phillip sidney and it made me feel really bad. it was a play about a girl, one onely daughter of someone and she has some suiters for her, but the person writing it wants her to go to the best suiter. the play starts to address the suiter by saying all these really nice things about him (essentially like he's god or something). it just gives me all of these bad vibes, so I closed the window. I got a reaction to that, and so I decided that I'd rather to write this.
+
+the play talks about the subject of matrimony being one of very serious gravity. I agree; it's a very serious subject and one that makes me not want to do it. in the end, I feel like it's much better idea to adopt than to marry. I'll just have zillions of daughters. I like that idea a lot better; it just feels better. it still has the "negative"     aspect of ownership, in the sense that they're "my" daughters (like posessions in both the monetary and channeling my energy kind of way), and then equally I can "disown" them whenever they're ready to cash in their "inheritance" and go their own way, and (no big deal anyway). therefore by disowning her, I'd be giving her something of a dowry: an insurance to live out the rest of her life comfortably, in case I cease to exist (for whatever reason).
+
+I like this concept because I'm purposefully using a lot of really "negative" words, but again, it's a concept that visually (in word form) is really hideous, but when thinking about it, it doesn't make sense (lol). I'll give an example: the word disown has the connotation of severing ties with someone, such that they're no longer someone I talk to or interact with (they're dead to me). however, that's not always the case. even though tuenti "disowned" me, I still hung around at the office and stuff, even though I was neither one of their employees or a shareholder anymore; I mean "disown" in that sense.
+
+I'll leave the rest of the concepts like (possession, ownership, and channeling -- and dowry and insurance).
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
