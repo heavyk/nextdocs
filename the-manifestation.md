@@ -2289,6 +2289,16 @@ whether the BAR thing works out or not, doesn't matter: I want to try and solve 
 
 [3]: another example of this removing of feeling-purposefully is drugs -- which I'm totally fine with, but occasionally. I don't think I would want to be on drugs 24/7, just like I don't think that I would want to have kundalini to be rising. they're great for exploratory expiditions into the unseen world, but not sustainable for *physical* living.
 
+#### 2023-03-28 16:40 - implications
+
+one of the reactions that I was getting in response to the previous entry (notably the part about mithras) was, "he's letting them get away" -- to which I don't really see it as a problem. here's the way I see that working out: like I mentioned elsewhere, their constantly editing the timeline to get rid of undesirable potentialities for them, is actually bifricating us to the point that we're becoming more like two separate groups. what I can imagine is that the INFECTED ONES still "resisting rehabilitation" (lol) are the opposite group. I call them "nosebook" because they really have it out for me, and do not want at all to be apart of anything I want to do. they're working their hardest to preent my creativity from expressing itself -- and that's perfectly fine. some like the ideas that I want to create, and the others are "coming home".
+
+the way that I take this to be in the literal sense of the song "stargazer" by rainbow. it's a concept -- a very high frequency concept that when felt and experienced, it has something really compelling and joyful to it; howver, visually it looks like a pretty big diaster (appearances can deceive, right), and so though one thing has an appearace other than what it really is, this creates two groups: the seers and the feelers. the seers are going home to ther place in lyra, and the feelers are going to continue here. up until the time of the split, I'm sure they'll be editing the timeline so that our timeline contains no unwanted aspects to them -- meaning, it's all wanted or acceptable to them. then, they can figure out to do with what they want to do with it.
+
+it's like the story of jove where he lost everything, and then upon (doing something a bit different than the default reaction would cause someone to react), this created a split, and he got back double what he started with: the newly wanted thing for him, and newly "no unwanted" thing for satan (the one who tested him).
+
+in just the same way, we'll eventually (after some amount of time) become a universe all unto to ourselves; it doesn't matter what anyone else in this unverse is doing, they can either join us or not. nosebook will continue to stay in contact with us, I'm sure, and their entire universe will be built up out of necessity, to try and gain enough advantage to keep us away from anything they wouldn't want (put your jacket on; I'm cold). everything's fine :~)
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
