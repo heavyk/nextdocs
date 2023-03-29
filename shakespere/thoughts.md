@@ -134,3 +134,7 @@ the narrative approach tells you what is wanted, and the steps you need to take 
 the desire/conceptual one comes first because it forges the path/narrative, when then the symbolism and narrative guys then take and turn into something that one can *do* to accomplish the same thing -- but then, it *also* comes last, for those that can't accomplish the narrative/spell (for whatever reason), anyone can get the concept (if they want to).
 
 the narrative/spell works because of time resonances -- meaning that one sequence of events repeated in history which then gets turned into a narrative (like henry 4, which I'm reading now) which then *attracts* a symbolically similar but very different physical outcome -- which can then be turned into a spell/narrative which then attracts similar results for those following the spell/narrative. back and fourth it goes: symbolism feeding desire, and then desire feeding symbolism (the 2nd ray perspective).
+
+### 2023-03-29 10:50 - the deuil/devil
+
+shakespere's "devil" is none other than the "dual" of the character: in geometry terms, this means that all points reach to the centre of the face of the containing dual.
