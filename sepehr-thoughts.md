@@ -293,3 +293,29 @@ in my own studies I came to the same conclusion of aphrodite being earth (the pa
 in the enki narrative (there are, I believe two earths), kingship was brought down from *heaven* (mars), and the "fallen angels" came/fell out of *heaven*.
 
 I'll return with more later. hopefully we can look at those KJV verses next :)
+
+### 2023-03-28 19:50 - who is shakespere?
+
+@[youtube](https://youtu.be/b01EzuaKbSc?t=871)
+
+btw, that guy there has his "upset!" face on. he says NO.
+
+in this video, sepehr, manly p. hall, and a few other big names say that "bacon is shakespere". I thought I'd give my perspective on it, because john anthony and alan green have made a pretty convincing argument that vere has encoding all over it. one of his viewers (forget his name) also insists that bacon played a major part in it. I fully agree. there's no doubt that francis flute and prospero are not direct references to bacon, with bottom and others being vere in different ill-conceived interpretations of his predicament: lots of self-loathing and supplication for sympathy. in addition to that I'm very convinced that john dee is also present in the shakespere plays. he plays speed/mercury/subtle and his evidences are in the from of mathimagical transformations as I've noticed in the encoding of triads (3T), and triad + foil (4T) setups of the characters in the plays.
+
+one such example of such a foil would be ben jonson. he wrote a big (and very inspired) dedication in the first folio (I believe), but yet at the same time was one of the only ones to simultaneously critisise shakespere, as well. in addition, when I read the play "the achemist", it reads pretty much like a confessional (vere = doll, francis = face, subtle = john). only ben jonson could be so blatant to put the confessional in there, because jonson does it all wrong: first, he dedicates the work to "lady mary wroth" (a woman), which is also a comparatively short dedication, to shakespere's many pages of dedications and ego boosting. second, (no good way to explain this) -- his symbols are so clearly presented, and not hidden behind a veil like shakespere's symbols.
+
+I've been noticing more and more that shakespere plays a foil to homer a bit, with a lot of homer's characters rewitten to have a different effect (just look at "trolius and cressida"). anyay, so in the same way that shakespere is a foil to homer (redefining homers characters with a clarity not previously before seen), I claim that marlowe and also jonson do the same (there may be be more).
+
+as an example, shakespere has beautiful and wonderful rosalind, but of "queen of dido", marlowe, in the opening scene puts rosalind on the knee of jupiter, with mercury/speed/subtle laying around as well. it's quite possible that marlowe was the "rival poet" -- and in any case, he clearly has an influence on shakespere, as did jonson.
+
+another interesting aspeect about the shakespere works are the timelessness of it all, because I notice some fords and francises that resonate quite strongly with the original bacon -- and in a very similar way with vere, but these ones are different, which I find similarity in phillip sidney and also john keats. in a similar way, alomost certainly I'm a bit of foil to shakespere today, just as shakespere was to homer, terence, and nicomaco.
+
+one way to experience the capture of vere into bacon's arms' can be read esoterically in "rape of lucrece". the opposite side of the same thing can be seen (probably) from the perspective of bacon (adonis) being captured by vere (venus/diana).
+
+one way to become a foil to someone is to critise them, and then to find a way to take the energy from the inevitable pushback is to the transform that into wanted. I have a lot of critisisms of shakespere's characters, because I lived a life that contained a lot of those symbolic elements, and have since found a different default reaction (like job in the book of jove, where "satan/lucifer" is first introduced into the bible). job finds a way to have everything fall apart because of some "testing" by satan -- and because job didn't just react as everyone else would (cursing "God"), he got a different result. well, just the same for me, it feels like I've been sorta summoned to experience most all of the symbolic elements that the shakeshpere characters experience, but I find them so completely different.
+
+for example, in tim's video on henry 4-1, he says that harry percy is struggling to live up to the expectations of his father, who wishes he was like hotspurre. I find no such feelings at all coming from my father, because I go after what I want, no matter how much resistance there is against me, I know it's all a reflection of myself, so if I were to have resistaznce to my father living up to the same desires and expectations I have for myself, I would know thatt it's only me perceiving an unwanted aspect of myself in someone exterior to me, by not wanting something for myself/him that that is supposedly "deserved" (silver) -- meaning, he's just a reflection of me.
+
+using the basic system that everyone and all of my reality is a reflection of myself, I can get around a whole lot of these problems that plague so many of the shakespere characters (notably hamlet). the other major thing that gets me around a lot of the pitfalls is for me my version of "value": I value my perception the highest of all. unlike a rich person, I don't believe that money or some material possession/artifact/relic will get me what I desire; no, it's my perception; that's all.
+
+it's almost as if the DeVille that has summoned me (jove) with all of these tests, was none other than shakespere himself (whomever that accumulates to be in the infinite manifold of time experienced). here, I've got rosalind on my knee and mercury at my feet... (thanks, saturn).
