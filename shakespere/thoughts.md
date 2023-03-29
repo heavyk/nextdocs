@@ -142,3 +142,11 @@ shakespere's "devil" is none other than the "dual" of the character: in geometry
 ### 2023-03-29 10:59 - Loue
 
 Loue is pronounced like it sounds, "lo, you". Loue is the discovery (and recognition) of myself in others and other things.
+
+#### 2023-03-29 13:25 - like Cupid
+
+Loue, like Cupid disccovers (and falls in love with) an externalisation of himself, Psyche.
+
+### 2023-03-29 12:03 - haue
+
+I noticed the same thing for the word "haue" -- "ha, you" ("ha" is 3rd-plural had), so it's a self reflction "had you" -- which makes perfect sense when speaking to myself. it doesn't sound good when replacing the word "have" with "had you" -- but the concept "something he/you/I had". (makes sense in my mind anyway...) I'm really glad the word got contracted into "have" with the expansion of the alphabet to include the 'v'.
