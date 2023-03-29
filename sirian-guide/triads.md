@@ -55,7 +55,7 @@ ra (+3) takes in a concept or an abstract idea (5) and then produces a form, str
 
 ### third ray triad
 
-- (-3) unessa / venus / (aphrodite)
+- (-3) unessa / venus / (ereshkigal)
 - (+7) thoth
 - (+-4) saturn / dwul quinn
 
@@ -87,10 +87,9 @@ notice that each ray type has both polarities, either in the same person or spli
   - (+-6-+) osiris
 - (-3) unessa, (+3) ra, (+-3-+) sanatau
   - (+7) thoth, (-7) genxicat, and (+7) allayandra
-- (-2) isis
-  - (+-4) saturn
 - (+-4) saturn
   - (+-6-+) osiris
+  - (+2) jeortau, (-2) isis
 
 #### reflections
 
