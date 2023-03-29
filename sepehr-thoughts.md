@@ -318,4 +318,4 @@ for example, in tim's video on henry 4-1, he says that harry percy is struggling
 
 using the basic system that everyone and all of my reality is a reflection of myself, I can get around a whole lot of these problems that plague so many of the shakespere characters (notably hamlet). the other major thing that gets me around a lot of the pitfalls is for me my version of "value": I value my perception the highest of all. unlike a rich person, I don't believe that money or some material possession/artifact/relic will get me what I desire; no, it's my perception; that's all.
 
-it's almost as if the DeVille that has summoned me (jove) with all of these tests, was none other than shakespere himself (whomever that accumulates to be in the infinite manifold of time experienced). here, I've got rosalind on my knee and mercury at my feet... (thanks, saturn).
+it's almost as if the DeVille that has summoned me (jove) with all of these tests, was none other than shakespere himself (whomever that accumulates to be in the infinite manifold of time experienced). here, I've got rosalind on my knee and hermia at my feet... (thanks, saturn).
