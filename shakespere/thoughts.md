@@ -138,3 +138,7 @@ the narrative/spell works because of time resonances -- meaning that one sequenc
 ### 2023-03-29 10:50 - the deuil/devil
 
 shakespere's "devil" is none other than the "dual" of the character: in geometry terms, this means that all points reach to the centre of the face of the containing dual.
+
+### 2023-03-29 10:59 - Loue
+
+Loue is pronounced like it sounds, "lo, you". Loue is the discovery (and recognition) of myself in others and other things.
