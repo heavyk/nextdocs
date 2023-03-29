@@ -963,5 +963,9 @@ so, I look up turnus (cause I haven't read aenead). turns out that turnus was pr
 
 so here again are this 10 to 1 ratio of 1000. also, it's worthy to note that troyus and cressida has 1000 hectors as well. that's all I have for now...
 
+
+### jupiter and saturn, the conflict of time and space
+- ref: [jupiter's hEro scene with ganymede and mercury](/sepehr-thoughts.md#2023-03-28-1950---who-is-shakespere)
+- I'm a real troublemaker, just like zeus, I noticed...
 ### winter's tale
 ### the-tick: both good and bad guys
