@@ -257,6 +257,12 @@ it seems to me that lyra (and apollo playing it) will have access to all the stu
 
 that'd be pretty cool, right?
 
+### 2023-03-31 01:36 - sacke
+
+@[youtube](https://youtu.be/XXL09iWJrfs?t=1621)
+
+one interesting thing about that clip is that it's identifying the scythians with the sacke, essentially the lost tribes of isreal. a little later, I'll have a readthrough again, because it seems interesting to me that's what falstaffe is spending all his day drinking.
+
 ## important events
 
 ### prince talks to falstaffe
