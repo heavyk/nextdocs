@@ -263,6 +263,8 @@ that'd be pretty cool, right?
 
 one interesting thing about that clip is that it's identifying the scythians with the sacke, essentially the lost tribes of isreal. a little later, I'll have a readthrough again, because it seems interesting to me that's what falstaffe is spending all his day drinking.
 
+also of note, the goths are also identified as the lost tribe of isreal through the scythian/sacke; and, in (TA) aaron takes his child with tamora to go be raised with the goths. titus also tells lucius to go to the goths and assemble a force to march on rome.
+
 ## important events
 
 ### prince talks to falstaffe
