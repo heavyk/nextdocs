@@ -265,7 +265,7 @@ one interesting thing about that clip is that it's identifying the scythians wit
 
 also of note, the goths are also identified as the lost tribe of isreal through the scythian/sacke; and, in (TA) aaron takes his child with tamora to go be raised with the goths. titus also tells lucius to go to the goths and assemble a force to march on rome.
 
-so then, [it turns out](https://youtu.be/XXL09iWJrfs?t=1802) that in 528BC, tamora was the scythian/sacke queen of massa gitai(?) a scythian tribe, that when cyrus the great of persia marched on them, she tried to keep the peace, but cyrus insisted, and ended up getting destroyed by tamora's army. it's also interesting to note that she's from the tribe of menassa, through joseph (as in, the one with "potiphar's wife", hatshepsut).
+so then, [it turns out](https://youtu.be/XXL09iWJrfs?t=1802) that in 528BC, [tomyris/tamora](https://en.wikipedia.org/wiki/Tomyris) was the scythian/sacke queen of massagetae a scythian tribe, that when cyrus the great of persia marched on them, she tried to keep the peace, but cyrus insisted, and ended up getting destroyed by tamora's army. it's also interesting to note that she's from the tribe of menassa, through joseph (as in, the one with "potiphar's wife", hatshepsut).
 
 ### cowards and the two earths
 ### manhood only 3 alive
