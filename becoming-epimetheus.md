@@ -197,6 +197,9 @@ imagine these two concepts of oneself (the concepts created from the imaginal fo
 
 now, we can look at this collision in the form of a triad. I (kenny) have my two males, forthought/emitter and afterthought/ground, and they will interact with a psycho woman -- a concept of foreign specifiction, unsafe, unpredictable. she takes the concept, manipulates it, then re-emits it back to me as a twisted form of myself. that's kinda what we're dealing with. that's pretty much how it always works from this physical perspective. I've gotten used to it. anyway, a galaxy has two parts to it, one of forethought and one of afterthought, just like you do. the stars represent its female -- just like the human body and all the celluar stuff. basically everything. they run the show. they turn on the lights, etc. lol. once I learned that the entire universe is built that way, I had no other choice but to become OK with it. I suppose it could be improved.
 
-fire and 3rd ray perspective
 
+### is enki the bull mithras is trying to slay?
+- https://etcsl.orinst.ox.ac.uk/cgi-bin/etcsl.cgi?text=t.1.1.3&display=Crit&charenc=&lineid=t113.p4
+- I hesitate to think that "bull" is what it says it is, because it also translates as "nest" and some of the context sounds pretty sexual...
+### fire and 3rd ray perspective
 ### epimethism
