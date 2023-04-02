@@ -26,4 +26,19 @@ the only time that meg takes intitiative, it then appears that she's the one pla
 
 btw, expetation and narrative are pretty much the same thing: if I write a story or poem about some amazing thing happening to me, that is an expression of both my belief in what is (maginally, in a fairy tale universe) posssible, and also of my desire of what I wish *would* happen in such a fairy tale universe. you'll notice that that's the SAME THING as an expectation: which is a desire/fear and a belief of what will happen. expectations are usually perceived from the negative angle though, like "if I ask him something, he's just going to say no or think I'm a noob". the desire is to ask something (and not get looked down upon) but the belief is that he will just say no or think I'm a noob. just sometthing to think about :)
 
+### 2023-04-02 15:34 - mixed alone messages
+
+> herk: meg, when I'm with you, I don't feel so alone
+> meg: sometimes it's better to be alone
+> herk: what do you mean?
+> meg: nobody can hurt you
+> herk: meg, I would never ever hurt you
+
+this dialoge over the inner conflict I believe is a bit unrealistic as well. in the dialogue, meg suggests to herk that he should be alone so that *she doesn't get hurt by him*. so then, herk follows it up by assuring her that he will never hurt her.
+
+I find this dialoge unrealistic because the underlying issue is not about hurt but about her not wanting him to see her how she sees her. what I mean is, when he's alone, he sees her the way that he wants to see her. however, when he's with her, she *will*, dispite her best intentions to pretend she's not the way she thinks she is, eventually convince him to see her the way that she sees herself. this is *actually* the hurt that she's talking about.
+
+meg's false sense of self was (pretty accurately I might say) portrayed in their first encounter when he saves her from the monster. in that scene, she's pretending to be strong and that she'll be fine by herself (not alone).
+
+
 ### where I belong
