@@ -48,7 +48,7 @@ I'm the illuminati. sorry. it appears that most all of the power structures were
 
 reflection is not based on *action*, but based on *feeling*. I can behave very poorly, shouting and harassing people with snide remarks, and feel pretty good at the same time, because my action is *not* how I really feel. what this amounts to, is that everyone is only interacting with their own perceptions -- because a person thatt is shouting and harassing people with snide remarks no longer bothers me anymore, meaning I can still feel good when others are doing it, so if I do it equally, I *too* can feel good about those same "bad" actions; it's not the action itself, but how you feel or conceptualise it.
 
-so, strap in for the long haul... I'm reminded of a sonnet I just read:
+so, strap in for the long haul... I'm reminded of a sonnet I just read (107):
 
     NOt mine owne feares,nor the prophetick ſoule,
     Of the wide world,dreaming on things to come,
