@@ -39,3 +39,28 @@ furthermore, you have to also understand the concept of *time resonances* -- whi
 it's pretty clear to me that the focus that we put into the "play" (or, if you want to call it a simulation or game, is fine too) is having dramatic effects on what quality of characters are summoned to interact with us. basially, I'm pretty sure that (from my perspective), zaryn was summoned by me, simply because I had a desire to make a social network -- and so, because I get my way, it happened -- and because a lot of art and theatre has put out various ideas of what those things should conform to, I conform to those symbols and then to my perception of them. for an example of this, look no further than rene decarte; he was clearly summoned by shakespere, and conforms to the symbols attributed to bertram (and other more subtle symbols). inotherwords, we're all creating the future we're going to be doomed to repeat.
 
 from my perspective, I'm basically a raft floating on a giant ocean. I have no control over the ocean (and perhaps you all neither), and so my only job is to keep finding a way to stay facing upwards on top of the raging ocean by feeling the way I want to feel about whatever is happening around me. because I'm so good at it, I'm totally down to go full insanity mode, cause you guys will probably want some drama, a truly [tragic story](https://youtu.be/BihuYWnzrIQ?t=79) to give the resonance experience a little more colour (doesn't matter to me, as I'm obviously pretty good at this).
+
+### 2023-04-04 14:13 - the simulation
+
+yesterday, zaryn said that he wanted to talk to me about a the world being a sort of simulation. I have a lot of ideas on that (which I'll express most of them here), but there's a major flaw with his idea that we can *actually* have this conversation -- and that's the fact that almost all of the stuff that I'll talk about here including nosebook and the vaccine networks, are definitely a secret -- and so then, we can't actually have any meaningful conversation about it. if he wants me tto confirm their existence -- then I do experience both of them and can confirm them from my perspective. inevitably, he'll ask what can be done, and I'll explain to him that there are many power structures even higher than even those ones, and so *everything* is tracked, you have no secrets, or privacy -- and that the only way one can get around it, is to stop worrying about what information anyone else has on you and to start to feel the way that you want to feel... that's what I always say, so I would likely have a much more heated argument with them, because zaryn really gets bent out of shape when he feels powerless or that someone is superior to him (hence why he always has to prove he's top dog), so I didn't really want to engage in a conversation like the one where I had with becky the other day; he can figure it out on his own. he doesn't need/want me telling him what to do.
+
+I'm the illuminati. sorry. it appears that most all of the power structures were designed by me before I jumped into kenny's body. I'm probably the origin of YHVH, as well. as best as I can tell, they're there to ensure that I don't have any kundalini rising, because I want to create a galaxy. I am convinced that all earth governments and power structures are now run by reflective entities that are something like zeus: they appear and behave how you would imagine an omnipotent or all-powerful (evil) being to behaave. what that means is that all people are all fighting theirselves at this point: all politicians are just mimicing/reflecting their lobbies. all aspects of government and power will be a *reflection* of their people. so, it's entirely up to you to feel the way that you want to feel, because they're (not going to change), always going to reflect their "subjects" -- or, perhaps better said: they'll change right along with you.
+
+reflection is not based on *action*, but based on *feeling*. I can behave very poorly, shouting and harassing people with snide remarks, and feel pretty good at the same time, because my action is *not* how I really feel. what this amounts to, is that everyone is only interacting with their own perceptions -- because a person thatt is shouting and harassing people with snide remarks no longer bothers me anymore, meaning I can still feel good when others are doing it, so if I do it equally, I *too* can feel good about those same "bad" actions; it's not the action itself, but how you feel or conceptualise it.
+
+so, strap in for the long haul... I'm reminded of a sonnet I just read:
+
+    NOt mine owne feares,nor the prophetick ſoule,
+    Of the wide world,dreaming on things to come,
+    Can yet the leaſe of my true loue controule,
+    Suppoſde as forfeit to a confin'd doome.
+    The mortall Moone hath her eclipſe indur'de,
+    And the ſad Augurs mock their owne preſage,
+    Incertenties now crowne them-ſelues aſſur'de,
+    And peace proclaimes Oliues of endleſſe age.
+    Now with the drops of this moſt balmie time,
+    My loue lookes freſh,and death to me ſubſcribes,
+    Since ſpight of him Ile liue in this poore rime,
+    While he inſults ore dull and ſpeachleſſe tribes.
+      And thou in this ſhalt find thy monument,
+      When tyrants creſts and tombs of braſſe are ſpent.
