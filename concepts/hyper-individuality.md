@@ -12,6 +12,8 @@ I'd rathar be by myself than to be disturbing someone else.
 I'd really rather do things my way, than to have to collaborate with others
 I'm the only one who could do it right anyway
 
+I AM empathetic, and I don't want to feel what others (or the group) feels, so I usually prefer how I feel instead.
+
 ---
 
 in general, because I'm this way, this form of thought manifests to a lot of people as massive ego, and -- the reality is that I do like myself and that's precisely why I find myself to be the only person that can really do the task properly. this is the 2nd ray persspective at its peak.

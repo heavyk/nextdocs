@@ -34,7 +34,7 @@ btw, expetation and narrative are pretty much the same thing: if I write a story
 > meg: nobody can hurt you
 > herk: meg, I would never ever hurt you
 
-this dialoge over the inner conflict I believe is a bit unrealistic as well. in the dialogue, meg suggests to herk that he should be alone so that *she doesn't get hurt by him*. so then, herk follows it up by assuring her that he will never hurt her.
+this dialoge over the inner conflict I believe is a bit unrealistic as well. in the dialogue, meg suggests to herk that he should be alone so that *she doesn't get hurt by him* (put your sweater on; I'm cold). so then, herk follows it up by assuring her that he will never hurt her.
 
 I find this dialoge unrealistic because the underlying issue is not about hurt but about her not wanting him to see her how she sees her. what I mean is, when he's alone, he sees her the way that he wants to see her. however, when he's with her, she *will*, dispite her best intentions to pretend she's not the way she thinks she is, eventually convince him to see her the way that she sees herself. this is *actually* the hurt that she's talking about.
 
@@ -43,4 +43,4 @@ meg's false sense of self was (pretty accurately I might say) portrayed in their
 
 ### where I belong
 ### space pirates
-### I'm phil, not herk
+### I'm phil, not
