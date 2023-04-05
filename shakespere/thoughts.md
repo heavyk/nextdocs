@@ -183,3 +183,9 @@ hi :)
 ### 2023-04-04 18:48 - the spectacle of captive good getting hung drawn and quartered
 
 gory...k: a veritable dinner platter of filthy human bits having dirt caked all around it, kinda like squishy but covered, in dirt.
+
+### 2023-04-04 18:54 - but then without explanation...
+
+without any expectation from the crown, he becomes a nobody, confined to live out the rest of his life stripped of all titles and deeds. a nobody.
+
+ta da!
