@@ -2345,11 +2345,11 @@
 
 #### sonnet-66 - modern
 
-    Tired with all these, for restful death I cry,
-    As to behold desert a beggar born,
-    And needy nothing trimm'd in jollity,
+    Tired with all these for restful death I cry,
+    As to behold/desert a beggar born,
+    And needy Nothing trimd in jollitie,
     And purest faith unhappily forsworn,
-    And gilded honour shamefully misplaced,
+    And gilded honor shamefully misplaced,
     And maiden virtue rudely strumpeted,
     And right perfection wrongfully disgraced,
     And strength by limping sway disabled
@@ -2371,7 +2371,7 @@
     And right perfection wrongfully diſgrac'd,
     And ſtrength by limping ſway diſabled,
     And arte made tung-tide by authoritie,
-    And Folly (Doctor-like<i>)</i> controuling skill,
+    And Folly (Doctor-like*)* controuling skill,
     And ſimple-Truth miſcalde Simplicitie,
     And captiue-good attending Captaine ill.
       Tyr'd with all theſe,from theſe would I be gone;

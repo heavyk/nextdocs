@@ -163,3 +163,7 @@ other strange features:
 - the "Enrlislg lords 16--" (where lords also kinda looks like "words").
 - "We~Tmpest"
 - "ſesbwary 1600"
+
+### 2023-04-04 18:29 - honor vs honour
+
+I noticed a differerence between these two in sonnet 66. honur (with an "uh" sound) is different than honôr (with an "or" sound). it's actually very similar to the difference between color (with an or-sound) and colur (with an uh sound). colur is soft (like blue-green pastels) and color is hard sounding (like orange-red blots).
