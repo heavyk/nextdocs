@@ -207,3 +207,7 @@ meaning, it's just for the spectacle,
 mutual-back-scratching. what happens is, the moment you start to negotiate, you put yourself underneith the dominance of the other. what looks like a deal on one end, looks usually like the assertion of dominance, one over the other. fell into his own trap of wanting to be dominant. he could have just let him go.
 
 you know, the play of measure for measure is about this very subject. the woman needed to just let claudio go. she didn't need to even consider sleeping with him. the poor guy, but somehow (this is assured), *he attrated it* (his own death). I don't know if he noticed this "freudian slip" when writing the play, or if it was a message from his sub-conscious, and he didn't get the point because he was so distracted with the visuals.
+
+### 2023-04-04 19:17 - Thy ad-verse party is thy Advocate
+
+I pay attention to people's critisims of me; their words and reactions repeat inside of my head contiually, as if it's an eternal embarrassment. I have figure out what they're *really* trying to say, because many people say their most well-intented suggestions for another's well-being is often shwoded in insult and scorn. I figure out what improvement they're intending to say through their insult and then the embarrassement goes away. I no longer feel embarrassed for them/myself. no more of that mental bucle.
