@@ -182,5 +182,4 @@ hi :)
 
 ### 2023-04-04 18:48 - the spectacle of captive good getting hung drawn and quartered
 
-gory...k: a veritable dinner platter of filthy human bits.
-
+gory...k: a veritable dinner platter of filthy human bits having dirt caked all around it, kinda like squishy but covered, in dirt.
