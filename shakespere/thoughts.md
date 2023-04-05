@@ -223,3 +223,11 @@ I'm totally on a roll, this is is such a coaster of a ride.
 ### 2023-04-04 19:31 - Thy ad-verse party is thy ad-vocate
 
 get it? together verse, together voice.
+
+### 2023-04-04 22:00 - Clouds and eclipses stain both moon and Sonne
+
+an author I can't remem (rudolf steiner) once wrote that there was an eclipse during the death of christ, and what happened is that some experienced the astral version because they see astral without the moon, and the ones that only see astral because of thme moon (like steiner), experienced a different reality. each eclipse, the people that perceive a vastly different astral reality are sort of cleaved off into their own timeline where things take place according to an entirely different narrative. it's good to see only physical, so that you stay with the earth. each of the altrernate realities can be either good or bad (depending on how the astral symbols are rendered; how you feel). this was the literal effect that produced a different timeline elsewhere (as in a resurrection or rebirth).
+
+however here in this verse, I don't think that's what shakespere actually meant, but he's got it right, in that an eclipse, a brief loss of image, especially during sex, can produce a very different timeline, one where the imaginary reality isn't covering over the grotesque physical.
+
+

@@ -1228,9 +1228,9 @@ To him that beares the ſtrong offenſes loſſe.
 
 #### sonnet-35 - modern
 
-No more be grieved at that which thou hast done:
-Roses have thorns, and silver fountains mud:
-Clouds and eclipses stain both moon and sun,
+No more be-grieved at that which thou hast done,
+Roses have thorns, and silver fountains mud,
+Clouds and eclipses stain both moon and Sonne,
 And loathsome canker lives in sweetest bud.
 All men make faults, and even I in this,
 Authorizing thy trespass with compare,
