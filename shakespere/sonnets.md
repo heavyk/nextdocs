@@ -141,7 +141,7 @@ So great a ſumme of ſummes yet can'ſt not liue?
 For hauing traffike with thy ſelfe alone,
 Thou of thy ſelfe thy ſweet ſelfe doſt deceaue,
 Then how when nature calls thee to be gone,
-What acceptable <i>Audit</i> can'ſt thou leaue?
+What acceptable *Audit* can'ſt thou leaue?
   Thy vnuſ'd beauty muſt be tomb'd with thee,
   Which vſed liues th'executor to be.
 
@@ -281,7 +281,7 @@ Or elſe receau'ſt with pleaſure thine annoy ?
 If the true concord of  well tuned ſounds,
 By vnions married do offend thine eare,
 They do but ſweetly chide thee , who confounds
-In ſingleneſſe the parts that thou ſhould'ſt beare<i>:</i>
+In ſingleneſſe the parts that thou ſhould'ſt beare*:*
 Marke how one ſtring ſweet husband to an other,
 Strikes each in each by mutuall ordering;
 Reſembling ſier,and child, and happy mother,
@@ -712,7 +712,7 @@ A womans gentle hart but not acquainted
 With ſhifting change as is falſe womens faſhion,
 An eye more bright then theirs,leſſe falſe in rowling:
 Gilding the obiect where-vpon it gazeth,
-A man in hew all <i>Hews</i> in his controwling,
+A man in hew all *Hews* in his controwling,
 Which ſteales mens eyes and womens ſoules amaſeth,
 And for a woman wert thou firſt created,
 Till nature as ſhe wrought thee fell a dotinge,
@@ -753,7 +753,7 @@ That heauens ayre in this huge rondure hems,
 O let me true in loue but truly write,
 And then beleeue me,my loue is as faire,
 As any mothers childe,though not ſo bright
-As thoſe gould candells fixt in heauens ayre<i>:</i>
+As thoſe gould candells fixt in heauens ayre*:*
   Let them ſay more that like of heare-ſay well,
   I will not prayſe that purpoſe not to ſell.
 
@@ -891,7 +891,7 @@ Of publike honour and proud titles boſt,
 Whilſt I whome fortune of ſuch tryumph bars
 Vnlookt for ioy in that I honour moſt;
 Great Princes fauorites their fair leaues ſpread,
-But as the Marygold at the <i>ſ</i>uns eye,
+But as the Marygold at the *ſ*uns eye,
 And in them-ſelues their pride lies buried,
 For at a frowne they in their glory die.
 The painefull warrier famoſed for worth,
@@ -929,7 +929,7 @@ To witneſſe duty, not to ſhew my wit.
 Duty ſo great, which wit ſo poore as mine
 May make ſeeme bare,in wanting words to ſhew it;
 But that I hope ſome good conceipt of thine
-In thy ſoules thought<i>(</i> all naked <i>)</i> will beſtow it:
+In thy ſoules thought*(* all naked *)* will beſtow it:
 Til whatſoeuer ſtar that guides my mouing,
 Points on me gratiouſly with faire aſpect,
 And puts apparrell on my tottered louing,
@@ -968,7 +968,7 @@ And keepe my drooping eye-lids open wide,
 Looking on darknes which the blind doe ſee.
 Saue that my ſoules imaginary ſight
 Preſents their ſhaddoe to my ſightles view,
-Which like a iewell<i>(</i>hunge in gaſtlynight)
+Which like a iewell*(*hunge in gaſtlynight)
 Makes blacke night beautious,and her old face new.
   Loe thus by day my lims,by night my mind,
   For thee,and for my ſelfe,noe quiet finde.
@@ -998,7 +998,7 @@ HOw can I then returne in happy plight
 That am debard the benefit of reſt?
 When daies oppreſſion is not eazd by night,
 But day by night and night by day opreſt.
-And each(though enimes to ethers raigne<i>)</i>
+And each(though enimes to ethers raigne*)*
 Doe in conſent ſhake hands to torture me,
 The one by toyle,the other to complaine
 How far I toyle,ſtill farther off from thee.
@@ -1040,7 +1040,7 @@ Deſiring this mans art,and that mans skope,
 With what I moſt inioy contented leaſt,
 Yet in theſe thoughts my ſelfe almoft deſpiſing,
 Haplye I thinke on thee, and then my ſtate,
-<i>(</i>Like to the Larke at breake of daye ariſing<i>)</i>
+*(*Like to the Larke at breake of daye ariſing*)*
 From ſullen earth ſings himns at Heauens gate,
   For thy ſweet loue remembred ſuch welth brings,
   That then I skorne to change my ſtate with Kings.
@@ -1078,7 +1078,7 @@ Then can I greeue at greeuances fore-gon,
 And heauily from woe to woe tell ore
 The ſad account of fore-bemoned mone,
 Which I new pay as if not payd before.
-  But if the while I thinke on thee <i>(</i>deare friend)
+  But if the while I thinke on thee *(*deare friend)
   All loſſes are reſtord,and ſorrowes end.
 
 ### sonnet-31
@@ -1542,7 +1542,7 @@ Then thou whoſe ſhaddow ſhaddowes doth make bright,
 How would thy ſhadowes forme,forme happy ſhow,
 To the cleere day with thy much cleerer light,
 When to vn-ſeeing eyes thy ſhade ſhines ſo?
-How would <i>(</i>I ſay <i>)</i>mine eyes be bleſſed made,
+How would *(*I ſay *)*mine eyes be bleſſed made,
 By looking on thee in the liuing day ?
 When in dead night their faire imperfect ſhade,
 Through heauy ſleepe on ſightleſſe eyes doth ſtay?
@@ -1750,7 +1750,7 @@ To guard the lawful reasons on thy part:
 
 #### sonnet-49 - 1609 quarto
 
-AGainſt that time ( if ever that time come <i>)</i>
+AGainſt that time ( if ever that time come *)*
 When I ſhall ſee thee frowne on my defects,
 When as thy loue hath caſt his vtmoſt ſumme,
 Cauld to that audite by aduiſ'd reſpects,
@@ -1787,7 +1787,7 @@ More sharp to me than spurring to his side;
 #### sonnet-50 - 1609 quarto
 
 HOw heauie doe I iourney on the way,
-When what I ſeeke (my wearie trauels end<i>)</i>
+When what I ſeeke (my wearie trauels end*)*
 Doth teach that eaſe and that repoſe to ſay
 Thus farre the miles are meaſurde from thy friend.
 The beaſt that beares me,tired with my woe,
@@ -1831,7 +1831,7 @@ When ſwift extremity can ſeeme but ſlow,
 Then ſhould I ſpurre though mounted on the wind,
 In winged ſpeed no motion ſhall I know,
 Then can no horſe with my deſire keepe pace,
-Therefore deſire<i>(</i>of perfects loue being made<i>)</i>
+Therefore deſire*(*of perfects loue being made*)*
 Shall naigh noe dull fleſh in his fiery race,
 But loue,for loue,thus ſhall excuſe my iade,
   Since from thee going he went wilfull ſlow,
@@ -1898,10 +1898,10 @@ VVHat is your ſubstance,whereof are you made,
 That millions of ſtrange ſhaddowes on you tend?
 Since euery one,hath euery one,one ſhade,
 And you but one,can euery ſhaddow lend:
-Deſcribe <i>Adonis</i> and the counterfet,
+Deſcribe *Adonis* and the counterfet,
 Is poorely immitated after you,
-On <i>Hellens</i> cheeke all art of beautie ſet,
-And you in <i>Grecian</i> tires are painted new:
+On *Hellens* cheeke all art of beautie ſet,
+And you in *Grecian* tires are painted new:
 Speake of the ſpring,and foyzon of the yeare,
 The one doth ſhaddow of your beautie ſhow,
 The other as your bountie doth appeare,
@@ -1970,9 +1970,9 @@ NOt marble, nor the guilded monument,
 Of Princes ſhall out-liue this powrefull rime,
 But you ſhall ſhine more bright in theſe contents
 Then vnſwept ſtone, beſmeer'd with ſluttiſh time.
-When waſtefull warre ſhall <i>Statues</i> ouer-turne,
+When waſtefull warre ſhall *Statues* ouer-turne,
 And broiles roote out the worke of maſonry,
-Nor <i>Mars</i> his ſword,nor warres quick fire ſhall burn:
+Nor *Mars* his ſword,nor warres quick fire ſhall burn:
 The liuing record of your memory.
 Gainſt death,and all obliuious emnity
 Shall you pace forth,your praiſe ſhall ſtil find roome,
@@ -2010,9 +2010,9 @@ So loue be thou,although too daie thou fill
 Thy hungry eies,euen till they winck with fulneſſe,
 Too morrow ſee againe,and doe not kill
 The ſpirit of Loue,with a perpetual dulneſſe:
-Let this ſad <i>Intrim</i> like the Ocean be
+Let this ſad *Intrim* like the Ocean be
 Which parts the ſhore,where two contracted new,
-Come daily to the banckes,that when they ſee<i>:</i>
+Come daily to the banckes,that when they ſee*:*
 Returne of loue,more bleſt may be the view.
   As cal it Winter,which being ful of care,
   Makes Somers welcome,thrice more wiſh'd,more rare:
@@ -2549,7 +2549,7 @@ Nay if you read this line,remember not,
 The hand that writ it,for I loue you ſo,
 That I in your ſweet thoughts would be forgot,
 If thinking on me then ſhould make you woe.
-O if<i>(</i>I ſay<i>)</i>you looke vpon this verſe,
+O if*(*I ſay*)*you looke vpon this verſe,
 When I (perhaps) compounded am with clay,
 Do not ſo much as my poore name reherſe;
 But let your loue euen with my life decay.
@@ -2579,12 +2579,12 @@ And live no more to shame nor me nor you.
 
 O Leaſt the world ſhould taske you to recite,
 What merit liu'd in me that you ſhould loue
-After my death<i>(</i>deare loue<i>)</i>for get me quite,
+After my death*(*deare loue*)*for get me quite,
 For you in me can nothing worthy proue.
 Vnleſſe you would deuiſe ſome vertuous lye,
 To doe more for me then mine owne deſert,
 And hang more praiſe vpon deceaſed I,
-Then nigard truth would willingly impart<i>:</i>
+Then nigard truth would willingly impart*:*
 O leaſt your true loue may ſeeme falce in this,
 That you for loue ſpeake well of me vntrue,
 My name be buried where my body is,
@@ -2795,7 +2795,7 @@ And arts with thy sweet graces graced be;
 
 So oft haue I inuok'd thee for my Muſe,
 And found ſuch faire aſſiſtance in my verſe,
-As euery <i>Alien</i> pen hath got my vſe,
+As euery *Alien* pen hath got my vſe,
 And vnder thee their poeſie diſperſe.
 Thine eyes,that taught the dumbe on high to ſing,
 And heauie ignorance aloft to flie,
@@ -2829,11 +2829,11 @@ No praise to thee, but what in thee doth live.
 
 #### sonnet-79 - 1609 quarto
 
-<i>W</i>Hilſt I alone did call vpon thy ayde,
+*W*Hilſt I alone did call vpon thy ayde,
 My verſe alone had all thy gentle grace,
 But now my gracious numbers are decayde,
 And my ſick Muſe doth giue an other place.
-I grant ( ſweet loue <i>)</i>thy louely argument
+I grant ( ſweet loue *)*thy louely argument
 Deſerues the trauaile of a worthier pen,
 Yet what of thee thy Poet doth inuent,
 He robs thee of,and payes it thee againe,
@@ -2869,13 +2869,13 @@ OHow I faint when I of you do write,
 Knowing a better ſpirit doth vſe your name,
 And in the praiſe thereof ſpends all his might,
 To make me toung-tide ſpeaking of your fame.
-But ſince your worth<i>(</i>wide as the Ocean is<i>)</i>
+But ſince your worth*(*wide as the Ocean is*)*
 The humble as the proudeſt ſaile doth beare,
-My ſawſie barke <i>(</i>inferior farre to his<i>)</i>
+My ſawſie barke *(*inferior farre to his*)*
 On your broad maine doth wilfully appeare.
 Your ſhalloweſt helpe will hold me vp a floate,
 Whilſt he vpon your ſoundleſſe deepe doth ride,
-Or (being wrackt <i>)</i> I am a worthleſſe bote,
+Or (being wrackt *)* I am a worthleſſe bote,
 He of tall building,and of goodly pride.
   Then If he thriue and I be caſt away,
   The worſt was this,my loue was my decay.
@@ -2906,7 +2906,7 @@ Or you ſuruiue when I in earth am rotten,
 From hence your memory death cannot take,
 Although in me each part will be forgotten.
 Your name from hence immortall life ſhall haue,
-Though I <i>(</i> once gone<i>)</i> to all the world muſt dye,
+Though I *(* once gone*)* to all the world muſt dye,
 The earth can yeeld me but a common graue,
 When you intombed in mens eyes ſhall lye,
 Your monument ſhall be my gentle verſe,
@@ -3056,7 +3056,7 @@ In poliſht forme of well refined pen.
 Hearing you praiſd,I ſay 'tis ſo, 'tis true,
 And to the moſt of praife adde ſome-thing more,
 But that is in my thought, whoſe loue to you
-(Though words come hind-moſt<i>)</i>holds his ranke before,
+(Though words come hind-moſt*)*holds his ranke before,
   Then others,for the breath of words reſpect,
   Me for my dombe thoughts,ſpeaking in effect.
 
@@ -3193,7 +3193,7 @@ SAy that thou didſt forſake mee for ſome falt,
 And I will comment vpon that offence,
 Speake of my lameneſſe, and I ſtraight will halt:
 Againt thy reaſons making no defence.
-Thou canſt not<i>(</i>loue)diſgrace me halfe ſo ill,
+Thou canſt not*(*loue)diſgrace me halfe ſo ill,
 To ſet a forme vpon deſired change,
 As ile my ſelfe diſgrace,knowing thy wil,
 I will acquaintance ſtrangle and looke ſtrange:
@@ -3228,7 +3228,7 @@ At first the very worst of fortune's might;
 THen hate me when thou wilt, if euer,now,
 Now while the world is bent my deeds to croſſe,
 Ioyne with the ſpight of fortune,make me bow,
-And doe not drop in for an after loſſe<i>:</i>
+And doe not drop in for an after loſſe*:*
 Ah doe not,when my heart hath ſcapte this ſorrow,
 Come in the rereward of a conquerd woe,
 Giue not a windy night a rainie morrow,
@@ -3345,7 +3345,7 @@ But heauen in thy creation did decree,
 That in thy face ſweet loue ſhould euer dwell,
 What ere thy thoughts,or thy hearts workings be,
 Thy lookes ſhould nothing thence,but ſweetneſſe tell.
-  How like <i>Eaues</i> apple doth thy beauty grow,
+  How like *Eaues* apple doth thy beauty grow,
   If thy fweet vertue anſwere not thy ſhow.
 
 ### sonnet-94
@@ -3417,7 +3417,7 @@ Oh what a manſion haue thoſe vices got,
 Which for their habitation choſe out thee,
 Where beauties vaile doth couer euery blot,
 And all things turnes to faire,that eies can ſee!
-  Take heed<i>(</i>deare heart)of this large priuiledge,
+  Take heed*(*deare heart)of this large priuiledge,
   The hardeſt knife ill vſ'd doth looſe his edge.
 
 ### sonnet-96
@@ -3516,7 +3516,7 @@ Drawn after you, you pattern of all those.
 FRom you haue I beene abſent in the ſpring,
 When proud pide Aprill (dreſt in all his trim)
 Hath put a ſpirit of youth in euery thing:
-That heauie <i>Saturne</i> laught and leapt with him.
+That heauie *Saturne* laught and leapt with him.
 Yet nor the laies of birds,nor the ſweet ſmell
 Of different flowers in odor and in hew,
 Could make me any ſummers ſtory tell:
@@ -3597,7 +3597,7 @@ Sing to the eare that doth thy laies eſteeme,
 And giues thy pen both skill and argument.
 Riſe reſty Muſe,my loues ſweet face ſuruay,
 If time haue any wrincle grauen there,
-If any,be a <i>Satire</i> to decay,
+If any,be a *Satire* to decay,
 And make times ſpoiles diſpifed euery where,
   Giue my loue fame faſter than time waſts life,
   So thou preuenſt his ſieth,and crooked knife.
@@ -3665,7 +3665,7 @@ That loue is marchandiz'd,whoſe ritch eſteeming,
 The owners tongue doth publiſh euery where.
 Our loue was new,and then but in the ſpring,
 When I was wont to greet it with my laies,
-As <i>Philomell</i> in ſummers front doth ſinge,
+As *Philomell* in ſummers front doth ſinge,
 And ſtops his pipe in growth of riper daies:
 Not that the ſummer is leſſe pleaſant now
 Than when her mournefull himns did huſh the night,
@@ -3735,7 +3735,7 @@ TO me faire friend you neuer can be old,
 For as you were when firſt your eye I eyde,
 Such ſeemes your beautie ſtill:Three Winters colde,
 Haue from the forreſts ſhooke three ſummers pride,
-Three beautious ſprings to yellow <i>Autumne</i> turn'd,
+Three beautious ſprings to yellow *Autumne* turn'd,
 In proceſſe of the ſeaſons haue I ſeene,
 Three Aprill perfumes in three hot Iunes burn'd,
 Since firſt I ſaw you freſh which yet are greene.
@@ -4027,7 +4027,7 @@ You are my All the world,and I muſt ſtriue,
 To know my ſhames and praiſes from your tounge,
 None elſe to me,nor I to none aliue,
 That my ſteel'd ſence or changes right or wrong,
-In ſo profound <i>Abiſme</i> I throw all care
+In ſo profound *Abiſme* I throw all care
 Of others voyces,that my Adders ſence,
 To cryttick and to flatterer ſtopped are:
 Marke how with my neglect I do diſpence.
@@ -4094,7 +4094,7 @@ And to his palate doth prepare the cup:
 OR whether doth my minde being crown'd with you
 Drinke vp the monarks plague this flattery ?
 Or whether ſhall I ſay mine eie ſaith true,
-And that your loue taught it this <i>Alcumie?</i>
+And that your loue taught it this *Alcumie?*
 To make of monſters,and things indigeſt,
 Such cherubines as your ſweet ſelf reſemble,
 Creating euery bad a perfect beſt
@@ -4271,7 +4271,7 @@ Grows fairer than at first, more strong, far greater.
 
 #### sonnet-119 - 1609 quarto
 
-VVHat potions haue I drunke of <i>Syren</i> teares
+VVHat potions haue I drunke of *Syren* teares
 Diſtil'd from Lymbecks foule as hell within,
 Applying feares to hopes,and hopes to feares,
 Still looſing when I ſaw my ſelfe to win?
@@ -4459,7 +4459,7 @@ No it was buylded far from accident,
 It ſuffers not in ſmilinge pomp,nor falls
 Vnder the blow of thralled diſcontent,
 Whereto th'inuiting time our faſhion calls;
-It feares not policy that <i>Heriticke</i>,
+It feares not policy that *Heriticke*,
 Which workes on leaſes of ſhort numbred howers,
 But all alone ſtands hugely pollitick,
 That it nor growes with heat,nor drownes with ſhowres.
@@ -4499,7 +4499,7 @@ Noe,let me be obſequious in thy heart,
 And take thou my oblacion,poore but free,
 Which is not mixt with ſeconds,knows no art,
 But mutuall render onely me for thee.
-  Hence,thou ſubbornd<i>I nformer</i>, a trew ſoule
+  Hence,thou ſubbornd*I nformer*, a trew ſoule
   When moſt impeacht,ſtands leaſt in thy controule.
 
 ### sonnet-126
@@ -4533,10 +4533,10 @@ She keepes thee to this purpoſe,that her ſkill.
 May time diſgrace,and wretched mynuit kill.
 Yet feare her O thou minnion of her pleaſure,
 She may detaine,but not ſtill keepe her treſure!
-Her <i>Audite</i>(though delayd<i>)</i>anſwer'd muſt be,
-And her <i>Quietus</i> is to render thee.
-  <i>(                                                     )
-  (                                                       )</i>
+Her *Audite*(though delayd*)*anſwer'd muſt be,
+And her *Quietus* is to render thee.
+  *(                                                     )
+  (                                                       )*
 
 ### sonnet-127
 
@@ -4847,8 +4847,8 @@ One will of mine, to make thy large will more.
 
 #### sonnet-135 - 1609 quarto
 
-VVHo euer hath her wiſh, thou haſt thy <i>Will</i>,
-And <i>Will</i> too boote,and <i>Will</i> in ouer-plus,
+VVHo euer hath her wiſh, thou haſt thy *Will*,
+And *Will* too boote,and *Will* in ouer-plus,
 More then enough am I that vexe thee ſtill,
 To thy ſweet will making addition thus.
 Wilt thou whoſe will is large and ſpatious,
@@ -4857,10 +4857,10 @@ Shall will in others ſeeme right gracious,
 And in my will no faire acceptance ſhine:
 The ſea all water,yet receiues raine ſtill,
 And in aboundance addeth to his ſtore,
-So thou beeing rich in <i>Will</i> adde to thy <i>Will</i>,
-One will of mine to make thy large <i>Will</i> more.
+So thou beeing rich in *Will* adde to thy *Will*,
+One will of mine to make thy large *Will* more.
   Let no vnkinde,no faire beſeechers kill,
-  Thinke all but one,and me in that one <i>Will</i>.
+  Thinke all but one,and me in that one *Will*.
 
 ### sonnet-136
 
@@ -4884,10 +4884,10 @@ That nothing me, a something sweet to thee:
 #### sonnet-136 - 1609 quarto
 
 IF thy ſoule check thee that I come ſo neere,
-Sweare to thy blind ſoule that I was thy <i>Will</i>,
+Sweare to thy blind ſoule that I was thy *Will*,
 And will thy ſoule knowes is admitted there,
 Thus farre for loue, my loue-ſute ſweet fullfill.
-<i>Will</i>, will fulfill the treaſure of thy loue,
+*Will*, will fulfill the treaſure of thy loue,
 I fill it full with wils,and my will one,
 In things of great receit with eaſe we prooue,
 Among a number one is reckon'd none.
@@ -4896,7 +4896,7 @@ Though in thy ſtores account I one muſt be,
 For nothing hold me,ſo it pleaſe thee hold,
 That nothing me,a ſome-thing ſweet to thee.
   Make but my name thy loue,and loue that ſtill,
-  And then thou loueſt me for my name is <i>Will</i>.
+  And then thou loueſt me for my name is *Will*.
 
 ### sonnet-137
 
@@ -4955,7 +4955,7 @@ And age in love, loves not to have years told:
 
 #### sonnet-138 - 1609 quarto
 
-<i>W</i>Hen my loue ſweares that ſhe is made of truth,
+*W*Hen my loue ſweares that ſhe is made of truth,
 I do beleeue her though I know ſhe lyes,
 That ſhe might thinke me ſome vntuterd youth,
 Vnlearned in the worlds falſe ſubtilties.
@@ -5070,7 +5070,7 @@ Who in diſpight of view is pleaſd to dote.
 Nor are mine eares with thy toungs tune delighted,
 Nor tender feeling to baſe touches prone,
 Nor taſte, nor ſmell, deſire to be inuited
-To any ſenſuall feaſt with thee alone <i>:</i>
+To any ſenſuall feaſt with thee alone *:*
 But my fiue wits,nor my fiue ſences can
 Diſwade one fooliſh heart from ſeruing thee,
 Who leaues vnſwai'd the likeneſſe of a man,
@@ -5209,7 +5209,7 @@ From heaven to hell is flown away.
 
 THoſe lips that Loues owne hand did make,
 Breath'd forth the ſound that ſaid I hate,
-To me that languiſht for her ſake<i>:</i>
+To me that languiſht for her ſake*:*
 But when ſhe ſaw my wofull ſtate,
 Straight in her heart did mercie come,
 Chiding that tongue that euer ſweet,
@@ -5495,8 +5495,8 @@ And thither hied, a sad distempered guest,
 
 #### sonnet-153 - 1609 quarto
 
-C<i>Vpid</i> laid by his brand and fell a ſleepe,
-A maide of <i>Dyans</i> this aduantage found,
+C*Vpid* laid by his brand and fell a ſleepe,
+A maide of *Dyans* this aduantage found,
 And his loue-kindling fire did quickly ſteepe
 In a could vallie-fountaine of that ground:
 Which borrowd from this holie fire of loue,
@@ -5508,7 +5508,7 @@ The boy for triall needes would touch my breſt,
 I ſick withal the helpe of bath deſired,
 And thether hied a ſad diſtemperd gueſt.
   But found no cure,the bath for my helpe lies,
-  Where <i>Cupid</i> got new fire;my miſtres eye.
+  Where *Cupid* got new fire;my miſtres eye.
 
 ### sonnet-154
 
