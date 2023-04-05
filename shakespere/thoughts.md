@@ -219,3 +219,7 @@ you gatta learn how to ride it. I just like this a lot because it's kind of like
 ### 2023-04-04 19:28 - what the hell
 
 I'm totally on a roll, this is is such a coaster of a ride.
+
+### 2023-04-04 19:31 - Thy ad-verse party is thy ad-vocate
+
+get it? together verse, together voice.
