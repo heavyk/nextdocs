@@ -354,4 +354,5 @@ these aryan cupids all have so much desire and ambition; they're all fighting an
 - semiramus (venus, -3), tammuz (saturn, +-4), and nimrod (mercury, +7)
   - (not the same, at all -- completely different triad).
   - venus is essentially where earth's 3rd ray matrix exists, almost certainly as a direct correspondence with ours, but their world is astral and not at all physical. as such saturn serves as the midpoint or fulcrum between 3rd ray input/output to venus and 7th ray input/output to physical (mercury)
-  the trinity of moon, sun, and jupiter is a triad I had never perceived before, because it means that jupiter, like saturn in the tammuz triad, is the midpoint between the 3rd ray reality of jupiter (mr. no-face, mrs. horus upset)
+  the trinity of moon, sun, and jupiter is a triad I had never perceived before, because it means that jupiter, like saturn in the tammuz triad, is the midpoint between the 3rd ray reality of jupiter (mr. no-face, mrs. horus upset) and the 2nd ray reality of the sun.
+  the difference between solar (isis) and lucifer (venus) has forever been the struggle between jupiter and saturn. I use both, obviously. go both bro.
