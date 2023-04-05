@@ -215,3 +215,7 @@ I pay attention to people's critisims of me; their words and reactions repeat in
 #### 2023-04-04 19:24 - buvle is a bike
 
 you gatta learn how to ride it. I just like this a lot because it's kind of like this dance that one gets it to with theirself. I love bouncing around between feelings. it's a bit like the feeling of jumping around on a trampoline. the more easy it is to have the self-awareness of how I feel, the easier it is jump around and play on the buvle
+
+### 2023-04-04 19:28 - what the hell
+
+I'm totally on a roll, this is is such a coaster of a ride.
