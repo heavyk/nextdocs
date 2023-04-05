@@ -2350,7 +2350,7 @@
     And needy Nothing trimd in jollitie,
     And purest faith unhappily forsworn,
     And gilded honor shamefully misplaced,
-    And maiden virtue rudely strumpeted,
+    And maiden vertue rudely strumpeted,
     And right perfection wrongfully disgraced,
     And strength by limping sway disabled
     And art made tongue-tied by authority,
