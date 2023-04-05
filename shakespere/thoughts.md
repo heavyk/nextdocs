@@ -179,3 +179,8 @@ hi :)
 ### 2023-04-04 18:45 - And captive good attending Captain Ill
 
 (^: hi :~)
+
+### 2023-04-04 18:48 - the spectacle of captive good getting hung drawn and quartered
+
+gory...k: a veritable dinner platter of filthy human bits.
+
