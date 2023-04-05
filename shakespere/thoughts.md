@@ -162,3 +162,4 @@ as I was writing that above, I could also see the "whore of babylon" image in re
 other strange features:
 - the "Enrlislg lords 16--" (where lords also kinda looks like "words").
 - "We~Tmpest"
+- "ſesbwary 1600"
