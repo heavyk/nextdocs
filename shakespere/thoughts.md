@@ -171,3 +171,7 @@ I noticed a differerence between these two in sonnet 66. honur (with an "uh" sou
 ### 2023-04-04 18:35 - virtue is not the same as vertue
 
 lol; just like a cucumber is not the same as a pickle.
+
+### 2023-04-04 18:44 - strength by limping sway disabled
+
+hi :)

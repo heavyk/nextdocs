@@ -96,8 +96,7 @@ Despite of wrinkles, this thy golden time.
 Looke in thy glaſſe and tell the face thou veweſt,
 Now is the time that face ſhould forme an other,
 Whoſe freſh repaire if now thou not reneweſt,
-Thou doo'ſt beguile the world,vnbleſſe ſome
-mother.
+Thou doo'ſt beguile the world,vnbleſſe ſome mother.
 For where is ſhe ſo faire whoſe vn-eard wombe
 Diſdaines the tillage of thy huſbandry?
 Or who is he ſo fond will be the tombe,
