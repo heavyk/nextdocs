@@ -189,3 +189,7 @@ gory...k: a veritable dinner platter of filthy human bits having dirt caked all 
 without any expectation from the crown, he becomes a nobody, confined to live out the rest of his life stripped of all titles and deeds. a nobody.
 
 ta da!
+
+### 2023-04-04 18:57 - is Captain Ill holding him hostage in the tower?
+
+or, are we building a tower of stone, with flesh and bone, just to see him fly?
