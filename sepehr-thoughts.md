@@ -341,3 +341,17 @@ there's tons of in-fighting and splitting between these different factions and c
 the druids/celts/picts (snakes, of danmark) used literary devices to tell their stories and to influence the outcome of their ambitions through the ceremony and sequence of their magical summoning/conjuring of their spells/literary works, has made its way over to the land of the redskins.
 
 these aryan cupids all have so much desire and ambition; they're all fighting and falling in love with their own psyches: egregores, enemies, and lovers of their own creation/conjuring.
+
+### 2023-04-04 19:44 - eyes of jupiter
+
+@[youtube](https://youtu.be/cKx7QyajnNg)
+
+- he says, "no!"
+- he is the morning star, taking the place of his daughter (venus) in egyptian minds.
+- he attributes both polarities, red and blue, much like black was the contrast to blonde/white for flags and hair colur. (if only, he put red, white, black, and blue, right?)
+- osiris is depicted often with green skin, but you failed to remind us of the different green-skinned races of even dwarfs and stuff -- I think it had to do with sunlight, I thmink you said.
+- the trinity contains osiris (moon, +-6-+), isis (sun, -3), and horus (jupiter, +3). what in the world?!?, I never thought of *that*...
+- semiramus (venus, -3), tammuz (saturn, +-4), and nimrod (mercury, +7)
+  - (not the same, at all -- completely different triad).
+  - venus is essentially where earth's 3rd ray matrix exists, almost certainly as a direct correspondence with ours, but their world is astral and not at all physical. as such saturn serves as the midpoint or fulcrum between 3rd ray input/output to venus and 7th ray input/output to physical (mercury)
+  the trinity of moon, sun, and jupiter is a triad I had never perceived before, because it means that jupiter, like saturn in the tammuz triad, is the midpoint between the 3rd ray reality of jupiter (mr. no-face, mrs. horus upset)
