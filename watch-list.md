@@ -21,3 +21,7 @@ the tempest
 romeo and juliet
 hamlet
 (something august wilson: https://www.youtube.com/watch?v=PBYedQbzGok)
+
+### anime
+
+porco rosso (red pig, curtis, gina/meg, and fio picollo)
