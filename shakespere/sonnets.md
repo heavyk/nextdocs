@@ -941,20 +941,20 @@
 
 #### sonnet-27 - modern
 
-    Weary with toil, I hasteme to my bed,
-    The dear repose for limbs with travel tired;
+    Weary with toil, I haste me to my bed,
+    The dear repose for limbs with travail tired;
     But then begins a journey in my head
-    To work my mind, when body's work's expired:
-    For then my thoughts--from far where I abide--
+    To work my mind, when body's work's expired.
+    For then my thoughts (from far where I abide)
     Intend a zealous pilgrimage to thee,
-    And keep my drooping eyelids open wide,
-    Looking on darkness which the blind do see:
+    And keep my drooping eye-lids open wide,
+    Looking on darkness which the blind doo see.
     Save that my soul's imaginary sight
-    Presents thy shadow to my sightless view,
-    Which, like a jewel hung in ghastly night,
+    Presents their shadow to my sightless view,
+    Which, like a jewel (hung in ghastly night)
     Makes black night beauteous, and her old face new.
       Lo! thus, by day my limbs, by night my mind,
-      For thee, and for myself, no quiet find.
+      For thee, and for myself, know quiet find.
 
 #### sonnet-27 - 1609 quarto
 

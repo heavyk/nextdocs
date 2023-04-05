@@ -150,3 +150,15 @@ Loue, like Cupid disccovers (and falls in love with) an externalisation of himse
 ### 2023-03-29 12:03 - haue
 
 I noticed the same thing for the word "haue" -- "ha, you" ("ha" is 3rd-plural had), so it's a self reflction "had you" -- which makes perfect sense when speaking to myself. it doesn't sound good when replacing the word "have" with "had you" -- but the concept "something he/you/I had". (makes sense in my mind anyway...) I'm really glad the word got contracted into "have" with the expansion of the alphabet to include the 'v'.
+
+### 2023-04-04 18:07 - shrewſbury
+
+@[youtube](https://youtu.be/BihuYWnzrIQ?t=1256)
+
+in that picture 19 february (50) days into the new year, salsbury is changed to shrewſbury. this may have been a bit of a jab at the queen: going from the salt of the earth to the shrew of the earth.
+
+as I was writing that above, I could also see the "whore of babylon" image in rev 12. I'm not sure what that means. it's probably relevant Henry "Cute"(?) a circle and shield, and then something with "sôwth" that I cannot see too well. also, notice V-spurs symbol on the bottom as well. edward probably drafted the copy that was printed there.
+
+other strange features:
+- the "Enrlislg lords 16--" (where lords also kinda looks like "words").
+- "We~Tmpest"
