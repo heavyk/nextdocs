@@ -193,3 +193,7 @@ ta da!
 ### 2023-04-04 18:57 - is Captain Ill holding him hostage in the tower?
 
 or, are we building a tower of stone, with flesh and bone, just to see him fly?
+
+#### 2023-04-04 19:00 - why do I equate these two?
+
+oh, it's the same -- it's a useless sacrifice. of something to something that has no effect on you -- meaning, it's just for the spectacle, "to see him die" (ie the hanging of captive good)
