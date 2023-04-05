@@ -211,3 +211,7 @@ you know, the play of measure for measure is about this very subject. the woman 
 ### 2023-04-04 19:17 - Thy ad-verse party is thy Advocate
 
 I pay attention to people's critisims of me; their words and reactions repeat inside of my head contiually, as if it's an eternal embarrassment. I have figure out what they're *really* trying to say, because many people say their most well-intented suggestions for another's well-being is often shwoded in insult and scorn. I figure out what improvement they're intending to say through their insult and then the embarrassement goes away. I no longer feel embarrassed for them/myself. no more of that mental bucle.
+
+#### 2023-04-04 19:24 - buvle is a bike
+
+you gatta learn how to ride it. I just like this a lot because it's kind of like this dance that one gets it to with theirself. I love bouncing around between feelings. it's a bit like the feeling of jumping around on a trampoline. the more easy it is to have the self-awareness of how I feel, the easier it is jump around and play on the buvle
