@@ -1,6 +1,6 @@
 # lord-of-the-throne
 
-a mobile app. you bring it up, and it has a few boxes:
+a mobile app. you bring it up, and it has a few boxes (no title):
 
 [ 5m  ]
 [ 10m ]
@@ -26,3 +26,45 @@ at any rate, the way I want to look into the world is probably "ahead of it's ti
 what I determined is that, because I don't have any "pinecone" in my head, because I surgically I had my "angel seat" organ removed. therefore, I am *permanently* in the physical world. during eclipeses, and we have a multi-year eclipse coming soon if that's what it's decided to put our relation to the sun. I have no idea, but it's probably all figured out -- and what'll happen is we'll branch off to multiple timelines: the physical (for which I'm physically retained, because of this body); and, the astral. I really like the idea of remaining in physical. I made the choice to be here. you know that physical eyes can also see at very high frequency. I don't need to have vision inside of my head and my aura around me, in order to see with my eyes.
 so anyway, we'll be dividing inthe not to distant future. it's totally fine, cool and all I can say is: don't worry. you have a very stable guy you're relying upon. I've come a long way, and I don't really I don't really mind the concept of building a whole nother reality upon my perception, and I am a bit of an egoist, but I think it''l be fine. trust me ~)
 lol.
+
+it's really important to think of this app as a way tto find something to do with a person with only a few minutes of time. another feature that I think is really important is to to look at the next section of the interface:
+
+
+"move legs" reminder
+
+[ 0m ] |---------| [ 10m ]
+           (0m)
+
+   x vibrate
+   o alert
+   o notify
+
+this feature is simply a reminder (while you're on your throne) to move your feet with tiny reminder.
+
+OK, I forgot the initial feature, which is the loading screen. all good and really powerful apps have a loading screen. a loading screen is a powerful symbol of bloat and sheer quantity, where we show a symbol (at random) of a set a symbols (chaos ----|---- order), and another symbol I've seen in the last (0m ----|---- anytime), and one is cached for the next startup before loading up that bloated monster, it shows that symbol as the loading screen.
+I also want to make a feature where peeople can just browse other people's symbolic pictures -- like I want to see awesome artwoork of another person's symbols (listed in tthe artwork) ands then other people can label artwork, which is essentially a concept; a sort of moment in time (or control point) of that concept's trajectory through time. I want everyone to be able to put in their own ideas of symbols on other people's artwork.
+symbols aren't all though, because similarly to another cool feature will be another interface is how concepts relate to each other, where people relate twe concepts (artwork) as being similar to another. I know every artist *hates* to be copied, but in reality, the collective body of that artwork is like a fixture in point of time, as 1 million years from now, plato getting hit by the apple on his head, will still look the same. "art" (in the traditional sense) never changes. since the image is the same (movies, film, print, etc.), the fixture is the same -- and that seems very stable to a lot of symbolic guys like me, but one has to realise that art is no longer fixed with the creation of games and social media memes. the way that we relate to these symbols, is no longer fixed and is now moving at the rate of human perception, so even the most horrific tragedy will be perceived in a new way before such apocalyptic scenarios would happen -- but I think this is already happening: like I said: from a fairly relable source (shakeshpere, steiner, plato, and mckenna), the moon, when it passes in front of the sun, for reasons of those that see the 2nd ray aspect (through astral or spectral). the others (physical ones) like me, we're more of the primary perspectives which is 1-3-5-7 -- so what's already happening is that there are already significant splits every time the moon passes in front of the sun, those two realities remain separate, and one could say, we'll serve as the source of all of those layers as we move our consciousness up. bet you wanna do that too, huh? well, it's really easy: be physical. my whole goal is to make an entire new species of people that are physically incapable of being in 2-4-6 perception; cause, look at me: I know the astral well because I'm pretty good at physical and conceptual. I'm also really good at symbols and canceptual, making me also really good at spectral. my desire is (and this is a relative eventuality), I want to have a physical model of a person with essentially a funnel-like structure there, making the emit/receptive element on the top of the head, being only receptive/attractive. people with that physiology will be like me; where, there is a portion of good (mostly good), but because our creativity surpasses our losses from such tiny bits of evil, we're a sort of YHVH where, there's a tiny bit of evil but such an overpowering amount of good, it far surpasses all evil -- meaning that you get that tiny barrier of evil that, if you let them get too close to you, they can wreck you. a good example of this is venus and saturn. saturn has a silly haunted memory of something long past, venus shits on him every time he gets too close; simply because he sees 3 through the perspective of 4, which means that his concepts and symbols, don't always match; same will be for tehfuture's 1 and 3's (but I think that's a solid millions of years down the drain before we get that).
+
+so, it's really important to be getting the right feeling stuff for the occasion. the next screen you see after that, is mood.
+
+[upset: ----|---- :tired] X
+[funny: ----|---- :loving] X
+[happy: ----|---- :joyful] X
+[     : ----|---- :      ] (+1)
+.... and so on; scrollable window
+[pissed off!
+    --------|-----------
+    upset!] X
+[I'm about to explode!
+    -----------------|---------------
+    make it stop!] X
+[     [^!?;.]
+    --------|-----------
+            [^!?;.]] (+1)
+
+the point of this feature is to set the tone for the articles (in the case of news), or games (based on some black box AI (or some other means)), you simply relate the intensity of the content to the mood of the user.
+
+at this point, I think it'd be important to pay a trip to see the guys that make south park, as I think they'd probably have some contennt ideass, I'm sure... this whole app is designed to gave you the best (or some other quality) toilet experience, you've ever had.
+
+so let's go over this: we start with a symbol of predertimined quality by the user (in conceptual form, of its style). then the app just puts you through those three interfaces. the first is to ask the flusher (I prefer this to to user, as, one does not "use" the toilet, but one "flushes" the toilet; important.). the first interface is a request to ask the flusher (flushor?) how long they want to spend on the toilet. next, they sett their move legs reminder, to periodically vibrate/alert/notify them (at some interval) -- and this is a feature that I think we can really expand on, as I'm sure it'll be a pretty hot thing for the creativity of new notifications, cause if you click on notify, it brings up another interface which is essentially a browser of different notifications. I imagine they'll be more like memes, sound, video, interactive moment, etc. -- and this really is a good thing to direct advertisers into becoming a part of, because the users theirselves will pick the kind of adversising that they want. this entire system will be open source and publically traded, as a sort of collateral or capital (cornerstone) upon which the flushors (it's really important we emphasise hygene for our users by calling them flushors -- we don't want any disases spreading because of our app). actually, it's probably a good idea, now that I'm thinking about it, that we should initiate an investigation into the product quality, to ensure that our flushors are not contributing in any negative way to our environment and sewage systems.
+it's important to know your environment's hygene, and we here at lord-of-the-throne, we feel it's really important and maintain a positive image of hygene, buecase we don't want peoplle shitting on each other; I mean, look at the romans -- they'll tell you that sewers are important. number one concern back then: aquaducts; I mean, sewers.
