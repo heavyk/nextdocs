@@ -411,3 +411,74 @@ I used the word "feelling" because I think it's the best translation of tthe wor
 desire is also pretty much the same: also a shift in perspective, something like the way an airplane feels when it hits a pocket of air, or you feel like when you're getting close to your destination christmas day. it's the perceivied movement of (from the perspective of the desire, not the desirer) of getting closer or further away. notice, for example, how similar feeling watching something get destroyed is to feeling like you just missed the freeway offramp.
 
 yeah, you have to feel likke your destination is *receiving* you or whatever the desire is. there are implications to this, because for example, if I get angry and pissed off and try to project a angry feeling into someone else's heart -- I'm the one that's attracting (and they may be too, if the feeling iss strong enough in their heart). that's for the symbolic; for the desire, note that something similar to jealousy is the way to do it. when I feel *them* getting their desires, I feel jealousy, but I'm attracting for them, the approach of their desire. in order to do that for myself, I just feel for myself the attraction of my desire toward me (usually helpful to think of this "me" as someone in the future, because obviously the present "me" doesn't feel that way, and/or isn't capable of receiving the desire)
+
+### 2023-04-06 17:21 - echo and narc-issus
+
+before we start, do you suppose that saturn/satan finds it humorous watching all of these venusian/apollonian sabotage artists successfully land their aircraft in the ocean? or, do you think he's also a victim to the same faulty logic of using symbols to figure things out. I'll demonstrate.
+
+I noticed a lot of similarities in the myth of echo and narcissus that echo is venus/diana (because she can only echo the symbols that have been spoken/played in recent *time* -- the domain, which her consort, saturn upholds, like atlas). so that's fairly simple, so then is narcissus thoth or saturn then? I'll claim both -- because, for example, there are some versions of mercury, in the form of paris and other pages, attain a level of self-flattery and preservattion. they're the paris's that prefer the easy, vain, and materialistic way of life (he's a 7th ray), and so we see this same kind of behaviour mirrored in hawtyness in mars/aries, who is also a 7th ray.
+
+we can look at the 7th ray aspect through the angle of paris here, where his aspect reflects a coming together of things -- a coagulation into form; and, perfection. contrast that now with mars' main aspect which is the pulling apart: destruction, personified in confusion, chaos, and terror. this is the war angle looking at the same 7th ray concept. next, we can also look at the same persective of narcissus, who (in my opinion) is feminine as well: she's the receptive (and then retransmitting) look into the concept -- meaning, that she absorbs physicality and then retransmits them out into the perfection of his mind/thought (thoth). however, at the same time, she's destructive because physical impulse is received and amplifed (as a reflection of desire) back out into the world, which can either create massive destruction -- or, it can create a perfection.
+inotherwords, both narcissus and echo are reflections. however, echo reflects *symbols* (words/narrative), and narcissus (mars/thoth) reflects physicality (appearance/form).
+I think I would actually personify the these two qualitiy differences on a sort of spectrum that I'm going to try to explain: on one side there is destruction, chaos, disharmony, and war; the other is coming togther/attraction, cohesion, creation, and perfection and harmony.
+the two sides of this spectrum havo so many different aspects between, it doesn't look much like a spectrum, but it encompases all of what we consider "physicality". notice, for example, the difference between chaos/disharmony vs destruction/war, creation/cohesion vs perfection/cohesion. the different aspects toword these basic attractive and repulsive forces *are* the gemini. these are 2 poles on the same planet, two heads on self-same coin, etc.
+
+OK, now let's look at endymion. his wife is said to be selene/diana (crecent, not of the moon but *venus*). in that tale *apollonius* (mortal diana) writes that selene (immortal venus) falls in love with mortal endymion, so she asks zeus to give him immortal youth (cupid), and so juiter gives endymion immortality (meaning he's got a planetary residency for the emination of his soul now). endymion gets put into an "eternal sleep"
+    notice the similarity here to cupid and the sleeping. there's a curious thing about this, I think -- and that is that vision in the sleep state (astral), is wholly different from the physical. in the cupid and psyche version of the myth, cupid doesn't want psyche to ever see cupid (herself) in the night time (astral) -- meaning that cupid doesn't want to see himself in dreams/astral.
+I believe this eternal sleep is not *actual* sleep, but an inabiltity for endymion to perceive astral. apollonius says that endymion is visited at night be (lilith), and he bears to her 50 daughters.
+    just a second. I read that the olympiad is related to the 50 daughters, and I noticed that olympics are held every 48 months -- yet there are 50. do you have something in mind that has 48 but then two extras?
+    anyway, I was looking at the gods involved with setting up the olympaid, and it's another interesting triad that I'd not looked at before: jupiter, hera, and athena/apollo. upon noticing that venus is the same as apollo, but they are both 3rd forms of venus (-3); and, sure enough, in the same way, hera is the same as zeus.
+    the way to understand why hera and zeus are the same (and why this is a triad), is that one of them (jupiter) is not in physical. +3 is non-physical, so to get a physical manifestation, he (+3) becomes vulcan (-5+). for athena/apollo, this isn't the same because (I believe) for venus to become physical, they split into male and female pairs: +3 (apollo) and -3 (athena).
+    following that line of thought, I just noticed that it's quite possible for jupiter to become physical, a similar translation takes place where jupiter put into physical, yields thoth (+7) and saturn (+-4)... interesting. I wonder then, if saturn being put into physical would be ... I'd guess it'd result in cupid (+1) and aphrodite/psyche (-7) -- though I'm not sure -- but it seems like it should (also?) produce mars (+7) and anatau (-1) -- though it seems to me that she looks like vulcan/hera (-5+) and not herself.
+the 50 number also shows up in relation to enlil as well, but I'm not sure what it means entirely -- but my logical mind can't possibly not notice that 49 are all the ray combinations (7x7) and also one more, which is probably the exact dual (opposite/reverse/mirror/echo/reflection) to endymion -- meaning (to me): that endymion figured out all 7x7 ray relationships within himself (ie, perfected) and so he contains all of the elements. each of the 49 daughters represent the pure ray energy relationship, but the last one there is his foil/opposite in female form.
+
+now, let's look at the myth of echo and narcissus by ovid: juno/hera (-5+) curses echo (-7) and tells her that she can only repeat the same *words* recently spoken by another person. this sets up the reflective aspect, but here echo is physically reflective, and not symbolically like in the jupiter one.
+echo notices narc out hunting (like diana, so this is apollo), and falls in love with him. the more she looked at *him* (like nartisist looks at himself), the more she falls in love with *him* (not herself). she wants the ability to fall in love with herself, so she tries to find a way to get him. hearing her, they start a dialoge (that sounds like many couples arguing):
+narc: is anyone there?
+echo: is anyone there?
+narc: come here
+echo: come here
+narc: (she must want me to come to her)
+narc: (I bet she's trying to get me to make the first move)
+narc: (no answer, she's probably running away from me)
+narc: this way, we must come together!
+echo: we must come together!
+echo: (he loves me! I'll go to him right away)
+narc: (wth? who does she think she is trying to touch my beloved (self)?)
+narc: hands off! I'd rather die than to have you enjoy my body (beloved)!
+echo: enjoy *my* body...
+(they depart)
+
+this is a dramatic reinactment of these venusian sabotage artists I was talking about previously. notice however, that this story is clearly the saturnian one. in here endymion is saturn and echo is venus; the story of the broken corinthian column. in short, these two: echo and endymion are the self-same symbolic "soul" (astral/dream) and they get instantiated into physical as two opposites: the female is looking endlessly for her symbolic counterpart, and the more he rejects her, the more she likes him. he (saturn/endymion) can never escape his symbolic counterpart in female form -- as she'll continue to be more and more attracted to him. why? because she, unable to fall in love with herself, wants what he has, which is self-appreciation.
+
+endymion/echo's (vs. jupiter/hera/apollo/athena) story ends in tragedy (and will continue to do so), so long as she's incapable of loving/appreciating herself. notice also how echo here is presented in the feminine form, but in reality she's thoth. when thoth is masculine, he emits materiality like paris, his whole world a reflection of his vanity and appreciation of his self-awesomeness. when in feminine form, however, he can only see the things he likes about himself *outside of himself* -- and so she notices all of the things she likes/wants for herself (and admits to having), she finds those things very attractive (or unattractive, depending on her perception). when she's looking at the things she likes, she's attracting more and more of that. she notices everything about narc (saturn/thoth), and makes them more. if he's whatever good or bad he'll become more of that (the tree of good and evil). therefore, to turn this tragedy into not a tragedy, is to not see it as a tragedy. let me try and explain:
+narc: is anyone there?
+echo: is anyone there?
+    everything in life is a reflection, so all the questions you're asking outward are the self-same questions you're asking yourself
+narc: come here
+echo: come here
+    commands as well; everything I'm telling/suggesting/shoulding to someone else, I'm telling/suggesting/shoulding those things to myself -- cause, if I were already doing them, I wouldn't be bothered by the other person not doing them
+narc: (she must want me to come to her)
+    this is the game of first and last: do I want to be the cause or the effect
+narc: (I bet she's trying to get me to make the first move)
+narc: (no answer, she's probably running away from me)
+    we assume in physicality usually *not* by intuition, but by logical/symbolic reasoning, trying to figure out the situation and what action to take
+narc: this way, we must come together!
+    (attraction)
+echo: we must come together!
+    she notices that what she's looking for is not inside herself, so she tries to get him to come to him
+echo: (he loves me! I'll go to him right away)
+    more logical assumptions based on symbols and their meaning -> which then produces action
+narc: (wth? who does she think she is trying to touch my beloved?)
+    I like me more than you like me! also, I like me more than you like yourself
+narc: hands off! I'd rather die than to have you enjoy my body!
+    he knows that her influence on him spells the beginning of his "death" and that from then on he'll start to love himself and see himself, like she loves and sees him -- but he really likes who he is, so he *has* run away rathar than risk dying.
+echo: enjoy *my* body...
+    it's not about me enjoying your body; instead, come here to enjoy my body! I want what you have, so please want *me*.
+
+notice how the whole time, she's so fixated and intent on trying to get her desire executed in *words* and symbol. the next stage of her is to start to manipulate the symbols  (like portia) to fit her desire: which, in this case is calculated: she *thinks* she wants him to come to her, but she's totally missed the point of desiring herself, more than desiring to alter the symbols/narrative to attract her desire. by manipulating the symbols in narrative, she is no longer an echo, but a transformation on the original symbols.
+all she needs to know now, is that everything she likes external to herself, is also what she likes about herself. she can then recognise everything that she likes outward is something in me that I like.
+then, upon recognising that she likes herself in everything around her, she will begin to see more and more of herself everywhere -- and if she likes how she sees herself, she'' become one of those that now see from the inside-out: ever increasing brightness (the tree of life), she's constantly attracting more of what she sees and finds attractive/repulsive (which are only resonant aspects of herself). easy :=)
+
+### consider more triads
+### consider how non-physical elements turn into physical
