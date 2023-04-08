@@ -2328,7 +2328,7 @@ now, I'd like to look at the fallen lucifer into physicality symbol: in this one
 
 if I emit a symbol of justice toward someone, that's just a symbol; what matters, however is not the symbol, but the feeling behind it. so, if along with justice, I feel anger, I'm *attracting* a reality where more anger is felt. however, if I emit justice, yet at the same time feel forgiveness, then I'm attracting a reality where I feel forgiveness.
 
-likewise, if I'm attracting a symbol of lucifer and hecate, what I'm doing is I'm *emitting* the symbols of lucifer and hecate, which means that now people are going to start to percceive me as symbolically similar to lucifer and to hecate. well, just cause I look like something, doesn't hean that I actually am that way -- *and people will notice it* (that my symbolic appearance is different than my behaviour).
+likewise, if I'm attracting a symbol of lucifer and hecate, what I'm doing is I'm *emitting* the symbols of lucifer and hecate; which means that now people are going to start to percceive me as symbolically similar to lucifer and to hecate. well, just cause I look like something, doesn't mean that I actually am that way -- *and people will notice it* (that my symbolic appearance is different than my behaviour).
 
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
