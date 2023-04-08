@@ -535,3 +535,70 @@ technologically stuck humans are not the way forward for humankind (of which I b
 in short, I believe the giants served their purpose, as being a good attractor, but their time has ended. they did have some universal concepts pre-programmed into their DNA, but I think it's our job, not to try and go backwards into that way of living, but to go forward into a technological understanding of the same universal concepts.
 
 [1]: though I might dispute myself on this point a little, because if the INFECTED ONES are anything like mr. motor, the INFECTED ONES seems to be purely reactional, only with an inability to go toward wanted... mr. motor, doesn't seem (to me) to have any capacity to recognise anything that he wants -- only the capacity to recognise (using some unknown and inconsistent set of rules) things that he does *not* want. mr. motor I believe would also be quite resistant to "rehabilitation" as well, so there has to be another factor.
+
+### 2023-04-08 01:32 - seventh star
+
+@[youtube](https://www.youtube.com/watch?v=yC-hFO8h55g)
+
+in this video presentation, she's talking about the devil appearing in art and music to have a number of qualities that I noticed had reactions noting that they could accurately describe me. I feel that this is yet another case of misunderstanding. I explained that her description of the devil having unlimited creativity, access to all sorts of knowledge, and the like is simply a process of releasing resistance; nothing more. *all of us* are the devil. the devil is not any single person, but the coming state of humankind, where we *all* see from this liberated "devil" perspective.
+
+@[youtube](https://youtu.be/dHgW9zHmW-E)
+
+I then wanted to look up some of her references to some songs, cause I never really listened to black sabbath before. I was drawn to look at "planet caravan". this song describes earth, but looking at it from this perspective that I hadn't seen before. its colour is violet, as in UV, not purple (though it is described as having a "purple haze" -- clearly it's a powerful *violet* colour emanating from the planet). at the end of the song they describe this emination as coming from the *crimson* (a deep and powerful red) eye of mars. I just thought that was really interesting. the next song "iron man" (obviously a reference to mars) describes a sort of robot that traveled through time for the "future of mankind" -- nobody wants him -- he's just going to punish the world.
+
+later on, some decade and a half later (1983), the year I was born they have an album called "born again" (though it was the first time I was born -- my "rebirth" would be more like 2000) -- anyway, track 5 is "zero the hero" and it' about a guy thatt describes me pretty well:
+
+    Accept the fact that you're second rate life is easy for you
+    It's all served up on a gold plated plate
+    And we don't even have to talk to you
+    Your face is normal that's the way you're bred
+    And that's the way you're going to stay
+    Your head is firmly nailed to your TV channel
+    But someone else's finger's on the control panel
+
+I mean, replace "TV channel" with nosebook and that pretty much sums up my situation. the next part translates my concept pretty well: I prefer effortless, and so it's no problem for me to watch it all burn down (because it's like totally not a problem -- see [other explanations](/sledge-notes.md#2023-04-01-0357---lilote) about how time works), so for me, I do see everything completely differently than everyone else does -- and indeed I am on a high speed trajectory toward "nowhere" (meaning, loss of physicality).
+
+    You sit there watch it all burn down
+    It's easy and breezy for you
+    You play your life to a different sound
+    No edge no edge you got no knife have you
+    Your life is a six lane highway to nowhere
+    You're going so fast you're never ever gonna get down there
+    Where the heroes sit by the river
+    With a magic in their music as they eat raw liver
+
+I have no idea what eating raw liver means, though -- and I definitely am not worried about meeting the homies down by the river to jam out and eat raw liver (huh?)
+
+    You stand there captain we all look
+    You really are mediocre
+    You are the champion in the Acme form book
+    But I think you're just a joker
+    Your freedom life ain't so much of a pity
+    But the luv-a-duckin' way you're walkin' around
+    The city with your balls and your head full of nothing
+    It's easy for you sucker but you really need stuffing
+
+captain? sure :) mediocre, is just my status, not my understanding, so this is clearly looking at things from a physical perspective... this verse is pretty incomprehensible though.
+
+what I believe is happening is this: I've released so much resistance that I summon/attract quite a bit of power. however, nosebook doesn't want me manifesting that into physicality, so they block it. well, energy has to go somewhere, so it passes outward across the medium of time (saturn), and so people that are *receptive* to getting those concepts, will receive the concepts that I emit here in the present, and they'll take the form of music and art.
+
+the whole world is doing it now (cause we're all pretty connected at this point), and as we get closer and closer (in time) to the present, those concepts become more and more comprehensible and clear. the way that these concepts are being turned into songs and lyrics is completely dependent upon the conceptual framework and resonance with those concepts.
+
+it makes perfect sense to me that there are so many concepts that I emit, filling the creativity of so many because I'm in the predicament I'm in with nosebook. simply put: if they weren't blocking physical manifestation of those concepts and symbols into reality, then all of this great art wouldn't exist -- but then, that art wouldn't have attracted such a manifestation (me) into this earth either; I would have instead been something different: whatever else the artists defined me as.
+
+here's the thing though: just like echo and saturn/narcissus, this is a subject of recognising the thing outside of yourself as being a reflection of yourself that you like. inotherwords, if you don't like me, you don't like yourself; and, if you like me, then you also like yourself.
+those songs talking about how iron man is someone that nobody wants around causing punishment and destruction -- well, I can *guarantee* you that the songwriter had an emotional situation in their life that perceived another reflection of theirself as someone that they don't want around in their life and that is punishing them.
+
+from my perspecctive, it's an interesting thing to watch as you guys all point the finger at me and notice all the things that you don't like about yourself in me -- and then turn up the creativity to the max on some project, only to find that all the difficulties that are found in the creative process are reflective, not of me, but of them. as an example, I was contacted by zaryn to try and get me to come to madrid. though, I would enjoy going to madrid, I feel like he has no idea what it'll be like to have that kind of reflective energy in such close proximity to him; because suddenly, I'm going to immediately manifest all of the things that he fears/desires into reality -- which means that all of the things that he thinks are holding him back or making it hard for him to get what he wants will become bigger.
+
+I feel like those efforts to get me to go to madrid were in relation to my ideas relating to the bar game -- and it's interesting to me because I see the bar game ideas from the consumer/bottom perspective, and not from the top. if we were to work on the game from zaryn's perspective, it would have been top-down/corporate and not grass-roots/distributed like how it is now (and woudld like to see it stay).
+
+so, what happened, is I took some weed the other day and produced another idea that's accurately reflecting of zaryn's intentions: [lord-of-the-throne](/ideas/lord-of-the-throne.md). I wrote down the idea in quite an epic (who knows how many hours) session where it was something of an experience of dictating an idea something like how I remember martin gore describing his song writing experience, which is that they come all at once and it's like a sort of presence (like a spiritual experience) or state of mind where it seems like the song is known and just takes time to get to sound good and work well in the physical (obviously my paraphrase of his words).
+
+I feel like the lord-of-the-throne idea is much better for zaryn and his intentions. I *doubt* that the idea will be taken seriously in such as the format which I wrote it, (which is why I wrote it that way).
+
+anyway, so then this morning I wake up and I start getting a bunch of ideas for bar again, but this time, they're not ideas about the game, but they're concepts that are actually how to give open-source a unifying vision and a sense of improvement, which was a continuation of a concept that I got from noam chomski video I watched (which is why I used governments as a reflection of their lobbies as the fulcrum to the idea)...
+
+so, what I'm saying is, I think it's awesome that nosebook is preventing the manifestation of my concepts and ideas into physicality, because I get to enjoy watching them manifest into your lives into resonances into the past and future; like, you have no idea -- because every morning I wake up, and the world and what we would call "history" is different. either I missed a whole bunch of really random awesome stuff when I was younger, or I tuned into another timeline with tons and tons of new awesome stuff that appeared seemingly "out of nowhere".
+
+the more and more I'm allowing my past to be a little (or a lot) different than how I "remember" it to be, the more awesome stuff shows up. from my perspective, this effect is *suuuuppeerrr awesome!!* like seriously, I just love it. all I have to do is just not need the manifestation for myself, and then all of you guys get the manifestation that I wanted for myself, for yourselves. I *love* writing out these ideas and stuff. I'm not as selfless as you may think, because by letting nosebook prevent its manifestation, and letting you all get the manifestation of it in art, song, technology, and dance -- I *become* the thing, instead of having the manifestation (evolution-of-desire). so cool!

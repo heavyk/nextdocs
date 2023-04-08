@@ -64,3 +64,7 @@ well, because there probably is a bug in there somewhere -- I don't really care 
 all issues (governmental or in software design) I believe, can be turned into improvements. an improvement is far more desirable to program and implement, and if one of the costs is to clean up one of those long-standing stinkers in the sewer, then it's a win for everyone.
 
 (OK, so here's the problem: I *love* talking about this stuff, if you haven't noticed :~) I feel like I've opened the floodgates a bit and I have a lot of ideas that are starting to stream out of me now. I still haven't even reread the original message. I don't know what I'm going to do -- cept keep writing. hopefully one day I'll actually send it all to you. anyway cheers man, much love!)
+
+### play/command on touchscreen
+### "hold the line" mode
+### star-wars concept
