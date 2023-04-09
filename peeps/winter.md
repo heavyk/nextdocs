@@ -65,6 +65,25 @@ all issues (governmental or in software design) I believe, can be turned into im
 
 (OK, so here's the problem: I *love* talking about this stuff, if you haven't noticed :~) I feel like I've opened the floodgates a bit and I have a lot of ideas that are starting to stream out of me now. I still haven't even reread the original message. I don't know what I'm going to do -- cept keep writing. hopefully one day I'll actually send it all to you. anyway cheers man, much love!)
 
+### 2023-04-09 13:44 - chaos magic and sigils
+
+@[youtube](https://youtu.be/FuPuxzcH22c?t=596)
+
+I watched this video last night, only to find out that I'm a chaos magician, and I didn't even know it. the diagram there encapsulates what my brain does, however for me it's not visual. let me explain the process because I believe sigils will be an effective form of communication between commanders and units organisations.
+
+the basic idea is that you start out with a desire: "I want to meet a succubus in a dream", "smite adversary", "I wish to obtain the necronimicon" -- which are all long-form statements of desire. from there, you perform a sort of simplification process (to remove all the complexity of the written language). that creates lines and shapes which are then arranged into a symbolic form (sorta like a korean/chinese[^1] glyph) which then encapsulates that *desire* in the form of *action*.
+
+it is ultimately those actions that will compose the .. let me explain in movie terms: you know how in the matrix neo went blind, and when he did, now all of a sudden the world had these glyphs which sort of summarised the action taking place in the world? the guy who programmed the woman in the red dress (mouse?) said that he got used to seeing the world in this symbolic form, and it wasn't necessary to be inside of the matrix to have a sense of what's happening.
+
+I have a dream of being able to control bar without needing to see the screen, and the main reason for it is that I want to have a persistent universe that continues on even after you disconnect (just like in "shattered galaxy" or "EvE") -- and so since your units/buildings will continue on inside of the game, I want to have interfaces where people can get a sense of what is happening and be able to control to some extent what's happening without needing to see the actual battle. that's called (in social networking terms), "user engagement and retention" -- but you can porobably see (in a skirmish or match) how useful it would be to be for a commander to fight battles on multiple fronts while at the same time continuing to expand econ.
+
+so, ultimately, it's just a process of distilling different desires into symbols, which then in the various simulators, will find better and more efficient ways for those desires to be carried out in different conditions.
+these different symbols will also ultimately solidify a sort of identity for that faction, much like how chinese is different than korean glyphs, and the desire expressed through those glyphs will also naturally start to create a society and culture around it as well.
+
+now, as for the implementation of chaos magic inside of a game, I don't think it's entirely possible for units, but I *do* want to have a whole magical division to game where heroes can also level up their magical capabilities. the thing is, that the idea of "leveling up" is more aligned to ceremonial magic, because it offers improvement on the repetition, meanwhile chaos magic is allowing the world to be in an undefined/chaotic state, and then based on your *belief* and allowance for things to be different than how they *are*, the world can transform into something new, often times taking an *unexpected* form of that desire encoded into the sigil. I'll have to think on that one a bit more -- because I think that style of chaos is actually better suited for puzzle-like games, where the puzzle can be in a multitude of equally puzzling states, and the chaos is just a shift into a different form of the same puzzle (and it's that change in perception which often helps us to see the answer, like "scramble" in word spin)
+
+[1]: for some reason I don't feel the same about japanese glyphs. I'm not sure what it is about japanese glyphs, but they feel perhaps more conceptual(?) or something. I don't see it clearly now, so I'll have to think on this more...
+
 ### play/command on touchscreen
 ### "hold the line" mode
 ### star-wars concept
