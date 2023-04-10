@@ -2656,6 +2656,14 @@ it's called the "law of attraction" because as two vibrating things converge on 
 
 OK, great video so far! cheers mate, I'm glad to watch your videos again!
 
+#### 2023-04-09 22:19 - drumming up conflict to be able to make your point
+
+I do this all the time, myself -- so, I wondered if plato isn't actually calling parmenedes a dimwit, but using a seeming misunderstanding as the fulcrum to place between a new binary. all comparisons require a reference point to compare to -- and without such a point, he's sort of shooting in the dark.
+
+as an example of this -- I simply couldn'tt take my understanding of the world of forms and just spit it out -- or, if I could, it would sound like I'm just being a pompus and arrogant know-it-all -- therefore, I need someone (like you guys in this video) in which I can then use as a reference point for the concept I want to convey and relate my (new or synthesised) concept relative to this conversation.
+
+it seems to me that this is likely the case, as I've never read plato, but I do know that he presents all of his ideas, *not as absolute* but relative (or in relation) to another's ideas in the form of a dialogue.
+
 ### what are your differences with steiner?
 - answered: -- doesn't like the guru worship and appeal to a divine order
 ### promethian egregore and science
