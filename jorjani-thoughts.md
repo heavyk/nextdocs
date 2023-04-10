@@ -2630,6 +2630,31 @@ the question that lev had there about reincarnation inspired me to look at my co
 
 you know, it's quite possible that those negative numbers are actually creating a positive 3d shape as a result (energy has to go *somewhere*). I can't imagine what it is though.
 
+### 2023-04-09 20:36 - plato's noble lie
+
+@[youtube](https://youtu.be/lBRebPG_NK4)
+
+this video is interesting to see where plato (probably intentionally) made some mistakes/omissions in his elaboration of the forms. I hadn't really researched his theory of forms actually until just a few minutes ago, and (honestly) I've only read wikipedia on it. however, I seem to know the concept intuitively, so I'd like to give my explanation on some of the ideas presented in this video from my perspective.
+
+first, let me startt with platto's theory as explained by wikipedia: it claims that the form is timeless and absolute -- however I do not believe that it so at all, and that is really only an illusion. the world of forms is a world of frequencies -- so we have to imagine that we're listening to a song or someone's voice. our brain (same as consciousness) draws the lines in the chaos of frequencies to hear the sound, and as you well know, accents are a thing. a person's ears will adjust to certain parts of the sound, omitting or filtering out other parts. therefore, only a certain part of the frequency is heard. that part of the frequency which is heard then is the part that is reproduced when the child grows up, and so different parts of the world have different sensitivities to different frequencies, meaning different parts of the world hear and reproduce the same sound differently. so, just because I say "potato" and you say "potato" doesn't change the concept. the potatoness of the item I'm describing remains the same, regardless of my accent.
+
+likewise, now imagine I come upon a sweet potato, and I notice that this is an expansion/remix of the same potatoness concept. it still retains all of it's potatoness, but it's slightly different. even though I have a different accent, I can still tell that it's a slightly different potatoe, yet retains its potatoness. the potatoness concept will continue to exist regardless of the accent, so long as potatoes continue to exist.
+
+let's try that again with frequencies: if I listen to a song, I hear the song exactly the same way every time that I listen to it -- until I hear the song a little bit diffrently. I'll assume that it's a digital recording and the reproduction equipment faithfully reproduces the sound -- yet at some time it's possible for me to hear something different in the song. the song has not changed, but it's me that's changed. additionally, I may, over time feel differently as I hear the same song. let's say that the song, 5ya would conjure a picture and experience that I had with someone -- yet now, because of my relationship to that person has changed, the song literally sounds differently to me. again, I'm the one that's changed, not the song.
+
+therefore, I must conclude that it's our perception/tuning to the sound of the song which makes the song sound (to me) other than itself. I'll consider each of these listening sessions to be the imperfect instances found in physical -- yet, that's not the whole story. imagine for a moment that song exists, not on a digital recording, but as a sort of planetary isolate floating out in space. in that case, the song will attract other harmonically similar things toward it -- and those attracted frequencies will amplify the magnitude of the song and add a whole lot of higher harmonic frequencies to it -- yet the listener will still continue to hear the same song because they're still tuned to the same set of frequenccies -- just like, for example, imagine that I was able to add more harmonics to my voice with a sound program (like say past 100KHz) -- and on the visuals, one can see that there are a lot more frequencies there, having a broader spectrum yet, my voice will still sound exactly the same to me.
+
+said another way: if I'm listening to only a certain bands of frequencies (like spectroscopy signature of an atom), there are an infinite number of other frequencies that don't change the spectrographic signature of the atom, meaning that it's the same, but on higher frquencies, it's more (much like sweet potato is more than just potato).
+
+---
+
+next, the all can be understood in like manner: if we imagine the sum total of all frequency in the universe, this is a very complex frequency, yet it has no border or boundary. it begins and ends at the limits of our ability to perceive it. no single thing can evver perceive the entire frequency. no matter how advanced our science is, we'll never be able to perceive the fastest frequencies (the all) -- and so all things are inherently limited in their capacity to perceive the all.
+
+I believe that plato's "noble lie" was not so much of a lie, but actually more an inability to transmit the concept of how frequencies work to a technologically incapable people. I mean, they were on the right track, having figured out that doubling the length of a string produces an octave -- and the inability to show mediums and how similarly vibrating things in a medium eventually become similar.
+
+it's called the "law of attraction" because as two vibrating things converge on a similar frequency, they get closer to each other in both time and space -- thereby *attracting each other* :)
+
+OK, great video so far! cheers mate, I'm glad to watch your videos again!
 
 ### what are your differences with steiner?
 - answered: -- doesn't like the guru worship and appeal to a divine order
