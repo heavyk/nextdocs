@@ -26,7 +26,7 @@ I can only say this intuitively, as I don't have anything to say with facts here
 
 #### day of YHVH vs thousand years reign of christ
 
-I noticed when reading isiah yesterday that there's this idea of "the day of the LORD", or "the day of YHVH". well, as I was looking it up, it occurred to me that (as tovia pointed out), these prophesies are not come to pass, and were definitely *not* fulfilled by jesus (in any way, no matter how they massage the texts). therefore, this is a coming time in the future.
+I noticed when reading isiah yesterday that there's this idea of "the day of the LORD", or "the day of YHVH". well, as I was looking it up, it occurred to me that (as tovia pointed out), these prophesies are not come to pass, and were definitely *not* fulfilled by jesus (in any way, no matter how they massage the texts). therefore, this is a coming time in the future. the "day" is probably also another 1000y period (I believe relating to the sun), but that 1000y period is experienced differently: one with YHVH/mars and the other with gangsta jesus (the christ).
 
 clearly, there is a split between the jews and the christians in their ideas of what it means to have a saviour and all that stuff. I don't really know how to rectify all of this stuff, as for me the booke of revelation has a lot of very violent (and gay) imagery assocated with it. but then again, so does quite a few of the other OT passages where YHVH is telling them not to kill (one of the commandments), but then go ahead and wipe out the enemies of YHVH, including women and children. I can't really find anything good about any of them, where I can say, "clearly this one has the right idea that I want to follow".
 
