@@ -104,3 +104,9 @@ in the end, all aspects of history, whether personal in the form of memory, or s
 therefore, all aspects of the past, present, and future are subject to perception, meaning that it's *all* personal revelation -- just some people's "personal" revelation is more easily influenced by outside sources than others.
 
 [1]: considering the technology that hollywood has, it's not at all out of the realm of possiblities. I mean, just think about all of the reasons *why* the us govt would want to do something like that, and mountains of motive can be found as well. it's not like you want to have victims' families actually angry with the government, cause that's an uncontrolled situation.
+
+#### 2023-04-12 23:41 - visual revelation or reasonable revelation
+
+in the commit message, I said that I'm starting to sound more and more pauline every day now -- yet, I noticed that we're actually *very different*: paul is a "I believe what I see" kind of guy, and so for him, his personal revelation on the road to damascus, was his deciding factor for what he believes. obviously, the people that believe the 9/11 attacks happened exactly as they happened on they appeared in the video coverage also believe what they see. I do not; and, for me my conclusion that the 9/11 attacks were not what they appeared to be, was a personal revelation, not only of mentally putting the pieces together, but also of intuition. I had a feeling (since the first time I saw it) that it was all a big show, and then gradually over time, evidence started to strongly suggest that it was, in fact, entirely a show.
+
+please, don't be like paul and just believe what you see (no matter how impactful the image is).
