@@ -158,3 +158,19 @@ correlation between the apostles' altered state of consciousness and "COVID brai
 - the descent of the holy spirit and speaking in different tongues (inspiration), served as a creative impulse which created a moment in human evolution
   - he's saying that, the creative impulse of speaking in tongues (also found under psychedellic/shamanic conditions), happened to plain ordinary people in otherwise plain circumstances -- and the only thing really necessary was a sort of faith or belief in a power greater than your own
 
+### 2023-04-14 01:37 - lecture 2 (reread)
+
+- the apostles felt (on the day of pentecost) as if they were awakening from a deep (dream-filled) sleep
+- up until that moment, they were sort of like automatons (npcs) going about their daily tasks in a sort of unconsciousness routine, not really aware of of the world around them
+  - a non-resistant state, sort of like in a dream, where things are happening, sort of like being inside of a story, just living out the events of a character without any real control over what's happening.
+- in the moment that they woke up and regained consciousness, all of a sudden they felt a really deep "love" -- a sort of vibrance and newness toward life
+  - again, this is something that happens often in psychedellic/shamanic circumstances, when all of a sudden the person breaks through the barrier of their mundane form of perception, and upon perceiving that even within the "normal" reality, there is so much amazing stuff happening, one cannot feel anything but a sense of *rapture* or intense *love* for everyone and everything around.
+- although they had previously been "normal" individuals experiencing a mundane reality, now they're experiencing the supra-mundane perception, where everything now has a mechanism, a reason, an a guiding principle to it.
+  - notice how this mechanistic (3rd ray) form of perception will ultimately cascade outward into a the scientific revolution.
+  - the way that I feel the sensation he's describing, is kind of like the 4th ray (heart) form of perception, where they're looking at the world with 3rd ray perception, yet *at the same time* feeling such a tremendous love, rapture, and vibrance in everything everything that they're seeing. all things feel like they "make sense" together; which is pretty different to the mendane (only looking at the physical/material) form of perception.
+    - it's pretty easy to see how the 2nd ray (everything's connected) is a further extension of this form of perception, where all things feel like they're there in perfect resonance and harmony to each other, creating the big-picture perceived across time and space.
+- everyone felt as if they were able to understand each other
+  - (from the perspective of the other person, as if there were no inability to understand the other person because all the reasons why they're being the way the way they're being, is perceived simultaneously)
+- now, we're going to look at peter and how he now understands the events which happened at golgotha
+- during the time of the "denial" peter's ordinary sense of consciousness faded and he was transported to *another world* where he remained in that abnormal dream-state
+- images flooded into his mind as he awoke, something like how one remembers yesterday upon waking, to get an orientation of what "today" is.
