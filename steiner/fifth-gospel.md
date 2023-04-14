@@ -142,3 +142,19 @@ this concept is a bit preemptive and it's the first time I've expressed it fully
 
 
 correlation between the apostles' altered state of consciousness and "COVID brain"
+
+### 2023-04-14 00:51 - lectore-1 (reread)
+
+- the christian impulse was captured and transmitted by uneducated people, and eventually culminated in great advances in science and materialism
+- even people opposed to the christian impulse, seem to capture its notion, if only to behave in contrary to it (ie, using such same marketing and propagation techniques that spread the christian impulse, are now also being used by those opposing it as well)
+  - meaning, that the fulcrum or the comparation point has been moved which produces the binary (the movement of extremes of good and evil -- for both the counter agency and the propnents of the christian impulse)
+  - another way to look at this may be to see that the emission spectrum for thought is becoming more broader spectrum: by restricting some ideas, it forces the appearance of other ideas -- and, it's those ideas (some good and some bad), which cause us to exhaust the realm of possibilities; which, could be seen as a limiting or inhibiting force, but in reality it's a more exhaustive inquiry into what actually is the thing we're looking at.
+    - said another way: humans tend to continue to use whatever's working, building habit, and so to move the fulcrum a bit altering the trajectory, forces a novel set of conclusions
+    - we are, as is most demonstrably portrayed in modern science, reaching the limits of its novelty, growing largely into habit of taking the same approach/perspective to our interpretation of reality.
+    - an an example: the monotheiestic "God" (and the idea of a saviour) reflected itself into the scientific pursuit of a monotheory of material reality (as a saviour from the bogus reality imposed by the christian reality), which then produced the modern notion of a materialistic scientific revolution, which then produces (like future failure of macro evolution of darwinism) the realisation of plato and aristotle's idea of concept and form.
+- christ himself inhabited the hearts and minds of the people that both fought against and for christianity.
+  - he took on many forms of many souls -- a sort of organism that spread itself into compatible hearts and minds
+- pentecost event is what enabled the spread of the christ impulse in uneducated people that have no knowledge of how the impulse works
+- the descent of the holy spirit and speaking in different tongues (inspiration), served as a creative impulse which created a moment in human evolution
+  - he's saying that, the creative impulse of speaking in tongues (also found under psychedellic/shamanic conditions), happened to plain ordinary people in otherwise plain circumstances -- and the only thing really necessary was a sort of faith or belief in a power greater than your own
+
