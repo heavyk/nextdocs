@@ -186,3 +186,15 @@ when you wake up, you become conscious. I also really like the idea of believein
 I can only imagine that wonderland is the matrix, and the depth of the rabit hole is how far into the deception of the matrix one can get? (it's probably fractal, with more and more matrices stacked on top of the beliefs discovered in the previous matrix)
 
 at this stage of my development, I'd choose the blue pill.
+
+#### 2023-04-16 15:04 - the story doesn't end...
+
+the story doesn't end when you wake up, because now you can believe whatever you want to believe -- meaning, I no longer have to be held into the myths and narratives handed to me by culture and media. now, I make up my own story.
+
+I visualise the matrix as the "decent into the underworld" (interestingly featured in this very episode) where the matrix that I'm fighting is all in my mind. these machines and things are all reflections of my own ideas that someone is holding me back from believing whatever I want to belive -- as there's a centralised matrix full of archons that are imposing a reality structure upon me. I'vve got to find a way to outsmart and outwitt them, battling to regain power and control over them (which are just externalisations of my own mind).
+
+the matrix is very much like the imagination, where all things visualised are just reflections of our own concepts: for proof of this, one day when we're able to project images and concepts into the minds of others (arguably this is already possible), it'll be possible (like with dream analysis) to notice the differences between how each person translates the same concept into a sensational picture and sound experience.
+
+in this sense of translating a concept into experience, the red pill takes your mind's concepts and turns them into reality and so now having externalised the concepts of the mind, not only to pictures but into full-blown reality, neo is forced to find a way out of the matrix of his own conceptualisations.
+
+I've had this red pill experience happen to me when I had my pinecone removed in the hospital (which interestingly [I just wrote about](/the-manifestation.md#2023-04-16-0759---may-day--reborn)), where I had all of these lofty ideas of making a website and having a girlfriend that I could program with and all of this stuff -- but also the ideas of risk and failure, insufficient performance and not-good-enoughness also being manifseted into experiences which I then lived through and had to find a way to conquer those ill-conceived ideas of myself. just pay attention to my life's story in the sense that my entire "rebirthing" process is all about (like ptah/enki/aquaman) overcoming my own conceptualisation of earth made manifest into reality.
