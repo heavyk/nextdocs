@@ -184,3 +184,5 @@ when you wake up, you become conscious. I also really like the idea of believein
 > take the red pill, and you *stay in wonderland* and *I show you how deep the rabit hole goes*
 
 I can only imagine that wonderland is the matrix, and the depth of the rabit hole is how far into the deception of the matrix one can get? (it's probably fractal, with more and more matrices stacked on top of the beliefs discovered in the previous matrix)
+
+at this stage of my development, I'd choose the blue pill.
