@@ -170,3 +170,17 @@ further, exploration of neo in the concept of time is multiple copies of himself
 ---
 
 another subject I particularly liked in the beginning of resurrections was the modal / genetic algorithm of the matrix evolving its own code. this was completely dropped and didn't show the matrix also as a sentient being evolving itself and even the "architect" is just a job given to the best suited/evolved. the matrix itself (playing the role of source or law of attraction) can introduce its own conflict to cull the weak and build stronger characters.
+
+### 2023-04-16 14:50 - blue pill vs red pill
+
+@[youtube](https://youtu.be/NjFntgLe92I?t=6490)
+
+in that ending sequence, I noticed the dialoge for the first time, which is that the red pill (the one neo takes) is suggesting that he stays in the matrix...
+
+> take the blue pill and you *wake up* and *believe whatever you want to believe*
+
+when you wake up, you become conscious. I also really like the idea of believeing whatever I want to believe, as it's what I do.
+
+> take the red pill, and you *stay in wonderland* and *I show you how deep the rabit hole goes*
+
+I can only imagine that wonderland is the matrix, and the depth of the rabit hole is how far into the deception of the matrix one can get? (it's probably fractal, with more and more matrices stacked on top of the beliefs discovered in the previous matrix)
