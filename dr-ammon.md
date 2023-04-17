@@ -21,3 +21,8 @@ you said that eternal life is an absurdity and doesn't exist -- saying that it's
 all energy/thought/perception/understanding (everything) is in movement, and so any "life" or energetic manifestation appears for an ion, and then transforms/transitions into another manifestation of (its own perception of) itself eternally; always, even the universe or the "all that is" God, satan, or whatever is always doing this.
 
 the ion of ions is just the thing that came before the present ion -- or, said another way, it's the old preception that transformed into the new perception.
+
+#### 2023-04-17 17:17 - everyone has eternal and ionic life
+
+what the church is doing, is like selling icecubes to eskimos: you already have an abundance of the thing they're selling you. they're just exploiting ignorance by withholding knowlede; that's all.
+almost certainly they know that every thing is constantly transforming into something greater than it previously was -- cause why else would they ban alchemy? alchemical principles show that eternal life and continuing expansion is a property of all forms of matter. so if an base substance can be turned into something greater without having to pay for it or earn it in some way, their entire sham falls apart.
