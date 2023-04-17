@@ -612,3 +612,5 @@ I perceive myself as invaluable, and what I believe anyone who wants to feel com
 if I have a value, then I can't be invaluable. something valueable is something physical and tangible, meanwhile something invaluable is an ideal; something that cannot ever be materialised into value. as an example, can someone put a value on calculus or trigonometry? certainly there are better ways to teach or transmit that concept to others and those transmission methods can be valued, but calculus or trionometry itself has no value that ever can be associated with it.
 
 so, if one wants to feel compensated for their efforts, they want to feel invaluable -- but they're trying to feel invaluable by being valued; so, not really their best efforts to get compensanted for their desire to feel invaluable :)
+
+also, this falls right into the general category of: "I need or want something to be different so that I can feel good (about myself)"
