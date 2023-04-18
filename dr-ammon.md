@@ -32,7 +32,7 @@ almost certainly they know that every thing is constantly transforming into some
 > if this is all about reason, then I should be able to prove the magic ([ref](https://youtu.be/PGGKe3V3XYk?t=2668))
 
 have you ever been in a situation where someone who is a doubter wants you to perform something they don't believe in?
-it's difficult, cause they don't have *faith* :)
+it's difficult, cause they don't have *faith* (evidence of things unseen :))
 
 ### 2023-04-17 18:16 - vowels as tones
 
