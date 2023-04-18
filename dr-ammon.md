@@ -26,3 +26,10 @@ the ion of ions is just the thing that came before the present ion -- or, said a
 
 what the church is doing, is like selling icecubes to eskimos: you already have an abundance of the thing they're selling you. they're just exploiting ignorance by withholding knowlede; that's all.
 almost certainly they know that every thing is constantly transforming into something greater than it previously was -- cause why else would they ban alchemy? alchemical principles show that eternal life and continuing expansion is a property of all forms of matter. so if an base substance can be turned into something greater without having to pay for it or earn it in some way, their entire sham falls apart.
+
+### 2023-04-17 18:08 - if this is all about reason...
+
+> if this is all about reason, then I should be able to prove the magic ([ref](https://youtu.be/PGGKe3V3XYk?t=2668))
+
+have you ever been in a situation where someone who is a doubter wants you to perform something they don't believe in?
+it's difficult, cause they don't have *faith* :)
