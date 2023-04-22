@@ -13,6 +13,16 @@ it just seems that way... the broad road is the one that everyone travels on, bu
 
 it sure seems that way, but I don't know the ancient greek so I can't really comment on the verbs and how they're used.
 
+### 2023-04-22 06:00 - tomb stones
+> is the illusion of rolling back the stone to an empty tomb referring to moving poop out of the way?
+
+cause if that's the case, when paul says that jesus was "in the tomb", it means that he was living by his "greatest command of all". seems logical
+
+### 2023-04-22 06:04 - cock crowing
+> is cooking the cock in a bronze/brass vessel referring to gay sex?
+
+here's the reference: @[youtube](https://youtu.be/PLKMcIz8Vd0?t=2827). bonus questions include the meanings of a "trumpeteer gave a sign", and "some wine poured under the table" or "sprinkled on the lamp". thoughts?
+
 ### 2023-04-17 21:22 - garden of eden
 
 are you suggesting, that the cataclysmic events described when adam and eve are kicked out of the garden of eden happened because someone used snake venom (drugs) and sex to reach an enlightened state where we could perceive *reasonably* the difference between good and evil?
