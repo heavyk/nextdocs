@@ -2513,6 +2513,12 @@ so, I'm going to work toward that goal of figuring out how to get my genetics up
 
 however, upon thinking about it a lot last night, I noticed that there were reactions as to wanting to see how I would interact with girls, as right now I don't really interact with them. I mean, it's not a problem with me to interact with them, and I likely will as we're building this technology to do the genetics, cause that's totally fine -- and then when it comes to the time to make that decision, we can make it -- but I know from experience that massive burst of good-feeling isn't all that awesome, and what's *actually* really enjoyable is to constantly be feeling better and better. after some months or years, (I know this sounds funny to say), but we may be feeling so good that the idea of sex feels inferior to the way we now interact with eachother. (just saying: we don't konw how future technology can enable us to interact with eachother in more and more intimate ways)
 
+### 2023-04-22 19:57 - the coming power structure
+
+(from the girls' perspective): "we don't want you to have universal perspective, cause when you do, you no longer need/want us"
+which, of course means that they want others to treat them in a way which prevents them from having universal perspective, as well.
+which, of course attracts a power structure that can satisfy their desire for *nobody* (not even theirselves) to have a universal perspective.
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
