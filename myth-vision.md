@@ -12,3 +12,27 @@ so anyway, what ends up happening here on physical earth is symbolically lived o
 
 the thing is, that because of how frequencies work, shakespere 400y in the future of the death of historical jesus can influence the rendering of those symbols during the time of the actual death. therefore, all of the varying different stories of the expereince of jesus occurred and were experienced simultaneously and are all going to be directly influenced by symbols and motivfs of the literary works that the experiencer has engaged in. therefore, literary works and the poet of today is shaping how future generations will perceive the symbols experienced here on earth; and, likewise the symbols and motives/motifs that are produced here, are the realities that are attracted here. what I mean, is the 3 days motif of agamemnon's body, and 3d of tomb sex, etc. are creating the form into which the neuma of the idea will take shape here (to say it in thoth terms).
 the beauty of this whole ordeal is that *I* get to see the symbols however I want to, and so does everyone else. they and all of their literary workes create the symbols which manifest in my reality, and att the same time, you all get to experience the symbols the way that you all want to: some people will see the generalised action (like "pulls out big dick moves, then writes a poem") while others will see specifics. it's all really nice from my perspective. once you understand thoth (coming soon), it'll all make sense how awesome it is.
+
+### 2023-04-22 22:56 - world peace
+
+[watching rabbi tovia again](https://youtu.be/KnV6yE339Hk), and I was thinking about the idea of "world peace" cause religions have a tendency (and I'm not picking on anyone in particular) to make it about *works* -- "and you shall know them by their fruit" -- sort of thing, but for example the 1 corin 13 is a super duper good example of this. it tells us that Love is:
+- patient
+- kind
+- does not envy
+- does not boast
+- *is not proud*
+- does not dishonour others
+- *not self-seeking*
+- keeps no record of wrongs
+- does not delight in evil but rejoices in truth
+- *always protects*
+- *always trusts*
+- always hopes
+- always perseveres
+- *never fails*
+
+here's the problem with that: a loving person can easily be kind, but a kind person isn't necessarily loving. likewise with proud, and not boasting either, as a loving person can also be a person that is proud or boasts -- which therefore means that for someone to be the embodiment of Love, they would have to have *all* of those qualities (which is pretty impossible). to top it all off, it says that "love never fails" -- when, the human condition is to fail and all things have their time and season, a sort of ebb and flow -- which means, it's *literally* impossible for anyone to ever achieve such a metric, ever.
+
+likewise, world peace is also such an impossible task: in order to be able to experience world peace, one would need to tturn off the news (also helps for keeping no record of wrongs) and also find peace inside theirself, before they can see the world as peaceful (like, if you're angry, doesn't the whole world look angry?). I'm not at peace with the world, I'm not at peace with myself. the messiah, cannot *ever* make world peace, because it's not within the capability of anyone to be able to force someone to be at peace with theirself; so that world peace can happen.
+
+it's literally impossible for this prophecy to ever work out. it looks to me like a carrot dangling in front of the horse. what I have to wonder though, is how much "prophecy" is based in wishful thinking (desire) for a manifestation from YHVH? -- when, in fact these petitions to have god force a set of works on a person or group of people voilate the basic free-will and human agency which "God" supposedly granted us (minus all of the slavery stuff) in the first place.
