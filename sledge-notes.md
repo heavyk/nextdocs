@@ -211,5 +211,15 @@ therefore, because saturn's perception of the forms is constantly limited by his
 therefore, it makes sense to me now the story of thoth and saturn battling it out, which inevitably produced a lot of physical (semen) and desire, which thoth then turned into reality in the form of story, narrative and writing, as a way to explore those archetypal forms in a narrative way: cause it's easy to see when a story doesn't resonate with people -- meaning those forms/archetypes aren't part of people's "reality" they're used to.
 in that way, it's also easy to see that the "glass ceiling" for the collective consciousness is actually only as vibrant as (as a reflection of) saturn's emotions. as he starts to lower resistance to some concepts and ideas, he starts to *receive* (and see) more of those symbols appear in all aspcets of reality: atoms/cells/formulas/etc.
 
+#### 2023-04-23 22:52 - non-physical emitters
+
+when I wrote this, I couldn't see how tthe non-physical emitter (like jupiter) was operating. I described it as reflecting back all the stuff that doesn't pass through the seeming holes -- but I'm pretty certain that's wrong. emitters receive one energy and tthen transform it a bit and output a different spectrum of energy.
+
+the way I've come to look at it now is basically like this: jupiter and venus are essentially the same as they both receive symbol, cept jupiter will output concepts, meanwhile venus will output symbols again -- and I don't believe she'll do much transformation on the symbol, but just reflect it back -- so for example if she receives a cube and wants you to have an octahedron, that's what'll get output (still non-physical), however, for jupiter, he'll output something entirely different -- anything from 3rd ray down to 7th.
+anyway, what I'd like to show is that venus isn't manifesting anything -- but just sort of transforming one symbol into another (based on a mythology, or narrative, or prophecy), and it's us that do the manifestation. however, jupiter will also turn one symbol into another just like venus, but he'll also turn some of that symbol also into a manifestation as well (again, based on narrative or mythology, or some beilef); meaning, that he can turn that into real physical matter. this manifestation into physical through belief/narrative is the order of magic.
+as an example, let's say that jupiter is receiving a whole bunch of signal. some signal has symbolic form, and so those symbols are received/absorbed, and then output again as light/radio/electromagnetism (all stuff 5th ray). the stuff that's not caught, just carries on through and becomes desire. as you can tell, jupiter is essentially the way that all of physical matter works.
+
+it's likely also jupiter's emission properties were the way that venus was created: think of the solar system's adam as thoth/mercury, and so jupiter created venus/eve (-3) for mercury (+7) as a sort of helper; she'll reflect back to mercury his own symbols as their perceived in her perspective of our reality narrative we're living.
+
 ### cupid the iron maiden
 ### thoth, god of magic :: accomplished through writing and narrative summoning
