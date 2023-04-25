@@ -64,3 +64,14 @@ obviously, that creates for a lot of confusion, cause everyone is seeing a sligh
 yes, so you can see pretty easily the original problem here is religion in general, and -- their desire to keep these narratives going as a way to keep people placated. it comes from disempowerment: we all believe that we're all so insignificant that we need something greater than ourselves to believe in because we can't believe in ourselves.
 it's OK though, because if we taught children (like I was taught) to just believe in yourself cause that's what mom, dad, or society expects from you -- then, when something goes wrong, because beilef in oneself isn't everything, you'll have (like I did) a chance to figure out why you actually believe in yourself -- and then you can prove *to yourself* that you are who you believe you are. (belief isn't everything, because reality is a reflection of your concepts about the world, which are formed out of *how you feel* + your beliefs)
 therefore, it's quite OK to have a bunch of petty morons telling everyone to believe their nonsense. it won't be long until people aren't falling for their nonsense anymore. learning for oneself what a person *wants to believe* ( the blue pill) is always better than getting ttold and blindly believing what someone else *tells you to believe*.
+
+### 2023-04-25 02:34 - thory: jesus = theudas?
+
+@[youtube](https://youtu.be/U_JiSKIkFkI?t=2057)
+
+in that account of joesephus (JA 20 169-172), felix attacks the egyptian and kills 400 men. compare that now to acts 5:36:
+
+  36 For before these dayes rose vp Theudas, boasting himselfe to be some body, to whom a number of men, *about foure hundred*, ioyned themselues: who was slaine, and all, as many as obeied him, were scattered, & brought to nought.
+  37 After this man rose vp Iudas of Galilee, in the dayes of the taxing, and drew away much people after him: hee also perished, and all, euen as many as obeyed him, were dispersed.
+
+the next verse there must be the same as the "robbers" in galilee from josephus' text as well.
