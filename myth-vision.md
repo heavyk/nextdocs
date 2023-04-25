@@ -36,3 +36,19 @@ here's the problem with that: a loving person can easily be kind, but a kind per
 likewise, world peace is also such an impossible task: in order to be able to experience world peace, one would need to tturn off the news (also helps for keeping no record of wrongs) and also find peace inside theirself, before they can see the world as peaceful (like, if you're angry, doesn't the whole world look angry?). I'm not at peace with the world, I'm not at peace with myself. the messiah, cannot *ever* make world peace, because it's not within the capability of anyone to be able to force someone to be at peace with theirself; so that world peace can happen.
 
 it's literally impossible for this prophecy to ever work out. it looks to me like a carrot dangling in front of the horse. what I have to wonder though, is how much "prophecy" is based in wishful thinking (desire) for a manifestation from YHVH? -- when, in fact these petitions to have god force a set of works on a person or group of people voilate the basic free-will and human agency which "God" supposedly granted us (minus all of the slavery stuff) in the first place.
+
+### 2023-04-25 01:06 - paul and saul
+
+another theory here: in [your interview with lena](https://youtu.be/e6BExOv8WRg), she makes a far-out claim that paul is the egyptian. you ask her about the paul calling himself saul thing. so I looked it up. I believe that if her theory of the egyptian being jesus is correct, then when God refects the egyptian as the messiah, it's the same story as God rejecting saul and putting in david instead. in fact, it states it quite plainly in Acts 13:
+
+  17 The God of this people of Israel chose our fathers, and exalted the people when they dwelt as strangers in the land of Egypt, and with an high arme brought he them out of it.
+  18 And about the time of *fourtie yeeres* suffered he their maners in the wildernesse.
+  19 And when he had destroyed seuen nations in the land of Chanaan, he diuided their land to them by lot:
+  20 And after that he gaue vnto them iudges, about the space of foure hundred and fifty yeeres vntill Samuel the Prophet.
+  21 And afterward they desired a King, and God gaue vnto them *Saul* the sonne of Cis, a man of the *tribe of Beniamin*, by the space of *fourty yeres*.
+  22 And when *he had remoued him*, hee raised vp vnto them Dauid to be their king, to whom also he gaue testimonie, and said, I haue found *Dauid* the sonne of Iesse, *a man after mine own heart*, which *shal fulfill all my wil*.
+  23 Of this mans seed hath God, according to his promise, raised vnto Israel a Sauiour, *Iesus*:
+  24 When *Iohn* had first preached before his coming, the baptisme of repentance to all the people of Israel.
+  25 And as Iohn *fulfilled his course*, he said, Whom thinke ye that I am? I am not he. But behold, *there commeth one after me*, whose shooes of his feete I am not worthy to loose.
+
+here, it seems pretty obvious to me that he's equating saul *from the tribe of benjamain* with himself, because God removed/rejected him and wanted instead someone after his own heart, from the line of david. -- therefore, we can read the parallel: the egyptian served for 40 years (as [the gravestone for tiberius pantera](https://en.wikipedia.org/wiki/Tiberius_Julius_Abdes_Pantera) says), he then gets sidelined by God so that david/jesus can come to power -- which is then a parallel to john preaching in the wilderness to announce the arrival of jesus. what do you think?
