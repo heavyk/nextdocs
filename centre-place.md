@@ -1,0 +1,87 @@
+# centre-place
+
+[a yt channel](https://www.youtube.com/@centre-place) with a lot of great lectures
+
+### who was king david?
+
+@[youtube](https://youtu.be/fcBnok1c-m8)
+
+- depicted with a harp (sorta like apollo)
+- same-sex relations (apollo, lol)
+  - notably with johnathan, son of *saul*
+- involved with the "deuteronomic history" narrative goal:
+  - promoting worship of *only* YHVH (marketing)
+  - *centralising* only YHVH worship into the temple site in jerusalem (economic)
+  - suffering is happening because the isrealites are not folloing the marketing and economic policies
+    - fall away, punished by foreigners, judge gets them back on track
+  - Joshua carries forward the ministry of moses, leading them forward as conquerers (like the HRE?)
+  - Judges describes the israelites as living without a king, but lead by tribal judges (like the protestant church?)
+  - 1&2 Samuel is the story of the final judge (and great prophet), who *annoints* israel's first king, *saul*.
+    - *saul* initially prospers, but then "disobeys" God, and so samuel is to annoint david as new king
+    - david kills goliath, becoming a war leader, and takes office after the death of *saul*
+  - 1&2 Kings telds the story of the death of david, and his successor solomon (who builds the temple).
+    - the kingdom of saul, david, and finally solomon is divided into two parts and is destroyed by the assyrians (721bce), then the bablyonians (587bce)
+- narrative leading up to david:
+  - the judges thing isn't working out so well, and the isrealites want a king; all the other nations have kings, and they want one too.
+  - samuel warns against having a king:
+    - take your money with taxes
+    - make all of your sons soldiers for war
+    - take your daughters to be concubines
+  - samuel complies, appointing *saul* from the tribe of benjamin.
+    - because, he was the most handsome, and really tall (giant?).
+      - later, I wonder if this plays into a measuring contest that david has with saul: I don't think david is as tall as saul is, so when he defeats goliath, that's a symbolic, coming of stature to be a great king.
+  - saul and his son johnathan are very successful in battle, defeating many of YHVH's "enemies"
+    - they're supposed to destroy all pagan (non-YHVH) tribes, exterminating all of their women, livestock, and children, etc. (to ensure no genetic input from them?)
+  - because of saul's failure to follow the extermination command of YHVH (it feels like he's a bit too merciful, or maybe even not wanting to be so brutal against innocents), so YHVH rebukes saul through samuel.
+  - samuel seeks out a replacement for saul, and finds a shepeherd boy, david.
+    - he's also very handsome, and has beautiful eyes (prolly not as tall though).
+  - saul has david (unknown that samuel has annointed him to replace saul), to play the harp for him to soothe him from an evil spirit *from YHVH* that's plaguing him (YHVH sounds kinda manipulative here; reminds me of hera).
+  - philistine army challenges israelites to single champion combat (very illiad-esque)
+    - david is offered saul's armour (used to show the hero in his glory, in the illiad), but rejects it
+    - he uses his shepherd sling and some stones from the brook (probably symbolic)
+    - the short underdog takes down the massive boasting beast, and so now he's *proven himself* in the spectacle as worthy to replace saul as king
+  - killing goliath fires up johnathan pretty hot and they become "soul-mates" as david's reputation grows (reverse achilles and patrocles?)
+    - david also marries one of saul's daughters michal
+      -- soul-mates with saul's son, and married to his daughter (besides being a bit awkward) means he's in the royal family circle now.
+  - saul becomes jealous of david's rise in power and favour with his family, he tries to kill david unsuccessfully twice (like menelaus unsuccefully tries to kill paris?)
+  - david as a sort of noble knight:
+    - fleeing from saul's court, david joins a group of mercenaries (aided by johnathan)
+    - david twice has power to kill saul, but decides not to (he's a good guy), even though saul (the bad guy, fallen out of favour of YHVH has been trying to kill him)
+  - david becomes king of judah then isreal:
+    - philistines kill saul and most of his sons (including johnathan)
+    - david becomes king of judah (the small part)
+    - saul's surviving son which is runing over (the larger part) of israel gets betrayed by his servants, and so then david becomes king of judah and also isreal, uniting the two regions
+  - david makes capital jerusalem:
+    - conquers jerusalem from jebusites
+    - brings ark of covenant from baale-judah to jerusalem and plans to build a temple there.
+    - YHVH explains that david's son (solomon) will actually build the temple, not him.
+  - YHVH makes the "davidic covenant":
+    - I took you from low to high (you're nothing without me)
+    - I've been there for you (trust me)
+    - I've defeated your enemies (your power is my power)
+    - I'll make a great name for you (I'll give you glory)
+    - I'll establish a place for my people where they can live undisturbed (I'll give you security)
+    - no longer will bad-guys oppress you (I'm your protection)
+    - I'll give you rest from enemies (go ahead and kick back; I've got this)
+    - after you're dead, I'll raise up one of your sons,
+      - and I'll establish *his* kingdom (you're not worthy)
+      - and *his* kingdom will be forever (cause yours is gonna fall apart -- and it's also a safety net in case his falls apart too because even if his kingdom comes and goes a few times -- don't worry, it's "forever" -- says YHVH)
+      - I'll be a father to *him* and *he* will be a *son* to me (undoubtedly I'm setting a good example of this father thing)
+      - when *he* does wrong, I'll punish him with losing that kingdom (remember that "forever" thing)
+      - my favour won't depart from *him* as it did with saul, cause *your* house (which your son will establish), will endure "forever"
+      - and this is my covenant with *you* (though I really mean one of your sons)
+  - david's court is a mess:
+    - david falls for bathsheba, and abuses his power to kill her husband off in battle
+    - david falls prey to politics of competing wives and sons
+    - davids's son (amnon) lusts after and rapes one of his other daughters (tamar)
+      - david does nothing about it
+      - tamar's brother (absolom) kills amnon while he's drunk
+      - david doesn't punish absolom for murdering amnon
+      - absolom sets himself up as king in judah, forcing david to flee to jerusalem
+      - absolom takes over and sleeps with david's concubines
+      - civil war starts and david is still saying to "deal gently with absolom" (wtf?)
+      - handsome and beautiful absolom dies when his (flowing and beautiful) hair gets caught in the branches of an oak tree, and david's servants kill absolom against david's orders (symbolic)
+      - david mourns absolom's death
+    - court intrigue continues and david is too aged to lead army against the philistines
+  - bathesheba (his favourite wife), convinces david to name her son solomon as the heir
+  - david dies, and so soloman executes half-brothers and ascends to the throne.
