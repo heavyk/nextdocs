@@ -87,3 +87,12 @@ so, getting back to the example here: the reason why the kids (or whomever) is m
 if I want the conditions preventing my task to improve, I could try and manipulate conditons by disempowering things that are preventing me: make a few laws perhaps: "no children in the laundryroom while I'm doing laundry" -- but children aren't robots, but more like mostly-pure reflections, until they get older and and are taught to behave like someone else (actor), or taught how to behave for theirselves (fool,gold); therefore, they're always going to behave pretty closely to one's expectations/beliefs (within their capacity to do so). adults are obviously more complicated because they are almost all actor/charactors, and almost never reflectors.
 so what ends up happening is that we think we need to create narratives/sequences/codes/programs/protocol for how things should work to avoid disaster (most commonly seen in workplace), and that's supposed to solve the problem, but it just increases resistance because then we're trying so hard to follow protocol/syntax for the operation, that we're using up a lot of that creative brainpower to follow the protocol, instead of receiving creative impulses, cause it's those creative impulses that cause humans (especially kids!) to misbehave and operate improperly.
 therefore, let me disempower *you* and make sure *you* avoid doing something that *I'm* attracting. I'm only disempowering *myself* when I do that, and that's why *I'm* so tired and worn out all the time.
+
+#### 2023-04-25 17:11 - some examples
+
+> I don't want you to have X, cause you aren't behaving the way I want you to behave.
+
+the hebrew bible is filled with examples like these: for example saul does not completely exterminate the neighbours like YHVH wants, so YHVH sends evil spirits to torment saul while david is moved into place to take over kingship from saul (one example).
+domestic examples abound as well: "I don't want you to go drinking with your buddies because you're not there for me" or "I don't want you to have lunch with such a guy, cause it looks like you're cheating on me" -- endless examples, too numerous to enumerate even a fraction of them.
+
+> you need to behave X way so that that Y can go smoothely.
