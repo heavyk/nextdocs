@@ -21,7 +21,7 @@
     - david kills goliath, becoming a war leader, and takes office after the death of *saul*
   - 1&2 Kings telds the story of the death of david, and his successor solomon (who builds the temple).
     - the kingdom of saul, david, and finally solomon is divided into two parts and is destroyed by the assyrians (721bce), then the bablyonians (587bce)
-- narrative leading up to david:
+- narrative around david:
   - the judges thing isn't working out so well, and the isrealites want a king; all the other nations have kings, and they want one too.
   - samuel warns against having a king:
     - take your money with taxes
@@ -85,6 +85,66 @@
     - court intrigue continues and david is too aged to lead army against the philistines
   - bathesheba (his favourite wife), convinces david to name her son solomon as the heir
   - david dies, and so soloman executes half-brothers and ascends to the throne.
+- a rich but embarrassing story
+  - why would they tell such an unembellished story?
+  - historians argue that david's story is more likely to be historical because of "criterion for embarrassment"
+  - nevertheless, archeology has pretty clearly demonstrated tthat a "united kingdom of israel and judah" under saul/david/solomon is a myth
+
+### lost 10 tribes
+
+@[youtube](https://youtu.be/0wwVfAQ2-hc?list=PLEnqfPnCRxLKqM_A7vmYc9xZ2xZcg-itw)
+
+- the philistines had come as sea peoples, as invaders from mycenean and greek locations (which is why goliath is displayed like a homeric greek hero in more-or-less greek armour)
+  - as often happens when an elite group comes and takes over, they adopted the local language and customs of the majority (cananite) population
+- the 12 tribes narrative is likely a constructed courtly narrative
+  - jacob works for 7 years for one beautiful wife and ends up with 2 wives and 2 handmaidens. (notice the doubling)
+    - it's also interesting to note the weeklong lovemaking with leah, which is a kinda parallel to enkidu in epic of gilgamesh -- so then if upon receiving rachael, he ignores leah for another weeklong, this is enkidu's second weeklong of further domestication
+  - jacob then has to work another 7 years (and presumably this is when the birth of the 12 sons take place)
+  - with leah, the first but "unloved" (1)
+    - reuben (1): "see, a son" / "he has seen my misery" (hopefully he'll love me now)
+    - simeon (2): "one who hears" (he heard that I'm not loved)
+    - levi (3): "attached" (hopefully he'll attach himself to me)
+    - judah (4): "praised" (hopefully, he'll praise/acknowledge me)
+    - her character is:
+      - attachment and dependency
+      - she's sets the tone for the "first" or "not as attractive as the others" type girls.
+      - she's in constant competition with the other wives, claiming she's "unloved", yet she bears the most children and has an entire bridal week dedicated to her. I mean, jacob supposedly "didn't know" he was sleeping with her (jacob wasn't blind; rachael is obviously more attractive, so I'm sure he noticed, but chose to go along with it anyway). and then, even after making the deal to get rachael too, jacob still finishes the bridal week with her anyway. the unloved bit was in her head, cause she thought herself as less attractive.
+  - rachael (the attractive one) is upset that somehow 4 children have been born to her rival (and less attractive) sister, so she gives her handmaiden bilah to jacob to have children for her (vicarious accomplishment?)
+  - with binah (2):
+    - dan (5): "I'm vindicated for my efforts"
+    - naphtali (6): "my struggle" / "I won"
+    - her character is:
+      - portrayed through leah (sort of like a puppet/servant), as someone who can vicariously vindicate the injustice of rachael's inability to conceive
+      - someone who can vicariously perform an impossiblity for someone else (like having children for them) and achieve the goal/desire
+      - essentially: because of racheal's struggle, beliah is her ability to perform the impossible, and vindicate herself (cause leah is supposed to be the best, most attractive one, and she's being shown up by her unattractive sister)
+  - now leah sees that bilhah has successfully produced two sons, so, she doesn't want to be outdone and gets her handmaiden/servant to also even mo produce more heirs for her
+  - with zilpah (3):
+    - gad (7): "good fortune"
+    - asher (8): "happy"
+    - her character is:
+      - portrayed through leah, who's already successfully had 4 sons, she's abundance or extra for team leah.
+  - seeing the success of her handmaiden/servant zilpah, leah gets motivated again (mandrakes, are said to be the cause, but obviously this is a result of the abundance/extra from zilpah)
+  - with leah, now abundant (1):
+    - issachar (9): "reward"
+    - zebulon (10): "honour"
+    - her character is now:
+      - she gave up her competition, it looks like when she offered her servant zilpah to jacob
+      - as a result of finally giving up that competition, she now feels rewarded for her having been able to allow her servant/inferior
+        - remember, she has "first" complex, being the older one who (undoubtedly) had the idea to compete with her sister and pull the sneaky switcharoo after jacob's 7 years of work
+  - finally, rachael decides that she wants to get on the abundance bandwagon and allows herself conceive
+  - with rachael, the last (4):
+    - joseph (11): "may he add" / "I also want abundance"
+      - manasseh (11a): "to forget" / "to lose"
+      - ephraim (11b): "twice/double fruitful"
+    - benjamin (12): "son of my trouble" -> "son of my right hand"
+  - final score: leah/zilpah (8), rachael/bilhah (4-5) (notice the 8/5, venus ratio there)
+  - interesting themes:
+    - joseph is favourite, but sold into slavery, yet his two sons yield double (and the largest) area in israel (even ephraim means twice/double fruitful)
+    - benjamin (the new favourite) comes at the cost of rachael's (his favourite wife's) life; transforming his name from "son of my trouble" to "son of my right hand"
+    - joseph is essentially the last, and like levi, doesn't get a portion, however his two sons get the bigger portion of israel.
+    - joeseph has the parble of job built into his son's names
+    - joeseph, like the drought and plenty which happen in egypt later comes is a product of rachael (the attractive one) finally letting herself accept abundance/fruitfulness (and it took watching her sister leah figure it out first). it's no doubt that joeseph was so favoured and why the other brothers competed with him because he was like the golden child.
+    - rachael's second son, benjamin isn't so much about prosperity as joseph, but about completion and finishing; him being born finally, at "the end".
 
 #### 2023-04-25 19:21 - YHVH a reflection of david
 
