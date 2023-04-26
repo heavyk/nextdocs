@@ -89,6 +89,36 @@
   - why would they tell such an unembellished story?
   - historians argue that david's story is more likely to be historical because of "criterion for embarrassment"
   - nevertheless, archeology has pretty clearly demonstrated tthat a "united kingdom of israel and judah" under saul/david/solomon is a myth
+- northern kingdom was called "house of omri"
+  - one of omri's sons was wicked king ahab, and his wife jezebel (who worshipped jupiter/baal)
+- deuteronomic history does not date to the era of david, but to the period after the fall of the northern kingdom of israel (house of omri)
+  - jerusalem experiences a sudden explosion of building projects
+  - correspondingly, lots of literary works, resulting in the biblical source texts
+    - dr-ammon says that the hebrew/phonician text was a back-translation from greek, so (if that's true) I wonder if it was during this time that greek was abandoned and hebrew/cananite language made the official with these literary works
+  - this activity corresponds to the reigns of the later davidic kings: hezekiah (715-686), manassah (687-643), josiah (640-609), etc.
+    - not to the reign of david and solomon
+    - it does make sense that these mythological narratives *did* happen, but not here on earth, as earth would be the alternate timeline of significantly more external difficulty (idea incomplete)
+
+
+
+#### 2023-04-25 19:21 - YHVH a reflection of david
+
+one thing I'd like to point out is not how YHVH's covenant is with david, is a reflection of YHVH, but actually of david. we can learn a lot about david's character through the way that YHVH's "unconditional" covenant is presented (a bit like a dysfunctional parent, imo): "I know you're going to continually let me down, but know that I'll still *always* love you".
+
+we see these YHVH's fatherly compassion on david as a mirror of david's fatherly compassion on his son absolom.
+
+### 2023-04-26 03:59 - another timeline reflection
+
+@[youtube](https://youtu.be/fcBnok1c-m8?t=3940)
+
+in my notes above, I noted that that the later date of the the literary creation of the biblical texts, being off by about 200y or so seemed to make sense to me intuitively. I couldn't really figure out what it is until I saw that timeline there, as it seems pretty clear to me that what used to be this mythological davidic and solomonic kingship at the height of the solar cycle (~1000y before the jesus thing) the greek dark ages are occurring, which corresponds with the "bronze age collapse"...
+
+so, let's say that the collapse was the peak of the solar cycle, and the massive upheaval was actually a *solar* event (and santorini and all other conflagrations and such were secondary effects) -- then, what I can see is that the "exodus" (which is another thing that seems to have little archeological evidence for millions of people going through the desert) would fall right in to the time frame of extreme solar activity and destruction.
+
+I'm still working out the details of how it works, but what seems to happen (from what I've gathered) is that the increae in solar output causes people to become aware of a "light body" or some other existence in the astral plane somewhere else. they seemingly live there and experience normal earth in a dream-like reality -- so what I'm insinuating here is that the davidic and solomonic stories *did* happen, just in that alternate dream-reality (lyra/vega). however, it seems that some people which are astrally aware enough are able to find theirselves back on earth here somehow and they seemingly bring those memories with them. I don't know if they get sucked into incarnation through birth or if they inhabit/walk-in to bodies (or both) or if they just materialise out of nothing; really not sure about any of this because I don't experience the other world, even though I seem to have some awareness of it.
+
+anyway, the idea here of the time shifting, is it looks like everything is about 150-200y off, which means that the "dark ages" there were actually not experienced because that 200y gap would have synchronised symbolically (through the literary works and the construction projects in jerusalem) to the previous solar maximum, allowing them to be connected in time. the big-picture of how all of this time compression is done isn't fully clear yet, but I'm going to keep writing about it until I "figure it out" (ie, manifest it as "reality" for me -- which is all that matters, btw)
+what I can say though is that it seems that there are two components to it, which one of them always seems to be a literary connection between the timlines, where one timeline is going along at double the speed (almost certainly the one I'm on), and this double speed timeline is the one of the "weeds" -- those that can survive and thrive under the most adverse conditions. I'm reminded of joseph and job here because it looks like constant tragedy and loss, but in the end, it's always given back as double (time?). like I said, I don't fully get it yet.
 
 ### lost 10 tribes
 
@@ -139,15 +169,17 @@
     - benjamin (12): "son of my trouble" -> "son of my right hand"
   - final score: leah/zilpah (8), rachael/bilhah (4-5) (notice the 8/5, venus ratio there)
   - interesting themes:
-    - joseph is favourite, but sold into slavery, yet his two sons yield double (and the largest) area in israel (even ephraim means twice/double fruitful)
+    - joseph is favourite, but sold into slavery (lost), yet his two sons yield double (and the largest) area in israel (even ephraim means twice/double fruitful). joheph turns 12 -> 11 -> 13.
     - benjamin (the new favourite) comes at the cost of rachael's (his favourite wife's) life; transforming his name from "son of my trouble" to "son of my right hand"
     - joseph is essentially the last, and like levi, doesn't get a portion, however his two sons get the bigger portion of israel.
     - joeseph has the parble of job built into his son's names
-    - joeseph, like the drought and plenty which happen in egypt later comes is a product of rachael (the attractive one) finally letting herself accept abundance/fruitfulness (and it took watching her sister leah figure it out first). it's no doubt that joeseph was so favoured and why the other brothers competed with him because he was like the golden child.
+    - joeseph, like the drought and plenty which happen in egypt later comes is the product of rachael (the attractive one) finally letting herself accept abundance/fruitfulness (and it took watching her sister leah figure it out first). it's no doubt that joeseph was so favoured and why the other brothers competed with him because he was like the golden child.
     - rachael's second son, benjamin isn't so much about prosperity as joseph, but about completion and finishing; him being born finally, at "the end".
-
-#### 2023-04-25 19:21 - YHVH a reflection of david
-
-one thing I'd like to point out is not how YHVH's covenant is with david, is a reflection of YHVH, but actually of david. we can learn a lot about david's character through the way that YHVH's "unconditional" covenant is presented (a bit like a dysfunctional parent, imo): "I know you're going to continually let me down, but know that I'll still *always* love you".
-
-we see these YHVH's fatherly compassion on david as a mirror of david's fatherly compassion on his son absolom.
+- northern isreal was the powerful faction up until the assyrian destruction in 721bce (judea to the south was much poorer).
+- jerusalem's rise only occurs after the northern exiles move to judah in 7th century bce, where they created the biblical narrative (which may be why jerusalem is perceived so prominantly in these courtly narratives)
+- quite possible that much of the myths and stories created to honour the ancestry of this "house of david"
+- archeology shows that the jerusalem was not likely the capital of the whole united kingdom, so the stories that were created essentially were to set jerusalem and the southern kings (the smaller kingdom), which didn't get destroyed (the north did), connecting them together
+  - inotherwords, south is small (like david), north is large (like saul/goliath) and so when the northern kingdom is brought down, the southern wants to make a literary land grab (stake) to having power over the northern kingdom, elevating theirselves above the northern kingdom with literary stories.
+- in reality:
+  - all of the tribes in that area had a similar language and cultures, so it suited them to paint a picture of there being more closeness and kinship between them than there actually was.
+  - there were more than 12 tribes, as the 12 (which is really 13) is a perfect zodiacal mirror (and 12 is also related to jupiter)
