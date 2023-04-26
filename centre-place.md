@@ -85,3 +85,9 @@
     - court intrigue continues and david is too aged to lead army against the philistines
   - bathesheba (his favourite wife), convinces david to name her son solomon as the heir
   - david dies, and so soloman executes half-brothers and ascends to the throne.
+
+#### 2023-04-25 19:21 - YHVH a reflection of david
+
+one thing I'd like to point out is not how YHVH's covenant is with david, is a reflection of YHVH, but actually of david. we can learn a lot about david's character through the way that YHVH's "unconditional" covenant is presented (a bit like a dysfunctional parent, imo): "I know you're going to continually let me down, but know that I'll still *always* love you".
+
+we see these YHVH's fatherly compassion on david as a mirror of david's fatherly compassion on his son absolom.
