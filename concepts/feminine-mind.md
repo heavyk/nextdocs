@@ -63,3 +63,35 @@ I like me, and I like how I feel, much more than I like how others feel. others 
 I write very interesting ideas in very circuitus and lots of swoops and doops that seem to sort of dance with the music and I'm writing this. I love how I write because I can see patterns like orbitting concepts around each other, where each sentence is a note that summon these concepts into the orbit, and at times take them out, change the scenery, or twist them a new way. order then chaos; then back.
 so here's the thtting about punishment, which is that punishment doesen't exist for me, so mom's concept was very strange for me to feel. it was an interesting little spin into the feminine-mind a bit, because I see it not like that, at all. I just like to feel good, right, and I don't want to feel great because of some condition.
 
+### 2023-04-26 15:01 - things that bother me about others
+
+whenever something bothers me about something someone else is doing (or how they're feeling), these are things that I recognise in myself that I don't like. so, for example, let's say I see someone stealing -- and that really bothers me: I say,
+
+1. "they're getting something for free"
+2. "they're getting something they didn't earn/pay for"
+3. "they should have to do X effort (like me) for that"
+...
+
+and so, it's clear when looking at my own reaction to the action that them stealing isn't *really* the problem here; that's just illuminating some of my underlying perception regarding injustice or unfairness -- and that's *really* where the problem is.
+
+my goal is to be able to allow others to behave anyway that they feel like, and that shouldn't bother me -- because it's all attraction: the person they're stealing from will always have a feeling of insecurity or less-than, and they're always going to be justifying their theft in some way:
+
+1. "I can do something great with this"
+2. "I need this more than them"
+3. "they've got more than enough; they can spare some"
+...
+
+each of those are perceptions which all resolve to the general case of "I don't have what I want/need, so I have to do something about it" -- aka. justification. and we make those justifications for our actions all the time. I don't recommend it though, as for me now, I don't really justify my actions so much anymore and instead just do whatever I feel; then, trust that what others are attracting is matching my actions. I quite like it like that, because whatever difference from "normal" I notice in my actions, I can perceive easily as a reflection of how I feel/perceive or in the feeling/perception of someone else engaged in the situation. sure, I'm quite easily influenced by others (like a child), but I'm not incapable of leaving a situation that doesn't feel good, so it gives me a good sense of how others around me feel and perceive the world (which then I can transform, because I've learned more optimal ways of perceiving a lot of bad-feeling perceptions/concepts)
+
+the next thing to note here, and this is *really important*, which is after my sensitivity has risen sufficiently I feel how others feel pretty easily (and it also makes me have even a sense of what they're thinking, too). so, when I feel another person and they feel good, it's fine (but it's not how I *really* feel). when I feel another person, and they feel bad; well, again, it's not how I *really* feel, but it is a feeling that I *resonate with*; which means that I can feel that feeling. the way that they feel also is associated with some underlying concepts/perceptions as well, which (unlike the action case where I think those reactionary thoughts), this time I have tto do a little work and figure out what are the underlying perceptions which cause me to resonate with that thought.
+it does take a bit of effort to turn that feeling into something of a thought, and because this is the skill I'm developing now, I don't really have much more than basic theory on optimal way to improve these, but the basic idea here is this: those bad feelings are reflective of a symbol, and so it's my belief in that symbol which is actually causing the problem.
+  an example of this could be "nice guys finish last" and so if I see a "nice guy" having some unfortunate result to his effort, that could make me feel bad -- right, so it's once again the classic conditioning that we get from these stories and narratives handed down to us from on high, where we're bombarded with stories that bring these symbols to life in vivid form -- which upon careful inspection, a nice guy has nothing to do with what he's attracting at all, so it's a completely artificial construct. everyone finishes the location that they attractt.
+  I used this example, because personally, I try to "finish last" -- as it's part of internal "make up" -- cause if I'm trying to finish first, then I'm looking at it differently. you know, I'm reminded of [rachael vs leah](/centre-place.md#lost-10-tribes) where rachael has the "last" perspective, and it takes her some getting over watching others get what they she wants, to finally let herself have what she wants -- and when she does, it's very abundant. anyway...
+
+the final aspect to this which was really important for me to learn was the concept of "how I *really* feel" -- because the way my body feels on the outside is not the same way that *I* feel on the inside. whenever a thing happens where I see one of those symbolic things happening, for example "I need/want you to do X, so that I can have/be/feel Y" is one of those things that if I don't see the symbol for what it is, and I get stuck in the details of the action or the feelings surrounding it, then my body feels really bad -- and I really notice it -- so these kinds of things are enormous alarms for me where I know that my body (which is where our recognition of those symbols in physical format is happening) feels one way about something, but *I* feel a different way.
+the reason why my body feels one way and *I* feel another way on the inside is because my body is looking all around and noticing those symbols and pointing them out to me so that I can be scared of scary things and stuff like that (all the cultural/biological/social programming), so since I'm recognising those symbols physically, my *body* feels that way as a response -- but on the inside I'm recognising and interacting with the same symbols in a more of a "sense" or "knowing" kind of way, and so that prespective is a lot different; that's how I *really* feel about those symbols. (which, if they still feel bad, means some perspective adjustment is necessary)
+
+
+
+
+feeling
