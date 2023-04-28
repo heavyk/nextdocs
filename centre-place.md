@@ -183,3 +183,84 @@ what I can say though is that it seems that there are two components to it, whic
 - in reality:
   - all of the tribes in that area had a similar language and cultures, so it suited them to paint a picture of there being more closeness and kinship between them than there actually was.
   - there were more than 12 tribes, as the 12 (which is really 13) is a perfect zodiacal mirror (and 12 is also related to jupiter)
+
+### was apostle paul gay?
+
+@[youtube](https://youtu.be/rv8DvdlDYss)
+
+- gay means an inborn attraction to same sex (not sexual practise)
+- greek culture made same-sex relations sort of normal
+  - pederasty was also normal for an older man to mentor a younger boy, who would then grow up to then mentor another boy himself. it was not shameful, and was actually looked upon as honourable (in cases where the mentor is a good example)
+- roman culture is extremely a patriarchal, and so the dominant role was always played by the strong male, and it didn't matter if the passive role was female or male
+  - the passive role (if played by a man) was seen as shameful for a powerful man; inotherwords, a powerful man would be shamed if found in a passive role
+- israelite culture had the biblical precident of david and jonathan's amorous relationship, upon which YHVH established his covenant for the davidic line.
+  - sodom and gomorrah was more about sexual violation (rape) than same-sex relationships.
+  - the levitical law forbidding same-sex relations is understood by most to apply only to the priestly class (sadducees)
+  - pharisees promoted that all jews should study and obey torah
+  - pharisees, sadducees, and essenes observed levitical law
+  - paul is a pharisee
+- second temple founded by exiles returning from babylon becoming part of the persian province of yehud
+- alexander of macedon conquered the persian empire inheriting the province of yehud (judea)
+  - important, because remember for the greeks same-sex relations are completely normal
+  - judeans reject hellenisation (as a whole), though to some extent some of the nobility accept it
+    - I actually wonder if this has been an ongoing struggle with the israelites, because it seems that the philistines were likely micynian or green, though after conquering that part of canan, they adopted the cananite customs.
+    - it seems to me that because the septuigent predates the tanakh, the duteronomic reforms were likely a way to take the cananite language and build up an identity on top of it.
+- second temple views of homosexual activity is that those are the things that the foregners (gentiles, like the greeks and romans) do, and that it was caused by looking at the pagan idols and their desirous body shapes
+- by the first century ce, judeans begun to think of the story of sodom as a command against same-sex activity.
+  - so, what if you're a judean and you have an innate attraction to youu own gender?
+- the thesis here is that paul is in a world-view that same-sex activity is unnatural and caused by lusting after the pagan gods in their iconic, perfect form depicted in the idols
+- paul is a self-proclaimed pharisee, meaning that he was supposed to observe levitical law
+- in addition to finding out about paul in his own letters, we can also look at what others wrote about him
+- paul thinks (rom 1:22-27) that those that turn the glory of God (conceptual realm) into physical images, caused them to desire the impure (physical) thing, and so began to dishonour their bodies (casually) between each other. therefore, females changed their natural relations into those contrary to nature, and males abandoning the natural relations of females, too enflamed with desire for another worked out their shame with other males (and receiving for theirselves a recompense suitable for their error)
+  - it seems to me that what he's talking about is the worship of the physical, and the inability to receive/comprehend the "glory" and knowledge of God.
+  - it really has the sense to me that is very similar to me -- and I kinda understand this because it's so easy to got caught up in a beautiful image or physicality of something that it totally blinds one to getting the real message (concept) that's behind the picture.
+  - I actually kinda really relate to this passage in a lot of ways and is one of the reason why I'm so difficult to be around girls -- which is simply that I can't hold a train of thought. it's like I can't think properly, and their physical image totally overtakes my capacity to think and feel properly. it's not their fault, right so I don't go around making them wear burkas or something -- it's my problem, so I simply stay away from tha, as it's not helpful to me. I want to actually think, reason, and learn, and not be constantly distracted by them.
+  - I can't speak for paul, but from my perspective, it looks like he's trying to take an extreme/shocking position on how much images and the physical form can distract one from the less-physical "glory" (conceptual world) of God.
+- paul seems to not understand desire or what causes a person to sexually orient one way or another, and devotes a great deal of time to it in his magum opus (romans)
+- paul also seems to want to try and explain/justify himself to others why he's traveling with younger male companions (instead of a wife)
+  - again, I can't speak for paul here, but I totally understand his perspective, as it's the same one that I have: women simply aren't productive for getting actual work done. desire for me is not usually physical or sexual. I think paul was actually trying to figure out how things work out, but his own beliefs (the announcement) get in the way of figuring it out.
+  - I also notice that paul, like me also has a tendency to try and explain things to other people. when I was younger, others made fun of me for having essentially only male companions myself, calling me gay and stuff -- and I could try and constantly prove to everyone else that I'm not gay, but that's a whole lot of effort, and it only makes it look worse anyway, so really I just let people think whatever they want. paul is so busy here on his marketing campaign, he's totally way too worried about what others think. it's interesting to see how that marketing and focus on image/optics (how one is seen by others) follows paul into the jedeo-christian world.
+- paul confesses a thorn in the flesh
+  - he admits to having been in a passive role (I believe)
+- the contrast to paul is the jacobites (jesus' brother james) who are "poor" (paul dedicates a lot of time to raising money), and also throw a bit of shade at paul with anti-gay slurs
+  - they were "just" (leviticus law-abiding)
+    - james: man is justified by *works* and not faith
+    - paul: man is justifed by *faith* and not works
+  - this movement gets exterminated by the destruction of the temple
+  - continues to be jewish
+- paul does not see the law as necessary, possibly because the law is againt same-sex relations
+- paul is in conflict with other "super apostles" claiming that they need law stuff (circumcision, etc)
+  - decides that he's fed up and wants to head west toward spain
+- jacobite critisim of paul:
+  - jude compares them to "sodom ... who in the same manner as they, indulged in sexual immorality and pursued unnatural lust"
+  - "these dreamers also defile the flesh, reject authority, and slander the glorious ones"
+    - interesting claims, because it paints the picture of paul as a sort of rebel, anti-orthodox, winging it sorta guy" (again kinda like me)
+    - "reject authority", isn't like a bad thing, ya, know.
+    - "slander the glorious ones" -- lol, sound like not-good-enoughness talking to me (and ironic cause they're almost certainly preaching against idol worship, too).
+    - "these dreamers" is probably a reflection on paul's announcement of a coming resurrection, but it's likely also to do with the heavy use of visuals and dreams (again, I refer to seriah playing with the boys here as reference)
+
+### 2023-04-28 05:54 - israelites refejection of greek/helenistic ways
+
+in the other [lecture about david](#who-was-king-david), you talk about how the entire story of saul, david, and solomon (which has same-sex love), is not very historical, and the omri were actually in the northern kingdom during that time -- making all of the origins of israel (from jacob to solomon) all kind of a mythological retelling (a view I know that [others have shared as well](https://www.youtube.com/@Biblemonger)). that entire thing is interesting because it creates a sort of tension where the main thing that YHVH promises to the isrealites is all founded on an activity that paul seems to struggle with in some way. (anyway, paul will eventually reject this law covenant, claiming that faith above works is sufficient.)
+
+what's interesting to me about this is in the explanation, I can really feel the proudness of the isrealite elites that want to try and find their own monolithic solution to all of their problems (everything from religion to culture), and in their efforts to differentiate theirselves from everyone else, they're constantly trying to herd everyone to "do the right thing" meanwhile, it's clear that not even the elites know what the right thing actually is -- and they seem to keep moving the goal-posts in their narrative of what it is to be morally upright and *just*. I emphasise just because "just" implies fairness/equality -- which is a recurring theme in the law between genders, slaves, and foreigners. "just" also implies proper treatment/punishment for actions -- which is also a reoccurring theme, and seems to be what they're continually trying to figure out -- which is how can I just get a code (like tax, moral, or computer program) which tells me the syntax for how I should behave so that I know how to work around the stuff I don't want to do, and to not step on anyone's toes for the stuff I do want to do. (I used to think like that as a child myself; it's very frustrating)
+
+in another sense, when thinking about this, I constantly have this sense that the jews are sort of like the "foil" for the nations of the world (and also to quite an misguided/misunderstood sense the "centre" as well (strange, your channel's title btw that I should bring it up)) -- and I mean it that way because a foil decides that they're going to try and get different results than the normal because they believe or *feel* differently about the same thing. that is largely how you avoid taxes and invent new things, so it's no wonder that they constantly want to be different than the norm. I mentioned centre because the centre wants to be the thing that everyone else revolves around -- but they're clearly not a centre, because they can't be competing with anyone to become the centre. a centre is there because they're the strongest in perception (above all others orbiting around). the centre is also the most generous, and least retalititory as well (you don't want impacts if you're a star or planet, cause that's bad).
+
+you know, thinking about it, this foil/centre attribute is actually quite strong amongst gays as well: they dare to be different than the norm, and hope to get different results, as well. I totally get it. I'm gonna end now.
+
+### 2023-04-28 06:54 - my take on paul
+
+my reading of 2 cor 12 is a bit complicated because I'm just starting to learn greek, but it's basically saying that paul has this great vision under very unusual circumstances. he seems to think that the romans will know what he's talking about (the visionary experience at least), and then explains, "I've got this really great message/announcement to share, but they shouldn't take me as hawty, boasting or praised too much that I've got the best message (lol) -- because a pricking in my flesh has been given to me (more than once) by an angel of saturn (satyr), that he could repeatedly pound me in order that I don't become too elevated". it feels pretty coded in euphemisms, but the sense that come to me when looking at the words there is that he's been put in the passive role multiple times, and that he's seemingly not that worried about it.
+
+I actually think that understanding male relations is actually the key to understanding early christianty because -- I'm not totally sure about all of the details because I've no experience -- it seems that whatever happens to a man when he's in a passive relationship like that decreases his resistance and allows him to be more receptive to ideas and new forms of perception. I think that gay sex was a sort of virus that spread in the sense that it was probably the first time that astral vision was first ever perceived by "mortals". they didn't need to be elite or have the super bloodline whatever to be able to see an extra dimension and to begin to let their conceptual/eternal self to express itself in the body.
+
+I'll explain from my perspective: when I was growing up, I saw a flat 3d world where it looked like I was looking at a screen the entire time. I found out through the use of ayahuasca that I can see another dimension, and then in the second session, I figured out how to trick my mind into seeing the extra dimension. I then figured it out staring into stars and stuff like that. in thatt extra dimesion of space, you can let your conceptual perception manifest itself into that space -- meaning that you can conjure 3d images from your imagination and project them into space. the higher up you go, the more intimate you can get with your concepts -- cause let's say you understand physics -- then, you can run motors in that space and interact with physical stuff. or, let's say you're a story guy -- well, you can conjure your character and interact with him/her as if they were there. it's your own archetypes, and your own manifestation of those archetypes into concepts, but what's important is that they give you insight into anything you want to know about yourself and your beilefs. this capability is *ultra powerful*, and that's essentially what paul was doing when he's talking about these hyperbolic revelations in the "third heaven". he's interacting with his own archetypal beliefs made manifest into 3d space.
+
+it's quite a powerful capability that was given to paul, and it's essentially this capability that I believe he (and others) passed on through male relations, to get people into this world of reaction where they're perceiving (non-physical) symbols of their own beliefs or of the beliefs of those around them and then turning them into an entire experience (like the book of revelation). I actually think that paul was right: everyone who had that developed spiritual/astral body *did* get taken to heaven/vega at some point in time, as well.
+
+### 2023-04-28 08:13 - misunderstood paul
+
+the more I read paul in the greek, the more I get the sense that nobody has any idea what on earth he's talking about. he's an extremely conceptual guy. he reminds me a lot of vulcan (as I know him, anyway). like me, he thinks deeply on these subjects and he's writing in a way which reflects his depth. I do wonder sometimes, how much of what I write, people are actually understanding... it's an interesting thing for me to think about because I try to write on multiple levels now (as much as possible), where the surface text is often times offensive and shocking, but I put inside of it lots of things that only illuminate when you have as many concepts connected together as I do; and because I speak mostly from inspiration, I even notice myself connections between my own concepts that *I* wasn't even aware of. it's easy to misunderstand a person like paul/me, and I think that's part of his hidden greatness of being able to make verses which one person can read one way to support the very same point that another person uses against it.
+
+### james vs paul (1611 redux)
