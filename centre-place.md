@@ -99,7 +99,7 @@
     - not to the reign of david and solomon
     - it does make sense that these mythological narratives *did* happen, but not here on earth, as earth would be the alternate timeline of significantly more external difficulty (idea incomplete)
 
-
+[unfinished](https://youtu.be/fcBnok1c-m8?t=4126), as the history of the kings coming afterward are what *really* happened [according to archelogy](https://en.wikipedia.org/wiki/The_Bible_Unearthed)... also interesting stuff happens from the fallout from the bronze age collapse.
 
 #### 2023-04-25 19:21 - YHVH a reflection of david
 
