@@ -263,4 +263,19 @@ it's quite a powerful capability that was given to paul, and it's essentially th
 
 the more I read paul in the greek, the more I get the sense that nobody has any idea what on earth he's talking about. he's an extremely conceptual guy. he reminds me a lot of vulcan (as I know him, anyway). like me, he thinks deeply on these subjects and he's writing in a way which reflects his depth. I do wonder sometimes, how much of what I write, people are actually understanding... it's an interesting thing for me to think about because I try to write on multiple levels now (as much as possible), where the surface text is often times offensive and shocking, but I put inside of it lots of things that only illuminate when you have as many concepts connected together as I do; and because I speak mostly from inspiration, I even notice myself connections between my own concepts that *I* wasn't even aware of. it's easy to misunderstand a person like paul/me, and I think that's part of his hidden greatness of being able to make verses which one person can read one way to support the very same point that another person uses against it.
 
+## gospels of jesus' childhood
+
+- tropes:
+  - 12 is common number (identification with jupiter?)
+    - 12yo confounded the elders
+    - 12 sparrows from clay
+  - breaking sabbath (disrepspect for saturn?)
+  - breaking the law (rebel?)
+- by dividing and purifying water, jesus is being related with the god of genesis:
+  - dividing the (primordial) waters
+  - creating every winged bird
+  - forming man out of dust/clay
+- in quaran 3:49, jesus blows on clay birds bringing them to life
+  - also similar to how the god of genesis breathes life into adam
+
 ### james vs paul (1611 redux)
