@@ -60,3 +60,122 @@ crazy theory: following my timeline there with lena, what we have is the followi
   - ... whom jason hath received ... who do contrary to the decrees of cesar, saying *there is another king jesus*
     - (I believe that because these solar systems are connected, we exist in both places, but one can only access the conceptual aspect/archon of oneself through the astral)
   - ... and when they had found jasons and the others sufficient, they relieved them ...
+- paul believes that jesus died, and then became a spirit
+  - second adam, because adam was dirt then God breathed life into him; yet, jesus was man and then became a spirit
+  - jesus appeared to james, peter, the apostles, etc. -- and then *last* he appeared to *me* (paul) 1 corin 15:1-11
+
+## 2nd generation of christians
+
+@[youtube](https://youtu.be/UcVeLboHU9U?list=PLq3dh__o7S0o3YSzUWB57Xn5ndtiy5pz0)
+
+- mark is a *very* pauline gospel.
+  - starts with "the origin of the announcement of jesus christ"
+    - not a sentence; probably the title
+- sequence
+  - intitation events
+  - conflict stories (plot to kill)
+  - parables (disciples/students don't understand)
+  - miracles & cursus (power-displays)
+  - conflict stories (JtB killed)
+  - miracles & curses (power-displays)
+  - transition, telling disciples:
+    - suffer, killed, rise (8)
+    - betrayed, killed, rise (9)
+    - killed, rise (10)
+  - conflict stories
+  - apocalyptic speech
+  - arrest, trial, crucifixion
+  - resurrection
+- thematic arrangement
+- although opposed to judiasm, it lacks the prophecy about the temple's destruction.
+- they compel simon the cyrenian, the father of alexander and rufus to carry the cross
+  - those names must have been known in the pauline group
+  - seems strange to me, though -- like there's something there.
+  - M&L omit simon's sons. john has jesus carry his own cross
+- mark is for/pro:
+  - "the annoucement"
+    - starts with it, proclaimed by jesus, and ends with it
+  - christ has *new authority*, new teaching and breaks from jewish law-based culture.
+  - narrative magnet: dies, resurrected, and expected return
+  - *soon* (imminent) return
+  - apocalyptic discourse: the announcement must be preached to *all nations*, but beware cause nobody knows when it'll happen
+  - non-disciples are OK: you don't have to be one of the special 12 disciples to be able to cast out demons *in his name* (paul wasn't one of the special 12 apostles -- neither a super-apostle like james or peter)
+  - gentiles respond best to jesus' message (travels to non-jewish cities: decapolis twice and tyre)
+- mark is against/opposed to:
+  - law of moses nullified "all foods are clean"
+  - all jewish leaders oppose jesus and want him killed
+  - jesus' family lack faith
+    - (3:21) *family* comes to restrain jesus, saying "he's lost his mind"
+    - (22) the scribes claim he is satan casting out demons (of satan) ... jesus says "that's nonsense" ... "people will be forgiven for their sins and all kinds of nonsense, but blaspheming the "holy spirit" (interesting) can *never have forgiveness*
+      - apparently the scribes are claiming the "holy spirit" is beelzebul
+      - I thought it was *jesus* that's casting them out?
+      - is "his name" the "holy spirit"?
+      - or perhaps it's because they said he had an unclean spirit, instead of a *holy* spirit.
+    - (31) then his *mother and brothers* come looking for him
+    - (33) who are my *mother and brothers*
+    - (34) [looking around] "these are my *mother and brothers*"
+    - (35) "whoever does the will of God is my mother sister and brother"'
+      - interesting, no mention of a father here or anywhere else in mark
+    - (6:1-?) comes to hometown ... "where did this man get all of this?" ... "isn't this the builder, *son of mary, brother of james, joses, judah, and simon*, and are not his sisters here with us?"
+      - so, his family is there, but he doesn't recognise them as his *family* -- but rathar, he's recognising those who "do the will of God" as his family.
+        - I do wonder if the word there "Θεοῦ" can be thought of as "father", cause that may explain the lack of father thing, having fully adopted "God" as his father.
+      - again, no mention of a father
+  - disciples/students lack understanding
+    - parables are used to confuse the outsiders
+    - had to explain everything to the disciples (sounds kinda like everyone is a bit dense in this gospel, then cause if not even the disciples get it the ones getting the parables *really* don't get it)
+    - after feeding 5k people, jesus walks on water, people seeing it *didn't understand* because their *hearts were hardened*
+      - after having gone through a number of physiological changes myself, I understand this one, because the heart has a sort of levity and understanding to it, which cannot really be described, until you experience it. you know the centre point of a person's aura, is their heart -- not their head or their groin? (seems obvious, right?)
+    - 2 chapters later, they're out there in the desert and again the disciples have no idea how to feed 4k people.
+    - "yeast of the pharisees": disciples think he's talking about their bread. jesus has to tell them it means their bad teachings.
+    - peter rebukes jesus for predicting his own death. jesus calls peter satan, saying his mind is on human things
+    - disciples are concerned with *status* (that they're special)
+      - (9:33) arguing over who is the greatest
+      - (10:35-41) james and john want to know who can sit by jesus in the coming reign of God (who's gonna be the right-hand man, and who's the sidekick?)
+    - the 12 disciples are not actually being authentic followers of jesus
+      - (14:21) judas (one of the 12) betrays jesus for money
+      - (14:27) "you all will desert me"
+        - peter denies desertion
+        - (37-42) all sleep through jesus crisis
+        - (50) then flee
+      - (14:66-72) peter disowns jesus (3 times) then breaks down and weeps
+    - gospel ends very abruptly
+      - (16:7-8) angels tell women "go tell the disiples and peter in galilee" they instead fled in terror and amazement *and said nothing to anyone, because they were afraid* THE END
+        - interesting peter is no longer associated with the disciples anymore (or in a different location?)
+      - disciples did not carry the announcement forward because the women that were supposed to tell them that there was a resurrection were too scared and terrified to tell the disciples of the resurrection. (which is why they (james and peter) are conflicting with paul about the resurrection narrative)
+      - this ending was likely added, because it's not in all of the earliest manuscripts. also paul doesn't need an empty tomb to believe in a resurrection. paul believes in the resurrection because jesus *appeared to him*, just like he appeared to the other disciples.
+        - it's likely that this addition was added at a later time to give more physicality to the resurrection -- and not just make jesus a vision that some guy had (visions seemed to be common)
+- matthew uses mark but rejects/reworks ideas
+  - TITLE: "book of the *genesis* of jesus: *messiah*, son of *david*, son of *abraham*
+    - genesis = origin, geneology, birth, and first book of torah
+  - begins with elaborate birth narrative
+  - jesus only teaches within jewish law and culture
+  - jesus' family knows his identity (messiah) with certainty
+  - jesus validates the disciples
+  - jesus demands observance of the law
+    - do not think I've come to abolish the law
+    - not one letter, not one stroke of a letter will pass from the law, until all is accomplished
+    - whoever breaks the least of the commandments and teaches others to do likewise is called the least in the kingdom of heaven
+  - jesus endorses the disciples as trustworthy authorities
+    - you are peter, and on this rock I'll build my church
+    - I will give you (peter) the keys to the kingdom of heaven and whatever you bind on earth will be bound in heaven (vega), and whatever you release on earth will be released in heaven (vega)
+
+
+
+### 2023-04-30 04:29 - dream narrative
+
+to me, the narrative sounds a lot like a dream sequence; especially when the disciples are all so stupid and standing there scratching their heads all the time. like, have you ever been in a dream and you want to interact with someone (or get information about something) that is outside of the concepts in your own brain?
+
+for me (prior to nosebook; now it's obviously very different), it was like talking to a stupid person. they could only reveal to me things that I already knew, or have a different take on something that I know. essentially, only my own (non-resistant) concepts showed up in my dreams, and even trying to engage with someone felt impossible. meaning, that my dreams (before nosebook) were more like watching a movie, than they were actually interactive experiences. the times that I did try and interact with the dream, it was like talking to ... a cardboard cutout or something. it's like being inside of a movie. I've even had experiences where I can kinda pause the dream, and walk around inside of the movie, like in the matrix (4?) when the architect slows time way down and neo can't move around or talk cause time is slow -- like that, but it's more like the characters simply don't have a response, and the acttion around is muted or gone away from vision for a while -- like it's just me and the other character, but we can't really interact. they're stupid and can't respond like these disciples.
+it also reminds me of a black mirror episode with a mushroom where the scary thing jumps out, but just kinda stands there and doesn't do anything. telling you this gospel, all of a sudden looks extremely psychedellic to me -- like one of those full-eye visuals drug sequences.
+
+interesting, yeah so later on in life (when I was in spain) I started to become conscious in my dreams, but for whatever reason, it was always strongly disallowed, and I'd be shocked or forced awake. it's really hard to maintain the lucidity though, because as soon as I start to think with my rational/desire (I want to do this) mind, then the dream fades really quickly.
+
+### 2023-04-30 05:30 - jesus calls peter satan
+
+peter stands out to me in the book of mark because he's a bit different than the others. after jesus says he's going to die, peter says "surely that won't happen" etc. and jesus rebukes him saying, "get behind me satan" (reminds me of tesla, I just noticed) -- and what's interesting to me is that he's calling peter satan here and saying his mind is on *earthly things*. earthly things meaning that on earth jesus never dies, but in heavenly thought (vega) he does die.
+
+the other reason why I've noticed this is important is because there's this theme of vulcan (the master builder) creating something, and then leaving a stone behind. I identify with this stone a bit myself (and also with vulcan). I'm a very materialistic person myself. as much as all of the others are really into the visions and stuff like that, I like the tangible stuff, and so for me, the idea of being focused on *earthly things* is a really good thing. I suppose I identify a bit with satan/lucifer as well.
+
+anyway, there's another strange occurance in mark as well, which jesus claims that peter will deny him three times after the cock crows twice. I don't know how to explain it, but the garden scene there is extremely hEro, with the boy and the medicated bandage wrap (see dr-ammon), but peter is like, "woah bro this is a little too much for me" and peaces out. he goes instead to chill out with a maiden when he "denies christ".
+
+it's funny that later on the church builds it's foundation on peter/satan (again see dr-ammon).
