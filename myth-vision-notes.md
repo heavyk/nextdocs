@@ -55,8 +55,8 @@ crazy theory: following my timeline there with lena, what we have is the followi
 - phil 3:21 - they're trying to get you involved in a political community here on earth, but our political community is in heaven/vega; and from there we're waiting for a saviour that will evacuate us
 - acts 17:
   - certain lewd fellows of the baser sort ... assulted the house of jason ... crying these that have *turned the world upside down* ...
+    - jason and the argonauts?
     - (I believe vega is upside down -- and there seems to be a connection to left-handers too)
   - ... whom jason hath received ... who do contrary to the decrees of cesar, saying *there is another king jesus*
     - (I believe that because these solar systems are connected, we exist in both places, but one can only access the conceptual aspect/archon of oneself through the astral)
   - ... and when they had found jasons and the others sufficient, they relieved them ...
-  
