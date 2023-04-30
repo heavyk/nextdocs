@@ -157,9 +157,40 @@ crazy theory: following my timeline there with lena, what we have is the followi
     - whoever breaks the least of the commandments and teaches others to do likewise is called the least in the kingdom of heaven
   - jesus endorses the disciples as trustworthy authorities
     - you are peter, and on this rock I'll build my church
-    - I will give you (peter) the keys to the kingdom of heaven and whatever you bind on earth will be bound in heaven (vega), and whatever you release on earth will be released in heaven (vega)
-
-
+    - I will give you (peter) the keys to the kingdom of heaven and whatever you bind on earth will be bound in heaven [vega], and whatever you release on earth will be released in heaven [vega]
+  - changes to the announcement (to evangelion):
+    - TITLE (see above)
+    - "jesus came from galilee proclaiming the announcement" ->(deleted)
+    - "the reign of God has come near; repent and trust in the announcement" -> "repent, for the reign of heaven [vega] is at hand"
+    - "those who lose their their life for the announcement" -> "those who lose their life for my sake"
+    - "for my sake and for the sake of the announcement" -> "for my sake"
+    - "no one who's not left [family] for the sake of the announcement will not receive 100 times that" -> "everyone who has left [family] for the sake of my name will receive 100 times that" (removed paul's double negatives)
+    - "the announcement must first be proclaimed to all nations" -> (deleted)
+    - "wherever the announcement is proclaimed" -> "wherever this message is proclaimed"
+    - adds 3x "announcement of the reign of heaven [vega]" (4:23, 9:25, 24:14)
+  - matthew very likely reflects the attitude and narrative of the "super apostles" (james and peter) conflicting with paul
+  - a more solidified version of the (circumcision) super apostles, cause has destruction of temple allegories (later in time)
+- luke rejects mark's portrayal of jesus
+  - long birth narrative (also visits of angels)
+  - jesus' students become "apostles" of acts
+  - jesus visits temple, attends synagogue, reads scripture, and observes moses' law always
+  - judeans do not oppose jeses until the end when he goes into jerusalem
+  - pharisees regard him as teacher
+    - 3x invite him to dinner
+    - warn him of herod antipas and to flee
+  - two-volume luke-acts:
+    - jesus entirely in judean culture, and only rejected at the end when crucified
+    - only after resurrection is he identified as messiah and lord
+    - judean law finished only after resurrection
+      - declaring of food as clean only happens in acts
+- john is a different story altogether
+  - jesus bring truth and light to the world
+    - jesus is pre-existent (heaven, dwelling place of God)
+    - comes down into darkness and death
+    - ministers until his death (depositing truth)
+    - goes back to the father in heaven
+    - ministers truth now from heaven
+  - no need for paul's announcement at all
 
 ### 2023-04-30 04:29 - dream narrative
 
@@ -179,3 +210,11 @@ the other reason why I've noticed this is important is because there's this them
 anyway, there's another strange occurance in mark as well, which jesus claims that peter will deny him three times after the cock crows twice. I don't know how to explain it, but the garden scene there is extremely hEro, with the boy and the medicated bandage wrap (see dr-ammon), but peter is like, "woah bro this is a little too much for me" and peaces out. he goes instead to chill out with a maiden when he "denies christ".
 
 it's funny that later on the church builds it's foundation on peter/satan (again see dr-ammon).
+
+### 2023-04-30 07:03 - similarity to booke of revelation
+
+- paul's message is that christ died, rose, ascended, and will soon return to save trusters from wrath.
+- meanwhile (waiting for the return), maintain (especially sexual) purity for transfer to spiritual realm, ready for evacuation at any moment (returns as a thief in the night).
+
+this reminds me a lot of the 144k virgins not defiled by women in rev. I can't really say with any authority because I don't read greek, but when I was going through (I forget now -- something about not a few women), it seemed to me like it was saying that those that receive the word (announcement?) are the brothers, and not the few/oligarchy/dominant women. I don't have any scholarly credit, but the whole text seems to have a strong sense that women are kind of a bit of a drag to the getting the "glory" and stuff like that. I dunno how to explain it. anyway, the same thing seems to be presented there for the idea that these chosen/redeemed guys get a "new song" and stuff and all that and are sealed by the lamb or something like that.
+so, while the imagery of his announcement is the same for me as the one for the 144k, the interesting thing is that the narrative is the opposite: paul rejects the idea of special or chosen ones, but rev has this exclusive chosen ones getting to be the ones that christ takes up to "the new earth".
