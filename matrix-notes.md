@@ -198,3 +198,6 @@ the matrix is very much like the imagination, where all things visualised are ju
 in this sense of translating a concept into experience, the red pill takes your mind's concepts and turns them into reality and so now having externalised the concepts of the mind, not only to pictures but into full-blown reality, neo is forced to find a way out of the matrix of his own conceptualisations.
 
 I've had this red pill experience happen to me when I had my pinecone removed in the hospital (which interestingly [I just wrote about](/the-manifestation.md#2023-04-16-0759---may-day--reborn)), where I had all of these lofty ideas of making a website and having a girlfriend that I could program with and all of this stuff -- but also the ideas of risk and failure, insufficient performance and not-good-enoughness also being manifseted into experiences which I then lived through and had to find a way to conquer those ill-conceived ideas of myself. just pay attention to my life's story in the sense that my entire "rebirthing" process is all about (like ptah/enki/aquaman) overcoming my own conceptualisation of earth made manifest into reality.
+
+### red pill or blue pill?
+- I aim to see and perceive reality *as it is*, not as an image of what I think it is.
