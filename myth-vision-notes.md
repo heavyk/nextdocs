@@ -257,8 +257,9 @@ questions:
   - after 130y of (assumed to be oppressive) roman rule, "zealots" arose to declare freedom
     - there were lots of zealots (heb: qann'aim -- root jealous), and became name of military group in 66-70ce
   - josephus writes about the zealots in his story because they were there
-    - (name of group further fuels lost in translation problem)
-    - it's supposed that josephus is white-washing his own involvement in fighting against rome, painting zealots as scum, concealing noble religeous aims and distancing himself
+    - not the case because josephus in parallel account in antiquites 18-20, he leaves them out entirely, suggesting that writing them in adds something to the war narrative (not forced; he could have omitted them or wrote something else)
+  - it's supposed that josephus is white-washing his own involvement in fighting against rome, painting zealots as scum, concealing noble religeous aims and distancing himself
+    - clearly not the case because josephus in book 2-3 talks quite directly (even in the opening sentence of the book) about how he was a brilliant judean general fighting against vespassian
 - problems with common perception
   - no evidence that judea (ethnic zone in province of syria) felt roman rule as oppressive
     - in josephus own account, there's no mention of anti-roman sentiment; instead, there's a lot of anti-herod/agrippa/sameritan/samarian (anti-jew, anti-tyre, anti-scythopolis, etc.) -- lots of regional in-fighting and hatred.
@@ -272,6 +273,29 @@ questions:
 - translators of greek bible--wooden or robotic, turning ordinary human jealousy into zelos (not normal greek)
   - used zelotes for ajective *only for God*, which is weird in greek cause God can't be a disciple or emulator (no plural)
 - no "jealous ones": neither qann'aim (heb) or zelotai (greek) -- josephus' war is the only source for (plural) "zealots"
+- josephus usus zealot in the normal (positive) greek sense of the word
+  - josephus' audience (greek speaking people in rome) have no knowledge of hebrew definition of zealot/jealous or phineas, maccabees, etc.
+- ironically, josephus also uses the word zealot to describe people he doesn't like: disciples of unworthy leaders
+  - (war 2.444) zealoti of violent leader menachem, killed by another violent gang
+  - (war 2.645) spear-carriers and zealotai of elezar ben simon, kept out of power, opposed ananus
+  - (war 2.651) ananus had hands full trying to protect jerusalem, deal with so called zealotai (of elezar)
+  - (war 4.160-161) ananus ... kept trying to stir them (the good people of jerusalem) up against the "zealotai" -- for this is what they called themselves, as though they had devoted themselves ... to good pursuits/models
+- josephus is the only source we have for the group of people called zealotai
+  - reading his account from the perspective of his audience (greek-speaking romans), his definition is:
+    - rotton, violent, troublemakers like
+      - menachen
+      - elezar son of simon
+      - john of giscala(?)
+    - attracted men to theirselves followers:
+      - spear-carriers, thugs, henchmen
+    - which they theirselves (josephus claims) used the term "zealotai" to describe theirselves`
+  - josephus is saying that they (menachen, elezar, john) should have found good people to make up their following, like ananus or other former high priests (worthy models). instead, they attached theirselves to these scumbags (inotherwords, josephus is mocking them)
+- summary: these violent troublemakers, who will soon be responsible for jerusalem's fall attracted a bunch of people who thought that they were emulating something good, but instead, their followers ended up reflecting their leaders
+  - the were interested in personal power and not actually interested in the well-being of jerusalem the way that ananus, jesus, and these former high priests did
+- josephus is using literary language from greek tragedy, greek historigraphy (eusidites, polibus, sophacles, euripedes, etc.), greek oratory (demostanes) *not* biblical jewish language. (he's showing off his literary knowledge)
+  - so, when scholars read josephus and plug in bible usage of the same greek word is a bit of an error, cause it's not the same context.
+- zealots and jesus
+  - nothing in common because josephus' zealots show up in 66ce as fan-boys of various strongmen.
 
 ### 2023-05-03 01:11 - YHVH the "jealous" God
 
@@ -298,3 +322,7 @@ so, to paint a picture of an infinite and supreme god, I think the hebrew scribe
 I became interested in this word because it seems it's not a normal word. my first intuition on figuring it out was that it's a reflexive idea/verb. to explain, I noticed that the stem there is "zelo", and then add on "tes". well, in spanish if I wanted to say "verb yourself", I add on the suffix "te" to the end of the verb. seems simple. I then looked up the greek suffix for "tes" which seems to be taking an idea/denomination/identity and then making it the nom case. so, "an american" becomes "americantes" -- which has a sense of self-identifying to me when I say it, which kinda confirmed my suspicion that it's a self-identifying "zelo"...
 
 now, I looked up the exodus zealot verses to see what I could see, and there's nothing strange or jumping out to me about those verses. I thought for sure, they'd be a lot different in their rendering, cause if it's a self-emulating god, then the law would read really differently, but it seems to be too close or exactly the same as the hebrew version. it seems strange to me how much differently other books like isiah read compared to the hebrew vs this one, but I could be reading into it a bit. well, dead end there. nvm.
+
+### 2023-05-03 04:59 - judah the hammer
+
+this seems to me to be yet another reference to jupiter. just wanted to note it, cause I feel it'll be relevant soon :)
