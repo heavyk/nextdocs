@@ -221,4 +221,12 @@ so, while the imagery of his announcement is the same for me as the one for the 
 
 ### 2023-04-30 07:17 - reign of heaven
 
-as I was watching this presentation, I noticed that matthew makes some very strong changes to the text, specifically to establish that there is a coming time of a reign of heaven (presumably after the temple destruction) -- and while listening to this, I keep noticing how well this idea fits into my idea of these lewd types turning the world upside down (like shakespere), and that it seems to me that paul was actually instrumental in installing these archons into heaven, as he (and others it seems) seemed to have an etirely other world experience of christ, and then their conflict (with peter and james) essentially made this thing a reality, and so team james (the poor in jerusalem) was destroyed, team paul (and many of his opponents) off to heaven, and peter gets stuck here on earth. the archons proceed to rule from on high in this reign of heaven (that started probably with the destruction of the temple). 
+as I was watching this presentation, I noticed that matthew makes some very strong changes to the text, specifically to establish that there is a coming time of a reign of heaven (presumably after the temple destruction) -- and while listening to this, I keep noticing how well this idea fits into my idea of these lewd types turning the world upside down (like shakespere), and that it seems to me that paul was actually instrumental in installing these archons into heaven, as he (and others it seems) seemed to have an etirely other world experience of christ, and then their conflict (with peter and james) essentially made this thing a reality, and so team james (the poor in jerusalem) was destroyed, team paul (and many of his opponents) off to heaven, and peter gets stuck here on earth. the archons proceed to rule from on high in this reign of heaven (that started probably with the destruction of the temple).
+
+## luke-acts used josephus
+
+(forgot to take notes)
+
+questions:
+- could judas of galilee be the grain/sower (philosopher) type which would form the philosophtical origins of the jesus sayings?
+- speculation, but the 4000 sicarii in the desert -- feels possibly related to the mark's feeding of 4000 in the desert.
