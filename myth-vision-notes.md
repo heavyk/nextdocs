@@ -230,3 +230,62 @@ as I was watching this presentation, I noticed that matthew makes some very stro
 questions:
 - could judas of galilee be the grain/sower (philosopher) type which would form the philosophtical origins of the jesus sayings?
 - speculation, but the 4000 sicarii in the desert -- feels possibly related to the mark's feeding of 4000 in the desert.
+
+## jesus, zealots & sicarii
+
+@[youtube](https://youtu.be/y0D9AvpdUmw)
+
+- english translation for zealot is a negative word
+  - one who pursues his/her object with passionate ardour; usually in a disparaging sense
+  - one who is carried away by excess of zeal; an immoderate partisan
+  - a fanatical enthusiast
+- greek word zelotes/zelotai is a positive word
+  - (aristotle) admirers -- imitators, disciples, students
+  - (plato) "seven greek sages were all *disciples* (zelotai),*lovers* and *students* of the spartan educational system.
+  - having a worthy/good object of emulation that you're attahing yourself to; you want to become better; more virtuous.
+- josephus is using the word zealot in an ironic sense: that they were devotes/admirers of a bad example
+  - josephus calls himself a zelotes of his teacher banos, bathing in cold water every day
+    - which is interesting because baños in spanish means shower or bathe -- so kinda sounds like josephus' JtB
+- common perception of zealots (because of the transformation of the word from positive to negative)
+  - judea was a province under brutal roman occupation
+  - zealots were militant jews willing to throw off roman occupation with violence
+  - zealot is a general term for *judean rebel*
+    - comes from a noble/justified biblical heritage
+    - (num 25:11-13) phineas commended by God for killing isrealite for sleeping with foreign women
+      - "he was *jealous* on God's behalf", using righeous violence
+    - (1 maccabees 2:24-26) mattatias burned with jealous zeal (ezelosen) for the law, *just as phineas did of zimri*, in killing the judean willing to sacrifice to pagan gods
+  - after 130y of (assumed to be oppressive) roman rule, "zealots" arose to declare freedom
+    - there were lots of zealots (heb: qann'aim -- root jealous), and became name of military group in 66-70ce
+  - josephus writes about the zealots in his story because they were there
+    - (name of group further fuels lost in translation problem)
+    - it's supposed that josephus is white-washing his own involvement in fighting against rome, painting zealots as scum, concealing noble religeous aims and distancing himself
+- problems with common perception
+  - no evidence that judea (ethnic zone in province of syria) felt roman rule as oppressive
+    - in josephus own account, there's no mention of anti-roman sentiment; instead, there's a lot of anti-herod/agrippa/sameritan/samarian (anti-jew, anti-tyre, anti-scythopolis, etc.) -- lots of regional in-fighting and hatred.
+  - contra to "life of brian", there are no roman army or officials anywhere near to jerusalem
+    - the only "roman" military presence are auxiliaries which are hired samerians
+    - roman emperors and goveners of syria frequently step in to protect the judeans from their neighbours
+  - zero evidence for groups calling theirselves (heb) qann'ain because it would mean "jealous ones"
+    - no such groups exist in the bible, dead sea scrolls, etc. (only once in 3rd century mishnah)
+  - qan'a verb means "be jealous" (of neighbour, wife, success) -- a nasty trait
+  - only person in bible called (ajective) "the jealous one" is God. (exo 20:5, 34:14)
+
+### 2023-05-03 01:11 - YHVH the "jealous" God
+
+one of the things I've noticed throughout my studies of the hebrews and the deuteronimic editing proecess, is that it seems to me that the septuigent came first, probably when the greeks/aryans invaded cananite lands and because they were greatly outnumbered by the locals, adopted the cananite/phonecian language. after adopting the language, they wanted to start to create an identity for theirselves as different from the greek-speaking septuigent, and so it was from there that deteronomic hebrew translation of the greek septuigent was created.
+
+in this lecture(?), dr-mason presents the idea that the word used in greek to describe YHVH was zealot, which was a positive term, meaning idmirer (copier) of all things that are worthy of emulation, but that then (in a septuigent-first system), YHVH went from being a positive zealot to a "jealous" god.
+
+in a lot of ways, I think this change generally reflects the other aspects of the deuteronomic edits, because it seems like they're writing the narrated/mythological history from a perspective of how is this all-powerful *superior* god, YHVH constantly letting us down -- and so in their process of trying to figure it out, the answer seems to be that they weren't giving YHVH *all* the praise, worship, offerings, and sacrifices -- and instead gave some to other (pagan) gods. that failure of *loyalty* is why YHVH left them hanging
+
+imagine a moment how you feel after you've let down a friend/family member that you're supposed to be loyal to and you know the next time you need to call in a favour from them, it's gonna cost something. that's one feeling.
+
+also, when I feel the word "jealous" (qann'aim), it feels to me like "do what I want you to do, or else you'll reap the consequences" -- and it has a notably feminine (picaresca) feeling to it, like an angry mother/girfriend/wife (even has the word anna/ann/an in it, like the sumerian deity (anatau), btw)
+
+so, if I take the feeling of "required loyalty", and needing to call in a favour but it's gonna cost something, and also the "beware of the consequences (if you don't do what I want)" feelings together, this is the general feeling I get from the hebrew rendition of the idea of a "jealous God"
+
+however, if I take the idea a zealotes God, this is someone that is kinda like me, constantly on the lookout for something new to copy or emulate in my voracious search for more/expansion/growth.
+
+the problem is, a god that is constantly copying/emulating worthy objects/examples, is definitely *not* all-powerful or all-knowing in time and space, cause infinite doesn't grow and supreme doesn't shape-shift or emulate.
+
+so, to paint a picture of an infinite and supreme god, I think the hebrew scribes building their nation's religious belief/identity superimposed their idea of what a supreme and infinite god would look like (sorta like how I think the greeks did with the concept of zeus/god, mars/war and aphrodite/love).
