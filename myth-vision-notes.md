@@ -269,6 +269,9 @@ questions:
     - no such groups exist in the bible, dead sea scrolls, etc. (only once in 3rd century mishnah)
   - qan'a verb means "be jealous" (of neighbour, wife, success) -- a nasty trait
   - only person in bible called (ajective) "the jealous one" is God. (exo 20:5, 34:14)
+- translators of greek bible--wooden or robotic, turning ordinary human jealousy into zelos (not normal greek)
+  - used zelotes for ajective *only for God*, which is weird in greek cause God can't be a disciple or emulator (no plural)
+- no "jealous ones": neither qann'aim (heb) or zelotai (greek) -- josephus' war is the only source for (plural) "zealots"
 
 ### 2023-05-03 01:11 - YHVH the "jealous" God
 
@@ -289,3 +292,9 @@ however, if I take the idea a zealotes God, this is someone that is kinda like m
 the problem is, a god that is constantly copying/emulating worthy objects/examples, is definitely *not* all-powerful or all-knowing in time and space, cause infinite doesn't grow and supreme doesn't shape-shift or emulate.
 
 so, to paint a picture of an infinite and supreme god, I think the hebrew scribes building their nation's religious belief/identity superimposed their idea of what a supreme and infinite god would look like (sorta like how I think the greeks did with the concept of zeus/god, mars/war and aphrodite/love).
+
+### 2023-05-03 02:04 - zelos/zelotes
+
+I became interested in this word because it seems it's not a normal word. my first intuition on figuring it out was that it's a reflexive idea/verb. to explain, I noticed that the stem there is "zelo", and then add on "tes". well, in spanish if I wanted to say "verb yourself", I add on the suffix "te" to the end of the verb. seems simple. I then looked up the greek suffix for "tes" which seems to be taking an idea/denomination/identity and then making it the nom case. so, "an american" becomes "americantes" -- which has a sense of self-identifying to me when I say it, which kinda confirmed my suspicion that it's a self-identifying "zelo"...
+
+now, I looked up the exodus zealot verses to see what I could see, and there's nothing strange or jumping out to me about those verses. I thought for sure, they'd be a lot different in their rendering, cause if it's a self-emulating god, then the law would read really differently, but it seems to be too close or exactly the same as the hebrew version. it seems strange to me how much differently other books like isiah read compared to the hebrew vs this one, but I could be reading into it a bit. well, dead end there. nvm.
