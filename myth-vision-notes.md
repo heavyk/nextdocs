@@ -326,3 +326,18 @@ now, I looked up the exodus zealot verses to see what I could see, and there's n
 ### 2023-05-03 04:59 - judah the hammer
 
 this seems to me to be yet another reference to jupiter. just wanted to note it, cause I feel it'll be relevant soon :)
+
+### 2023-05-03 05:02 - cananaean
+
+this word, keeps reminding me of the wedding of cana.
+OK, so I looked at it and I think my intuition is right: simon peter is the same as simon the cananite. (or, at least the author of john wants me to think that). it's a play on words: (jon 2:11) this made (the genesis/beginning of jon 1:1) of the *simeon* --
+the word archen there for "the beginning", in my opinion (especially in the sense of jon 1:1), is *not* a beginning in the sense that we would give it in our linear minds, but instead, let's think of it as a fashioner or combiner -- something that: when God and the word are mixed together, all things come into being. the connection here I believe is being made of this combining process of (producing/bringing fourth) now [whatever it is] to the chief-architect/prince.
+let's just run through it:
+there are 6 stone vessels that are now cleaned according to the jews, which are standing there divided into measurments of 2 or 3 (factors of 6). "the joshua/jesus" (the article there is interesting) tells the dudes to fill those vessels with "water" (there's sexual imagery there). they fill the vessels to the top.
+then he says to them, "draw out now and bear/endure it to the master/chief-architect/prince" (y ellos lo endro).
+when the master/chief-architect/prince experienced the water which became wine, he didn't know where it came from. the (male servants) knew however where the water was drawn from. the chief-architect calls the bridegroom (that is the guy that appears in mat 9:15, mrk 2:19, jon 3:29, rev 18:23)
+and the chief-architect(?) said to himself: every man first the good wine serves, and then when they're drunk, serves the inferior/younger (wine); you serve the good wine until now
+this made the *simeon* (of his signs) into (the genesis), in cana (zealot) of (the circuit); and reveals his self-glory; and the disciples believed in theirselves.
+
+in short, I think that it's quite possible that there is a positive sense hidden in this word zealot/kananaios. what I don't understand though is how this it relates to peter. I clearly see a relation between the first chapter of john and the second chapter, where there there are three figures: the joshua/jesus (the word) that's tells the chief-architect (with/was God) to do something, and then peter (the simeon) gets turned into mixer (the beginning), then there's the water and the 6 vessels and the deacons that seemingly perform the transformation.
+see my concept on the-word for more thoughts on how that looks from a ray perspective that. jon 2:1-11 appears to be a different physical transformation though -- meaning, you could apply the same ray concepts there: and see that the word = physical, the genesis = astral, chief-architect = conceptual -- so in a pagan sense: vulcan.
