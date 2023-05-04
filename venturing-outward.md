@@ -80,3 +80,48 @@ the other thing is that I find the idea of thinking about ideas for things like 
 I lose viewing my own perspective when I watch other people, so I'm going to be doing a whole lot of not watching other people, focusing more and more on my own creativity. I thought that I wanted to create my own AIs and stuff for bar, but in the end, I think I just want to make my own general system (eventually), cause otherwise I'm just watching others -- and it really feels like people don't like me watching them. I'm not anyone else other than myself, so I can't really influence how anyone else (cept myself) conducts theirself.
 
 so, what I think is actually quite good is for others to *ask me questions* -- because I don't *really* read minds; I feel you; and, I'm learning that people (especially dudes) don't want me to tell them what I feel. sorry I'm so fearsome; you're only scared of perceiving yourself (and you think it's me you don't want to see). I still do the things I'm inspired to do (whether anyone likes it or not), so if you want to know something, just ask how I see and I'll probably be able to, on the spot tell you how I perceive it (though, it could take a week or longer for some more difficult to reach ideas).
+
+### 2023-05-04 17:09 - getting greg to fix his problems -- is a problem
+
+today I talked with mom at the doctor's office about her ideas of moving out. apparently it's happening pretty soon and stuff. as she's telling me about this, I noticed that I started to become pretty pessamistic about her ideas that greg will actually be doing the work. she wanted to know if I wanted to do dishes, and that's totally cool by me. I'll be just fine with doing all of the dishes and stuff, cause it's not actually that much more work from what I'm doing now.
+
+the weird thing about the conversation is that I expressed pretty strongly my doubt that greg will actually do the work, as it seems to me (from my perspective anyway) that he resents having to do any sort of work (that's not his own) and finds it a pretty big nuisance. one day when we were talking, he was expressing his discontentment that I don't have any fire to do anything anymore, and that I just float around "driven by my emotions" -- and that's a fair assessment from his perspective. I tried to explain to him that I've given up trying to assert myself in any direction anymore, and just float around feeling good about my situation (whatever it is). I have things that I desire and then I just sorta go with the flow and somehow those things start tto take shape without having to assert/effort myself in the direction that I want to go.
+I think that's precisely what's happening here, because if we look at the chain of events, there were quite a few interactions that I had with girls in a very short period of time, and so it's becoming obvious that I'm being pulled in that direction, even though there's effort to keep those interactions to a minimum. anyway, the way it looks/feels to me is that they're starting to take a look at the inevitable.
+the first day that I went down to sesily's house (1 may, "may day") there I decided to read "Love freed from Ignorance and Folly" [a masque by ben jonson](http://hollowaypages.com/jonson1692love.htm). I'm reading the wikipedia page on it and the thing that caught my eye is that this was the *last* masque that anne of denmark performed in, and when I [read the wiki page on it](https://en.wikipedia.org/wiki/Love_Freed_from_Ignorance_and_Folly), I read that it got delayed by a whole year. turns out, it was delayed from dec 1610 to 6 jan 1611 (twelfth night), then to 3 feb 1611. I wanted to read the masque because it felt relevant to me and I liked the idea of delaying a year.
+so I'm reading along in the bus and I get to the part here:
+
+    And they would, when he did rise,
+    Do him early Sacrifice
+    Of the rich, and purest Gum,
+    That from any Plant could come;
+    And would look at him as far
+    As they could discern his Carr:
+    Grieving that they might not ever
+    See him; and when Night did sever
+    Their Aspects, they sate and wept
+    Till he came, and never slept:
+    Insomuch, that at the length
+    This their Fervor gat such strength,
+    As they would a Journey prove,
+    By the guard, and aid of Love.
+    Hither to the farthest West:
+    Where they heard, as in the East,
+    He a Palace, no less bright,
+    Had, to Feast in every Night
+    With the Ocean, where he rested
+    Safe, and in all state invested.
+      I, that never left the side
+      Of the Fair, became their Guide.
+
+when I read the line "Till he came, and never slept" there was a sudden realisation that all of my talk about not wanting to have the kundalini rise because I want to sleep, are not just empty words.
+
+the rest of the day was a train wreck of realisations that no matter what they try and do to prevent me from getting access to genetics, will ultimately fail because right now if a large solar flare happens and I get connected, I'll stop sleeping for a while; same with sex. me not sleeping is bad for them because while I'm sleeping they rearrange things so that I'm on the timeline where my energy is going to slowest, which they think they're doing for my sake, but I just keep going faster and faster (cause I have less resistance), and that's a good thing for them because the world starts to reflect how much resistance I have -- and so if they don't want too many people starting to become a bit more empowered, they're making that adjustment by modifying my energy levels (while I'm sleeping). if I don't sleep, then I'll just start to feel better and better and there's nothing they can do to stop it. they'll lose all control over the world, as it'll become a reflection of me.
+
+I've explained that I know there are a lot of people out there that see the world in a way that's not compatible with my form of perception, and so I don't want to cause them problems and force them to live in a world that is how I want it to be, so I've tried to say that I want to find a way to make it physiologically impossible for my kundalini to rise, so I continue to be able to sleep, and they can keep lowering my energy down to the bottom every time I sleep. I find it fine and doesn't take me much time to get going now, so it's really no problem for me.
+obviously, their reduction of my energy will only have so much effect, and even my lowest energy state will be comparable to how it would be now if my kundalini would rise. I'll likely need to sleep less and less, needing only brief rests to kinda reset (you only need as much sleep as it takes for vibration to slow down) -- so I'll need only as much sleep as I'm holding on to resistant vibration. it'll get less and less, which means that eventually there will be a split that *has* to occur.
+
+therefore, what it appears to me that these are just events that are lining up them finally having to concede to allow me to modify my genetics for such a purpose (and I also want this trait to carry over into future copies of me as well), because it's starting to look more and more like me not sleeping for a very long time is becoming inevitable...
+
+so, when I say that getting greg to do his part of the chores isn't really solving anything, but I just go with the flow here and itt seems that I behaved that way to cause it makes sense in the big-picture: I find it a lot easier mentally to live by myself just cooking for myself, and even greg saying that he really doesn't want to hang out with, or take care of (I forget the exact words) two lame/useless brothers.
+
+I'm just writing this because I figured out why I intuitively had such strong skeptisism and doubt, and wanted to share the big-picture
