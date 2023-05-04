@@ -538,9 +538,9 @@ in short, I believe the giants served their purpose, as being a good attractor, 
 
 ### 2023-04-08 01:32 - seventh star
 
-@[youtube](https://www.youtube.com/watch?v=yC-hFO8h55g)
+@[youtube](https://youtu.be/yC-hFO8h55g)
 
-in this video presentation, she's talking about the devil appearing in art and music to have a number of qualities that I noticed had reactions noting that they could accurately describe me. I feel that this is yet another case of misunderstanding. I explained that her description of the devil having unlimited creativity, access to all sorts of knowledge, and the like is simply a process of releasing resistance; nothing more. *all of us* are the devil. the devil is not any single person, but the coming state of humankind, where we *all* see from this liberated "devil" perspective.
+in this video presentation, dr-angela's talking about the devil appearing in art and music to have a number of qualities that I noticed had reactions noting that they could accurately describe me. I feel that this is yet another case of misunderstanding. I explained that her description of the devil having unlimited creativity, access to all sorts of knowledge, and the like is simply a process of releasing resistance; nothing more. *all of us* are the devil. the devil is not any single person, but the coming state of humankind, where we *all* see from this liberated "devil" perspective.
 
 @[youtube](https://youtu.be/dHgW9zHmW-E)
 
