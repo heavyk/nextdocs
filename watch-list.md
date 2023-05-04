@@ -11,9 +11,14 @@ virgin suicides
 ### movies
 
 frozen
-little mermaid
+little mermaid (1989 & 2023)
 lost in translation
 coming to america
+enchanted / disenchanted(? has a flimsy story -- but could be symbolic)
+mirror mirror
+beauty and the beast (2017)
+aladdin (1992 & 2019)
+
 
 ### plays
 
