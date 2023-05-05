@@ -81,7 +81,7 @@ I lose viewing my own perspective when I watch other people, so I'm going to be 
 
 so, what I think is actually quite good is for others to *ask me questions* -- because I don't *really* read minds; I feel you; and, I'm learning that people (especially dudes) don't want me to tell them what I feel. sorry I'm so fearsome; you're only scared of perceiving yourself (and you think it's me you don't want to see). I still do the things I'm inspired to do (whether anyone likes it or not), so if you want to know something, just ask how I see and I'll probably be able to, on the spot tell you how I perceive it (though, it could take a week or longer for some more difficult to reach ideas).
 
-### 2023-05-04 17:09 - getting greg to fix his problems -- is a problem
+### 2023-05-04 17:09 - getting greg to fix his problems -- is *the problem*
 
 today I talked with mom at the doctor's office about her ideas of moving out. apparently it's happening pretty soon and stuff. as she's telling me about this, I noticed that I started to become pretty pessamistic about her ideas that greg will actually be doing the work. she wanted to know if I wanted to do dishes, and that's totally cool by me. I'll be just fine with doing all of the dishes and stuff, cause it's not actually that much more work from what I'm doing now.
 
@@ -125,3 +125,22 @@ therefore, what it appears to me that these are just events that are lining up t
 so, when I say that getting greg to do his part of the chores isn't really solving anything, but I just go with the flow here and itt seems that I behaved that way to cause it makes sense in the big-picture: I find it a lot easier mentally to live by myself just cooking for myself, and even greg saying that he really doesn't want to hang out with, or take care of (I forget the exact words) two lame/useless brothers.
 
 I'm just writing this because I figured out why I intuitively had such strong skeptisism and doubt, and wanted to share the big-picture
+
+#### 2023-05-05 11:41 - meta commentary
+
+I felt compelled/requested to do a meta commentary on this last entry. I think it's a great idea. so, here we go...
+
+> getting greg to fix his problems -- is a problem
+
+think about that for a moment, then consider nearly the same idea:
+
+> getting greg to fix his problems -- is *the problem*
+
+I wrote the first one yesterday, and one of the funny reactions to this idea was around my whole concept of pushing against something only makes it bigger; I could see yesterday -- let me explain: I perceive people's feelings in response to words and actions very well. I sorta have a sense of how people feel when they're talking and the way they feel in response to the words or actions of others.
+because I'm so sensitive I've had to no longer see problems because everyone else's worry and concern in their voice is really intense for me, so I have to see all the problems they have as not a problem. if I can feel someone else's probelems, I have a very strong negative reaction to them; so I've learned quickly to try and avoid feeling other people's problems.
+  you know, it's very american, this idea of not wanting to feel other people's problems: we put ourselves into great lengths to avoid other people's nonsense. like, you know my time is valuable, so don't fill it with misery; I'm doin'it my own way.
+I don't actually see greg's problems as a really big problem, but because mom loves to notice greg's problems, incites that energy and those conversations in me.
+  it's an interestingg thing that I become the voice of many women, because they don't know how to communicate what they think, and because I'm perfectly fine with shooting my mouth off with a very out of colour comment somewhere; it get's people's attention and then like a lawyer, I weasel myself out of the situation, because I really don't have any malice in me. I enjoy the drama, myself; and I think it's funny.
+so what happens is, because I'm bombarded by other people's feeling responses to everything, I have to learn tto not see anything in a negative way, because inevitably, I'm gonna do something offensive, because somehow I'm always obscene in some way. my personality has learned to love the idea of being a shock-jock; shock-jockkery didn't really come naturally to me, but because I'm sso attractive to everyone, it ends up happening so quickly. famous people know this -- because the more eyes I have on me, the more crazy nutty stuff they'll end up attracting. some people really inspire nutzo stuff and sometimes my brain kicks in and has to shuttit down because it's gonna be a problem. this happens to me all the time when I'm around other people and someone attraccts a reaction from me that is bewildering even to me at first, but only for a brief moment now (it used to feel like some feelings are too impxsibble to evver understand), and so (now!) I always figure it out, so it's totally not a problem -- so you know I just learn to laugh it off because deep down I'm really a super chill person (it's ***all*** attraction).
+
+OK, what else can I say about it? you know, nothing's really coming to mind right now .
