@@ -700,6 +700,6 @@ there is obviously a bit of a problem, which is that you can't just get rid of a
     sure, some men who only look at her appearance will be attracted to her, but as soon as they interact with her, he'll quickly figure out that looks isn't everything, cause (by looking for something physically attractive) he's really looking for her to be the attractive thing for him, when *he's* the one that wants to learn how to be attractive: as a result she'll reflect all of his undesirable aspects back to him in the form of behaviour and attitude; he'll have to choose to become attractive himself of what he wants, in his own way, and not rely on her to do it for him.
   meanwhile, hopefully she's going to get sick of herself as a beautiful but awful person to be around, and she'll only find herself fitting in with others that feel intense dissatisfaction, as well. they can all have their dissatisfaction party together, and then tell people, "salvame! (de mi dissatifaccion)" (lol)
 I'm actually not sure if convincing enough bottoms to become demon lords will really "sink the ship" or not, but if they can get women to produce more dissatisfaction than I can produce satisfaction, we are headed for a cataclysm, and that's fine by me: I can't find what I want here, anyway.
-punish me :)
+punish me for wanting a reflection of myself :)
 
 [1]: I'm reminded of frances howard and also of marlowe's sister joan/jane that got married at 12 and died in childbirth at 13.
