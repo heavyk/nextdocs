@@ -292,10 +292,59 @@ questions:
   - josephus is saying that they (menachen, elezar, john) should have found good people to make up their following, like ananus or other former high priests (worthy models). instead, they attached theirselves to these scumbags (inotherwords, josephus is mocking them)
 - summary: these violent troublemakers, who will soon be responsible for jerusalem's fall attracted a bunch of people who thought that they were emulating something good, but instead, their followers ended up reflecting their leaders
   - the were interested in personal power and not actually interested in the well-being of jerusalem the way that ananus, jesus, and these former high priests did
-- josephus is using literary language from greek tragedy, greek historigraphy (eusidites, polibus, sophacles, euripedes, etc.), greek oratory (demostanes) *not* biblical jewish language. (he's showing off his literary knowledge)
+- josephus is not using biblical language
+  - josephus is using literary language from greek tragedy, greek historigraphy (eusidites, polibus, sophacles, euripedes, etc.), greek oratory (demostanes) *not* biblical jewish language. (he's showing off his literary knowledge)
   - so, when scholars read josephus and plug in bible usage of the same greek word is a bit of an error, cause it's not the same context.
-- zealots and jesus
-  - nothing in common because josephus' zealots show up in 66ce as fan-boys of various strongmen.
+- zealots and jesus:
+  - nothing in common because josephus' zealots show up ~30y lqter in 66ce as fan-boys of various strongmen.
+  - matt 10:4 and mark 3:18 render this guy "simon the cananeaan", and luke renders "cananeaan" for the same passage as "simon the zealotes"
+    - luke probably knew the connection between qanna and zelotes (septuigent), and so that's probably why his epithet got translated to zealot.
+    - seems that luke simply took the meaning of this one simon guy who was more like a super disciple, a devoted follower/imitator
+    - no clues that any of these of these accounts are about phineas or the other troublemakers josephus refers to
+  - jesus was in galilee, which didn't have any romans in it
+  - and when war did break out a few decades later in jerusalem, those from galilee kept out of those problems
+    - cepris (major city) welcomed vespassian and requested he keep a garrison of soldiers there
+- sicarii:
+  - common view is that sicarii overlaps a lot with the zealout movement (probably not the case)
+  - "sica" is a balkan-style daggar, curved in contrast to roman straight swords
+    - this knife is kind of a sneaky knife, used not for "honourable" engagements
+    - romans imported the word into latin as sicarius "knife-attacker" (kinda like shank or shiv)
+  - it doesn't make sense that a judean group would call themselves by a latin name, when nobody is speaking latin around them
+- josephus on sicarri:
+  - does not mention the sicarii in War 3-6 (story of arrival of vespassion in galilee and judea/jerusalem till the destruction of the temple)
+  - imports the latin word into greek to mean knife crime against jews 55-60ce (*nothing to do with anti-roman rebels*)
+  - (war 2.254-257) after felix purged the countryside of bandits, there rose up a new threat of these knife-bandits stabbing people in the middle of the crowd, conceealing the knife again then pretending like they were shocked to see the victim ... first it was johnathan the high priest, but then it became more and more until there was so much terror in the city of people suspecting to be carrying one of these knives, even friends started to lose trust in each other.
+  - political murders of jewish judean rulers/leaders during the roman civil wars (*no mention of them in jerusalem*)
+  - later he uses sicarii to describe troublemakes in general: those who fled from jerusalem to masada, troublemakers in egypt (jews killing jews early 70's), etc (*not part of war with judea*)
+  - conclusion: josephus uses this latin word in greek because it's a buzzword and resonates with the audience
+
+- derek's literary resonances between joseph and jesus
+  - joseph's story sets precident for laying out the judah narrative
+  - wonders if judas/joseph/josephus/communion narrative plays into history:
+    - joseph is one of 12 brothers
+    - gets betrayed
+    - it's judah (judah is same name as judas) who doesn't want to kill him but sell him (and sells him for silver)
+    - potiphar could be related to pontius pilate
+    - he gets thrown into the dungeon
+    - two men (one a baker, and one a winebearer) have a dream
+    - he interprets the dream and *after 3 days*:
+      - the winebearer (blood/wine) will be put back into place to serve the pharoah
+      - the baker (bread/body), your head will get put on a pike and birds will devour you
+    - as the winebearer is leaving, joseph says "don't forget about me" (do this in remembrance of me)
+    - then, soon enough joseph is seated at the right hand of the pharoah
+  - (personally, I think it does, because reality manifests based on our beliefs -- and how we connect things together; they are loose literary connections, not historical at all, but the *narrative* will dertermine how that same manifestation will be experienced in the next temporal resonance of those symbols into our experience)
+    - this is precisely the reason why I harp on perception and allowing the past to be perceived in a different way than necessarily *only* the historical one.
+    - a lot of awful things happened in history, so like the way that the mind turns that traumatic movie into a simple concept (oh, "they felt they needed to hurt me", "I attracted it", "they were jealous of me", etc.) we perform this narrative simplification all the time to allow forward movement, and progress into the new things (otherwise we're still stuck in the old)
+
+- derek's question about "rendering unto ceasar what is caesar":
+  - tiberius (in the 30's) was *not* a guy that wanted to be worshipped.
+  - there were other roman emperors that did want to be worshipped as gods, but those were at different times
+    - makes me think of lena einhorn's time shift hypothesis cause maybe an emperor in the 50's would want to be worshipped like a god.
+  - the coin says "divine caesar augustus" -- but that would be reserved for a *dead guy*
+    - if it's the 50's tiberius is dead I think, so it could be him in the time shift hypothesis
+    - it also adds another layer of depth to the saying then, because tiberius was a good ceasar and things were going well under him; he died and became a god (on the coin), so if there's a new caesar that's wanting to be worshipped, jesus is telling them to worship the *dead* caesar as a god, *not the alive one*
+
+
 
 ### 2023-05-03 01:11 - YHVH the "jealous" God
 
