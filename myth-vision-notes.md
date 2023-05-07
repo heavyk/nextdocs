@@ -259,7 +259,7 @@ questions:
   - josephus writes about the zealots in his story because they were there
     - not the case because josephus in parallel account in antiquites 18-20, he leaves them out entirely, suggesting that writing them in adds something to the war narrative (not forced; he could have omitted them or wrote something else)
   - it's supposed that josephus is white-washing his own involvement in fighting against rome, painting zealots as scum, concealing noble religeous aims and distancing himself
-    - clearly not the case because josephus in book 2-3 talks quite directly (even in the opening sentence of the book) about how he was a brilliant judean general fighting against vespassian
+    - clearly not the case because josephus in book 2-3 talks quite directly (even in the opening sentence of the book) about how he was a brilliant judean general fighting against vespasian
 - problems with common perception
   - no evidence that judea (ethnic zone in province of syria) felt roman rule as oppressive
     - in josephus own account, there's no mention of anti-roman sentiment; instead, there's a lot of anti-herod/agrippa/sameritan/samarian (anti-jew, anti-tyre, anti-scythopolis, etc.) -- lots of regional in-fighting and hatred.
@@ -303,7 +303,7 @@ questions:
     - no clues that any of these of these accounts are about phineas or the other troublemakers josephus refers to
   - jesus was in galilee, which didn't have any romans in it
   - and when war did break out a few decades later in jerusalem, those from galilee kept out of those problems
-    - cepris (major city) welcomed vespassian and requested he keep a garrison of soldiers there
+    - cepris (major city) welcomed vespasian and requested he keep a garrison of soldiers there
 - sicarii:
   - common view is that sicarii overlaps a lot with the zealout movement (probably not the case)
   - "sica" is a balkan-style daggar, curved in contrast to roman straight swords
@@ -343,8 +343,6 @@ questions:
   - the coin says "divine caesar augustus" -- but that would be reserved for a *dead guy*
     - if it's the 50's tiberius is dead I think, so it could be him in the time shift hypothesis
     - it also adds another layer of depth to the saying then, because tiberius was a good ceasar and things were going well under him; he died and became a god (on the coin), so if there's a new caesar that's wanting to be worshipped, jesus is telling them to worship the *dead* caesar as a god, *not the alive one*
-
-
 
 ### 2023-05-03 01:11 - YHVH the "jealous" God
 
@@ -426,3 +424,44 @@ therefore, I was thinking about how they could introduce their own 2nd ray symbo
 the interesting thing about this lunar triad though is that now *thoth* is the reflector, and *not* osiris; which means that the moon (osiris) is no longer reflecting the sun. that means it's probably important to have a system (like tesla's world system) which can keep the astral plane regular like the moon used to do. then, just start to fit that chaos into people's own narratives, allowing the sun to instantiate the chaos into something desired. very interestiing way to do a fully calculated desire (narrative) system. I hope it works out... that'll solve so many problems for you guys...
 
 which then after those transform the 2nd ray aspect turns tho more symbols)
+
+## aftermath of judean war with rome
+
+@[youtube](https://youtu.be/d1Qd4lUMx5c)
+
+- common view is that judean war was a long battle lasting 8-9 years (it's actually a narrative spin)
+- for the romans, the war was over with in 70 after the destruction of the temple
+- 69 was the year of four emperors, and to look really strong and masculine, you want to have a military campaign expanding the empire to show for yourself, *not* court intrigue and scandal
+  - claudius had triump of invading britan in 44 but that was a while ago
+- growing dissatisfaction over julio-claudians & nero
+- new ruler needed legitimacy -- not a coup or winning a civil war
+  - power from winning a civil war dispute leads to endless struggle
+- vespasian sees the losers quibbling in rome as an opportunity to take power because he has the judean thing:
+  - actually commanded an army that expanded the empire
+  - personally captured a general (josephus)
+  - personally wounded (though sounds very achilles-esque)
+  - planned titus' victory,
+  - defeated (widely hated) vitellius in rome
+  - "I've been fighting these enemies while you have been fighting each other"
+- turning a *provential unrest* into "foreign victory"
+  - flavians and senate agree to portray supression of disturbance into a "foreign victory"
+    - agustus-like victory over the east, ushers in *era of peace*
+    - vespasian allowed to expand pomerium (as if he'd conquered new land)
+    - temple of peace erected near forum of augustus (and jerusalem temple loot displayed)
+  - destructive civil war can be avoided by putting vespasian into power
+    - endless celebrations
+    - new construction projects: temples, arches, colouseum created on top of
+  - new province added to appear as new conquest of foreign people (but is just syria provinve divided up: no new land)
+  - (bj 4.555) all the sites in judea were taken, cept herodium, masada, machaerus which are taken by bandits, rome's only objective now is the jerusalem area (summer 68ce)
+  - (bj 7.142-44) the war furnished a vivid spectacle with a number of portraits divided into various episodes ... (lots of big things that, according to josephus' own account, didn't actually happen)
+    - the victory celebration is a marketing campaign to make it seem that it was a foreign victory
+- vespasian rebuilds monuments and temples:
+  - temple of jerusalem destroyed at the same time as temple of jupiter (during civil war); both rebuilt at the same time
+  - coloseum (flavian ampitheatre) built
+  - arches for titus
+  - arch of temple of isis
+    - the flavians spent the night before the triumph at the temple of isis
+    - the depiction there looks like the columns heads in petra (angled before carved, and corintian leaves on bottom after carved by the romans)
+    - probably to show the capture and conquest of jordan region
+- desert fortresses:
+  - josephus claim that the people who went to masada were fleeing the civil disturbances in jerusalem amongst the warring jewish groups (eleazar, manachem)
