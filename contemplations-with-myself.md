@@ -896,3 +896,32 @@ I nevver look out there and see someone doing something that I think would poten
     all emotion (unless redirected with thought) is a runaway feedback loop system.
   you can tell how you feel by how you see the big-picture
 things that motivate me are things that I think fit in to my perception (of the big-picture).
+
+#### 2023-05-08 03:44 - sex, drugs, emotion, and feeling
+
+various responses, so let's just walk through it: when I eat weed, it decreases my brain's resistance to ideas by defocusing my concepts (also allowing more connections to be made), and so that causes the vortex from my brain to emit a slightly different feeling -- which, depending on the person and how they are, will cause them to either feel like things are coming together, or not-understandable into paranoia.
+sex is very similar in that the interaction causes the other person's energy to travel up the spine and into my brain; our brains synchronise as we begin to activate similar concepts in our brains, which causes me to feel like them.
+  for example, let's say I'm with a person that really needs the feeling of touch from someone else in order to feel affection; well what ends up happening, is now I start to feel that way now too (good for bonding, I suppose), and my brain synchronisation with them will cause me to briefly begin to start needing another person's touch in order to feel affection.
+    quite possisbly one of the main reason why prostitutes are preferred amongst a lot of men, simply because they're not as frequently going to program his brain to need a "loving/close relationship" in order to feel affection, whereas his girlfriend or wife may have that concept very strongly in her mind during sex.
+    therefore, naturally if he doesn't want to engage in that style of thinking to reflect his wife, he may feel attracted to someone else that doesn't have that kind of concept going.
+  I personally don't really like tto feel the way that many women feel, and so the idea of having a physical interaction with them is something like putting my hand on the stove: I don't mind that the stove is there and doing really productive and meaniful things, but I don't really want to experience the stove with my hand.
+  therefore, I tend to feel negative-attraction (repulsion) from someone that has dramatically different concepts than I do.
+  I suppose it is possible for me to feel attracted to someone physically, and not at all for how they think and perceive -- but it's a disaster waiting to happen, because as soon as my mind is forced to perceive and feel concepts like she does, I now need to overcompensate for those with the opposite and it causes conflict.
+  for example, in the case of needing touch or a close/loving relationship in order to feel affection, what will end up happening is that I'll mirror her and want to feel touch and a close/loving relationship (according to my concepts) -- so say I believe that honesty and communication is necessary to have a close/loving relationship, and so now I need to start looking for that in her, and that's a problem -- because *that's not the issue*: the issue is that I'm looking to someone else to make me feel something that I don't think I have.
+  in reality, I need to run away from her and find my own way to feel good, instead of trying to *affect* her behaviour to feel the *affection* that I want *from her* (see the problem?).
+    I run myself around looking to fill in an emotion that I already have (but cannot feel because I'm resistant to feeling it for myself without someone there to guide me to it) and after that I feel that somehow I'm not able to get the feeling of *affection* that I want -- and it's all because I'm trying to *affect* others to feel the *affection* that I want.
+
+so now, let's run through things in simplistic way (from my perspective):
+1. I feel emotionally good
+2. I engage in sex and feel emotionally bad, but physically good
+  - the physical sensation, and the focus on another beautiful person causes my emotional vortex (produced from the pineal) to cause my body to feel better physically -- and lasts as long as she remains beautiful and the sex is good, etc.
+3. I come to start to think that I need that physical interaction in order to feel better about the things that she's using me fill in her missing emotions (cause her perception can't produce that emotional vortex from her thoughts)
+  - at the same time, I have to start to compensate for the concepts that I previously didn't feel, but now feel because my brain has synchronised with hers
+    - if I'm a person that uses conditions, I may need to hang with the boys, find a prostitute, play a game, sleep, go for a walk (or whatever)
+    - if I'm a perceptual person, I adjust those feelings by changing (again) how I feel about those same concepts producing a different (but ususlly contrary/conflicting) set of concepts that now surrounds me in my emotional vortex. if she's around me, that'll feel to her like an emptiness or like she's "lost me" -- and so again, she'll want to refinforce her concepts with a kiss or some kind of physical signal that I should see things like she does.
+4. I start to depend on her to feel better about all of the concepts that she herself is confused about.
+  - this often times creates conflict, especially if she really needs to hold on to those concepts -- because (depending on how old she is) those concepts feel like "the way reality works" and if I undo her concept of reality, her whole concept of reality comes crashing down.
+    - if she's one of those that *has* to be right, she'll surruound herself with other females (usually close family and friends, mother, grandma, etc) to reinforce her reality as being the correct one (because correct is a democratic decision, not an emotional or emperical one)
+    - if she's one of those that takes the blame for everything, she'll determine that the end of her fantasy reality (that he doesn't want to be a part of) is all her fault, and that she's all wrong about everything, can't figure it out, etc. (a total mess) which then she usually needs consolation and a cheerup from someone else, cause she can't find a way to make herself feel better... *puke!*
+
+culture is not your friend.
