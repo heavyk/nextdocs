@@ -856,3 +856,18 @@ but I don't live there, and I want others who want to join me here consider the 
 [1]: TODO: how things feel and how they connect (from a persective opposite to consequences)
 
 [2]: TODO: find a way to connect to and interact with the solar computer system. I'm sure it's posible. we just neet to think in frequncies faster than visible light
+
+### 2023-05-08 01:16 - me, myself, and your reflection
+
+I was just laying there and a thought came into my head which I thought was a bit funny: the idea was that my previous relations with various girls really didn't show them off in the best light, and so for reasons of optics (marketing of the female gender), it's desirable for me to at least have one good relationship...
+that idea is funny to me because I'm not really motivated by embarrassment; at times, I'm demotivated when I feel embarrassed, like I don't want to do that if people are going to laugh at me or think of me poorly -- but it doesn't really last so long because I can't really control what others think and feel about me.
+  you know, motivation by embarrassment is the same as competition, but in reverse: when I compete, it's so that others can look at me and feel proud for my competitive achievement; when they feel good about me, I can also feel good about me.
+  if the competition yields embarrassment, then I feel like they do about me: ridicule and unworthiness.
+so, what's happening here is, that thought didn't come from me -- right, it's a reaction coming from someone who's motivated by embarrassement.
+I know that a lot of government agencies are often motivated by embarrassment, and that's one of the most interesting things about "court intrigue" -- because they can't seem to help but continue to attract more and more embarrassing situations: causing them to get better and better at covering/smoothing over, and hiding the embarrassing stuff (obviously, that's not a very easy thing for me to do).
+so, here's where it'll all fit together: that desire isn't for me, but it's actually for them; they're the ones that want to find a way to improve the embarrassment, not me.
+  I noticed this was also the case for just about everything as well -- because for example if a woman wants me to be around a little girl, it's because she wants the girl to feel some kind of affection, because *she* wants to feel that kind of affection (so she externalises her desire to the girl because she doesn't feel herself capable).
+for some reason, it seems near to impossible for people to admit their desires to theirselves directly (almost as if we've been trained to never get anything we want), and instead locate their desires in others, either by wanting it for someone else (cause they don't feel theirselves worthy enough), or by not wanting the other person to have the thing that they can't admit that they want.
+  I notice this all the time with nosebook: they want me to be around girls and stuff -- and they have a lot of good reasons for it -- but in reality, it's *them* that wants that for theirselves -- *not for me*; for, if they didn't feel pressure that they *must* allow it to happen (probably for optics), then they would otherwise be fighting against me having it, because they can't admit that they want it for theirselves.
+all you/I need to do is to look at what other people are doing and if they're doing (or having or being) something cool, just say to myself, "I want to do that" -- and then just leave it at that; soon enough, I will be/doing/having it (it really is that simple).
+
