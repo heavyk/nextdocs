@@ -248,7 +248,7 @@ correlation between the apostles' altered state of consciousness and "COVID brai
 
 (ending for now pp. 22)
 
-### 2023-05-08 04:44 - lecture 2 (continued)
+### 2023-05-08 04:44 - lecture 2 (reread, continue)
 
 - we can only figure out what happened by looking through the perspective of peter or one of the other apostles who experienced the all-prevailing love at pentecost event
 - looking into the souls of peter and the apostles is the way that he can see the events:
@@ -272,3 +272,23 @@ correlation between the apostles' altered state of consciousness and "COVID brai
 - the apostles state of soul at that time was such that they could only participate in the death of jesus (of nazareth) in an *abnormal state of consciousness*.
 - whole period of golgotha to pentecost was in dreaam-state:
   - garden of gethsemane is where they lost "normal" consciousness and entered into the dream-like state
+  - especially the 10 days from ascension til pentecost, they were in a profound sleep.
+
+### 2023-05-08 11:13 - lecture 2 (reread, continue)
+
+- as the images of the events in those 50 days started to come back, they simply didn't recognise the jesus that they were seeing in the memories; they would ask theirselves, "is this the guy that we were with?"
+  - they were walking and interacting with a different jesus in the "realm of the spirit"
+- they realised that for those 40 days they were walking and interacting with a new much more spiritul jesus that was born "on the cross" (does he mean after the resurrection?)
+  - in their normal state of consciousness, they simply could not have been able to understand or comprehend the things that jesus was teaching them.
+  - only after their transformation/awakening in the pentecost event, were they able to comprehend such profound spiritual teachings
+    - these kinds of profound and meaningful events happen when the brain is a very high frequency and can perceive many connections between the concepts at once, whereas in a slower mental state, the concepts appear separated and not connected.
+- the question is: "how did they know it's the same guy as before the galgotha event?"
+- he explains how they came to recognise them:
+  - first there were images of the events that happened with the the physical jesus, then
+  - superimposed on top of the physical image, there was a spiritual jesus (that looks nothing like the physical one) that is elaborating at the same time the very same events, but in a much more profound and spiritual way.
+  - those images of the spiritual and the physical jesus performing the same events, but at differeng levels of perception eventually came to be associated with each other, and they saw the two jesuses as one and the same (just different levels of awareness)
+    - obviously this explanation fits perfectly with my theory of the spiritual one being vega jesus, and then the physical one is the earthly jesus
+- steiner's personal remarks regarding how he thinks his investivation will prove useful in the future (even though it is only a "hint")
+- steiner didn't find christ through the church, but through tthe spirit, and so therefore wants to continue the exploration and discovery of the christ through the spiritual instead of religious lens the church provides
+
+### 2023-05-09 03:11 - lecture 3 (reread)
