@@ -329,9 +329,33 @@ correlation between the apostles' altered state of consciousness and "COVID brai
     - as a result, *all* aspects of our physical reality begin to take on the form of our concepts made manifest (magic or science if you want to look at it that way).
 - to understand the pentecost event, we need to look at the raising of the soul (in perception) through the persian mithras mysteries:
   - "raven"
-  - "occult person", symbolically: "secret one"
+    - 7th ray, physical (female quality)
+  - "occult person", symbolically: "secret one" (astral)
   - "fighter"
+    - 5th ray, conceptual (receptive quality)
+    - has appearance of fighter/warrior/mars, which is normally 7th ray
+      - I'd have to say that I fit this symbol very well, as I'm very mars-like in the fighter/warrior quality, but notice that I'm also extremely conceptual at the same time
   - "lion"
-  - (name of the culture/people he belonged to)
+    - 4th ray, spectral
+    - reminds me of daniel and the "lion's den" and also shakespere's lions, as well.
+  - (name of the culture/people he belongs to)
+    - 3rd ray, forms, structure, logic and syntax
+    - this is the domain of species, and their instincts and behaviour.
+    - these are the non-physical archetypes which concepts are a part of. each culture/people has a mythology encoded into their DNA which connects them directly with these archetypes and forms (see discussion on venus vs jupiter), and it's through the mixing of these various physical/conceptual forms, emerges new physical entities/concepts which only partially resonate with their archetypes, requiring new archetypes/forms to be created
   - "sun hero"
+    - 2nd ray relational, big-picture, christ
+    - when there are a lot of concepts (and their physical counter parts) which are resonating on a frequency which cannot be received by non-physical, then this is where the sun hero steps in and envisions a new form which will resonate with the (desired to be manifest) energy, and constructs syntax with which that new form can interface with other forms in its domain. (forethought -- visual/relational implementation/perspective of desire/attraction)
   - "father"
+    - 1st ray, desire, will, attraction
+    - when things interact with each other, there's *always* a resulting vibration, and those vibrations continue to create higher and higher frequency vibrations (a soup of noise and chaos) which start to come together because their vibrations are going the same way. it infinitely creates more and more higher frequency mediums to allow of the coming together of different vibrations.
+    - the "will" of the father cannot be avoided, because they are a mathamatical equation where two vibrating things either harmonise, or they don't -- and all of those vibrations are caused by impacts -- so it's safe to say that unless we can make an impactless universe (no interaction), expansion into higher and higher frequencies *is inevitable*. it's also safe to say that the result of all undesirable impacts/interactions will *always* coalesce into something that resonates with all of the other undesirable results; bigger, better, greater, and more desirable things are the "will" of the father.
+  - few comments now:
+    - I suppose that the "father" is a very subjective word here, because in the way that he's using it here, when jesus came from heaven (whether it's 3rd or 5th ray doesn't matter -- though I have the sense it's 5th ray) down to earth, this makes the father either 3rd or 5th ray.
+    - in the schema that I perceive while reading this, I see these conceptual forms (forms that we conceive ourselves) precipitating down to earth and taking on form -- essentially because of attraction.
+      - imagine for a moment that I'm the concept that I am, and I have a whole spectrum of symbols that are associated with me, which I resonate with. each time that someone gives their attention to a symbol, it attracts it further.
+      - this happens all the time in everyday life, which, as we live it, we turn the events that transpired into symbols and actions performed by archetypes, which then attract those actions based on the same archetypes; the very definition of ceremonial magic: the idea of preforming a sequence of actions with an intent attracts a manifestation of similar archetypal/action quality in a different medium (family, culture, country, physical in general, my body, my mind, my imagination, sensation, feeling, etc.)
+      - therefore, the "father" in this sense is the conceptual realm -- and it's pretty easy to see why when we look at the 2,4,6 realms: both astral and spectral rely on concept; the astral uses concept to know *what* is being rendered, and *how* it should look. spectral uses the conceptual for its entire processing system: the things that are moved around can only be moved around because they're conceptually similar, cause someone can have the same manifestational experience whether it's a lizard or a dragon -- so long as it invokes the feeling of reptile or the emotion felt in the interaction.
+        - symbol locks the manifestation into a form, but for example, one of the things I noticed in the missing-411 stuff is that these people that briefly "went to the father" has their entire world translated into a world of feeling, and the physical manifestation didn't need to make sense, so long as it matched the feeling that they were producing. some people attracted a gruesome death, meanwhile others had a nice time with what would be scary-looking entites; without 3rd ray perception to lock in the form, it could appear as anything that fits the feeling/concept.
+        - another interesting thing to note here is fort's "super sargasso sea" -- which, if that's the ionosphere, conceptual realm, and somehow an electrical event produces a frequency that resonates with a concept, attracting its instantiation/manifestation into the physical. inotherwords, that frequency, physical in nature, is like a narrative that attracts an instantiation of something into physical; it then exists in the environment its instantiated into and learns and grows based on the environment (we're all that way anyway -- and certain tantric/sex magick procedures can produce stronger resonances with certain concepts).
+        - our symbols resonate with concepts that exist "in the father" and when enough signal strength is reached, that concept will find its way into physical (somehow).
+          - our symbols are our own memory/history/narrative/beliefs/etc. that we focus on individually or in a group (obviously as a group is more powerful)
