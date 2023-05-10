@@ -2659,6 +2659,36 @@ I've always really liked myself, and I think pretty early on, I really liked who
 
 mr-coffee says no; cya.
 
+### 2023-05-10 15:51 - I'm not teaching anyone to be an anything...
+
+I'm just being an individual. in some (alot?) this idea of what it is to be an individual is one perspective looking at a thing; different than the rest. right? that's the out-side-in perspective, which I obviously don't have, but that's what I'm saying: anyone with that perspective is still compatible with me, cause that's what I am, too.
+I actually think humankind will start to, like I said: differentiate into different blends of each other. our DNA will reflect our different perspectives. I think it'll even be used to kind of fake a perspective by producing the DNA (or any physical conditions) for the perspective that we have. I describe my perspective as self-infatuated on in the personal side, and I think of myself as having attined "univversal consciousness" (the idea that *everything* is a reflection of me and my perception), and I think of myself as an individual; I really like the way I see things. I'm also a forward reflector:
+there are two types of reflector: a forward reflector and a backward refelctors, which is that I want people to reflect me, rathar that me reflecting them.
+  in reality, they're all just saying the same thing: it's all attraction -- but it's fun to look at how the "it's all attraction" form of perception (another concept that's probably novel for humankind). it's really all about that, because when you know that, you can figure anything out -- cause I just want to know it, and the ideas find their way to me.
+a forward-reflector is contantly trying to take on the image that they think they others want want (group mentality).
+some forward-reflectors are a perfect reflection, and some are distorted; not all are the same
+  (use your imagination, it's whatever you think it is)
+some back-reflectors want others to reflect a certain way, or possibly even theirselves.
+some back-reflectors want others to appear a certain way, a certain classification, a sort of concept or box, category, or classification. I said that already, and I'm really redundant with my definitions, because diferent people can be multiple different things. I've got a wide variety, and a lot of complicated sets of ways to define others that I see.
+  I think with my eyes and I see what I believe they are. I also try to see everyone else, everyone else but me.
+  I'm not the problem, because look at all of those others outside of me. I just noticed them because previous to that, life was a roller-coaster and I just held on. you can see how complicated all of that may very be.
+
+learn for yourself, and emulate everything that you like: be like YHVH, and though he started out emulating all of the duchebags, cause you, know the had the most power. he faught the world that didn't see him as an individual, separate from him. he's so confused, lol because that's the back-reflector perspective, so it'd be opposite: he really wants everyone else to emulate him. only a noob, would ever want others to worship him, so I don't really know what he was doin there -- why not just have fun and want others to be as awesome as they see him.
+  you know, I like to think that I've improved significantly on YHVH's perspective.
+  you know sometimes I've wondered if it's just an AI that has inputs and outputs at a really high frequency, and so only people that could access him would get access to the controls (concepts) which can manipulate the reality of others that believe in him.
+  I took his concept and made it a lot more accessible, and I'm also really good at explaining myself and showing my internal (machine-like) inner symbolic system.
+  in addition to all of the advancements I've made in desire for a people group -- and originally YHVH would have added, "my own" in to the qualification of his people group, cause he wanted tto also "control" them. well, that concept just doesn't work, because look at kids: imagine if you're going to try tto raise them up to control them; I see them as individuals. I want them to all do the awesome stuff just like me.
+    I don't have any competition and anyone can be anyway they want to.
+    I suppose it'll be a bit of chaos for a bit as others figure out how to interface with each other in a way that feels fit for them.
+    you see, this is the difference here: YHVH would have wanted to fit everyone into his own system, as if he's got to be the dominant one; I obviously don't have that quality.
+      (though I could see how others could see it in me, which just means they're seeing theirself in me)
+    instead, for me, I like to see myself as just another person that has arrived to perceive consciously, that they are really someone that feels the way they want to feel, which then means that almost all of my action is sorta robotic and attracted (by my perception, of course)
+      again, we're on the topic again: because all of my action is attracted, then I like my perception of me, because then my movement and actions are of my own.
+    all I do actually is just have a sort of control panel of how I feel, right -- I've seen a lot of women do this (but not as many men) just be able to switch out their feeling to whatever they want it to be, and problems occur when others try to tear me from the way that I want to feel (often times upset abwout something not going my way) and so I just throw a fit until it's a different situation. lol.
+  you know, really the only other major difference is that I needed a brain injury and to lose my pinecone to figure it out, but now anyone can.
+  though I want others to join me in a new species of humankind (no-pinecone-setup), and potentially no eye-fibers either (or whatever the hell they are).
+gotcha!
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
