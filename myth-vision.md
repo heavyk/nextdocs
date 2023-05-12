@@ -232,3 +232,9 @@ I realise (now) that the sentence should also be said: I also want to "see" what
     the only thing we need to do to start using it is to develop that new faculty. I figured it out, and others can too. it's really quite easy, and you can too. you'll see eventually.
   the human race.
 I guess we'll all "see"/see what we want to "see"/see in our own special way.
+
+### 2023-05-12 15:32 - you know what's awesome, man?
+
+I write these ideas down and other people read and experience them in a sober state of mind. when I smoke by myself, I have to find a way to hold on to the thoughts and bring them back into reality -- or at least the feel of the thought, because I for the most part cannot really remember what I wrote, so what ends up happening is you guys read them, and imagine them in the reality aspect where they're at, and try to perceive the window into reality that I'm opening up.
+  like, I normally don't see like this profoundly into reality and I instead kind of just sorta wing it all with emotion (which I hope I'm giving a good sales pitch toward others learning it too), because...
+hang on, I need coffee. wrong frequency.
