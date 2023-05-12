@@ -103,3 +103,17 @@ in some sense of the idea, I could consider reality like a simulation, where the
 I think the key to understanding how to let a tragedy happen in an energetically positive way is to perceive oneself not as a single lifetime but as a cosmic being (which may be the unconscious power of the martyr and kamakazi concepts), and that all unjustice/unfair/whatever energy can (once proper perception is attained) produce a desirable energy result -- which means that the art of the foil is just becoming better and better at transforming *all* energy into something desirable.
   a charactor emits something desirable, but a centre reflects energy as something desirable.
   everyone loves to be around a centre, because of the way they reflect: everyone looks desirable (even the bad-guys), and nobody looks like a threat
+
+#### 2023-05-12 12:09 - you just see...
+
+> "you just see what you want to see; you're broken"
+
+I noticed that one of the things that is possibly misunderstood about the foil and centre perspective (all of them, really) is that although the other person has a different way of looking at something, I don't need to change them to see things like me.
+
+you see what you want to see
+I see what I want to see
+other people see it for "what it really is"
+(which is the same as seeing what they want to see)
+other people more see nothing of what I see
+other people after that see only an illusion
+(which is also kinda like seeing what I want to see)
