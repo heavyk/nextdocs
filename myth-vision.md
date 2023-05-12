@@ -251,12 +251,12 @@ will we ever figure out how to release resistance to undesirable-feeling emotion
   will we keep looking at the differences, and trying to make sense of the resistace, instead of seeing everyone as the same.
   racism is formost and lowering resistance to see everyone is the same,
     is when we make another big jump.
-find out soon enough.
-be sure to check out.
-drama is the bast.
-   use caution.
-here          be
-     dragons!
+         find out soon enough .
+         be sure to check out .
+           drama is the bast.
+             use caution.
+          here          be
+               dragons!
 
 ### 2023-05-12 15:32 - you know what's awesome, man?
 
