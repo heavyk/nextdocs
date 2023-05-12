@@ -2828,6 +2828,18 @@ all of these ideas are pure speculation, of course -- and even if someone comes 
   after my time has ended, I'll almost certainly return some times to join in. I have no idea what those will look like cause I have none of my capabilitise to perceive beyoned time in this moment right now -- but I'm confident that I'll continue to return over and over again, probably to be defeated even more times (I mean it's a great thing for everyone out there that's a conditional living type person, because they can get all of the cool stuff without having to actually work for it -- and though I get defeated, I'm still quite an exceptional person, and I'm fairly confident that as I develop cupid further, he'll be able to have a pretty fun time and feel good *no matter the situation*).
 at some point, I'll be going so fast that finding an incarnation in a low-energy environment like this will probably be difficult, so in the future, I imagine my creativity will be spent building more difficult and aggressive bad-guys to defeat me (cause in an environment where manifestation is instant, I imagine the challenge is different, cause a even the briefest of emotional instability can be disastrous).
 
+#### 2023-05-12 07:52 - sinister plot update
+
+OK, so check some of these ideas out (some are new and some are old, but this is the first time I write them).
+
+imagine for a moment that we decide that if we're going to do the waiting until 2038 for full power, the first tragedy will be to instead of me taking some kind of power, instead pass along my energy off to another woman -- and let's try and make it as unacceptable of a woman as possible (like a black woman or something that few would desire to be in power) -- and because I've been charging up for this entire time, let's imagine that she's going to receive *A LOT* of power.
+
+that plot/tragedy is designed to be foiled though and two of them are pretty obvious: the first being that say nosebook has the capablity for me to prematurely ejaculate or something ensuring that she receives as little power as possible, or almost none at all. because of our belief and mental input she's setup there mentally, but not physically, so she then has to find her own way to the energetic state on her own.
+the second tragedy is that imagine for a moment that we take the previous plot setup that I imagined in the previous entry, where I'm on earth which is supposed to be the low solar output star, but because of my effect, it's quite high output along with vega. when the event happens, let's say it somehow triggers/synchronises with a solar outburst in both stars simultaneously. the goal, in the setup for this event is to find a way of making sure that the majority of people have been able to (either artificially or through mental focus) have energy levels (and a form of perception) that makes them perceive from planetary or solar perception; meaning, that when the solar outburst happens, they make their transition into a planet or a star; and from there, they're now eternal beings as well (stuck inside of a star/planet), and we can use them simply by putting the planet/star into the system that we want their energy with, simply by resonating at their frequency, to attract them in (they have to come, because space is a zero-resistance environment).
+  which, if they don't like us summoning them into our setups, then they probably need to form a galaxy or something of their own where they're with other "trusted" individuals out there.
+
+interesting. I'll leave it there.
+
 ### (----) fake (bad) romances
 -> gatta put a ring on it (capture it) before it runs away
 -> like a dream, and any minute you could wake up and everything you hoped for is all gone
