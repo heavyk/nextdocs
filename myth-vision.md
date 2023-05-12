@@ -233,6 +233,31 @@ I realise (now) that the sentence should also be said: I also want to "see" what
   the human race.
 I guess we'll all "see"/see what we want to "see"/see in our own special way.
 
+### 2023-05-12 15:56 - if we create our own species(es)
+
+it's pretty inevitable that slavery will occur as a sort of way to reduce adoption speed to the new species(es) that we create.
+it stems from wanting to hold someone back.
+it also comes from not wanting someone else to get it easier than we had it (whoever "we" or "I" is)
+so imagine that someone (inevitably) wants to keep a number of human species away from the genetic improvements -- like say the poor africans -- and so inevitably they'll end up as slaves, and eventually enough mixing will occur which will produce a multitude of different hybrids; each with their own unique take on the way emotions are perceived.
+  like think about it, the africans are all about the rhythm and movement, and they've got a really conceptual way about them.
+  there's this one guy that I really like "stevie" something, and he's got this song about tings falling apart, and I just love the song, because it has such a deep emotional concept that comes with the song. they're extremely conceptual -- and they see reality differently than we do. for example, every picture that I see of africa that's been photographed recently of africa, even the photo looks entirely different than our reality -- it's like circular pixels, but they're like infinitely thin glowing rings (at its smallest size), and they layer over each other to create this pattern that looks like an echasketch(?), where it's kinda wigily and african looking (dunno how to say that).
+    like you know how sometimes on like a really intense trip, everything starts to gain these borders along the lines in the 3d form that vibrates and pulates like plasma discharge at the edges of things? well, it's like that, but made out of zillions of tiny glowing circles (coloured of course).
+    well, it's like that, so it gives their reality an extra sort of vibratory space to it, like you're now really "in" the space. probably best experienced from the "I can feel good about anything" zero-resistance experience level.
+  what I think is important here is that a gradual introduction and cross-breeding to create hybrids is actually a technique that I think best suits the expansion of everyone's senses into this emotional world.
+  anyone can choose invisible if they want, but it'll be really cool to get a whole bunch of hybrids where it's the invisible and other senses too (more than just the 5).
+there's one thing like making a universe, and that's pretty fun, but wouldn't it be pretty fun to go and delay that problem by jumping into a new system of perception, completely what we want it to be...
+trapped into our own reality that we created.
+will we ever figure out how to release resistance to undesirable-feeling emotions?
+  will we keep looking at the differences, and trying to make sense of the resistace, instead of seeing everyone as the same.
+  racism is formost and lowering resistance to see everyone is the same,
+    is when we make another big jump.
+find out soon enough.
+be sure to check out.
+drama is the bast.
+   use caution.
+here          be
+     dragons!
+
 ### 2023-05-12 15:32 - you know what's awesome, man?
 
 I write these ideas down and other people read and experience them in a sober state of mind. when I smoke by myself, I have to find a way to hold on to the thoughts and bring them back into reality -- or at least the feel of the thought, because I for the most part cannot really remember what I wrote, so what ends up happening is you guys read them, and imagine them in the reality aspect where they're at, and try to perceive the window into reality that I'm opening up.
